@@ -1,64 +1,103 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'September 19, 2026';
+const lastUpdated = 'October 5, 2026';
+
+// TODO: disclosure.md was empty on the WordPress export. This page is drafted only from what your
+// Privacy Policy and Terms already say (affiliate networks, ads, sponsored content, reviews).
+// Review it and adjust to match how you actually operate.
 ---
 
 <StaticPage
-	title="Disclosure & Disclaimers"
-	description="PawsomeFlock's affiliate disclosure, including our Amazon Associates disclosure, plus our medical, editorial, and external-links disclaimers."
+	title="Disclosure"
+	description="HomelyFusion's affiliate, advertising, and sponsored content disclosure, including our Amazon Associates disclosure."
 	icon="💰"
 >
 	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
 
+	<p>
+		HomelyFusion is a for-profit website. This page explains how we earn income so you can make informed
+		decisions when you read our content and use our links.
+	</p>
+
 	<h2>Amazon Associates disclosure</h2>
 	<p>
-		PawsomeFlock is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.com and affiliated sites.
+		HomelyFusion is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program
+		designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.com and
+		affiliated sites.
 	</p>
 	<div class="note-box">
 		<span class="note-icon">💵</span>
 		<span>
-			<strong>As an Amazon Associate, we earn from qualifying purchases.</strong> This means that if you click a link to Amazon from this Site and make a purchase, we may receive a small commission — at no additional cost to you. Prices and availability are accurate as of the date of publication and are subject to change.
+			<strong>As an Amazon Associate, we earn from qualifying purchases.</strong> This means that if you click a
+			link to Amazon from this Site and make a purchase, we may receive a small commission—at no additional cost
+			to you.
 		</span>
 	</div>
 
 	<h2>Other affiliate relationships</h2>
 	<p>
-		In addition to Amazon, we may occasionally participate in other affiliate programs or accept free products for review. Whenever we do, we'll clearly identify the relationship on the relevant page.  Our participation in an affiliate program never determines whether we recommend a product — see "Editorial independence" below.
+		Some links on our website are affiliate links, meaning we may earn a commission if you purchase a product or
+		service through them—<strong>at no extra cost to you</strong>. In addition to Amazon, the affiliate programs
+		we participate in include:
+	</p>
+	<ul>
+		<li>CJ Affiliate</li>
+		<li>ShareASale</li>
+		<li>PartnerStack</li>
+		<li>Impact</li>
+		<li>Other home-related affiliate networks</li>
+	</ul>
+	<p>
+		Our recommendations are based on genuine research, experience, or editorial discretion. These links do not
+		change your price or your shopping experience.
+	</p>
+
+	<h2>Sponsored content</h2>
+	<p>
+		We may publish sponsored content or work with product partners. Sponsored partners are clearly labeled in our
+		content.
 	</p>
 
 	<h2>Advertising disclosure</h2>
 	<p>
-		We may display advertisements on this Site through third-party advertising networks. These networks
-		may use cookies and similar technologies to serve ads based on your visits to this and other
-		websites. See our <a href="/privacy-policy/">Privacy Policy</a> for more on how cookies are used.
+		We display third-party advertisements, which may come from networks such as Google AdSense or Mediavine.
+		These ads may use cookies and tracking to serve relevant ads based on your interests. We strive to partner
+		only with advertisers that align with our values in home decor, minimalism, and eco-conscious living. For more
+		on cookies, see our <a href="/privacy-policy/">Privacy Policy</a>.
 	</p>
 
-	<h2>Editorial independence</h2>
+	<h2>Product reviews and recommendations</h2>
 	<p>
-		Our recommendations are based on research, publicly available information, and — where possible — first-hand experience. Affiliate commissions do not influence which products we choose to recommend or how we rate them. If we don't think a product is good, we won't recommend it, commission or not.
+		We offer reviews and recommendations on home decor items, minimalist accessories, lighting, and eco-friendly
+		decor brands. These opinions are our own and may be influenced by personal use, research, or affiliate
+		relationships.
 	</p>
 
-	<h2>Medical &amp; veterinary disclaimer</h2>
-	<div class="note-box warm">
-		<span class="note-icon">🩺</span>
-		<span>
-			The content on PawsomeFlock — including articles about health, symptoms, nutrition, medication, and behavior — is provided for general informational and educational purposes only. It is <strong>not</strong> a substitute for professional veterinary diagnosis, advice, or treatment. Always consult a licensed veterinarian with questions about your pet's health, before starting any new food, supplement, or treatment, and immediately in the case of an emergency. Never disregard or delay seeking professional veterinary advice because of something you read on this Site.
-		</span>
-	</div>
-
-	<h2>Accuracy of information</h2>
+	<h2>We don't sell products</h2>
 	<p>
-		We make a good-faith effort to keep articles accurate and up to date, but pet care guidance, product availability, and regulations can change. We don't guarantee that every piece of information on the Site is complete, current, or error-free, and we're not liable for actions taken based on Site content. If you spot something outdated or incorrect, please <a href="/contact/">let us know</a>.
+		HomelyFusion does not manufacture or sell any physical products directly. All purchases made through
+		third-party links are governed by the terms and return policies of the respective sellers. Please read the
+		merchant's policies before making a purchase.
 	</p>
 
 	<h2>External links</h2>
 	<p>
-		This Site may link to third-party websites, including retailers, manufacturers, and other informational resources. We don't control these sites and aren't responsible for their content, accuracy, or privacy practices.
+		Our content may link to third-party websites, including affiliate partners, blogs, and retailers. We do not
+		control or endorse their content, services, or privacy practices. See our
+		<a href="/terms/">Terms &amp; Conditions</a> for details.
 	</p>
 
+	<h2>Informational purposes only</h2>
+	<div class="note-box warm">
+		<span class="note-icon">ℹ️</span>
+		<span>
+			All content on HomelyFusion is provided for <strong>informational and educational purposes only</strong>.
+			We make no guarantees about the completeness of the information or the results of using our
+			recommendations.
+		</span>
+	</div>
+
 	<h2>Questions</h2>
-	<p>
-		If you have questions about any of the disclosures on this page, email us at <a href="mailto:pawsomeflock@gmail.com">pawsomeflock@gmail.com</a>.
-	</p>
+	<p>If you have questions about this disclosure, please reach out through our <a href="/contact/">Contact page</a>.</p>
 </StaticPage>
