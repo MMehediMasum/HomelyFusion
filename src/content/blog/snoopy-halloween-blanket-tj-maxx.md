@@ -244,7 +244,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0CQYHDW3B?tag=gea
 ## <a href="https://www.amazon.com/dp/B0FLL3HFC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Franco Manufacturing Co. Inc. Peanuts Halloween Throw Blanket</a>
 
 
-<a href="https://www.amazon.com/dp/B0FLL3HFC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 70""="" alt="Franco Manufacturing Co. Inc. Peanuts Halloween Throw Blanket - Mummies &amp; Green Moons, 50" src="https://m.media-amazon.com/images/I/41xlKccXI1L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0FLL3HFC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Franco Manufacturing Co. Inc. Peanuts Halloween Throw Blanket - Mummies &amp; Green Moons, 50" src="https://m.media-amazon.com/images/I/41xlKccXI1L._SL500_.jpg" /></a>
 
 
 The **Franco Manufacturing Co. Inc. Peanuts Halloween Throw Blanket - Mummies & Green Moons, 50" x 70"** is ideal for fans of the Peanuts comic strip, Halloween enthusiasts, and anyone looking to add a festive and cozy touch to their home decor during the spooky season. This blanket is perfect for those who appreciate themed home accessories that combine comfort with playful design. Whether you're decorating for a Halloween party or simply want to stay warm on chilly autumn nights, this throw blanket is a great choice.
