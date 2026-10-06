@@ -1,10 +1,14 @@
 ---
-title: "Tree Home Decor Ideas: Transform Your Space with Stunning Artificial Olive Trees"
-description: "Tree home decor adds a touch of nature to any space without the maintenance of real plants. Artificial trees like olive and ficus bring life and elegance indoor"
+title: 'Tree Home Decor Ideas: Transform Your Space with Stunning Artificial Olive
+  Trees'
+description: Tree home decor adds a touch of nature to any space without the maintenance
+  of real plants. Artificial trees like olive and ficus bring life and elegance indoor
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tree-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=tree-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tree home decor adds a touch of nature to any space without the maintenance of real plants. Artificial trees like olive and ficus bring life and elegance indoors.**

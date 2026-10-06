@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Remove Cotton from Wound at Home: Safe & Easy Steps"
 description: "If you’ve ever had a wound covered with cotton, you know how tricky it can be to remove it without causing pain or reopening the injury. You might worry about m"
 pubDate: 2026-02-25

@@ -1,10 +1,14 @@
 ---
-title: "Wall Art Home Decor Ideas: Transform Your Space with Rustic Elegance"
-description: "Wall art adds personality and style to any room. It transforms plain walls into eye-catching spaces instantly. Choosing the right wall decor can make your home "
+title: 'Wall Art Home Decor Ideas: Transform Your Space with Rustic Elegance'
+description: 'Wall art adds personality and style to any room. It transforms plain
+  walls into eye-catching spaces instantly. Choosing the right wall decor can make
+  your home '
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-home-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-home-decor-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art adds personality and style to any room. It transforms plain walls into eye-catching spaces instantly.**

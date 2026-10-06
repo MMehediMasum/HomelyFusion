@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Small Spaces: Stylish & Space-Saving Lighting Solutions"
-description: "Finding the best floor lamps for small spaces can brighten your room without crowding it. These lamps offer style and function in compact designs. Small rooms n"
+title: 'Best Floor Lamps for Small Spaces: Stylish & Space-Saving Lighting Solutions'
+description: Finding the best floor lamps for small spaces can brighten your room
+  without crowding it. These lamps offer style and function in compact designs. Small
+  rooms n
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-small-spaces-stylish-space-saving-lighting-solutions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-small-spaces-stylish-space-saving-lighting-solutions&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Finding the best floor lamps for small spaces can brighten your room without crowding it. These lamps offer style and function in compact designs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Bathroom Sink: Easy Steps for a Quick Upgrade"
-description: "Replacing your bathroom sink might sound tricky, but it’s easier than you think. Imagine transforming your bathroom with a fresh, new sink that fits your style "
+title: 'How to Replace Bathroom Sink: Easy Steps for a Quick Upgrade'
+description: 'Replacing your bathroom sink might sound tricky, but it’s easier than
+  you think. Imagine transforming your bathroom with a fresh, new sink that fits your
+  style '
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Replacing your bathroom sink might sound tricky, but it’s easier than you think. Imagine transforming your bathroom with a fresh, new sink that fits your style perfectly.**

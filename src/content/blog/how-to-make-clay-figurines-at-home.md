@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Figurines at Home: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something unique with your own hands? Making clay figurines at home is a fun and rewarding way to bring your ideas to life. Wheth"
+title: 'How to Make Clay Figurines at Home: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something unique with your own hands?
+  Making clay figurines at home is a fun and rewarding way to bring your ideas to
+  life. Wheth
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-figurines-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-figurines-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands? Making clay figurines at home is a fun and rewarding way to bring your ideas to life.**

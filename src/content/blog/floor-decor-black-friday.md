@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Black Friday Deals: Stylish Rugs and Shower Curtains Sale"
-description: "Black Friday is the perfect time to grab amazing deals on home decor. Floor Decor offers incredible discounts this season. This year, Floor Decor's Black Friday"
+title: 'Floor Decor Black Friday Deals: Stylish Rugs and Shower Curtains Sale'
+description: Black Friday is the perfect time to grab amazing deals on home decor.
+  Floor Decor offers incredible discounts this season. This year, Floor Decor's Black
+  Friday
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-black-friday&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-black-friday&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Black Friday is the perfect time to grab amazing deals on home decor. Floor Decor offers incredible discounts this season.**

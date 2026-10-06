@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw a Simple Living Room Chair: Easy Step-by-Step Guide"
 description: "Have you ever wanted to draw a cozy living room chair but felt unsure where to start? Imagine being able to sketch a simple chair that looks inviting and stylis"
 pubDate: 2026-03-14

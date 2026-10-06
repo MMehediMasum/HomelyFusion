@@ -1,10 +1,14 @@
 ---
-title: "Where to Keep Bamboo Plant at Home: Ultimate Placement Guide"
-description: "Are you wondering where to keep your bamboo plant at home to help it thrive? Choosing the right spot can make all the difference in how healthy and vibrant your"
+title: 'Where to Keep Bamboo Plant at Home: Ultimate Placement Guide'
+description: Are you wondering where to keep your bamboo plant at home to help it
+  thrive? Choosing the right spot can make all the difference in how healthy and vibrant
+  your
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-keep-bamboo-plant-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bamboo Plant Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-keep-bamboo-plant-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering where to keep your bamboo plant at home to help it thrive? Choosing the right spot can make all the difference in how healthy and vibrant your bamboo grows.**

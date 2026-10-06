@@ -1,10 +1,14 @@
 ---
-title: "Cute Bedroom Accessories: Top Boho Decor and Stylish Organizers for Cozy Spaces"
-description: "Transform your bedroom into a cozy retreat with cute accessories. Small details can make a big difference. Imagine stepping into a bedroom that radiates charm a"
+title: 'Cute Bedroom Accessories: Top Boho Decor and Stylish Organizers for Cozy Spaces'
+description: Transform your bedroom into a cozy retreat with cute accessories. Small
+  details can make a big difference. Imagine stepping into a bedroom that radiates
+  charm a
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cute-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cute-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transform your bedroom into a cozy retreat with cute accessories. Small details can make a big difference.**

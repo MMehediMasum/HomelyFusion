@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Pictures: Stunning Decor Ideas with Lights and Frames"
-description: "Home decor isn't just about furniture; wall pictures can transform your space. They add personality and style instantly. Wall pictures offer a versatile way to "
+title: 'Home Goods Wall Pictures: Stunning Decor Ideas with Lights and Frames'
+description: 'Home decor isn''t just about furniture; wall pictures can transform
+  your space. They add personality and style instantly. Wall pictures offer a versatile
+  way to '
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-pictures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-pictures&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home decor isn't just about furniture; wall pictures can transform your space. They add personality and style instantly.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Mirrors: Stylish Wall Accents to Elevate Every Room"
-description: "Mirrors add style and light to any room. They create space and enhance home decor easily. Choosing the right mirror can change a room’s look instantly. Rustic w"
+title: 'Home Decor Mirrors: Stylish Wall Accents to Elevate Every Room'
+description: Mirrors add style and light to any room. They create space and enhance
+  home decor easily. Choosing the right mirror can change a room’s look instantly.
+  Rustic w
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors add style and light to any room. They create space and enhance home decor easily.**

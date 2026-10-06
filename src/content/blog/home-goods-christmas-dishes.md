@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Christmas Dishes: Festive Dinnerware Sets for Holiday Cheer"
-description: "Home Goods Christmas dishes bring festive cheer to your holiday table. These sets offer beautiful, durable options for every celebration. Choosing the right Chr"
+title: 'Home Goods Christmas Dishes: Festive Dinnerware Sets for Holiday Cheer'
+description: Home Goods Christmas dishes bring festive cheer to your holiday table.
+  These sets offer beautiful, durable options for every celebration. Choosing the
+  right Chr
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-dishes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-dishes&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Goods Christmas dishes bring festive cheer to your holiday table. These sets offer beautiful, durable options for every celebration.**

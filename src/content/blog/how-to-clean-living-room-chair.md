@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Living Room Chair: Easy Tips for a Spotless Look"
-description: "Your living room chair is more than just a piece of furniture—it’s where you relax, read, and spend time with loved ones. But over time, dirt, stains, and dust "
+title: 'How to Clean Living Room Chair: Easy Tips for a Spotless Look'
+description: 'Your living room chair is more than just a piece of furniture—it’s where
+  you relax, read, and spend time with loved ones. But over time, dirt, stains, and
+  dust '
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room chair is more than just a piece of furniture—it’s where you relax, read, and spend time with loved ones. But over time, dirt, stains, and dust can make it look dull and worn out.**

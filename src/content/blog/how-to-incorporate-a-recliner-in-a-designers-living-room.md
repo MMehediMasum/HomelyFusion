@@ -1,10 +1,13 @@
 ---
-title: "How to Incorporate a Recliner in a Designers Living Room: Stylish Tips"
-description: "Imagine sinking into a cozy recliner after a long day, feeling both comfort and style in your living room. But how do you add this relaxing piece without ruinin"
+title: 'How to Incorporate a Recliner in a Designers Living Room: Stylish Tips'
+description: Imagine sinking into a cozy recliner after a long day, feeling both comfort
+  and style in your living room. But how do you add this relaxing piece without ruinin
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-incorporate-a-recliner-in-a-designers-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-incorporate-a-recliner-in-a-designers-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine sinking into a cozy recliner after a long day, feeling both comfort and style in your living room. But how do you add this relaxing piece without ruining the carefully crafted design you love?**

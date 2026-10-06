@@ -1,10 +1,14 @@
 ---
-title: "How to Covers a Living Room Chair Cushion: Easy Steps for a Fresh Look"
-description: "Your living room chair cushion can change the whole look of your space. But what if it’s worn out or just doesn’t match your style anymore? Covering your chair "
+title: 'How to Covers a Living Room Chair Cushion: Easy Steps for a Fresh Look'
+description: 'Your living room chair cushion can change the whole look of your space.
+  But what if it’s worn out or just doesn’t match your style anymore? Covering your
+  chair '
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-covers-a-living-room-chair-cushion&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-covers-a-living-room-chair-cushion&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your living room chair cushion can change the whole look of your space. But what if it’s worn out or just doesn’t match your style anymore?**

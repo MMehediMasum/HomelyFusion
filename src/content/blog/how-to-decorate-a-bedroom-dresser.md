@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bedroom Dresser: Stunning Ideas for Style"
-description: "Your bedroom dresser is more than just a place to store clothes—it can be a stunning centerpiece that reflects your style and personality. But how do you decora"
+title: 'How to Decorate a Bedroom Dresser: Stunning Ideas for Style'
+description: Your bedroom dresser is more than just a place to store clothes—it can
+  be a stunning centerpiece that reflects your style and personality. But how do you
+  decora
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser is more than just a place to store clothes—it can be a stunning centerpiece that reflects your style and personality. But how do you decorate it so it looks both beautiful and organized?**

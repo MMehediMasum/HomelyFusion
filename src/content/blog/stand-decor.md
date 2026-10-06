@@ -1,10 +1,14 @@
 ---
-title: "Stand Decor Ideas: Stylish Wooden Risers and Multipurpose Display Stands"
-description: "Stand decor adds charm and functionality to any space. From bookshelves to plant stands, these pieces elevate your home style. Stand decor offers a unique way t"
+title: 'Stand Decor Ideas: Stylish Wooden Risers and Multipurpose Display Stands'
+description: Stand decor adds charm and functionality to any space. From bookshelves
+  to plant stands, these pieces elevate your home style. Stand decor offers a unique
+  way t
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=stand-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=stand-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Stand decor adds charm and functionality to any space. From bookshelves to plant stands, these pieces elevate your home style.**

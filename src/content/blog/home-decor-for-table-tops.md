@@ -1,10 +1,14 @@
 ---
-title: "Home Decor for Table Tops: Stylish Accents to Elevate Any Space"
-description: "Transform your table tops into captivating displays with charming home decor pieces. These items add elegance and personality to any space. Decorating table top"
+title: 'Home Decor for Table Tops: Stylish Accents to Elevate Any Space'
+description: Transform your table tops into captivating displays with charming home
+  decor pieces. These items add elegance and personality to any space. Decorating
+  table top
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-for-table-tops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-for-table-tops&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Transform your table tops into captivating displays with charming home decor pieces. These items add elegance and personality to any space.**

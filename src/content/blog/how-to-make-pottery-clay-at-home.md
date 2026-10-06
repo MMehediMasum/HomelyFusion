@@ -1,10 +1,14 @@
 ---
-title: "How to Make Pottery Clay at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to create your own pottery but felt held back by the cost or availability of clay? What if you could make pottery clay right at home, using"
+title: 'How to Make Pottery Clay at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted to create your own pottery but felt held back by
+  the cost or availability of clay? What if you could make pottery clay right at home,
+  using
 pubDate: 2025-08-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-pottery-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-pottery-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own pottery but felt held back by the cost or availability of clay? What if you could make pottery clay right at home, using simple ingredients you probably already have?**

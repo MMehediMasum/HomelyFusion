@@ -1,10 +1,14 @@
 ---
-title: "Flooring Pictures: Stunning Wood Backdrops for Perfect Photography Shots"
-description: "Flooring pictures showcase different styles and designs that inspire your next project. They help visualize how floors look in various settings. Choosing the ri"
+title: 'Flooring Pictures: Stunning Wood Backdrops for Perfect Photography Shots'
+description: Flooring pictures showcase different styles and designs that inspire
+  your next project. They help visualize how floors look in various settings. Choosing
+  the ri
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-pictures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-pictures&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring pictures showcase different styles and designs that inspire your next project. They help visualize how floors look in various settings.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Porcelain Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create beautiful, delicate porcelain pieces right from your own home? Making porcelain clay yourself might sound complicated, but it’s e"
+title: 'How to Make Porcelain Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create beautiful, delicate porcelain pieces right
+  from your own home? Making porcelain clay yourself might sound complicated, but
+  it’s e
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-porcelain-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-porcelain-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful, delicate porcelain pieces right from your own home? Making porcelain clay yourself might sound complicated, but it’s easier than you think.**

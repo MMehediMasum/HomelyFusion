@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Furniture Close to Me: Top Stylish Sectional Sofas for Small Spaces"
 description: "Finding furniture close to me saves time and effort. It makes shopping simple and convenient. Choosing the right sofa or sectional couch can change your living "
 pubDate: 2026-07-04

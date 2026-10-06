@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Art Deco Sofa: Stylish Elegance Tips"
-description: "Are you ready to transform your living room into a stylish, eye-catching space? Decorating with an Art Deco sofa can add a touch of timeless elegance and bold c"
+title: 'How to Decorate Living Room With Art Deco Sofa: Stylish Elegance Tips'
+description: Are you ready to transform your living room into a stylish, eye-catching
+  space? Decorating with an Art Deco sofa can add a touch of timeless elegance and
+  bold c
 pubDate: 2026-03-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-art-deco-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-art-deco-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to transform your living room into a stylish, eye-catching space? Decorating with an Art Deco sofa can add a touch of timeless elegance and bold character to your home.**

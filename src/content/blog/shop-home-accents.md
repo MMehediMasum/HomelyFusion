@@ -1,10 +1,14 @@
 ---
-title: "Shop Home Accents: Top Decorative Picks for Stylish Living Spaces"
-description: "Shop home accents to add style and comfort to your living space. Small details create a big difference in any room. Home accents like throw pillows, night light"
+title: 'Shop Home Accents: Top Decorative Picks for Stylish Living Spaces'
+description: Shop home accents to add style and comfort to your living space. Small
+  details create a big difference in any room. Home accents like throw pillows, night
+  light
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shop-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=shop-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Shop home accents to add style and comfort to your living space. Small details create a big difference in any room.**

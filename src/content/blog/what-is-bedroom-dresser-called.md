@@ -1,10 +1,13 @@
 ---
-title: "What is Bedroom Dresser Called: Ultimate Guide to Stylish Storage"
-description: "Have you ever wondered what the piece of furniture in your bedroom, where you store clothes and keep your essentials, is really called? You might say \"dresser,\""
+title: 'What is Bedroom Dresser Called: Ultimate Guide to Stylish Storage'
+description: Have you ever wondered what the piece of furniture in your bedroom, where
+  you store clothes and keep your essentials, is really called? You might say "dresser,"
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-called&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered what the piece of furniture in your bedroom, where you store clothes and keep your essentials, is really called? You might say "dresser," but is that the only name it goes by?**

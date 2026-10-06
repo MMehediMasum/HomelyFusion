@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home AC Units Freeze Up: Causes, Fixes, and Prevention Tips"
 description: "Have you ever noticed ice forming on your home AC unit and wondered why it happens? It can be confusing and worrying to see your cooling system covered in frost"
 pubDate: 2025-10-15

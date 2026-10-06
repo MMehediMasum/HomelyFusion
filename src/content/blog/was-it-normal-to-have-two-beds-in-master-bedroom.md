@@ -1,10 +1,14 @@
 ---
-title: "Was It Normal to Have Two Beds in Master Bedroom? Surprising Truths!"
-description: "Have you ever wondered if having two beds in your master bedroom is normal? It might seem unusual at first, but there are good reasons why some people choose th"
+title: Was It Normal to Have Two Beds in Master Bedroom? Surprising Truths!
+description: Have you ever wondered if having two beds in your master bedroom is normal?
+  It might seem unusual at first, but there are good reasons why some people choose
+  th
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=was-it-normal-to-have-two-beds-in-master-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=was-it-normal-to-have-two-beds-in-master-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if having two beds in your master bedroom is normal? It might seem unusual at first, but there are good reasons why some people choose this setup.**

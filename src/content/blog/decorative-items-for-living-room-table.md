@@ -1,10 +1,14 @@
 ---
-title: "Decorative Items for Living Room Table: Elevate Your Space with Style"
-description: "Creating an inviting and stylish living room table doesn't have to be complicated. With a few well-chosen decorative items, you can transform your space into a "
+title: 'Decorative Items for Living Room Table: Elevate Your Space with Style'
+description: 'Creating an inviting and stylish living room table doesn''t have to
+  be complicated. With a few well-chosen decorative items, you can transform your
+  space into a '
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-items-for-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=decorative-items-for-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating an inviting and stylish living room table doesn't have to be complicated. With a few well-chosen decorative items, you can transform your space into a cozy and visually appealing haven.**

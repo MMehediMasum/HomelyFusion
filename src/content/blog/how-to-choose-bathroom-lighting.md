@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Bathroom Lighting: Expert Tips for Perfect Ambiance"
-description: "Choosing the right bathroom lighting can change everything about your space. You want a bathroom that feels bright, welcoming, and functional—but finding the pe"
+title: 'How to Choose Bathroom Lighting: Expert Tips for Perfect Ambiance'
+description: Choosing the right bathroom lighting can change everything about your
+  space. You want a bathroom that feels bright, welcoming, and functional—but finding
+  the pe
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-bathroom-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-bathroom-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right bathroom lighting can change everything about your space. You want a bathroom that feels bright, welcoming, and functional—but finding the perfect lights isn’t always easy.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Picture Frames on a Wall: Stunning Ideas Made Simple"
-description: "Are your walls feeling empty or cluttered with random picture frames? You’re not alone. Arranging picture frames on a wall might seem simple, but getting it jus"
+title: 'How to Arrange Picture Frames on a Wall: Stunning Ideas Made Simple'
+description: Are your walls feeling empty or cluttered with random picture frames?
+  You’re not alone. Arranging picture frames on a wall might seem simple, but getting
+  it jus
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-picture-frames-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-picture-frames-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are your walls feeling empty or cluttered with random picture frames? You’re not alone.**

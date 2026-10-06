@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Massage Chair in Living Room: Ultimate Placement Guide"
-description: "Are you wondering where to put your massage chair in your living room for the best comfort and style? Finding the perfect spot isn’t just about fitting it in; i"
+title: 'Where to Put Massage Chair in Living Room: Ultimate Placement Guide'
+description: Are you wondering where to put your massage chair in your living room
+  for the best comfort and style? Finding the perfect spot isn’t just about fitting
+  it in; i
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-massage-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-massage-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to put your massage chair in your living room for the best comfort and style? Finding the perfect spot isn’t just about fitting it in; it’s about creating a space where you can relax fully and enjoy every massage session.**

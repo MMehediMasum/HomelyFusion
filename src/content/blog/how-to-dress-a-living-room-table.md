@@ -1,10 +1,14 @@
 ---
-title: "How to Dress a Living Room Table: Stylish Tips for Stunning Decor"
-description: "Your living room table is more than just a piece of furniture—it’s the heart of your space. How you dress it can completely change the feel of your room. But fi"
+title: 'How to Dress a Living Room Table: Stylish Tips for Stunning Decor'
+description: Your living room table is more than just a piece of furniture—it’s the
+  heart of your space. How you dress it can completely change the feel of your room.
+  But fi
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the heart of your space. How you dress it can completely change the feel of your room.**

@@ -1,10 +1,14 @@
 ---
-title: "Should a Living Room Have Floor Lamps And Table Lamps: Brighten Perfectly"
-description: "Are you wondering whether your living room really needs both floor lamps and table lamps? Choosing the right lighting can change the entire feel of your space. "
+title: 'Should a Living Room Have Floor Lamps And Table Lamps: Brighten Perfectly'
+description: 'Are you wondering whether your living room really needs both floor lamps
+  and table lamps? Choosing the right lighting can change the entire feel of your
+  space. '
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-a-living-room-have-floor-lamps-and-table-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=should-a-living-room-have-floor-lamps-and-table-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering whether your living room really needs both floor lamps and table lamps? Choosing the right lighting can change the entire feel of your space.**

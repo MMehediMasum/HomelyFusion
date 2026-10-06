@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Shower Curtains: Stylish, Durable, and Waterproof Bathroom Essentials"
-description: "Shower curtains do more than keep water off your bathroom floor. They add style and personality to your space. Choosing the right shower curtain can transform y"
+title: 'Home Goods Shower Curtains: Stylish, Durable, and Waterproof Bathroom Essentials'
+description: Shower curtains do more than keep water off your bathroom floor. They
+  add style and personality to your space. Choosing the right shower curtain can transform
+  y
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-shower-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-shower-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Shower curtains do more than keep water off your bathroom floor. They add style and personality to your space.**

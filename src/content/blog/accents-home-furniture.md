@@ -1,10 +1,13 @@
 ---
-title: "Accents Home Furniture: Stylish Modern Pieces to Elevate Your Living Space"
-description: "Accents Home Furniture adds style and function to any room with versatile pieces. These items blend modern design and comfort for everyday living. This collecti"
+title: 'Accents Home Furniture: Stylish Modern Pieces to Elevate Your Living Space'
+description: Accents Home Furniture adds style and function to any room with versatile
+  pieces. These items blend modern design and comfort for everyday living. This collecti
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accents-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=accents-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Accents Home Furniture adds style and function to any room with versatile pieces. These items blend modern design and comfort for everyday living.**

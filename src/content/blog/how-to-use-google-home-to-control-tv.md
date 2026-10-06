@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home to Control TV: Ultimate Smart Guide"
 description: "Imagine being able to control your TV without reaching for a remote. Sounds convenient, right? With Google Home, you can do just that—use your voice to turn the"
 pubDate: 2025-10-20

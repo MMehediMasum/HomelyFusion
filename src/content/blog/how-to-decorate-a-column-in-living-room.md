@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Column in Living Room: Stunning Ideas to Transform"
-description: "Do you have a plain column standing in your living room that feels more like an obstacle than a design feature? You’re not alone. Many people struggle with turn"
+title: 'How to Decorate a Column in Living Room: Stunning Ideas to Transform'
+description: Do you have a plain column standing in your living room that feels more
+  like an obstacle than a design feature? You’re not alone. Many people struggle with
+  turn
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-column-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-column-in-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Do you have a plain column standing in your living room that feels more like an obstacle than a design feature? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Should We Keep Lucky Bamboo at Home: Best Spots for Growth"
-description: "Have you ever wondered where to place your lucky bamboo to bring the best energy into your home? The right spot can boost your luck, health, and happiness in wa"
+title: 'Where Should We Keep Lucky Bamboo at Home: Best Spots for Growth'
+description: Have you ever wondered where to place your lucky bamboo to bring the
+  best energy into your home? The right spot can boost your luck, health, and happiness
+  in wa
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-we-keep-lucky-bamboo-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bamboo Plant Care
+heroImage: https://tse1.mm.bing.net/th?q=where-should-we-keep-lucky-bamboo-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered where to place your lucky bamboo to bring the best energy into your home? The right spot can boost your luck, health, and happiness in ways you might not expect.**

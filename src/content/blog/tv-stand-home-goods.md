@@ -1,10 +1,14 @@
 ---
-title: "Tv Stand Home Goods: Stylish Storage Solutions for Modern Living Rooms"
-description: "Finding the right TV stand can improve your living room’s look and function. Home Goods offers many styles and sizes to fit your needs. A TV stand holds your te"
+title: 'Tv Stand Home Goods: Stylish Storage Solutions for Modern Living Rooms'
+description: Finding the right TV stand can improve your living room’s look and function.
+  Home Goods offers many styles and sizes to fit your needs. A TV stand holds your
+  te
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tv-stand-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=tv-stand-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the right TV stand can improve your living room’s look and function. Home Goods offers many styles and sizes to fit your needs.**

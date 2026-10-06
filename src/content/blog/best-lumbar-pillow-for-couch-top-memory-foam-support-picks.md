@@ -1,10 +1,14 @@
 ---
-title: "Best Lumbar Pillow for Couch: Top Memory Foam Support Picks"
-description: "Choosing the best lumbar pillow for your couch helps reduce back pain and improves comfort. A good lumbar pillow supports your lower back and keeps you sitting "
+title: 'Best Lumbar Pillow for Couch: Top Memory Foam Support Picks'
+description: 'Choosing the best lumbar pillow for your couch helps reduce back pain
+  and improves comfort. A good lumbar pillow supports your lower back and keeps you
+  sitting '
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lumbar-pillow-for-couch-top-memory-foam-support-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-lumbar-pillow-for-couch-top-memory-foam-support-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best lumbar pillow for your couch helps reduce back pain and improves comfort. A good lumbar pillow supports your lower back and keeps you sitting properly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With L Shape Sofa: Stylish & Cozy Ideas"
-description: "Looking to transform your living room with an L shape sofa but not sure where to start? You’re in the right place. An L shape sofa is more than just a seating o"
+title: 'How to Decorate Living Room With L Shape Sofa: Stylish & Cozy Ideas'
+description: Looking to transform your living room with an L shape sofa but not sure
+  where to start? You’re in the right place. An L shape sofa is more than just a seating
+  o
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-l-shape-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-l-shape-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to transform your living room with an L shape sofa but not sure where to start? You’re in the right place.**

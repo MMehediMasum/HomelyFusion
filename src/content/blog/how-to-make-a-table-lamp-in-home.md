@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Table Lamp in Home: Easy DIY Guide for Beginners"
-description: "Do you want to add a unique touch to your living space without spending a lot? Making your own table lamp at home is easier than you think. Imagine creating a b"
+title: 'How to Make a Table Lamp in Home: Easy DIY Guide for Beginners'
+description: Do you want to add a unique touch to your living space without spending
+  a lot? Making your own table lamp at home is easier than you think. Imagine creating
+  a b
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-table-lamp-in-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-table-lamp-in-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Do you want to add a unique touch to your living space without spending a lot? Making your own table lamp at home is easier than you think.**

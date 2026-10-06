@@ -1,10 +1,14 @@
 ---
-title: "Anthro Pillows: Stylish Throw Covers to Elevate Your Home Decor"
-description: "Anthro pillows bring style and comfort to any room. These decorative cushions fit well on couches, beds, and chairs. Anthro pillows come in many designs and fab"
+title: 'Anthro Pillows: Stylish Throw Covers to Elevate Your Home Decor'
+description: Anthro pillows bring style and comfort to any room. These decorative
+  cushions fit well on couches, beds, and chairs. Anthro pillows come in many designs
+  and fab
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=anthro-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=anthro-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Anthro pillows bring style and comfort to any room. These decorative cushions fit well on couches, beds, and chairs.**

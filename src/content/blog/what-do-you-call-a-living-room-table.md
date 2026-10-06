@@ -1,10 +1,14 @@
 ---
-title: "What Do You Call a Living Room Table: Ultimate Guide to Names"
-description: "Have you ever paused to think about what you call that table sitting right in the middle of your living room? It’s more than just a piece of furniture—it’s wher"
+title: 'What Do You Call a Living Room Table: Ultimate Guide to Names'
+description: Have you ever paused to think about what you call that table sitting
+  right in the middle of your living room? It’s more than just a piece of furniture—it’s
+  wher
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever paused to think about what you call that table sitting right in the middle of your living room? It’s more than just a piece of furniture—it’s where your coffee rests, your books pile up, and memories are made.**

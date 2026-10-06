@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home for Home Theater System: Ultimate Setup Guide"
 description: "Imagine turning your living room into a full-fledged home theater without lifting more than a finger. With Google Home, you can control your entire home theater"
 pubDate: 2025-08-26

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Slanted Walls Bedroom: Stunning Ideas That Wow"
-description: "Decorating a bedroom with slanted walls can feel tricky, but it doesn’t have to be. You might think these angled spaces limit your options, but they actually of"
+title: 'How to Decorate Slanted Walls Bedroom: Stunning Ideas That Wow'
+description: Decorating a bedroom with slanted walls can feel tricky, but it doesn’t
+  have to be. You might think these angled spaces limit your options, but they actually
+  of
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-slanted-walls-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-slanted-walls-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Decorating a bedroom with slanted walls can feel tricky, but it doesn’t have to be. You might think these angled spaces limit your options, but they actually offer a unique chance to create a cozy, stylish retreat.**

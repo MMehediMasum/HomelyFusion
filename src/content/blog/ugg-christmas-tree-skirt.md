@@ -1,10 +1,14 @@
 ---
-title: "Ugg Christmas Tree Skirt: Cozy Faux Fur Decor for Holiday Charm"
-description: "Transform your Christmas tree into a cozy centerpiece with a stylish Ugg Christmas tree skirt. These skirts add warmth and elegance, perfect for enhancing your "
+title: 'Ugg Christmas Tree Skirt: Cozy Faux Fur Decor for Holiday Charm'
+description: 'Transform your Christmas tree into a cozy centerpiece with a stylish
+  Ugg Christmas tree skirt. These skirts add warmth and elegance, perfect for enhancing
+  your '
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ugg-christmas-tree-skirt&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=ugg-christmas-tree-skirt&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Transform your Christmas tree into a cozy centerpiece with a stylish Ugg Christmas tree skirt. These skirts add warmth and elegance, perfect for enhancing your holiday decor.**

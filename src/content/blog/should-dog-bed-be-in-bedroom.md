@@ -1,10 +1,14 @@
 ---
-title: "Should Dog Bed Be in Bedroom: Top Reasons to Decide Today"
-description: "Are you wondering if your dog’s bed belongs in your bedroom? You’re not alone. Many pet owners face this question and feel torn between comfort and boundaries. "
+title: 'Should Dog Bed Be in Bedroom: Top Reasons to Decide Today'
+description: 'Are you wondering if your dog’s bed belongs in your bedroom? You’re
+  not alone. Many pet owners face this question and feel torn between comfort and
+  boundaries. '
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-dog-bed-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=should-dog-bed-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if your dog’s bed belongs in your bedroom? You’re not alone.**

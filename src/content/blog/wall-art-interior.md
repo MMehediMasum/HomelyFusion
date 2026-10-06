@@ -1,10 +1,14 @@
 ---
-title: "Wall Art Interior Ideas: Modern Sculptures and Elegant Home Decor Accents"
-description: "Wall art transforms spaces with style and personality. It offers unique aesthetics, enhancing the atmosphere of any room. Selecting the right wall art can eleva"
+title: 'Wall Art Interior Ideas: Modern Sculptures and Elegant Home Decor Accents'
+description: Wall art transforms spaces with style and personality. It offers unique
+  aesthetics, enhancing the atmosphere of any room. Selecting the right wall art can
+  eleva
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-interior&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-interior&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art transforms spaces with style and personality. It offers unique aesthetics, enhancing the atmosphere of any room.**

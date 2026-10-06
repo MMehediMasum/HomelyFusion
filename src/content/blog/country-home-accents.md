@@ -1,10 +1,14 @@
 ---
-title: "Country Home Accents: Rustic Farmhouse Decor Ideas for Cozy Living Spaces"
-description: "Country home accents add warmth and charm to any living space. These simple decorations bring a cozy, rustic feel to your home. Rustic bird figurines, wooden si"
+title: 'Country Home Accents: Rustic Farmhouse Decor Ideas for Cozy Living Spaces'
+description: Country home accents add warmth and charm to any living space. These
+  simple decorations bring a cozy, rustic feel to your home. Rustic bird figurines,
+  wooden si
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=country-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=country-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Country home accents add warmth and charm to any living space. These simple decorations bring a cozy, rustic feel to your home.**

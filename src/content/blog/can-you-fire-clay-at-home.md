@@ -1,10 +1,14 @@
 ---
-title: "Can You Fire Clay at Home: Essential Tips for Safe DIY Pottery"
-description: "Have you ever wondered if you can fire clay at home? Imagine turning your handmade clay creations into solid, durable pieces without needing a professional kiln"
+title: 'Can You Fire Clay at Home: Essential Tips for Safe DIY Pottery'
+description: Have you ever wondered if you can fire clay at home? Imagine turning
+  your handmade clay creations into solid, durable pieces without needing a professional
+  kiln
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-fire-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=can-you-fire-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered if you can fire clay at home? Imagine turning your handmade clay creations into solid, durable pieces without needing a professional kiln.**

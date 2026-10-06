@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Roll Recipe: Irresistible & Easy Delight"
 description: "Are you ready to wow your family and friends this Thanksgiving? Imagine slicing into a soft, spiced pumpkin roll filled with creamy, sweet goodness that melts i"
 pubDate: 2026-01-04

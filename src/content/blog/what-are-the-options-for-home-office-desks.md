@@ -1,10 +1,14 @@
 ---
-title: "What are the Options for Home Office Desks: Ultimate Guide 2025"
-description: "Choosing the right desk can make a huge difference in how comfortable and productive you feel while working from home. You want a space that fits your style, yo"
+title: 'What are the Options for Home Office Desks: Ultimate Guide 2025'
+description: Choosing the right desk can make a huge difference in how comfortable
+  and productive you feel while working from home. You want a space that fits your
+  style, yo
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-options-for-home-office-desks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-options-for-home-office-desks&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right desk can make a huge difference in how comfortable and productive you feel while working from home. You want a space that fits your style, your work habits, and the room you have available.**

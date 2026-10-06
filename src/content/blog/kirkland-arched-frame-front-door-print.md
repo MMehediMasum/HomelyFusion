@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Arched Frame Front Door Print: Stunning Vintage Wall Art Decor Ideas"
-description: "The Kirkland Arched Frame Front Door Print adds classic charm to any space. Its elegant arch design fits well in many home styles. This print features a detaile"
+title: 'Kirkland Arched Frame Front Door Print: Stunning Vintage Wall Art Decor Ideas'
+description: The Kirkland Arched Frame Front Door Print adds classic charm to any
+  space. Its elegant arch design fits well in many home styles. This print features
+  a detaile
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-arched-frame-front-door-print&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-arched-frame-front-door-print&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Kirkland Arched Frame Front Door Print adds classic charm to any space. Its elegant arch design fits well in many home styles.**

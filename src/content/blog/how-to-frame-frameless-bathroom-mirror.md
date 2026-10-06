@@ -1,10 +1,13 @@
 ---
-title: "How to Frame Frameless Bathroom Mirror: Easy DIY Guide"
-description: "Looking to add a stylish touch to your bathroom without spending a fortune? Framing a frameless bathroom mirror is a simple and effective way to transform your "
+title: 'How to Frame Frameless Bathroom Mirror: Easy DIY Guide'
+description: 'Looking to add a stylish touch to your bathroom without spending a fortune?
+  Framing a frameless bathroom mirror is a simple and effective way to transform your '
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-frameless-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-frameless-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to add a stylish touch to your bathroom without spending a fortune? Framing a frameless bathroom mirror is a simple and effective way to transform your space instantly.**

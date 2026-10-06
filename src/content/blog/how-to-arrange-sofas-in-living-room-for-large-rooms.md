@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofas in Living Room for Large Rooms: Expert Tips"
-description: "Is your large living room feeling empty or awkward? Arranging sofas in a big space can be tricky, but it doesn’t have to be. You want your room to feel cozy, in"
+title: 'How to Arrange Sofas in Living Room for Large Rooms: Expert Tips'
+description: Is your large living room feeling empty or awkward? Arranging sofas in
+  a big space can be tricky, but it doesn’t have to be. You want your room to feel
+  cozy, in
 pubDate: 2026-03-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofas-in-living-room-for-large-rooms&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofas-in-living-room-for-large-rooms&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your large living room feeling empty or awkward? Arranging sofas in a big space can be tricky, but it doesn’t have to be.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Spots on Bedroom Dresser: Easy & Effective Tips"
-description: "Are you tired of staring at those stubborn spots on your bedroom dresser? You want your space to feel fresh and inviting, but those marks just won’t go away. Th"
+title: 'How to Clean Spots on Bedroom Dresser: Easy & Effective Tips'
+description: Are you tired of staring at those stubborn spots on your bedroom dresser?
+  You want your space to feel fresh and inviting, but those marks just won’t go away.
+  Th
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-spots-on-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-spots-on-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of staring at those stubborn spots on your bedroom dresser? You want your space to feel fresh and inviting, but those marks just won’t go away.**

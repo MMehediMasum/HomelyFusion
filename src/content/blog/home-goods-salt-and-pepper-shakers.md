@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Salt And Pepper Shakers: Stylish, Durable, and Easy to Use"
-description: "Salt and pepper shakers add flavor and style to your kitchen and dining table. Choose from glass, stainless steel, electric, or farmhouse designs to match your "
+title: 'Home Goods Salt And Pepper Shakers: Stylish, Durable, and Easy to Use'
+description: 'Salt and pepper shakers add flavor and style to your kitchen and dining
+  table. Choose from glass, stainless steel, electric, or farmhouse designs to match
+  your '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-salt-and-pepper-shakers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-salt-and-pepper-shakers&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Salt and pepper shakers add flavor and style to your kitchen and dining table. Choose from glass, stainless steel, electric, or farmhouse designs to match your needs.**

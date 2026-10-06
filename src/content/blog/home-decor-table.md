@@ -1,10 +1,15 @@
 ---
-title: "Home Decor Table Ideas: Stylish Centerpieces and Rustic Accents for Every Room"
-description: "Elevate your home decor with stylish table accents. Discover diverse options to enhance every room's aesthetic appeal. Choosing the right table decor transforms"
+title: 'Home Decor Table Ideas: Stylish Centerpieces and Rustic Accents for Every
+  Room'
+description: Elevate your home decor with stylish table accents. Discover diverse
+  options to enhance every room's aesthetic appeal. Choosing the right table decor
+  transforms
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Elevate your home decor with stylish table accents. Discover diverse options to enhance every room's aesthetic appeal.**

@@ -1,10 +1,14 @@
 ---
-title: "Flooring Online: Top Peel & Stick Tiles and Foam Mats for Every Room"
-description: "Finding the right flooring online saves time and offers many design options. You can choose from peel-and-stick tiles, foam mats, and vinyl planks. Shopping onl"
+title: 'Flooring Online: Top Peel & Stick Tiles and Foam Mats for Every Room'
+description: Finding the right flooring online saves time and offers many design options.
+  You can choose from peel-and-stick tiles, foam mats, and vinyl planks. Shopping
+  onl
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-online&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the right flooring online saves time and offers many design options. You can choose from peel-and-stick tiles, foam mats, and vinyl planks.**

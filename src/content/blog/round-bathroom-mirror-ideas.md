@@ -1,10 +1,14 @@
 ---
-title: "Round Bathroom Mirror Ideas: Stunning Styles to Transform Your Space"
-description: "Looking to transform your bathroom into a stylish and inviting space? A round bathroom mirror might be just what you need. These mirrors do more than show your "
+title: 'Round Bathroom Mirror Ideas: Stunning Styles to Transform Your Space'
+description: 'Looking to transform your bathroom into a stylish and inviting space?
+  A round bathroom mirror might be just what you need. These mirrors do more than
+  show your '
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=round-bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=round-bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to transform your bathroom into a stylish and inviting space? A round bathroom mirror might be just what you need.**

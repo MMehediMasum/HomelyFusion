@@ -1,10 +1,14 @@
 ---
-title: "Throw Pillows Home Goods: Stylish Comfort for Every Couch and Bed"
-description: "Throw pillows add comfort and style to any room in your home. They brighten sofas, beds, and chairs with ease. Choosing the right throw pillows can change how y"
+title: 'Throw Pillows Home Goods: Stylish Comfort for Every Couch and Bed'
+description: Throw pillows add comfort and style to any room in your home. They brighten
+  sofas, beds, and chairs with ease. Choosing the right throw pillows can change how
+  y
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=throw-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=throw-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Throw pillows add comfort and style to any room in your home. They brighten sofas, beds, and chairs with ease.**

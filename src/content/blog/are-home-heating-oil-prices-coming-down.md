@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Coming Down: What to Expect Now"
 description: "Are you worried about the rising cost of heating your home this winter? You’re not alone. Many people are watching home heating oil prices closely, hoping for a"
 pubDate: 2026-04-06

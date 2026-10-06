@@ -1,10 +1,14 @@
 ---
-title: "How to Set Living Room Recliners in a Narrow Room: Space-Saving Tips"
-description: "Struggling to fit living room recliners in a narrow space? You’re not alone. Finding the perfect spot for your recliners without making the room feel cramped ca"
+title: 'How to Set Living Room Recliners in a Narrow Room: Space-Saving Tips'
+description: Struggling to fit living room recliners in a narrow space? You’re not
+  alone. Finding the perfect spot for your recliners without making the room feel
+  cramped ca
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-living-room-recliners-in-a-narrow-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-living-room-recliners-in-a-narrow-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit living room recliners in a narrow space? You’re not alone.**

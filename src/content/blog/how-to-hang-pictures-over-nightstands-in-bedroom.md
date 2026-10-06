@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Pictures Over Nightstands in Bedroom: Expert Tips"
-description: "Are you struggling to find the perfect spot for your pictures over the nightstands in your bedroom? You’re not alone. Hanging artwork in this space can be trick"
+title: 'How to Hang Pictures Over Nightstands in Bedroom: Expert Tips'
+description: Are you struggling to find the perfect spot for your pictures over the
+  nightstands in your bedroom? You’re not alone. Hanging artwork in this space can
+  be trick
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-pictures-over-nightstands-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-pictures-over-nightstands-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to find the perfect spot for your pictures over the nightstands in your bedroom? You’re not alone.**

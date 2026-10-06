@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Decor Stores Salt Lake City: Unique Art and Vintage Wall Decor Finds"
 description: "Salt Lake City offers unique home decor stores featuring local art and stylish designs. These shops provide a mix of modern and vintage pieces for every room. E"
 pubDate: 2025-11-19

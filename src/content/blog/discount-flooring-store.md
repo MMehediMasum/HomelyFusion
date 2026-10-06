@@ -1,10 +1,14 @@
 ---
-title: "Discount Flooring Store: Top Peel & Stick Tiles and Cushioned Kitchen Mats"
-description: "Discount flooring stores offer affordable and stylish floor solutions for every room. They provide easy-to-install options that fit any budget. Finding quality "
+title: 'Discount Flooring Store: Top Peel & Stick Tiles and Cushioned Kitchen Mats'
+description: 'Discount flooring stores offer affordable and stylish floor solutions
+  for every room. They provide easy-to-install options that fit any budget. Finding
+  quality '
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=discount-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=discount-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discount flooring stores offer affordable and stylish floor solutions for every room. They provide easy-to-install options that fit any budget.**

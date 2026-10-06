@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Heating Pads Allowed in Nursing Homes: Essential Safety Guide"
 description: "Are you wondering if heating pads are allowed in nursing homes? If you or your loved one rely on heating pads for pain relief or comfort, this question is impor"
 pubDate: 2026-04-11

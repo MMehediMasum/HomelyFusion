@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Flooring Rugs: Stylish and Durable Area Rugs for Every Room"
-description: "Ashley Furniture offers a diverse selection of rugs designed to enhance any living space. From modern to traditional styles, their rugs cater to various tastes "
+title: 'Ashley Furniture Flooring Rugs: Stylish and Durable Area Rugs for Every Room'
+description: 'Ashley Furniture offers a diverse selection of rugs designed to enhance
+  any living space. From modern to traditional styles, their rugs cater to various
+  tastes '
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-flooring-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-flooring-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Ashley Furniture offers a diverse selection of rugs designed to enhance any living space. From modern to traditional styles, their rugs cater to various tastes and needs.**

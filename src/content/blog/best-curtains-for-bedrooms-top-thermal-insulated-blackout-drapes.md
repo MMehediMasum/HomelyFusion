@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Bedrooms: Top Thermal Insulated Blackout Drapes"
-description: "Choosing the best curtains for bedrooms enhances comfort and style. Curtains control light, privacy, and room temperature effectively. Bedrooms need curtains th"
+title: 'Best Curtains for Bedrooms: Top Thermal Insulated Blackout Drapes'
+description: Choosing the best curtains for bedrooms enhances comfort and style. Curtains
+  control light, privacy, and room temperature effectively. Bedrooms need curtains
+  th
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-bedrooms-top-thermal-insulated-blackout-drapes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-bedrooms-top-thermal-insulated-blackout-drapes&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for bedrooms enhances comfort and style. Curtains control light, privacy, and room temperature effectively.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Ac Units Covered under Home Warranty: Essential Facts Revealed"
 description: "Are you wondering if your air conditioning unit is protected by your home warranty? You’re not alone. When unexpected repairs hit, the last thing you want is a "
 pubDate: 2026-04-08

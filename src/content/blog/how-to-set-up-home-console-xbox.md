@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Home Console Xbox: Easy Steps for Instant Play"
 description: "Setting up your Xbox home console might seem tricky at first, but it’s easier than you think. Imagine jumping straight into your favorite games without the hass"
 pubDate: 2025-10-15

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Sugar Cotton Candy at Home: Easy & Fun DIY Guide"
 description: "Do you love the sweet, fluffy taste of cotton candy but hate paying high prices at fairs or events? What if you could make that magical treat right in your own "
 pubDate: 2025-10-12

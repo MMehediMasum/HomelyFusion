@@ -1,10 +1,14 @@
 ---
-title: "Lamp Shade Home Goods: Top Linen Lampshades for Stylish Lighting Decor"
-description: "Lampshades bring personality and style to any room. They offer an easy way to refresh your home decor. Choosing the right lampshade can transform a space, makin"
+title: 'Lamp Shade Home Goods: Top Linen Lampshades for Stylish Lighting Decor'
+description: Lampshades bring personality and style to any room. They offer an easy
+  way to refresh your home decor. Choosing the right lampshade can transform a space,
+  makin
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lamp-shade-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=lamp-shade-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lampshades bring personality and style to any room. They offer an easy way to refresh your home decor.**

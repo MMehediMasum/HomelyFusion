@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Garland Craft: Fun & Easy DIY Decoration Ideas"
-description: "Looking for a fun and simple way to brighten up your home this Easter? You’re in the right place! Making an Easter Bunny Garland Craft is a perfect activity tha"
+title: 'Easter Bunny Garland Craft: Fun & Easy DIY Decoration Ideas'
+description: Looking for a fun and simple way to brighten up your home this Easter?
+  You’re in the right place! Making an Easter Bunny Garland Craft is a perfect activity
+  tha
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-garland-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-garland-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fun and simple way to brighten up your home this Easter? You’re in the right place!**

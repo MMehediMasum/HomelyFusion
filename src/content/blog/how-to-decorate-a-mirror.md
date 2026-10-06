@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Mirror: Stunning Ideas to Transform Your Space"
-description: "Your mirror is more than just a tool to check your reflection—it’s a powerful piece that can transform any room. But how do you turn a plain mirror into a stunn"
+title: 'How to Decorate a Mirror: Stunning Ideas to Transform Your Space'
+description: Your mirror is more than just a tool to check your reflection—it’s a
+  powerful piece that can transform any room. But how do you turn a plain mirror into
+  a stunn
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your mirror is more than just a tool to check your reflection—it’s a powerful piece that can transform any room. But how do you turn a plain mirror into a stunning focal point?**

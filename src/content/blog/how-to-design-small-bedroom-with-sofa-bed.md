@@ -1,10 +1,14 @@
 ---
-title: "How to Design Small Bedroom With Sofa Bed: Stylish Space-Saving Ideas"
-description: "Struggling to make the most of your small bedroom? Adding a sofa bed can be a game-changer, but only if you design the space right. Imagine having a cozy spot t"
+title: 'How to Design Small Bedroom With Sofa Bed: Stylish Space-Saving Ideas'
+description: Struggling to make the most of your small bedroom? Adding a sofa bed
+  can be a game-changer, but only if you design the space right. Imagine having a
+  cozy spot t
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-small-bedroom-with-sofa-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-small-bedroom-with-sofa-bed&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to make the most of your small bedroom? Adding a sofa bed can be a game-changer, but only if you design the space right.**

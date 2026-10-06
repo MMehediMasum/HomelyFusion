@@ -1,10 +1,14 @@
 ---
-title: "Tahari Mirror Home Goods: Elegant Full-Length Mirrors for Stylish Spaces"
-description: "Explore the elegance and style of Tahari Mirror Home Goods, offering a variety of full-length mirrors. These mirrors add sophistication and functionality to any"
+title: 'Tahari Mirror Home Goods: Elegant Full-Length Mirrors for Stylish Spaces'
+description: Explore the elegance and style of Tahari Mirror Home Goods, offering
+  a variety of full-length mirrors. These mirrors add sophistication and functionality
+  to any
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=tahari-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Explore the elegance and style of Tahari Mirror Home Goods, offering a variety of full-length mirrors. These mirrors add sophistication and functionality to any space.**

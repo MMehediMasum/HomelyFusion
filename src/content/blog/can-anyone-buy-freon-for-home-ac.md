@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Anyone Buy Freon for Home AC? Essential Facts Revealed"
 description: "Are you wondering if you can buy Freon for your home AC? You’re not alone. Many homeowners want to fix their air conditioners quickly and cost-effectively. But "
 pubDate: 2026-04-12

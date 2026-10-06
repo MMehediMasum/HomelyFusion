@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Sengled Bluetooth Bulb to Google Home: Easy Steps"
-description: "Are you ready to make your home smarter with just a few simple steps? Connecting your Sengled Bluetooth bulb to Google Home can transform the way you control yo"
+title: 'How to Connect Sengled Bluetooth Bulb to Google Home: Easy Steps'
+description: Are you ready to make your home smarter with just a few simple steps?
+  Connecting your Sengled Bluetooth bulb to Google Home can transform the way you
+  control yo
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-sengled-bluetooth-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-sengled-bluetooth-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter with just a few simple steps? Connecting your Sengled Bluetooth bulb to Google Home can transform the way you control your lighting.**

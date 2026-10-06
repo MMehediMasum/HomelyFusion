@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Black Couch: Stunning Ideas for Chic Living Rooms"
-description: "A black couch is a stylish and versatile piece that can transform your living space. But decorating around it can feel tricky. You might wonder how to make your"
+title: 'How to Decorate a Black Couch: Stunning Ideas for Chic Living Rooms'
+description: A black couch is a stylish and versatile piece that can transform your
+  living space. But decorating around it can feel tricky. You might wonder how to
+  make your
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-black-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-black-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A black couch is a stylish and versatile piece that can transform your living space. But decorating around it can feel tricky.**

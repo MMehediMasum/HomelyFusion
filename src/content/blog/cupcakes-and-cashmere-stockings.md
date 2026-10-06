@@ -1,10 +1,14 @@
 ---
-title: "Cupcakes And Cashmere Stockings: Cozy Holiday Décor and Kitchen Essentials"
-description: "Cupcakes And Cashmere stockings add festive charm to your holiday décor. These stockings come in beautiful designs and cozy materials. They include sets of kitc"
+title: 'Cupcakes And Cashmere Stockings: Cozy Holiday Décor and Kitchen Essentials'
+description: Cupcakes And Cashmere stockings add festive charm to your holiday décor.
+  These stockings come in beautiful designs and cozy materials. They include sets
+  of kitc
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-stockings&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cupcakes And Cashmere stockings add festive charm to your holiday décor. These stockings come in beautiful designs and cozy materials.**

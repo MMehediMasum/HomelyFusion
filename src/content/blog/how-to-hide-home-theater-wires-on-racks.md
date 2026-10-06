@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Home Theater Wires on Racks: Easy & Neat Solutions"
 description: "Are your home theater wires turning your sleek entertainment setup into a tangled mess? You’re not alone. Messy cables can distract from your viewing experience"
 pubDate: 2026-04-21

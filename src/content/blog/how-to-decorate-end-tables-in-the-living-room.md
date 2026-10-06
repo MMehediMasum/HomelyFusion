@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate End Tables in the Living Room: Stylish Tips"
-description: "Your living room’s end tables are more than just small surfaces—they’re a chance to showcase your style and add personality to your space. But decorating them c"
+title: 'How to Decorate End Tables in the Living Room: Stylish Tips'
+description: Your living room’s end tables are more than just small surfaces—they’re
+  a chance to showcase your style and add personality to your space. But decorating
+  them c
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-end-tables-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-end-tables-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room’s end tables are more than just small surfaces—they’re a chance to showcase your style and add personality to your space. But decorating them can feel tricky.**

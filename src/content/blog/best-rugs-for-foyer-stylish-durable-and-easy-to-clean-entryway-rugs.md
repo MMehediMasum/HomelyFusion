@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Foyer: Stylish, Durable, and Easy-to-Clean Entryway Rugs"
-description: "Choosing the best rug for your foyer sets the tone for your entire home. A good foyer rug combines style, durability, and easy cleaning. The foyer is the first "
+title: 'Best Rugs for Foyer: Stylish, Durable, and Easy-to-Clean Entryway Rugs'
+description: 'Choosing the best rug for your foyer sets the tone for your entire home.
+  A good foyer rug combines style, durability, and easy cleaning. The foyer is the
+  first '
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-foyer-stylish-durable-and-easy-to-clean-entryway-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-foyer-stylish-durable-and-easy-to-clean-entryway-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your foyer sets the tone for your entire home. A good foyer rug combines style, durability, and easy cleaning.**

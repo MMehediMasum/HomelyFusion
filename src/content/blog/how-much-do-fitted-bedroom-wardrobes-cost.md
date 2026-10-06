@@ -1,10 +1,14 @@
 ---
-title: "How Much Do Fitted Bedroom Wardrobes Cost: Ultimate Price Guide 2025"
-description: "Are you thinking about upgrading your bedroom with fitted wardrobes but worried about the cost? You’re not alone. Knowing how much fitted bedroom wardrobes cost"
+title: 'How Much Do Fitted Bedroom Wardrobes Cost: Ultimate Price Guide 2025'
+description: Are you thinking about upgrading your bedroom with fitted wardrobes but
+  worried about the cost? You’re not alone. Knowing how much fitted bedroom wardrobes
+  cost
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-do-fitted-bedroom-wardrobes-cost&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-much-do-fitted-bedroom-wardrobes-cost&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you thinking about upgrading your bedroom with fitted wardrobes but worried about the cost? You’re not alone.**

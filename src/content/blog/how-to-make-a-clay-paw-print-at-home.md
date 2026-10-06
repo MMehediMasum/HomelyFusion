@@ -1,10 +1,13 @@
 ---
-title: "How to Make a Clay Paw Print at Home: Easy DIY Keepsake Guide"
-description: "Have you ever wanted to capture a special moment with your furry friend in a way that lasts forever? Making a clay paw print at home is a simple and meaningful "
+title: 'How to Make a Clay Paw Print at Home: Easy DIY Keepsake Guide'
+description: 'Have you ever wanted to capture a special moment with your furry friend
+  in a way that lasts forever? Making a clay paw print at home is a simple and meaningful '
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-clay-paw-print-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-clay-paw-print-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to capture a special moment with your furry friend in a way that lasts forever? Making a clay paw print at home is a simple and meaningful way to do just that.**

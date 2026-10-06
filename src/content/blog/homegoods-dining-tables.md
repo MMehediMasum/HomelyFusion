@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Dining Tables: Stylish, Space-Saving Options for Every Kitchen"
-description: "Dining tables from Homegoods blend style, functionality, and versatility. They cater to diverse home environments and dining needs. These tables offer varying d"
+title: 'Homegoods Dining Tables: Stylish, Space-Saving Options for Every Kitchen'
+description: Dining tables from Homegoods blend style, functionality, and versatility.
+  They cater to diverse home environments and dining needs. These tables offer varying
+  d
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-dining-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-dining-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Dining tables from Homegoods blend style, functionality, and versatility. They cater to diverse home environments and dining needs.**

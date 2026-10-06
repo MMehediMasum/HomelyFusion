@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Mirrors for Bedroom: Stylish Full-Length and Wall Mirror Ideas"
-description: "Mirrors add style and function to any bedroom. They help brighten the space and make rooms look bigger. Choosing the right mirror for your bedroom can change ho"
+title: 'Home Goods Mirrors for Bedroom: Stylish Full-Length and Wall Mirror Ideas'
+description: Mirrors add style and function to any bedroom. They help brighten the
+  space and make rooms look bigger. Choosing the right mirror for your bedroom can
+  change ho
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-mirrors-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-mirrors-for-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors add style and function to any bedroom. They help brighten the space and make rooms look bigger.**

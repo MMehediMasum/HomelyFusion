@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Lenovo Smart Bulb to Google Home: Easy Steps Guide"
-description: "Are you ready to make your home smarter and more convenient? Connecting your Lenovo Smart Bulb to Google Home can transform the way you control your lighting. I"
+title: 'How to Connect Lenovo Smart Bulb to Google Home: Easy Steps Guide'
+description: Are you ready to make your home smarter and more convenient? Connecting
+  your Lenovo Smart Bulb to Google Home can transform the way you control your lighting.
+  I
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-lenovo-smart-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-lenovo-smart-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Connecting your Lenovo Smart Bulb to Google Home can transform the way you control your lighting.**

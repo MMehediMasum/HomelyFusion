@@ -1,10 +1,13 @@
 ---
-title: "Black Accessories Living Room: Stylish Decor Ideas to Elevate Your Space"
-description: "Black accessories can transform your living room into a stylish and sophisticated space. They add depth and elegance effortlessly. Incorporating black accessori"
+title: 'Black Accessories Living Room: Stylish Decor Ideas to Elevate Your Space'
+description: Black accessories can transform your living room into a stylish and sophisticated
+  space. They add depth and elegance effortlessly. Incorporating black accessori
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-accessories-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=black-accessories-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Black accessories can transform your living room into a stylish and sophisticated space. They add depth and elegance effortlessly.**

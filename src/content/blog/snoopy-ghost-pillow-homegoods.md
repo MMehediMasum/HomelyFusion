@@ -1,10 +1,14 @@
 ---
-title: "Snoopy Ghost Pillow Homegoods: Cozy Halloween Decor for Your Living Room"
-description: "Snoopy Ghost Pillow at Homegoods offers a fun and cozy way to decorate for Halloween. This soft, plush pillow blends spooky charm with familiar Snoopy style. Ha"
+title: 'Snoopy Ghost Pillow Homegoods: Cozy Halloween Decor for Your Living Room'
+description: Snoopy Ghost Pillow at Homegoods offers a fun and cozy way to decorate
+  for Halloween. This soft, plush pillow blends spooky charm with familiar Snoopy
+  style. Ha
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-ghost-pillow-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-ghost-pillow-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Snoopy Ghost Pillow at Homegoods offers a fun and cozy way to decorate for Halloween. This soft, plush pillow blends spooky charm with familiar Snoopy style.**

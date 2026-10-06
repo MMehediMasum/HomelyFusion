@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Sideboard in a Dining Room: Stunning Ideas"
-description: "Your dining room sideboard is more than just a storage space—it’s a chance to showcase your style and create a warm, inviting atmosphere. But how do you decorat"
+title: 'How to Decorate a Sideboard in a Dining Room: Stunning Ideas'
+description: Your dining room sideboard is more than just a storage space—it’s a chance
+  to showcase your style and create a warm, inviting atmosphere. But how do you decorat
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-sideboard-in-a-dining-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-sideboard-in-a-dining-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your dining room sideboard is more than just a storage space—it’s a chance to showcase your style and create a warm, inviting atmosphere. But how do you decorate it so it looks balanced and eye-catching without feeling cluttered?**

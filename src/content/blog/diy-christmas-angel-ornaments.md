@@ -1,10 +1,13 @@
 ---
-title: "Diy Christmas Angel Ornaments: Magical Handmade Holiday Decor Ideas"
-description: "Are you looking for a special way to add a personal touch to your Christmas tree this year? DIY Christmas angel ornaments are the perfect choice. They are simpl"
+title: 'Diy Christmas Angel Ornaments: Magical Handmade Holiday Decor Ideas'
+description: Are you looking for a special way to add a personal touch to your Christmas
+  tree this year? DIY Christmas angel ornaments are the perfect choice. They are simpl
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-angel-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-angel-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a special way to add a personal touch to your Christmas tree this year? DIY Christmas angel ornaments are the perfect choice.**

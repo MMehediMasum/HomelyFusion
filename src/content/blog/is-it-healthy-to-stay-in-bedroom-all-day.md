@@ -1,10 +1,14 @@
 ---
-title: "Is It Healthy to Stay in Bedroom All Day? Surprising Facts Revealed"
-description: "Have you ever spent an entire day in your bedroom and wondered if it’s actually good for you? You might think staying cozy in your personal space feels safe and"
+title: Is It Healthy to Stay in Bedroom All Day? Surprising Facts Revealed
+description: Have you ever spent an entire day in your bedroom and wondered if it’s
+  actually good for you? You might think staying cozy in your personal space feels
+  safe and
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-healthy-to-stay-in-bedroom-all-day&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=is-it-healthy-to-stay-in-bedroom-all-day&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever spent an entire day in your bedroom and wondered if it’s actually good for you? You might think staying cozy in your personal space feels safe and relaxing, but could it be affecting your health in ways you don’t realize?**

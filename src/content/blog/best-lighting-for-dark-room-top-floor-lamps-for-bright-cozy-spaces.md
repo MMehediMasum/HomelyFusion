@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Dark Room: Top Floor Lamps for Bright, Cozy Spaces"
-description: "Dark rooms need the right lighting to feel bright and welcoming. Choosing the best lighting can change the entire room’s mood and function. Dark spaces often fe"
+title: 'Best Lighting for Dark Room: Top Floor Lamps for Bright, Cozy Spaces'
+description: Dark rooms need the right lighting to feel bright and welcoming. Choosing
+  the best lighting can change the entire room’s mood and function. Dark spaces often
+  fe
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-dark-room-top-floor-lamps-for-bright-cozy-spaces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-dark-room-top-floor-lamps-for-bright-cozy-spaces&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Dark rooms need the right lighting to feel bright and welcoming. Choosing the best lighting can change the entire room’s mood and function.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Without Flour: Easy & Safe Recipe"
 description: "Are you looking for a simple way to make clay at home without using flour? You’re in the right place. Whether you want a safe, non-toxic clay for kids to play w"
 pubDate: 2026-02-07

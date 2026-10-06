@@ -1,10 +1,13 @@
 ---
-title: "How to Make Balloon Arch at Home for Event: Easy Step-by-Step Guide"
-description: "Are you looking to add a wow factor to your next event without spending a fortune? Making a balloon arch at home is easier than you think, and it can instantly "
+title: 'How to Make Balloon Arch at Home for Event: Easy Step-by-Step Guide'
+description: 'Are you looking to add a wow factor to your next event without spending
+  a fortune? Making a balloon arch at home is easier than you think, and it can instantly '
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-at-home-for-event&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-at-home-for-event&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a wow factor to your next event without spending a fortune? Making a balloon arch at home is easier than you think, and it can instantly transform any space into a festive celebration.**

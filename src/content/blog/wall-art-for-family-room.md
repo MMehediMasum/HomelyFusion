@@ -1,10 +1,14 @@
 ---
-title: "Wall Art for Family Room: Inspiring Decor Ideas to Warm Your Space"
-description: "Wall art can transform your family room into a warm and inviting space. It adds personality and brings everyone closer. Choosing the right wall art for the fami"
+title: 'Wall Art for Family Room: Inspiring Decor Ideas to Warm Your Space'
+description: Wall art can transform your family room into a warm and inviting space.
+  It adds personality and brings everyone closer. Choosing the right wall art for
+  the fami
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-for-family-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-for-family-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art can transform your family room into a warm and inviting space. It adds personality and brings everyone closer.**

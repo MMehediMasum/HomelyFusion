@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Home Theater Cables for Aesthetic: Easy Stylish Tips"
 description: "Your home theater setup looks amazing, but those messy cables can steal the show—and not in a good way. If you want your space to feel sleek and stylish, hiding"
 pubDate: 2025-11-04

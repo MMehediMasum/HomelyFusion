@@ -1,10 +1,14 @@
 ---
-title: "Bedside Table Cloth Ideas to Elevate Your Nightstand Decor Instantly"
-description: "A bedside table cloth adds style and protection to your nightstand. It keeps surfaces clean and enhances room decor. These cloths come in various sizes, colors,"
+title: Bedside Table Cloth Ideas to Elevate Your Nightstand Decor Instantly
+description: A bedside table cloth adds style and protection to your nightstand. It
+  keeps surfaces clean and enhances room decor. These cloths come in various sizes,
+  colors,
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedside-table-cloth&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=bedside-table-cloth&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A bedside table cloth adds style and protection to your nightstand. It keeps surfaces clean and enhances room decor.**

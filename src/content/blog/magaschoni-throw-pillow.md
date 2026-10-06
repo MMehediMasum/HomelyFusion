@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Throw Pillow: Cozy Textured Covers for Stylish Home Decor"
-description: "The Magaschoni Throw Pillow adds comfort and style to any room. It blends soft texture with a simple, cozy design. This pillow fits perfectly on couches, beds, "
+title: 'Magaschoni Throw Pillow: Cozy Textured Covers for Stylish Home Decor'
+description: 'The Magaschoni Throw Pillow adds comfort and style to any room. It blends
+  soft texture with a simple, cozy design. This pillow fits perfectly on couches,
+  beds, '
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-throw-pillow&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-throw-pillow&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Magaschoni Throw Pillow adds comfort and style to any room. It blends soft texture with a simple, cozy design.**

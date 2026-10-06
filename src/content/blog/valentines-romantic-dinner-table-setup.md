@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Romantic Dinner Table Setup: Stunning Ideas to Impress"
-description: "Planning the perfect Valentine’s romantic dinner table setup can turn an ordinary evening into a night you and your special someone will never forget. Imagine t"
+title: 'Valentine’S Romantic Dinner Table Setup: Stunning Ideas to Impress'
+description: Planning the perfect Valentine’s romantic dinner table setup can turn
+  an ordinary evening into a night you and your special someone will never forget.
+  Imagine t
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-romantic-dinner-table-setup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=valentines-romantic-dinner-table-setup&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Planning the perfect Valentine’s romantic dinner table setup can turn an ordinary evening into a night you and your special someone will never forget. Imagine the soft glow of candles, the delicate scent of fresh flowers, and every detail crafted just for your love story.**

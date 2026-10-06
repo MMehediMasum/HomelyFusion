@@ -1,10 +1,14 @@
 ---
-title: "Can I Flush My Radiator at Home: Easy DIY Guide for Beginners"
-description: "Have you ever noticed your radiator not heating as well as it used to? If so, you might be wondering, \"Can I flush my radiator at home?\" The good news is, you d"
+title: 'Can I Flush My Radiator at Home: Easy DIY Guide for Beginners'
+description: Have you ever noticed your radiator not heating as well as it used to?
+  If so, you might be wondering, "Can I flush my radiator at home?" The good news
+  is, you d
 pubDate: 2026-04-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-flush-my-radiator-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=can-i-flush-my-radiator-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever noticed your radiator not heating as well as it used to? If so, you might be wondering, "Can I flush my radiator at home?"**

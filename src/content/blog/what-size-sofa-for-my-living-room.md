@@ -1,10 +1,14 @@
 ---
-title: "What Size Sofa for My Living Room: Ultimate Guide to Perfect Fit"
-description: "Choosing the right sofa size for your living room can feel like a tricky puzzle. You want something that fits perfectly without crowding the space or looking to"
+title: 'What Size Sofa for My Living Room: Ultimate Guide to Perfect Fit'
+description: Choosing the right sofa size for your living room can feel like a tricky
+  puzzle. You want something that fits perfectly without crowding the space or looking
+  to
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-sofa-for-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-sofa-for-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa size for your living room can feel like a tricky puzzle. You want something that fits perfectly without crowding the space or looking too small.**

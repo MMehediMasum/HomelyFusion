@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wine Cabinet: Stylish Storage for Wine and Glassware"
-description: "A wine cabinet serves as a stylish and functional addition to any home. It offers a dedicated space for wine storage and display, enhancing your living area wit"
+title: 'Home Goods Wine Cabinet: Stylish Storage for Wine and Glassware'
+description: A wine cabinet serves as a stylish and functional addition to any home.
+  It offers a dedicated space for wine storage and display, enhancing your living
+  area wit
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wine-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wine-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A wine cabinet serves as a stylish and functional addition to any home. It offers a dedicated space for wine storage and display, enhancing your living area with elegance.**

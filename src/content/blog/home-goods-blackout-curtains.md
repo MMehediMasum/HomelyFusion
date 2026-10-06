@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Blackout Curtains: Transform Your Bedroom into a Cozy Sanctuary"
-description: "Blackout curtains offer a simple way to block light and improve room comfort. Home goods blackout curtains come in many styles and sizes to fit your needs. Thes"
+title: 'Home Goods Blackout Curtains: Transform Your Bedroom into a Cozy Sanctuary'
+description: Blackout curtains offer a simple way to block light and improve room
+  comfort. Home goods blackout curtains come in many styles and sizes to fit your
+  needs. Thes
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-blackout-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-blackout-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains offer a simple way to block light and improve room comfort. Home goods blackout curtains come in many styles and sizes to fit your needs.**

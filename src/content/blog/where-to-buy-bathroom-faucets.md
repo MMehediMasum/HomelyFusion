@@ -1,10 +1,13 @@
 ---
-title: "Where to Buy Bathroom Faucets: Top Stores for Stylish Choices"
-description: "Looking to upgrade your bathroom with a stylish new faucet? Finding the right place to buy bathroom faucets can feel overwhelming with so many options available"
+title: 'Where to Buy Bathroom Faucets: Top Stores for Stylish Choices'
+description: Looking to upgrade your bathroom with a stylish new faucet? Finding the
+  right place to buy bathroom faucets can feel overwhelming with so many options available
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-faucets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-faucets&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom with a stylish new faucet? Finding the right place to buy bathroom faucets can feel overwhelming with so many options available.**

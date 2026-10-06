@@ -1,10 +1,14 @@
 ---
-title: "Can We Use Slipper Chair in Living Room: Stylish Seating Ideas"
-description: "Are you wondering if a slipper chair can fit into your living room? You might think of slipper chairs as just small, fancy seats for bedrooms. But what if they "
+title: 'Can We Use Slipper Chair in Living Room: Stylish Seating Ideas'
+description: 'Are you wondering if a slipper chair can fit into your living room?
+  You might think of slipper chairs as just small, fancy seats for bedrooms. But what
+  if they '
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-we-use-slipper-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=can-we-use-slipper-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a slipper chair can fit into your living room? You might think of slipper chairs as just small, fancy seats for bedrooms.**

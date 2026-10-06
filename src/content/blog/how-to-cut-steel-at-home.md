@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Steel at Home: Easy & Safe DIY Techniques"
 description: "Cutting steel at home might sound tricky, but with the right tools and simple steps, you can do it safely and effectively. Whether you’re working on a DIY proje"
 pubDate: 2026-02-25

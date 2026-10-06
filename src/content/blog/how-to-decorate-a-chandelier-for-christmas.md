@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Chandelier for Christmas: Stunning Festive Ideas"
-description: "Your chandelier is more than just a light fixture—it’s a centerpiece waiting to shine this Christmas. Imagine transforming it into a sparkling holiday masterpie"
+title: 'How to Decorate a Chandelier for Christmas: Stunning Festive Ideas'
+description: Your chandelier is more than just a light fixture—it’s a centerpiece
+  waiting to shine this Christmas. Imagine transforming it into a sparkling holiday
+  masterpie
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-chandelier-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-chandelier-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your chandelier is more than just a light fixture—it’s a centerpiece waiting to shine this Christmas. Imagine transforming it into a sparkling holiday masterpiece that grabs everyone’s attention the moment they walk in.**

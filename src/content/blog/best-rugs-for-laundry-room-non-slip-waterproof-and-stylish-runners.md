@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Laundry Room: Non-Slip, Waterproof, and Stylish Runners"
-description: "Choosing the best rug for your laundry room helps protect your floors and adds comfort. A good rug keeps the space clean, safe, and stylish. Laundry rooms often"
+title: 'Best Rugs for Laundry Room: Non-Slip, Waterproof, and Stylish Runners'
+description: Choosing the best rug for your laundry room helps protect your floors
+  and adds comfort. A good rug keeps the space clean, safe, and stylish. Laundry rooms
+  often
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-laundry-room-non-slip-waterproof-and-stylish-runners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-laundry-room-non-slip-waterproof-and-stylish-runners&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your laundry room helps protect your floors and adds comfort. A good rug keeps the space clean, safe, and stylish.**

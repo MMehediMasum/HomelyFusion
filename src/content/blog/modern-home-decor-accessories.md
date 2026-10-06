@@ -1,10 +1,13 @@
 ---
-title: "Modern Home Decor Accessories: Stylish Picks to Elevate Your Living Space"
-description: "Modern home decor accessories add style and comfort to any living space. They create a fresh, inviting look with simple touches. Choosing the right accessories "
+title: 'Modern Home Decor Accessories: Stylish Picks to Elevate Your Living Space'
+description: 'Modern home decor accessories add style and comfort to any living space.
+  They create a fresh, inviting look with simple touches. Choosing the right accessories '
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-decor-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern home decor accessories add style and comfort to any living space. They create a fresh, inviting look with simple touches.**

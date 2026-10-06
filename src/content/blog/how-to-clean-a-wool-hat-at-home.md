@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean a Wool Hat at Home: Easy Steps for Perfect Care"
 description: "Your wool hat is more than just an accessory—it’s a part of your style and comfort. But when it gets dirty, you might worry about ruining it while cleaning. Wha"
 pubDate: 2026-04-10

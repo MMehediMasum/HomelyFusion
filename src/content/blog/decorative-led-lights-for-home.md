@@ -1,10 +1,14 @@
 ---
-title: "Decorative LED Lights for Home: Transform Your Space with Vibrant Ambiance"
-description: "Decorative LED lights transform any home with vibrant colors and stylish designs. They offer versatility for every occasion. Whether you're brightening up a bed"
+title: 'Decorative LED Lights for Home: Transform Your Space with Vibrant Ambiance'
+description: Decorative LED lights transform any home with vibrant colors and stylish
+  designs. They offer versatility for every occasion. Whether you're brightening up
+  a bed
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-led-lights-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=decorative-led-lights-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Decorative LED lights transform any home with vibrant colors and stylish designs. They offer versatility for every occasion.**

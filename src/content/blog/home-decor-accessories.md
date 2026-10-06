@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Accessories: Must-Have Stylish Pieces to Elevate Your Space"
-description: "Home decor accessories add personality and style to any living space. Small touches can transform a room and make it feel welcoming. Choosing the right accessor"
+title: 'Home Decor Accessories: Must-Have Stylish Pieces to Elevate Your Space'
+description: Home decor accessories add personality and style to any living space.
+  Small touches can transform a room and make it feel welcoming. Choosing the right
+  accessor
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-accessories&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home decor accessories add personality and style to any living space. Small touches can transform a room and make it feel welcoming.**

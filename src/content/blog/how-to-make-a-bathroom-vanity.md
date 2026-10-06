@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Bathroom Vanity: Easy DIY Steps for Stunning Results"
-description: "Are you ready to transform your bathroom without spending a fortune? Making your own bathroom vanity is easier than you think, and it gives you full control ove"
+title: 'How to Make a Bathroom Vanity: Easy DIY Steps for Stunning Results'
+description: Are you ready to transform your bathroom without spending a fortune?
+  Making your own bathroom vanity is easier than you think, and it gives you full
+  control ove
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom without spending a fortune? Making your own bathroom vanity is easier than you think, and it gives you full control over style, size, and storage.**

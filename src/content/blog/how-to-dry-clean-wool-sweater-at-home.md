@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean Wool Sweater at Home: Easy & Safe Guide"
 description: "Do you love your cozy wool sweater but dread the hassle of dry cleaning? What if you could freshen up your favorite knit right at home without risking damage? D"
 pubDate: 2026-02-23

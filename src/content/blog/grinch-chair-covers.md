@@ -1,10 +1,14 @@
 ---
-title: "Grinch Chair Covers: Festive Holiday Decor for Dining Chairs"
-description: "Transform your dining space with Grinch chair covers this holiday season. Perfect for adding a festive touch. Grinch chair covers bring a whimsical charm to any"
+title: 'Grinch Chair Covers: Festive Holiday Decor for Dining Chairs'
+description: Transform your dining space with Grinch chair covers this holiday season.
+  Perfect for adding a festive touch. Grinch chair covers bring a whimsical charm
+  to any
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grinch-chair-covers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=grinch-chair-covers&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your dining space with Grinch chair covers this holiday season. Perfect for adding a festive touch.**

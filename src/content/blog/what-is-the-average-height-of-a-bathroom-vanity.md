@@ -1,10 +1,13 @@
 ---
-title: "What is the Average Height of a Bathroom Vanity: Ultimate Guide"
-description: "Are you planning to upgrade your bathroom and wondering about the perfect vanity height? Knowing the average height of a bathroom vanity can make a huge differe"
+title: 'What is the Average Height of a Bathroom Vanity: Ultimate Guide'
+description: Are you planning to upgrade your bathroom and wondering about the perfect
+  vanity height? Knowing the average height of a bathroom vanity can make a huge differe
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-average-height-of-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-average-height-of-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom and wondering about the perfect vanity height? Knowing the average height of a bathroom vanity can make a huge difference in comfort and style.**

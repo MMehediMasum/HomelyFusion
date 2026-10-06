@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Wool Rugs at Home: Easy Steps for Spotless Care"
-description: "Wool rugs add warmth and style to your home, but keeping them clean can feel tricky. You might worry about damaging the fibers or shrinking your favorite rug. W"
+title: 'How to Wash Wool Rugs at Home: Easy Steps for Spotless Care'
+description: Wool rugs add warmth and style to your home, but keeping them clean can
+  feel tricky. You might worry about damaging the fibers or shrinking your favorite
+  rug. W
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-wool-rugs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-wool-rugs-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Wool rugs add warmth and style to your home, but keeping them clean can feel tricky. You might worry about damaging the fibers or shrinking your favorite rug.**

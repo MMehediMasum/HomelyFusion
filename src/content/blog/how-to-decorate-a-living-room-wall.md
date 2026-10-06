@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Wall: Stunning Ideas to Transform Your Space"
-description: "Your living room wall is more than just a blank space—it’s a chance to show your style and make your home feel truly yours. But knowing where to start can be tr"
+title: 'How to Decorate a Living Room Wall: Stunning Ideas to Transform Your Space'
+description: Your living room wall is more than just a blank space—it’s a chance to
+  show your style and make your home feel truly yours. But knowing where to start
+  can be tr
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your living room wall is more than just a blank space—it’s a chance to show your style and make your home feel truly yours. But knowing where to start can be tricky.**

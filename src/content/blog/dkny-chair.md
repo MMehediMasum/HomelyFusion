@@ -1,10 +1,14 @@
 ---
-title: "Dkny Chair: Stylish and Cozy Accent Chairs for Modern Living Spaces"
-description: "The DKNY chair offers style and comfort for your living space. It blends modern design with practical use. This chair fits well in bedrooms, living rooms, or re"
+title: 'Dkny Chair: Stylish and Cozy Accent Chairs for Modern Living Spaces'
+description: The DKNY chair offers style and comfort for your living space. It blends
+  modern design with practical use. This chair fits well in bedrooms, living rooms,
+  or re
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=dkny-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The DKNY chair offers style and comfort for your living space. It blends modern design with practical use.**

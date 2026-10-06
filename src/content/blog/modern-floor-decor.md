@@ -1,10 +1,14 @@
 ---
-title: "Modern Floor Decor Ideas: Stylish Vases and Lamps for Every Room"
-description: "Modern floor decor brings style and function to any living space. It enhances rooms with simple, elegant touches that feel fresh and inviting. Choosing the righ"
+title: 'Modern Floor Decor Ideas: Stylish Vases and Lamps for Every Room'
+description: Modern floor decor brings style and function to any living space. It
+  enhances rooms with simple, elegant touches that feel fresh and inviting. Choosing
+  the righ
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-floor-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-floor-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Modern floor decor brings style and function to any living space. It enhances rooms with simple, elegant touches that feel fresh and inviting.**

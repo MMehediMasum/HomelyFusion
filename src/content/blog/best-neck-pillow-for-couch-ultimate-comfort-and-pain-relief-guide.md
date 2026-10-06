@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Neck Pillow for Couch: Ultimate Comfort and Pain Relief Guide"
 description: "Finding the best neck pillow for your couch can improve your comfort and reduce neck pain. The right pillow supports your head and keeps your neck aligned. Many"
 pubDate: 2025-11-21

@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Fruit Stool: Fun, Functional, and Stylish Seating Solutions"
-description: "Homegoods fruit stools add a playful touch to any space, blending function with whimsical design. These stools offer both style and practicality for your home. "
+title: 'Homegoods Fruit Stool: Fun, Functional, and Stylish Seating Solutions'
+description: 'Homegoods fruit stools add a playful touch to any space, blending function
+  with whimsical design. These stools offer both style and practicality for your home. '
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-fruit-stool&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-fruit-stool&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Homegoods fruit stools add a playful touch to any space, blending function with whimsical design. These stools offer both style and practicality for your home.**

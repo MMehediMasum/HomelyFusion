@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Living Room Side Tables: Stylish & Functional Ideas"
-description: "Your living room side tables are more than just small surfaces—they’re a chance to showcase your style and make your space feel inviting. But figuring out what "
+title: 'What to Put on Living Room Side Tables: Stylish & Functional Ideas'
+description: 'Your living room side tables are more than just small surfaces—they’re
+  a chance to showcase your style and make your space feel inviting. But figuring
+  out what '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-living-room-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-living-room-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room side tables are more than just small surfaces—they’re a chance to showcase your style and make your space feel inviting. But figuring out what to put on them can be tricky.**

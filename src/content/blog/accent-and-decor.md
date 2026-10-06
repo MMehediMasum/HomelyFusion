@@ -1,10 +1,14 @@
 ---
-title: "Accent And Decor Ideas: Stylish Sculptures, Boho Bouquets, and Modern Home Touches"
-description: "Accent and decor items bring personality and warmth to any space. They turn plain rooms into inviting, stylish environments. Decorative pieces like sculptures, "
+title: 'Accent And Decor Ideas: Stylish Sculptures, Boho Bouquets, and Modern Home
+  Touches'
+description: 'Accent and decor items bring personality and warmth to any space. They
+  turn plain rooms into inviting, stylish environments. Decorative pieces like sculptures, '
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-and-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent and decor items bring personality and warmth to any space. They turn plain rooms into inviting, stylish environments.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor for Home Gym: Inspire Strength with Stylish Fitness Art"
-description: "Creating the perfect home gym involves more than just equipment. Wall decor plays a crucial role in motivation and atmosphere. Mirrors, motivational quotes, and"
+title: 'Wall Decor for Home Gym: Inspire Strength with Stylish Fitness Art'
+description: Creating the perfect home gym involves more than just equipment. Wall
+  decor plays a crucial role in motivation and atmosphere. Mirrors, motivational quotes,
+  and
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-for-home-gym&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-for-home-gym&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating the perfect home gym involves more than just equipment. Wall decor plays a crucial role in motivation and atmosphere.**

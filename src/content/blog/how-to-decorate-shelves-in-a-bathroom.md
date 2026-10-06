@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Shelves in a Bathroom: Stylish & Functional Ideas"
-description: "Your bathroom shelves aren’t just for storage—they can be a game-changer for your entire space. Imagine turning those plain shelves into stylish, organized spot"
+title: 'How to Decorate Shelves in a Bathroom: Stylish & Functional Ideas'
+description: Your bathroom shelves aren’t just for storage—they can be a game-changer
+  for your entire space. Imagine turning those plain shelves into stylish, organized
+  spot
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-a-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-a-bathroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bathroom shelves aren’t just for storage—they can be a game-changer for your entire space. Imagine turning those plain shelves into stylish, organized spots that make your bathroom feel calm and inviting.**

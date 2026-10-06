@@ -1,10 +1,14 @@
 ---
-title: "How to Make Textured Wall Paint: Easy Steps for Stunning Walls"
-description: "Are you looking to add a unique touch to your walls without spending a fortune? Making textured wall paint at home is easier than you think, and it can complete"
+title: 'How to Make Textured Wall Paint: Easy Steps for Stunning Walls'
+description: Are you looking to add a unique touch to your walls without spending
+  a fortune? Making textured wall paint at home is easier than you think, and it can
+  complete
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-textured-wall-paint&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ombre Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-textured-wall-paint&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a unique touch to your walls without spending a fortune? Making textured wall paint at home is easier than you think, and it can completely transform any room.**

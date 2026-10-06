@@ -1,10 +1,14 @@
 ---
-title: "Our Home Furniture Essentials: Stylish Storage & Organization Solutions"
-description: "Our home furniture offers practical and stylish solutions for every room. These pieces help organize, decorate, and improve daily living spaces. Choosing the ri"
+title: 'Our Home Furniture Essentials: Stylish Storage & Organization Solutions'
+description: Our home furniture offers practical and stylish solutions for every room.
+  These pieces help organize, decorate, and improve daily living spaces. Choosing
+  the ri
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=our-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=our-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Our home furniture offers practical and stylish solutions for every room. These pieces help organize, decorate, and improve daily living spaces.**

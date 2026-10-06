@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Modern Bathroom Mirrors: Top Stylish Picks 2025"
-description: "Looking to give your bathroom a fresh, stylish update? Choosing the right modern bathroom mirror can transform your space instantly, making it look bigger, brig"
+title: 'Where to Buy Modern Bathroom Mirrors: Top Stylish Picks 2025'
+description: Looking to give your bathroom a fresh, stylish update? Choosing the right
+  modern bathroom mirror can transform your space instantly, making it look bigger,
+  brig
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-modern-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-modern-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to give your bathroom a fresh, stylish update? Choosing the right modern bathroom mirror can transform your space instantly, making it look bigger, brighter, and more inviting.**

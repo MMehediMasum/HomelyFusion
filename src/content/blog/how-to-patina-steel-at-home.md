@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Patina Steel at Home: Easy Steps for Stunning Results"
 description: "Are you looking to give your steel projects a unique, aged look without spending a fortune? Patina steel at home and watch your plain metal transform into a bea"
 pubDate: 2026-03-27

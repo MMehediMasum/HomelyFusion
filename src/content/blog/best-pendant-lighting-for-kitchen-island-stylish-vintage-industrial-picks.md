@@ -1,10 +1,14 @@
 ---
-title: "Best Pendant Lighting for Kitchen Island: Stylish Vintage Industrial Picks"
-description: "Pendant lighting adds style and function to any kitchen island. Choosing the right light can brighten your space and create a cozy atmosphere. The TOKIUS 3-flam"
+title: 'Best Pendant Lighting for Kitchen Island: Stylish Vintage Industrial Picks'
+description: Pendant lighting adds style and function to any kitchen island. Choosing
+  the right light can brighten your space and create a cozy atmosphere. The TOKIUS
+  3-flam
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pendant-lighting-for-kitchen-island-stylish-vintage-industrial-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-pendant-lighting-for-kitchen-island-stylish-vintage-industrial-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Pendant lighting adds style and function to any kitchen island. Choosing the right light can brighten your space and create a cozy atmosphere.**

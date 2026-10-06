@@ -1,10 +1,14 @@
 ---
-title: "Accent Pillows Home Goods: Stylish Throw Pillow Sets for Every Room"
-description: "Accent pillows can transform any room with minimal effort. They add color, texture, and style to your space. Whether you need a pop of color or a subtle touch, "
+title: 'Accent Pillows Home Goods: Stylish Throw Pillow Sets for Every Room'
+description: 'Accent pillows can transform any room with minimal effort. They add
+  color, texture, and style to your space. Whether you need a pop of color or a subtle
+  touch, '
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=accent-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent pillows can transform any room with minimal effort. They add color, texture, and style to your space.**

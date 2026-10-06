@@ -1,10 +1,14 @@
 ---
-title: "Home Sign Wall Decor Ideas to Elevate Your Living Space Instantly"
-description: "Home sign wall decor adds charm and personality to any room. These signs create a warm and welcoming atmosphere in your living spaces. Wooden signs with artific"
+title: Home Sign Wall Decor Ideas to Elevate Your Living Space Instantly
+description: Home sign wall decor adds charm and personality to any room. These signs
+  create a warm and welcoming atmosphere in your living spaces. Wooden signs with
+  artific
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-sign-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-sign-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home sign wall decor adds charm and personality to any room. These signs create a warm and welcoming atmosphere in your living spaces.**

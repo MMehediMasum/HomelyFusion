@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Blank Wall: Stunning Ideas to Transform Space"
-description: "Is your long blank wall staring back at you, feeling like a huge, empty space that’s hard to fill? You’re not alone. Decorating a big, empty wall can be tricky,"
+title: 'How to Decorate a Long Blank Wall: Stunning Ideas to Transform Space'
+description: Is your long blank wall staring back at you, feeling like a huge, empty
+  space that’s hard to fill? You’re not alone. Decorating a big, empty wall can be
+  tricky,
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-blank-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-blank-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your long blank wall staring back at you, feeling like a huge, empty space that’s hard to fill? You’re not alone.**

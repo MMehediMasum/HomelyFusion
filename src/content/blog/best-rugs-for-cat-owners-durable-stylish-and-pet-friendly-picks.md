@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Cat Owners: Durable, Stylish, and Pet-Friendly Picks"
-description: "Finding the best rugs for cat owners helps protect floors and adds charm to any space. Cat-friendly rugs resist scratches and stay clean longer. Cats love to pl"
+title: 'Best Rugs for Cat Owners: Durable, Stylish, and Pet-Friendly Picks'
+description: Finding the best rugs for cat owners helps protect floors and adds charm
+  to any space. Cat-friendly rugs resist scratches and stay clean longer. Cats love
+  to pl
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-cat-owners-durable-stylish-and-pet-friendly-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-cat-owners-durable-stylish-and-pet-friendly-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best rugs for cat owners helps protect floors and adds charm to any space. Cat-friendly rugs resist scratches and stay clean longer.**

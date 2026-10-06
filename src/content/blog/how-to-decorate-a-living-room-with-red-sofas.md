@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Red Sofas: Stunning Style Tips"
-description: "Are you ready to make your living room truly stand out? Decorating with red sofas is a bold choice that can bring energy, warmth, and style to your space. But h"
+title: 'How to Decorate a Living Room With Red Sofas: Stunning Style Tips'
+description: Are you ready to make your living room truly stand out? Decorating with
+  red sofas is a bold choice that can bring energy, warmth, and style to your space.
+  But h
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-red-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-red-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to make your living room truly stand out? Decorating with red sofas is a bold choice that can bring energy, warmth, and style to your space.**

@@ -1,10 +1,14 @@
 ---
-title: "What are the Fold Up Tables for Living Room: Space-Saving Solutions"
-description: "Are you looking to make the most of your living room space without sacrificing style or function? Fold up tables for the living room might be exactly what you n"
+title: 'What are the Fold Up Tables for Living Room: Space-Saving Solutions'
+description: Are you looking to make the most of your living room space without sacrificing
+  style or function? Fold up tables for the living room might be exactly what you
+  n
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-fold-up-tables-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-fold-up-tables-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to make the most of your living room space without sacrificing style or function? Fold up tables for the living room might be exactly what you need.**

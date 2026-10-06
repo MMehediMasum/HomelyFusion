@@ -1,10 +1,14 @@
 ---
-title: "Should Guest Bedroom And Master Bedroom Have Different Colors? Expert Tips"
-description: "Choosing the right colors for your bedrooms can change how you feel the moment you walk in. But have you ever wondered if your guest bedroom and master bedroom "
+title: Should Guest Bedroom And Master Bedroom Have Different Colors? Expert Tips
+description: 'Choosing the right colors for your bedrooms can change how you feel
+  the moment you walk in. But have you ever wondered if your guest bedroom and master
+  bedroom '
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-guest-bedroom-and-master-bedroom-have-different-colors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=should-guest-bedroom-and-master-bedroom-have-different-colors&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right colors for your bedrooms can change how you feel the moment you walk in. But have you ever wondered if your guest bedroom and master bedroom should have different colors?**

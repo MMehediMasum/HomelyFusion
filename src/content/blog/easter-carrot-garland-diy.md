@@ -1,10 +1,14 @@
 ---
-title: "Easter Carrot Garland DIY: Easy Steps for Festive Decor Fun"
-description: "Looking for a fun and simple way to brighten up your home this Easter? Your search ends here! Creating an Easter Carrot Garland DIY is the perfect project to ad"
+title: 'Easter Carrot Garland DIY: Easy Steps for Festive Decor Fun'
+description: Looking for a fun and simple way to brighten up your home this Easter?
+  Your search ends here! Creating an Easter Carrot Garland DIY is the perfect project
+  to ad
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-carrot-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-carrot-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fun and simple way to brighten up your home this Easter? Your search ends here!**

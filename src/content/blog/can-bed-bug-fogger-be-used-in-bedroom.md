@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Bed Bug Fogger Be Used in Bedroom: Effective Safety Tips"
 description: "Are you struggling with bed bugs invading your bedroom? You might be wondering if a bed bug fogger is the right solution for your problem. Before you light that"
 pubDate: 2026-05-29

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Brown Leather Sofa: Stylish Tips & Tricks"
-description: "A brown leather sofa is a timeless piece that brings warmth and style to any room. But how do you make sure it truly stands out and matches your personal taste?"
+title: 'How to Decorate a Brown Leather Sofa: Stylish Tips & Tricks'
+description: A brown leather sofa is a timeless piece that brings warmth and style
+  to any room. But how do you make sure it truly stands out and matches your personal
+  taste?
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-brown-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-brown-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A brown leather sofa is a timeless piece that brings warmth and style to any room. But how do you make sure it truly stands out and matches your personal taste?**

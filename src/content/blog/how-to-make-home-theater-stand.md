@@ -1,10 +1,13 @@
 ---
-title: "How to Make Home Theater Stand: Easy DIY Guide for Perfect Setup"
-description: "Are you ready to create the perfect spot for your movies and games? Building your own home theater stand is easier than you think. Imagine having a custom piece"
+title: 'How to Make Home Theater Stand: Easy DIY Guide for Perfect Setup'
+description: Are you ready to create the perfect spot for your movies and games? Building
+  your own home theater stand is easier than you think. Imagine having a custom piece
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-home-theater-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-home-theater-stand&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create the perfect spot for your movies and games? Building your own home theater stand is easier than you think.**

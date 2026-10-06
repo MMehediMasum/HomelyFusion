@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Table Setting Ideas: Stunning & Easy Decor Tips"
-description: "Are you ready to transform your Easter celebration into something truly magical? Your table setting sets the mood for the entire day, and using soft pastel colo"
+title: 'Easter Pastel Table Setting Ideas: Stunning & Easy Decor Tips'
+description: Are you ready to transform your Easter celebration into something truly
+  magical? Your table setting sets the mood for the entire day, and using soft pastel
+  colo
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-table-setting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-table-setting-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Easter celebration into something truly magical? Your table setting sets the mood for the entire day, and using soft pastel colors can bring a fresh, joyful vibe that everyone will love.**

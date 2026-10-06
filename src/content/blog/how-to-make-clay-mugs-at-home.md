@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Mugs at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to create your own unique clay mug right at home? Imagine sipping your favorite drink from a mug you made with your own hands. It’s easier "
+title: 'How to Make Clay Mugs at Home: Easy DIY Guide for Beginners'
+description: 'Have you ever wanted to create your own unique clay mug right at home?
+  Imagine sipping your favorite drink from a mug you made with your own hands. It’s
+  easier '
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-mugs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-mugs-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own unique clay mug right at home? Imagine sipping your favorite drink from a mug you made with your own hands.**

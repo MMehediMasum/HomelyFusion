@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Living Room: Stylish, Functional Lighting Solutions Reviewed"
-description: "Choosing the best lamps for your living room can change its mood and style instantly. Good lighting adds warmth, comfort, and function to any space. A living ro"
+title: 'Best Lamps for Living Room: Stylish, Functional Lighting Solutions Reviewed'
+description: Choosing the best lamps for your living room can change its mood and
+  style instantly. Good lighting adds warmth, comfort, and function to any space.
+  A living ro
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-living-room-stylish-functional-lighting-solutions-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-living-room-stylish-functional-lighting-solutions-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for your living room can change its mood and style instantly. Good lighting adds warmth, comfort, and function to any space.**

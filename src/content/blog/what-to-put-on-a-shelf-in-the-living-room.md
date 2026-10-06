@@ -1,10 +1,14 @@
 ---
-title: "What to Put on a Shelf in the Living Room: Stylish Decor Ideas"
-description: "Your living room shelf is more than just a place to store things—it’s a chance to show off your style and make your space feel truly yours. But what should you "
+title: 'What to Put on a Shelf in the Living Room: Stylish Decor Ideas'
+description: 'Your living room shelf is more than just a place to store things—it’s
+  a chance to show off your style and make your space feel truly yours. But what should
+  you '
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-a-shelf-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-a-shelf-in-the-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room shelf is more than just a place to store things—it’s a chance to show off your style and make your space feel truly yours. But what should you put on a shelf in the living room to strike the perfect balance between beauty and function?**

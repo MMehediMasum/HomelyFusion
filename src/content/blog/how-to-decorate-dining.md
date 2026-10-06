@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Dining: Stunning Ideas to Transform Your Space"
-description: "Your dining space is more than just a place to eat—it’s where memories are made, conversations flow, and moments are shared. But how do you turn a simple dining"
+title: 'How to Decorate Dining: Stunning Ideas to Transform Your Space'
+description: Your dining space is more than just a place to eat—it’s where memories
+  are made, conversations flow, and moments are shared. But how do you turn a simple
+  dining
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-dining&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-dining&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your dining space is more than just a place to eat—it’s where memories are made, conversations flow, and moments are shared. But how do you turn a simple dining area into a warm, inviting spot that feels just right for you and your guests?**

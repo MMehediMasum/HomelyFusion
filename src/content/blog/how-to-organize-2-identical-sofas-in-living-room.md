@@ -1,10 +1,14 @@
 ---
-title: "How to Organize 2 Identical Sofas in Living Room: Expert Tips"
-description: "Are you wondering how to arrange two identical sofas in your living room without making the space feel crowded or dull? You’re not alone. Finding the perfect la"
+title: 'How to Organize 2 Identical Sofas in Living Room: Expert Tips'
+description: Are you wondering how to arrange two identical sofas in your living room
+  without making the space feel crowded or dull? You’re not alone. Finding the perfect
+  la
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-2-identical-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-2-identical-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange two identical sofas in your living room without making the space feel crowded or dull? You’re not alone.**

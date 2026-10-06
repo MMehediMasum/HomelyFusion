@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Generator to Home: Easy Steps for Reliable Power"
-description: "Are you looking to connect a generator to your home but don’t know where to start? Knowing how to hook a generator to your house can keep your lights on and app"
+title: 'How to Hook Generator to Home: Easy Steps for Reliable Power'
+description: Are you looking to connect a generator to your home but don’t know where
+  to start? Knowing how to hook a generator to your house can keep your lights on
+  and app
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-generator-to-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-generator-to-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to connect a generator to your home but don’t know where to start? Knowing how to hook a generator to your house can keep your lights on and appliances running during a power outage.**

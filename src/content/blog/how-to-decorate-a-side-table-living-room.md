@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Side Table Living Room: Stunning Style Tips"
-description: "Your living room’s side table is more than just a spot to place your drink. It’s a chance to add style, personality, and function to your space. But how do you "
+title: 'How to Decorate a Side Table Living Room: Stunning Style Tips'
+description: 'Your living room’s side table is more than just a spot to place your
+  drink. It’s a chance to add style, personality, and function to your space. But
+  how do you '
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-side-table-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-side-table-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s side table is more than just a spot to place your drink. It’s a chance to add style, personality, and function to your space.**

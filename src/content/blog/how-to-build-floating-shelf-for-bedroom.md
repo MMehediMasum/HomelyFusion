@@ -1,10 +1,14 @@
 ---
-title: "How to Build Floating Shelf for Bedroom: Easy DIY Guide"
-description: "Are you looking to add style and extra storage to your bedroom without taking up floor space? Building a floating shelf could be the perfect solution for you. I"
+title: 'How to Build Floating Shelf for Bedroom: Easy DIY Guide'
+description: Are you looking to add style and extra storage to your bedroom without
+  taking up floor space? Building a floating shelf could be the perfect solution for
+  you. I
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-floating-shelf-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-floating-shelf-for-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add style and extra storage to your bedroom without taking up floor space? Building a floating shelf could be the perfect solution for you.**

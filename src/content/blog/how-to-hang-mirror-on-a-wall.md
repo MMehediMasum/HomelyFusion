@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Mirror on a Wall: Easy Steps for Perfect Placement"
-description: "Hanging a mirror on your wall might seem simple, but getting it just right can change the whole look of your room. You want it straight, secure, and perfectly p"
+title: 'How to Hang Mirror on a Wall: Easy Steps for Perfect Placement'
+description: Hanging a mirror on your wall might seem simple, but getting it just
+  right can change the whole look of your room. You want it straight, secure, and
+  perfectly p
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a mirror on your wall might seem simple, but getting it just right can change the whole look of your room. You want it straight, secure, and perfectly placed to catch the light or create a sense of space.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Replace Bathroom Faucet: Easy Steps for a Quick Upgrade"
-description: "Replacing your bathroom faucet might seem tricky, but it’s easier than you think. Imagine upgrading your sink with a fresh, stylish faucet that works perfectly "
+title: 'How to Replace Bathroom Faucet: Easy Steps for a Quick Upgrade'
+description: 'Replacing your bathroom faucet might seem tricky, but it’s easier than
+  you think. Imagine upgrading your sink with a fresh, stylish faucet that works perfectly '
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-faucet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Faucet Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-faucet&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Replacing your bathroom faucet might seem tricky, but it’s easier than you think. Imagine upgrading your sink with a fresh, stylish faucet that works perfectly and looks great.**

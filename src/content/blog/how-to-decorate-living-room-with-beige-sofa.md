@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Beige Sofa: Stylish & Cozy Ideas"
-description: "Your beige sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you turn it into a stylish and inviting space that truly f"
+title: 'How to Decorate Living Room With Beige Sofa: Stylish & Cozy Ideas'
+description: Your beige sofa is more than just a piece of furniture—it’s the heart
+  of your living room. But how do you turn it into a stylish and inviting space that
+  truly f
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-beige-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-beige-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your beige sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you turn it into a stylish and inviting space that truly feels like home?**

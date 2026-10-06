@@ -1,10 +1,14 @@
 ---
-title: "Can You Control Smart Bulbs Away from Home: Ultimate Guide"
-description: "Have you ever wished you could turn your lights on or off when you're not at home? Imagine arriving to a warm, well-lit house after a long day or turning off fo"
+title: 'Can You Control Smart Bulbs Away from Home: Ultimate Guide'
+description: Have you ever wished you could turn your lights on or off when you're
+  not at home? Imagine arriving to a warm, well-lit house after a long day or turning
+  off fo
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-control-smart-bulbs-away-from-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=can-you-control-smart-bulbs-away-from-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wished you could turn your lights on or off when you're not at home? Imagine arriving to a warm, well-lit house after a long day or turning off forgotten lights without rushing back.**

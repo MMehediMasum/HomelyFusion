@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Dresser As a Bathroom Vanity? Stylish & Smart Ideas"
-description: "Have you ever thought about turning an old dresser into a bathroom vanity? It’s a smart way to add character and extra storage to your space without breaking th"
+title: Can You Use a Dresser As a Bathroom Vanity? Stylish & Smart Ideas
+description: Have you ever thought about turning an old dresser into a bathroom vanity?
+  It’s a smart way to add character and extra storage to your space without breaking
+  th
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-dresser-as-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-dresser-as-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever thought about turning an old dresser into a bathroom vanity? It’s a smart way to add character and extra storage to your space without breaking the bank.**

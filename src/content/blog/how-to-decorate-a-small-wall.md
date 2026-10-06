@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Wall: Creative Ideas That Transform Spaces"
-description: "Is your small wall feeling empty or dull? You might think it’s too tiny to make a difference, but the truth is, your small wall can become the highlight of your"
+title: 'How to Decorate a Small Wall: Creative Ideas That Transform Spaces'
+description: Is your small wall feeling empty or dull? You might think it’s too tiny
+  to make a difference, but the truth is, your small wall can become the highlight
+  of your
 pubDate: 2025-10-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your small wall feeling empty or dull? You might think it’s too tiny to make a difference, but the truth is, your small wall can become the highlight of your room.**

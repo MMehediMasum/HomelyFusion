@@ -1,10 +1,14 @@
 ---
-title: "What Do You Call the Tall Living Room Table: Ultimate Guide"
-description: "Have you ever walked into a living room and noticed a tall table standing proudly, catching your eye? You might have wondered, “What do you call that tall livin"
+title: 'What Do You Call the Tall Living Room Table: Ultimate Guide'
+description: Have you ever walked into a living room and noticed a tall table standing
+  proudly, catching your eye? You might have wondered, “What do you call that tall
+  livin
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-the-tall-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-the-tall-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into a living room and noticed a tall table standing proudly, catching your eye? You might have wondered, “What do you call that tall living room table?” It’s more than just a piece of furniture—it can change the whole feel of your space.**

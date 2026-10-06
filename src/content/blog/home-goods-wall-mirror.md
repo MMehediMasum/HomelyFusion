@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Mirror Ideas to Elevate Your Living Room Decor"
-description: "A wall mirror can transform any room, adding depth and style effortlessly. Whether for functionality or aesthetics, selecting the right mirror is crucial. Home "
+title: Home Goods Wall Mirror Ideas to Elevate Your Living Room Decor
+description: 'A wall mirror can transform any room, adding depth and style effortlessly.
+  Whether for functionality or aesthetics, selecting the right mirror is crucial.
+  Home '
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A wall mirror can transform any room, adding depth and style effortlessly. Whether for functionality or aesthetics, selecting the right mirror is crucial.**

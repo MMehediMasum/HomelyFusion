@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Gradient on a Wall: Easy Steps for Stunning Results"
-description: "Are you ready to transform your space with a stunning gradient wall? Painting a gradient on your wall can add depth, style, and a fresh vibe to any room. But yo"
+title: 'How to Paint Gradient on a Wall: Easy Steps for Stunning Results'
+description: Are you ready to transform your space with a stunning gradient wall?
+  Painting a gradient on your wall can add depth, style, and a fresh vibe to any room.
+  But yo
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-gradient-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-gradient-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a stunning gradient wall? Painting a gradient on your wall can add depth, style, and a fresh vibe to any room.**

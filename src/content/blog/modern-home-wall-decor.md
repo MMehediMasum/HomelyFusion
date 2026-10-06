@@ -1,10 +1,14 @@
 ---
-title: "Modern Home Wall Decor Ideas Featuring Stylish Frames and Shelves"
-description: "Modern home wall decor adds style and personality to any living space. Choosing the right pieces creates a fresh, inviting atmosphere. Decorating walls goes bey"
+title: Modern Home Wall Decor Ideas Featuring Stylish Frames and Shelves
+description: Modern home wall decor adds style and personality to any living space.
+  Choosing the right pieces creates a fresh, inviting atmosphere. Decorating walls
+  goes bey
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Modern home wall decor adds style and personality to any living space. Choosing the right pieces creates a fresh, inviting atmosphere.**

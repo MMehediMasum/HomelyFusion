@@ -1,10 +1,14 @@
 ---
-title: "What Color Led Bulbs for Home: Ultimate Guide to Perfect Lighting"
-description: "Choosing the right color LED bulbs for your home can completely change the way your space feels. You might not realize it, but the color of your lighting affect"
+title: 'What Color Led Bulbs for Home: Ultimate Guide to Perfect Lighting'
+description: Choosing the right color LED bulbs for your home can completely change
+  the way your space feels. You might not realize it, but the color of your lighting
+  affect
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-led-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-color-led-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right color LED bulbs for your home can completely change the way your space feels. You might not realize it, but the color of your lighting affects your mood, productivity, and even how your rooms look.**

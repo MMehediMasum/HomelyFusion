@@ -1,10 +1,14 @@
 ---
-title: "Hello Kitty Chair Home Goods: Stylish, Comfy Seats for Every Hello Kitty Fan"
-description: "Hello Kitty Chair Home Goods bring fun and comfort to any room. These cute chairs fit perfectly in bedrooms, playrooms, or study areas. Hello Kitty-themed chair"
+title: 'Hello Kitty Chair Home Goods: Stylish, Comfy Seats for Every Hello Kitty Fan'
+description: Hello Kitty Chair Home Goods bring fun and comfort to any room. These
+  cute chairs fit perfectly in bedrooms, playrooms, or study areas. Hello Kitty-themed
+  chair
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hello-kitty-chair-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=hello-kitty-chair-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Hello Kitty Chair Home Goods bring fun and comfort to any room. These cute chairs fit perfectly in bedrooms, playrooms, or study areas.**

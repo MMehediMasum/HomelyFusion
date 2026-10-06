@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Outdoor Table: Stylish, Durable Options for Patio and Garden Spaces"
-description: "Choosing the right outdoor table enhances your patio or garden experience. Home goods outdoor tables come in many styles and materials to fit your needs. Outdoo"
+title: 'Home Goods Outdoor Table: Stylish, Durable Options for Patio and Garden Spaces'
+description: Choosing the right outdoor table enhances your patio or garden experience.
+  Home goods outdoor tables come in many styles and materials to fit your needs. Outdoo
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-outdoor-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-outdoor-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right outdoor table enhances your patio or garden experience. Home goods outdoor tables come in many styles and materials to fit your needs.**

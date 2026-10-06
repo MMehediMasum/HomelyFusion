@@ -1,10 +1,14 @@
 ---
-title: "Best Washable Rugs for Nursery: Soft, Stylish, and Easy to Clean Choices"
-description: "Choosing the best washable rug for a nursery keeps the space clean and comfortable. Soft, easy-to-clean rugs protect babies while adding style. Nursery rugs mus"
+title: 'Best Washable Rugs for Nursery: Soft, Stylish, and Easy to Clean Choices'
+description: Choosing the best washable rug for a nursery keeps the space clean and
+  comfortable. Soft, easy-to-clean rugs protect babies while adding style. Nursery
+  rugs mus
 pubDate: 2025-10-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-washable-rugs-for-nursery-soft-stylish-and-easy-to-clean-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-washable-rugs-for-nursery-soft-stylish-and-easy-to-clean-choices&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best washable rug for a nursery keeps the space clean and comfortable. Soft, easy-to-clean rugs protect babies while adding style.**

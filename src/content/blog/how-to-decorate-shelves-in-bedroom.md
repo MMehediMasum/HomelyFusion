@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Shelves in Bedroom: Stylish Ideas to Transform Space"
-description: "Are your bedroom shelves just sitting there, looking plain and empty? You have the perfect chance to turn them into a stunning focal point that reflects your st"
+title: 'How to Decorate Shelves in Bedroom: Stylish Ideas to Transform Space'
+description: Are your bedroom shelves just sitting there, looking plain and empty?
+  You have the perfect chance to turn them into a stunning focal point that reflects
+  your st
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your bedroom shelves just sitting there, looking plain and empty? You have the perfect chance to turn them into a stunning focal point that reflects your style and personality.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fire Terracotta Clay at Home: Easy Steps for Perfect Results"
-description: "Have you ever wanted to turn your terracotta clay creations into strong, lasting pieces right at home? Firing terracotta clay can seem tricky, but with the righ"
+title: 'How to Fire Terracotta Clay at Home: Easy Steps for Perfect Results'
+description: Have you ever wanted to turn your terracotta clay creations into strong,
+  lasting pieces right at home? Firing terracotta clay can seem tricky, but with the
+  righ
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fire-terracotta-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fire-terracotta-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to turn your terracotta clay creations into strong, lasting pieces right at home? Firing terracotta clay can seem tricky, but with the right steps, you can do it yourself without expensive equipment.**

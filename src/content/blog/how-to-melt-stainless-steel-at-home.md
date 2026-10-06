@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Melt Stainless Steel at Home: Easy DIY Guide"
 description: "Have you ever wondered if you could melt stainless steel right at home? It might sound like a tough task, but with the right tools and simple steps, you can do "
 pubDate: 2026-02-17

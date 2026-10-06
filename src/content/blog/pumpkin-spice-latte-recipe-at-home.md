@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Pumpkin Spice Latte Recipe at Home: Easy, Cozy & Delicious Guide"
 description: "Imagine savoring the rich, warm flavors of a pumpkin spice latte without leaving your kitchen. You don’t have to wait in long lines or spend extra money at cafe"
 pubDate: 2025-12-22

@@ -1,10 +1,14 @@
 ---
-title: "Best Scented Candles for Home to Create Calm and Cozy Ambiance"
-description: "Scented candles bring warmth and a pleasant aroma to any home. They create a cozy and inviting atmosphere instantly. Choosing the best scented candle for your h"
+title: Best Scented Candles for Home to Create Calm and Cozy Ambiance
+description: Scented candles bring warmth and a pleasant aroma to any home. They create
+  a cozy and inviting atmosphere instantly. Choosing the best scented candle for your
+  h
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scented-candles-for-home-to-create-calm-and-cozy-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-scented-candles-for-home-to-create-calm-and-cozy-ambiance&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Scented candles bring warmth and a pleasant aroma to any home. They create a cozy and inviting atmosphere instantly.**

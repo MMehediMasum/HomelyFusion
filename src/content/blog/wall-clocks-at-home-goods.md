@@ -1,10 +1,14 @@
 ---
-title: "Wall Clocks at Home Goods: Stylish Silent Clocks for Every Room"
-description: "Wall clocks at Home Goods combine style and function for every room. They offer quiet, easy-to-read designs that fit many spaces. Home Goods carries a wide sele"
+title: 'Wall Clocks at Home Goods: Stylish Silent Clocks for Every Room'
+description: Wall clocks at Home Goods combine style and function for every room.
+  They offer quiet, easy-to-read designs that fit many spaces. Home Goods carries
+  a wide sele
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-clocks-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-clocks-at-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall clocks at Home Goods combine style and function for every room. They offer quiet, easy-to-read designs that fit many spaces.**

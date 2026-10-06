@@ -1,10 +1,13 @@
 ---
-title: "Home Decorators Collection Outdoor Lighting Ideas to Brighten Your Patio"
-description: "Enhancing your outdoor spaces with the right lighting can create an inviting and stylish ambiance. Home Decorators Collection offers a range of outdoor lighting"
+title: Home Decorators Collection Outdoor Lighting Ideas to Brighten Your Patio
+description: Enhancing your outdoor spaces with the right lighting can create an inviting
+  and stylish ambiance. Home Decorators Collection offers a range of outdoor lighting
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-outdoor-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-outdoor-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Enhancing your outdoor spaces with the right lighting can create an inviting and stylish ambiance. Home Decorators Collection offers a range of outdoor lighting options that blend functionality with aesthetics.**

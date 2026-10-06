@@ -1,10 +1,13 @@
 ---
-title: "Tj Maxx Wall Clocks: Stylish Vintage and Modern Designs for Every Room"
-description: "Tj Maxx wall clocks offer stylish and functional timepieces for any room. These clocks combine classic and modern designs to fit diverse tastes. Tj Maxx feature"
+title: 'Tj Maxx Wall Clocks: Stylish Vintage and Modern Designs for Every Room'
+description: Tj Maxx wall clocks offer stylish and functional timepieces for any room.
+  These clocks combine classic and modern designs to fit diverse tastes. Tj Maxx feature
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-wall-clocks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-wall-clocks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Tj Maxx wall clocks offer stylish and functional timepieces for any room. These clocks combine classic and modern designs to fit diverse tastes.**

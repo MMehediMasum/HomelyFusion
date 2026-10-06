@@ -1,10 +1,15 @@
 ---
-title: "Tv Stand Homegoods: Stylish and Functional Entertainment Centers for Every Room"
-description: "Finding the perfect TV stand can enhance your living space and keep your media equipment organized. Whether you have a small apartment or a spacious home, TV st"
+title: 'Tv Stand Homegoods: Stylish and Functional Entertainment Centers for Every
+  Room'
+description: Finding the perfect TV stand can enhance your living space and keep your
+  media equipment organized. Whether you have a small apartment or a spacious home,
+  TV st
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tv-stand-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=tv-stand-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Finding the perfect TV stand can enhance your living space and keep your media equipment organized. Whether you have a small apartment or a spacious home, TV stands from Homegoods offer versatile and stylish solutions.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Bamboo Chair at Home: Easy DIY Guide for Beginners"
-description: "Are you ready to create a beautiful, sturdy bamboo chair right at home? Imagine sitting comfortably on a chair you made yourself, crafted from natural bamboo th"
+title: 'How to Make a Bamboo Chair at Home: Easy DIY Guide for Beginners'
+description: Are you ready to create a beautiful, sturdy bamboo chair right at home?
+  Imagine sitting comfortably on a chair you made yourself, crafted from natural bamboo
+  th
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-bamboo-chair-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-bamboo-chair-at-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you ready to create a beautiful, sturdy bamboo chair right at home? Imagine sitting comfortably on a chair you made yourself, crafted from natural bamboo that adds charm to any room.**

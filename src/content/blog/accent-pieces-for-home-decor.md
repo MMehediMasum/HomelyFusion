@@ -1,10 +1,14 @@
 ---
-title: "Accent Pieces for Home Decor That Transform Your Living Space Instantly"
-description: "Accent pieces add personality and charm to any room. They bring life and style without overwhelming your space. Small decorative items like carved wooden knots,"
+title: Accent Pieces for Home Decor That Transform Your Living Space Instantly
+description: Accent pieces add personality and charm to any room. They bring life
+  and style without overwhelming your space. Small decorative items like carved wooden
+  knots,
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-pieces-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-pieces-for-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent pieces add personality and charm to any room. They bring life and style without overwhelming your space.**

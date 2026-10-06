@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor New Jersey: Unique Wall Art and Gifts for Every Home"
 description: "Discover the charm of New Jersey through unique floor decor. Explore a range of creative and stylish options. New Jersey offers a vibrant collection of decor it"
 pubDate: 2026-07-08

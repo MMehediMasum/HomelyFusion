@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Rectangle Living Room: Stunning Layout Ideas"
-description: "If you have a rectangle living room, you might wonder how to make the most of the space. It can feel tricky to arrange furniture and create a cozy, stylish area"
+title: 'How to Decorate a Rectangle Living Room: Stunning Layout Ideas'
+description: If you have a rectangle living room, you might wonder how to make the
+  most of the space. It can feel tricky to arrange furniture and create a cozy, stylish
+  area
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-rectangle-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-rectangle-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **If you have a rectangle living room, you might wonder how to make the most of the space. It can feel tricky to arrange furniture and create a cozy, stylish area without it looking too long or narrow.**

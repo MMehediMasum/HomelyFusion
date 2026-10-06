@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Thanksgiving Buffet: Stunning Ideas to Impress Guests"
-description: "Are you ready to make your Thanksgiving buffet the star of the holiday? How you decorate your buffet can turn a simple meal into an unforgettable experience for"
+title: 'How to Decorate Thanksgiving Buffet: Stunning Ideas to Impress Guests'
+description: Are you ready to make your Thanksgiving buffet the star of the holiday?
+  How you decorate your buffet can turn a simple meal into an unforgettable experience
+  for
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-thanksgiving-buffet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-thanksgiving-buffet&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Thanksgiving buffet the star of the holiday? How you decorate your buffet can turn a simple meal into an unforgettable experience for your guests.**

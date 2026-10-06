@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Flat Bar at Home: Easy DIY Techniques"
 description: "Have you ever needed to bend a steel flat bar but thought it was too difficult or expensive to do at home? What if you could learn simple, safe techniques that "
 pubDate: 2026-02-27

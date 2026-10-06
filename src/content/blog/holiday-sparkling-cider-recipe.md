@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Sparkling Cider Recipe: Festive, Easy & Delicious Cheers"
 description: "Looking for a festive drink that will brighten up your holiday celebrations? This Holiday Sparkling Cider Recipe is just what you need. It’s simple to make, tas"
 pubDate: 2025-12-23

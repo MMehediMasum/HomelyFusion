@@ -1,10 +1,14 @@
 ---
-title: "Best Light Temperature for Bedroom to Enhance Sleep and Relaxation"
-description: "Choosing the best light temperature for your bedroom affects comfort and sleep quality. The right lighting creates a calm and restful atmosphere. Bedroom lighti"
+title: Best Light Temperature for Bedroom to Enhance Sleep and Relaxation
+description: Choosing the best light temperature for your bedroom affects comfort
+  and sleep quality. The right lighting creates a calm and restful atmosphere. Bedroom
+  lighti
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-temperature-for-bedroom-to-enhance-sleep-and-relaxation&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-light-temperature-for-bedroom-to-enhance-sleep-and-relaxation&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best light temperature for your bedroom affects comfort and sleep quality. The right lighting creates a calm and restful atmosphere.**

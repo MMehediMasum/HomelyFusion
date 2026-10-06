@@ -1,10 +1,14 @@
 ---
-title: "Should I Get a Gaming Chair for My Home Office: Ultimate Comfort Guide"
-description: "Are you spending long hours at your home office and feeling the strain on your back and neck? You might be wondering if a gaming chair is the right solution for"
+title: 'Should I Get a Gaming Chair for My Home Office: Ultimate Comfort Guide'
+description: Are you spending long hours at your home office and feeling the strain
+  on your back and neck? You might be wondering if a gaming chair is the right solution
+  for
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-get-a-gaming-chair-for-my-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=should-i-get-a-gaming-chair-for-my-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you spending long hours at your home office and feeling the strain on your back and neck? You might be wondering if a gaming chair is the right solution for your comfort and productivity.**

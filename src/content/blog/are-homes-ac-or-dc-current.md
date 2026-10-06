@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Homes Ac Or Dc Current: Unveiling the Truth Today"
 description: "Have you ever wondered whether the electricity powering your home is AC or DC current? Understanding the type of current flowing through your walls can help you"
 pubDate: 2026-04-11

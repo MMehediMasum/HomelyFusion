@@ -1,10 +1,14 @@
 ---
-title: "How Did Gas Lamps Work in Homes: Unveiling Vintage Illumination Secrets"
-description: "Have you ever wondered how gas lamps lit up homes before electricity took over? Imagine a warm, steady glow filling your room, powered by a simple yet clever de"
+title: 'How Did Gas Lamps Work in Homes: Unveiling Vintage Illumination Secrets'
+description: Have you ever wondered how gas lamps lit up homes before electricity
+  took over? Imagine a warm, steady glow filling your room, powered by a simple yet
+  clever de
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-did-gas-lamps-work-in-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-did-gas-lamps-work-in-homes&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered how gas lamps lit up homes before electricity took over? Imagine a warm, steady glow filling your room, powered by a simple yet clever device.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Credit Card Skins: Stylish Protection for Your Cards"
-description: "The Floor and Decor credit card offers a simple way to finance your home improvement projects. It provides special financing options and rewards for frequent sh"
+title: 'Floor And Decor Credit Card Skins: Stylish Protection for Your Cards'
+description: The Floor and Decor credit card offers a simple way to finance your home
+  improvement projects. It provides special financing options and rewards for frequent
+  sh
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-credit-card&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-credit-card&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **The Floor and Decor credit card offers a simple way to finance your home improvement projects. It provides special financing options and rewards for frequent shoppers.**

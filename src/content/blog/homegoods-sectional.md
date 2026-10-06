@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Sectional: Stylish Modular Sofas for Ultimate Living Room Comfort"
-description: "Choosing the right sectional sofa can transform your living room space. Homegoods offers a diverse range of sectional options to fit any style. Whether you want"
+title: 'Homegoods Sectional: Stylish Modular Sofas for Ultimate Living Room Comfort'
+description: Choosing the right sectional sofa can transform your living room space.
+  Homegoods offers a diverse range of sectional options to fit any style. Whether
+  you want
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-sectional&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-sectional&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sectional sofa can transform your living room space. Homegoods offers a diverse range of sectional options to fit any style.**

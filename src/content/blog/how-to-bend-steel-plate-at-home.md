@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Plate at Home: Easy DIY Techniques Revealed"
 description: "Have you ever needed to bend a steel plate but thought it was too hard to do at home? What if you could save time and money by doing it yourself, without expens"
 pubDate: 2025-09-22

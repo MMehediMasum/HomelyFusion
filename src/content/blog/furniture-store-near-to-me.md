@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Furniture Store Near to Me: Top Stylish Sofas, Benches & Storage Solutions"
 description: "Finding the perfect furniture store near you can transform your living space. Whether you're furnishing a cozy apartment or upgrading your home's style, local f"
 pubDate: 2025-12-18

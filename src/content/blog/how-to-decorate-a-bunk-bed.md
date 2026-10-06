@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bunk Bed: Creative Ideas for Cozy Spaces"
-description: "Are you looking to turn your bunk bed into a cozy, stylish space that feels just right? Decorating a bunk bed isn’t just about making it look good—it’s about cr"
+title: 'How to Decorate a Bunk Bed: Creative Ideas for Cozy Spaces'
+description: Are you looking to turn your bunk bed into a cozy, stylish space that
+  feels just right? Decorating a bunk bed isn’t just about making it look good—it’s
+  about cr
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bunk-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bunk-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to turn your bunk bed into a cozy, stylish space that feels just right? Decorating a bunk bed isn’t just about making it look good—it’s about creating a spot where you or your kids can relax, sleep, and have fun.**

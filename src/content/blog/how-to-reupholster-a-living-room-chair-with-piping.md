@@ -1,10 +1,14 @@
 ---
-title: "How to Reupholster a Living Room Chair With Piping: Easy DIY Guide"
-description: "Are you looking to give your living room chair a fresh, stylish look without spending a fortune? Reupholstering your chair with piping can add a professional, p"
+title: 'How to Reupholster a Living Room Chair With Piping: Easy DIY Guide'
+description: Are you looking to give your living room chair a fresh, stylish look
+  without spending a fortune? Reupholstering your chair with piping can add a professional,
+  p
 pubDate: 2026-04-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair-with-piping&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair-with-piping&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to give your living room chair a fresh, stylish look without spending a fortune? Reupholstering your chair with piping can add a professional, polished touch that makes your furniture stand out.**

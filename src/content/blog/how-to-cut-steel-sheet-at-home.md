@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Steel Sheet at Home: Easy & Safe DIY Techniques"
 description: "Cutting steel sheet at home might sound tricky, but it doesn’t have to be. Whether you’re working on a DIY project or fixing something around the house, knowing"
 pubDate: 2026-03-25

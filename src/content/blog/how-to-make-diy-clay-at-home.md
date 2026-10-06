@@ -1,10 +1,14 @@
 ---
-title: "How to Make Diy Clay at Home: Easy, Fun, and Budget-Friendly Guide"
-description: "Are you ready to create something fun and unique right at home? Making DIY clay is easier than you think, and it’s a perfect way to unleash your creativity. Whe"
+title: 'How to Make Diy Clay at Home: Easy, Fun, and Budget-Friendly Guide'
+description: Are you ready to create something fun and unique right at home? Making
+  DIY clay is easier than you think, and it’s a perfect way to unleash your creativity.
+  Whe
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-diy-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-diy-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create something fun and unique right at home? Making DIY clay is easier than you think, and it’s a perfect way to unleash your creativity.**

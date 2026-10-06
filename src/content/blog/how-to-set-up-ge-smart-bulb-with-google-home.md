@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Ge Smart Bulb With Google Home: Easy Step-by-Step Guide"
-description: "Imagine controlling your home lighting with just your voice. Setting up your GE Smart Bulb with Google Home makes this possible—and easier than you think. If yo"
+title: 'How to Set Up Ge Smart Bulb With Google Home: Easy Step-by-Step Guide'
+description: Imagine controlling your home lighting with just your voice. Setting
+  up your GE Smart Bulb with Google Home makes this possible—and easier than you think.
+  If yo
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-ge-smart-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-ge-smart-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home lighting with just your voice. Setting up your GE Smart Bulb with Google Home makes this possible—and easier than you think.**

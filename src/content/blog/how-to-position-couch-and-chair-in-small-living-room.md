@@ -1,10 +1,14 @@
 ---
-title: "How to Position Couch And Chair in Small Living Room: Expert Tips"
-description: "Struggling to fit your couch and chair comfortably in a small living room? You’re not alone. Finding the perfect arrangement can make your space feel larger, co"
+title: 'How to Position Couch And Chair in Small Living Room: Expert Tips'
+description: Struggling to fit your couch and chair comfortably in a small living
+  room? You’re not alone. Finding the perfect arrangement can make your space feel
+  larger, co
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-position-couch-and-chair-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-position-couch-and-chair-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit your couch and chair comfortably in a small living room? You’re not alone.**

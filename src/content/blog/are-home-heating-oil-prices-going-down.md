@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Going Down: What You Need to Know"
 description: "Are you worried about your home heating bills this season? You’re not alone. Many people are asking the same question: Are home heating oil prices going down? U"
 pubDate: 2026-04-05

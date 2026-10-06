@@ -1,10 +1,14 @@
 ---
-title: "Snoopy Halloween Blanket: Cozy Up with Peanuts’ Spooky Plush Throw"
-description: "The Snoopy Halloween Blanket brings cozy warmth and festive fun to your home. Featuring beloved Peanuts characters, it adds charm to any space. This blanket com"
+title: 'Snoopy Halloween Blanket: Cozy Up with Peanuts’ Spooky Plush Throw'
+description: The Snoopy Halloween Blanket brings cozy warmth and festive fun to your
+  home. Featuring beloved Peanuts characters, it adds charm to any space. This blanket
+  com
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-halloween-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-halloween-blanket&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Snoopy Halloween Blanket brings cozy warmth and festive fun to your home. Featuring beloved Peanuts characters, it adds charm to any space.**

@@ -1,10 +1,13 @@
 ---
-title: "Halloween Tablecloth Decoration Ideas: Spooky & Stylish Inspirations"
-description: "Are you ready to transform your Halloween table into a spooky masterpiece? Your tablecloth is more than just a cover—it’s the foundation of your entire Hallowee"
+title: 'Halloween Tablecloth Decoration Ideas: Spooky & Stylish Inspirations'
+description: Are you ready to transform your Halloween table into a spooky masterpiece?
+  Your tablecloth is more than just a cover—it’s the foundation of your entire Hallowee
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-tablecloth-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-tablecloth-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Halloween table into a spooky masterpiece? Your tablecloth is more than just a cover—it’s the foundation of your entire Halloween decoration.**

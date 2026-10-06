@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Clay behind the Home Invasions? Shocking Truth Revealed"
 description: "Have you ever wondered if something as simple as clay could be linked to the rise in home invasions? It sounds strange, but what if there’s more to this than me"
 pubDate: 2026-03-18

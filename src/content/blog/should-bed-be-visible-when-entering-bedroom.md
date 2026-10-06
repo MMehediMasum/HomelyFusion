@@ -1,10 +1,14 @@
 ---
-title: "Should Bed Be Visible When Entering Bedroom: Expert Tips Revealed"
-description: "Have you ever noticed how the first thing you see when you walk into your bedroom affects how you feel? Whether your bed is right in front of you or tucked away"
+title: 'Should Bed Be Visible When Entering Bedroom: Expert Tips Revealed'
+description: Have you ever noticed how the first thing you see when you walk into
+  your bedroom affects how you feel? Whether your bed is right in front of you or
+  tucked away
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bed-be-visible-when-entering-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=should-bed-be-visible-when-entering-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever noticed how the first thing you see when you walk into your bedroom affects how you feel? Whether your bed is right in front of you or tucked away can change the entire mood of the room.**

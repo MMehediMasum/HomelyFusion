@@ -1,10 +1,13 @@
 ---
-title: "Home Movie Theater Wall Decor Ideas to Elevate Your Cinema Space"
-description: "Transforming a home movie theater into a stylish retreat requires thoughtful wall decor. The right decor adds charm and enhances the viewing experience. Choosin"
+title: Home Movie Theater Wall Decor Ideas to Elevate Your Cinema Space
+description: Transforming a home movie theater into a stylish retreat requires thoughtful
+  wall decor. The right decor adds charm and enhances the viewing experience. Choosin
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-movie-theater-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-movie-theater-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transforming a home movie theater into a stylish retreat requires thoughtful wall decor. The right decor adds charm and enhances the viewing experience.**

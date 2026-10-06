@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Steel at Home: Easy Steps for DIY Metalwork"
 description: "Have you ever wondered if you could make steel right at home? Imagine turning simple materials into strong, durable steel with your own hands. It’s not just for"
 pubDate: 2026-03-05

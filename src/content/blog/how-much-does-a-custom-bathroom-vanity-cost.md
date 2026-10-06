@@ -1,10 +1,14 @@
 ---
-title: "How Much Does a Custom Bathroom Vanity Cost: Ultimate Price Guide"
-description: "Are you thinking about upgrading your bathroom with a custom vanity? You probably wonder, “How much will it really cost?” A bathroom vanity is more than just a "
+title: 'How Much Does a Custom Bathroom Vanity Cost: Ultimate Price Guide'
+description: 'Are you thinking about upgrading your bathroom with a custom vanity?
+  You probably wonder, “How much will it really cost?” A bathroom vanity is more than
+  just a '
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-a-custom-bathroom-vanity-cost&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-a-custom-bathroom-vanity-cost&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom with a custom vanity? You probably wonder, “How much will it really cost?” A bathroom vanity is more than just a cabinet—it sets the tone for your entire space.**

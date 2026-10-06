@@ -1,10 +1,14 @@
 ---
-title: "Living Room Home Accessories: Cozy Throws, Stylish Lamps, and Elegant Decor"
-description: "Transforming your living room into a cozy haven is all about the right accessories. These details add warmth and personality. From soft throw blankets to stylis"
+title: 'Living Room Home Accessories: Cozy Throws, Stylish Lamps, and Elegant Decor'
+description: Transforming your living room into a cozy haven is all about the right
+  accessories. These details add warmth and personality. From soft throw blankets
+  to stylis
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=living-room-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transforming your living room into a cozy haven is all about the right accessories. These details add warmth and personality.**

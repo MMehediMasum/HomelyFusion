@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Easy Homemade Hot Cocoa for Winter: Cozy, Creamy, and Quick Recipes"
 description: "When winter chills settle in, nothing warms you up quite like a cup of hot cocoa. But store-bought mixes often fall short—they can be too sweet, too artificial,"
 pubDate: 2026-01-14

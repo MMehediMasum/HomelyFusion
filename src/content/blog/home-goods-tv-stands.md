@@ -1,10 +1,14 @@
 ---
-title: "Home Goods TV Stands: Stylish, Adjustable, and Space-Saving Solutions"
-description: "Home Goods TV stands offer stylish and practical solutions for placing your television. They come in various designs to fit different room styles and TV sizes. "
+title: 'Home Goods TV Stands: Stylish, Adjustable, and Space-Saving Solutions'
+description: 'Home Goods TV stands offer stylish and practical solutions for placing
+  your television. They come in various designs to fit different room styles and TV
+  sizes. '
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-tv-stands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-tv-stands&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Goods TV stands offer stylish and practical solutions for placing your television. They come in various designs to fit different room styles and TV sizes.**

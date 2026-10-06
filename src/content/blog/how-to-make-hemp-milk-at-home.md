@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Hemp Milk at Home: Easy, Nutritious & Delicious Guide"
 description: "Are you looking for a fresh, healthy alternative to regular milk? Making hemp milk at home is easier than you think, and it’s packed with nutrients that support"
 pubDate: 2026-03-26

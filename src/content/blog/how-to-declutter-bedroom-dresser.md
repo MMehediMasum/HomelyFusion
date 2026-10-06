@@ -1,10 +1,14 @@
 ---
-title: "How to Declutter Bedroom Dresser: Easy Steps for a Tidy Space"
-description: "Is your bedroom dresser overflowing with clothes, accessories, and random items you barely use? Imagine opening those drawers and instantly finding exactly what"
+title: 'How to Declutter Bedroom Dresser: Easy Steps for a Tidy Space'
+description: Is your bedroom dresser overflowing with clothes, accessories, and random
+  items you barely use? Imagine opening those drawers and instantly finding exactly
+  what
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-declutter-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-declutter-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bedroom dresser overflowing with clothes, accessories, and random items you barely use? Imagine opening those drawers and instantly finding exactly what you need without the frustration.**

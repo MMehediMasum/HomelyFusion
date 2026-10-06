@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy With Machine at Home: Easy & Fun Guide"
 description: "Imagine turning simple sugar into a fluffy, colorful cloud right in your own kitchen. Making cotton candy with a machine at home is easier than you think, and i"
 pubDate: 2026-03-09

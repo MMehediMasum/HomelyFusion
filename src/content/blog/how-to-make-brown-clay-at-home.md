@@ -1,10 +1,14 @@
 ---
-title: "How to Make Brown Clay at Home: Easy DIY Natural Recipe"
-description: "Have you ever wanted to create your own brown clay right at home? Imagine having the perfect, natural clay ready whenever you need it for crafts, pottery, or ar"
+title: 'How to Make Brown Clay at Home: Easy DIY Natural Recipe'
+description: Have you ever wanted to create your own brown clay right at home? Imagine
+  having the perfect, natural clay ready whenever you need it for crafts, pottery,
+  or ar
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-brown-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-brown-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own brown clay right at home? Imagine having the perfect, natural clay ready whenever you need it for crafts, pottery, or art projects.**

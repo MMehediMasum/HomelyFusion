@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Geometric Shapes on Wall: Easy Steps for Stunning Decor"
-description: "Are you ready to transform your plain walls into eye-catching art? Painting geometric shapes on your wall is a simple way to add style and personality to any ro"
+title: 'How to Paint Geometric Shapes on Wall: Easy Steps for Stunning Decor'
+description: Are you ready to transform your plain walls into eye-catching art? Painting
+  geometric shapes on your wall is a simple way to add style and personality to any
+  ro
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-geometric-shapes-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-geometric-shapes-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain walls into eye-catching art? Painting geometric shapes on your wall is a simple way to add style and personality to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Farmhouse Wall Art Ideas: Cozy Rustic Decor Inspiration"
-description: "Are you ready to transform your home into a cozy fall retreat? Fall farmhouse wall art is the perfect way to bring warmth and charm to your space this season. I"
+title: 'Fall Farmhouse Wall Art Ideas: Cozy Rustic Decor Inspiration'
+description: Are you ready to transform your home into a cozy fall retreat? Fall farmhouse
+  wall art is the perfect way to bring warmth and charm to your space this season.
+  I
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-farmhouse-wall-art-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-farmhouse-wall-art-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your home into a cozy fall retreat? Fall farmhouse wall art is the perfect way to bring warmth and charm to your space this season.**

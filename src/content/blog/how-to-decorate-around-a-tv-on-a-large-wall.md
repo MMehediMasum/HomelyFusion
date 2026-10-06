@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate around a Tv on a Large Wall: Stunning Ideas Revealed"
-description: "Is your large wall feeling empty around your TV? Decorating such a big space can be tricky, but it doesn’t have to be stressful. You want your TV to be the star"
+title: 'How to Decorate around a Tv on a Large Wall: Stunning Ideas Revealed'
+description: Is your large wall feeling empty around your TV? Decorating such a big
+  space can be tricky, but it doesn’t have to be stressful. You want your TV to be
+  the star
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-tv-on-a-large-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-tv-on-a-large-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your large wall feeling empty around your TV? Decorating such a big space can be tricky, but it doesn’t have to be stressful.**

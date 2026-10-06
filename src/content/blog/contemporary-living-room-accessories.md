@@ -1,10 +1,14 @@
 ---
-title: "Contemporary Living Room Accessories to Elevate Your Home Decor Instantly"
-description: "Transform your living room with contemporary accessories that add charm and style. Discover unique decorative items to elevate your space. Modern living rooms d"
+title: Contemporary Living Room Accessories to Elevate Your Home Decor Instantly
+description: Transform your living room with contemporary accessories that add charm
+  and style. Discover unique decorative items to elevate your space. Modern living
+  rooms d
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=contemporary-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=contemporary-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your living room with contemporary accessories that add charm and style. Discover unique decorative items to elevate your space.**

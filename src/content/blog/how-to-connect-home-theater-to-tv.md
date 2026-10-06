@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater to TV: Ultimate Step-by-Step Guide"
 description: "Are you ready to turn your living room into a cinematic experience? Connecting your home theater to your TV might seem tricky, but it’s easier than you think. O"
 pubDate: 2026-04-21

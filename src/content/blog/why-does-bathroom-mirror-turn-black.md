@@ -1,10 +1,14 @@
 ---
-title: "Why Does Bathroom Mirror Turn Black: Causes & Easy Fixes"
-description: "Have you ever noticed your bathroom mirror slowly turning black around the edges? It’s frustrating and confusing, especially when you rely on that mirror every "
+title: 'Why Does Bathroom Mirror Turn Black: Causes & Easy Fixes'
+description: 'Have you ever noticed your bathroom mirror slowly turning black around
+  the edges? It’s frustrating and confusing, especially when you rely on that mirror
+  every '
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-bathroom-mirror-turn-black&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=why-does-bathroom-mirror-turn-black&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever noticed your bathroom mirror slowly turning black around the edges? It’s frustrating and confusing, especially when you rely on that mirror every day.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Farmhouse Decor Ideas: Cozy, Charming, and Timeless Tips"
-description: "Are you ready to transform your home into a cozy fall retreat? Fall Rustic Farmhouse Decor Ideas can bring warmth, charm, and a touch of nature right into your "
+title: 'Fall Rustic Farmhouse Decor Ideas: Cozy, Charming, and Timeless Tips'
+description: 'Are you ready to transform your home into a cozy fall retreat? Fall
+  Rustic Farmhouse Decor Ideas can bring warmth, charm, and a touch of nature right
+  into your '
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-farmhouse-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-farmhouse-decor-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your home into a cozy fall retreat? Fall Rustic Farmhouse Decor Ideas can bring warmth, charm, and a touch of nature right into your space.**

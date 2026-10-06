@@ -1,10 +1,14 @@
 ---
-title: "How to Seal Bathroom Vanity Top: Easy Steps for Lasting Protection"
-description: "Your bathroom vanity top faces constant exposure to water, soap, and daily wear. Without a proper seal, moisture can sneak in, causing damage, stains, and costl"
+title: 'How to Seal Bathroom Vanity Top: Easy Steps for Lasting Protection'
+description: Your bathroom vanity top faces constant exposure to water, soap, and
+  daily wear. Without a proper seal, moisture can sneak in, causing damage, stains,
+  and costl
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-seal-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-seal-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity top faces constant exposure to water, soap, and daily wear. Without a proper seal, moisture can sneak in, causing damage, stains, and costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Design a Living Room With a Brown Sofa: Stylish & Cozy Ideas"
-description: "Are you wondering how to make your living room look warm and inviting with a brown sofa? You’re not alone. Brown sofas are classic, cozy, and easy to style—but "
+title: 'How to Design a Living Room With a Brown Sofa: Stylish & Cozy Ideas'
+description: 'Are you wondering how to make your living room look warm and inviting
+  with a brown sofa? You’re not alone. Brown sofas are classic, cozy, and easy to
+  style—but '
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-a-living-room-with-a-brown-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-a-living-room-with-a-brown-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room look warm and inviting with a brown sofa? You’re not alone.**

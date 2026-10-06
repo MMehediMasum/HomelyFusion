@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Living Room Table: Stylish Ideas That Impress"
-description: "Your living room table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly change the vibe of the entire room"
+title: 'How to Decorate the Living Room Table: Stylish Ideas That Impress'
+description: Your living room table is more than just a piece of furniture—it’s the
+  heart of your space. How you decorate it can instantly change the vibe of the entire
+  room
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-living-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly change the vibe of the entire room.**

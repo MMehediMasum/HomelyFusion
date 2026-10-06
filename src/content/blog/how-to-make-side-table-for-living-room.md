@@ -1,10 +1,14 @@
 ---
-title: "How to Make Side Table for Living Room: Easy DIY Guide"
-description: "Looking to add a personal touch to your living room? Making your own side table is easier than you think—and it can completely change the way your space feels. "
+title: 'How to Make Side Table for Living Room: Easy DIY Guide'
+description: 'Looking to add a personal touch to your living room? Making your own
+  side table is easier than you think—and it can completely change the way your space
+  feels. '
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-side-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-side-table-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to add a personal touch to your living room? Making your own side table is easier than you think—and it can completely change the way your space feels.**

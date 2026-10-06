@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Tile Flooring: Stylish Peel and Stick Options for Easy DIY"
-description: "Tile flooring offers a versatile and stylish way to enhance home decor. It combines functionality with aesthetic appeal, making it a popular choice. Home decor "
+title: 'Home Decor Tile Flooring: Stylish Peel and Stick Options for Easy DIY'
+description: 'Tile flooring offers a versatile and stylish way to enhance home decor.
+  It combines functionality with aesthetic appeal, making it a popular choice. Home
+  decor '
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-tile-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-tile-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile flooring offers a versatile and stylish way to enhance home decor. It combines functionality with aesthetic appeal, making it a popular choice.**

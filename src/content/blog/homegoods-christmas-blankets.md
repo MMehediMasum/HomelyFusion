@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Christmas Blankets: Cozy, Stylish Throws for Holiday Comfort"
-description: "Homegoods Christmas blankets bring warmth and festive cheer to any room. These cozy throws feature holiday designs perfect for winter comfort. Choose from soft "
+title: 'Homegoods Christmas Blankets: Cozy, Stylish Throws for Holiday Comfort'
+description: 'Homegoods Christmas blankets bring warmth and festive cheer to any room.
+  These cozy throws feature holiday designs perfect for winter comfort. Choose from
+  soft '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-christmas-blankets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-christmas-blankets&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Homegoods Christmas blankets bring warmth and festive cheer to any room. These cozy throws feature holiday designs perfect for winter comfort.**

@@ -1,10 +1,14 @@
 ---
-title: "Bethlehem Lights Window Candles: Elegant LED Holiday Decor for Every Home"
-description: "Bethlehem Lights Window Candles bring warm, cozy light to your home during the holiday season. These battery-operated candles create a charming, festive glow wi"
+title: 'Bethlehem Lights Window Candles: Elegant LED Holiday Decor for Every Home'
+description: Bethlehem Lights Window Candles bring warm, cozy light to your home during
+  the holiday season. These battery-operated candles create a charming, festive glow
+  wi
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bethlehem-lights-window-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bethlehem-lights-window-candles&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Bethlehem Lights Window Candles bring warm, cozy light to your home during the holiday season. These battery-operated candles create a charming, festive glow without real flames.**

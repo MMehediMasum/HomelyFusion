@@ -1,10 +1,14 @@
 ---
-title: "What Wall Colour Goes With a Grey Sofa Living Room: Stunning Ideas"
-description: "Choosing the perfect wall colour to match your grey sofa can feel tricky. You want your living room to look stylish and inviting, but you’re not sure which shad"
+title: 'What Wall Colour Goes With a Grey Sofa Living Room: Stunning Ideas'
+description: Choosing the perfect wall colour to match your grey sofa can feel tricky.
+  You want your living room to look stylish and inviting, but you’re not sure which
+  shad
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-wall-colour-goes-with-a-grey-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-wall-colour-goes-with-a-grey-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect wall colour to match your grey sofa can feel tricky. You want your living room to look stylish and inviting, but you’re not sure which shades will bring out the best in your space.**

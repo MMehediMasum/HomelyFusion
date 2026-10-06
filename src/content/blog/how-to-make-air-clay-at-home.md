@@ -1,10 +1,14 @@
 ---
-title: "How to Make Air Clay at Home: Easy Steps for Creative Fun"
-description: "Have you ever wanted to create your own air clay at home but didn’t know where to start? Imagine having a soft, moldable material ready whenever creativity stri"
+title: 'How to Make Air Clay at Home: Easy Steps for Creative Fun'
+description: Have you ever wanted to create your own air clay at home but didn’t know
+  where to start? Imagine having a soft, moldable material ready whenever creativity
+  stri
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own air clay at home but didn’t know where to start? Imagine having a soft, moldable material ready whenever creativity strikes—without spending a lot of money or buying special supplies.**

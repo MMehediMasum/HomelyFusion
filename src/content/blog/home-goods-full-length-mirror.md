@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Full Length Mirror: Stylish, Durable, and Perfect for Any Room"
-description: "A full-length mirror can transform any space, adding style and functionality. These mirrors are essential for bedrooms and living rooms. Full-length mirrors off"
+title: 'Home Goods Full Length Mirror: Stylish, Durable, and Perfect for Any Room'
+description: A full-length mirror can transform any space, adding style and functionality.
+  These mirrors are essential for bedrooms and living rooms. Full-length mirrors off
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-full-length-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-full-length-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A full-length mirror can transform any space, adding style and functionality. These mirrors are essential for bedrooms and living rooms.**

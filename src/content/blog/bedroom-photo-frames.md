@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Photo Frames: Stylish Collage Sets to Showcase Your Memories"
-description: "Bedroom photo frames add a personal touch, transforming your space into a cozy retreat. They showcase cherished memories and moments. Choosing the right photo f"
+title: 'Bedroom Photo Frames: Stylish Collage Sets to Showcase Your Memories'
+description: Bedroom photo frames add a personal touch, transforming your space into
+  a cozy retreat. They showcase cherished memories and moments. Choosing the right
+  photo f
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-photo-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-photo-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bedroom photo frames add a personal touch, transforming your space into a cozy retreat. They showcase cherished memories and moments.**

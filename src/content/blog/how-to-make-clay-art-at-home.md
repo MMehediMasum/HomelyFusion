@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Art at Home: Easy Steps for Stunning Creations"
-description: "Have you ever wanted to create something beautiful with your own hands? Making clay art at home is a fun and relaxing way to do just that. Whether you’re a begi"
+title: 'How to Make Clay Art at Home: Easy Steps for Stunning Creations'
+description: Have you ever wanted to create something beautiful with your own hands?
+  Making clay art at home is a fun and relaxing way to do just that. Whether you’re
+  a begi
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-art-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-art-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Making clay art at home is a fun and relaxing way to do just that.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Hemp Soap at Home: Easy Steps for Natural Glow"
 description: "Have you ever wanted to create your own natural soap that’s gentle, nourishing, and good for your skin? Making hemp soap at home is easier than you might think."
 pubDate: 2026-03-17

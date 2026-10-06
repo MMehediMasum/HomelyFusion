@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom Window Sill: Stylish Ideas to Transform Your Space"
-description: "Your bedroom window sill is more than just a ledge—it’s a hidden spot full of style potential. How you dress it can change the entire feel of your room, making "
+title: 'How to Dress Bedroom Window Sill: Stylish Ideas to Transform Your Space'
+description: 'Your bedroom window sill is more than just a ledge—it’s a hidden spot
+  full of style potential. How you dress it can change the entire feel of your room,
+  making '
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-sill&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-sill&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom window sill is more than just a ledge—it’s a hidden spot full of style potential. How you dress it can change the entire feel of your room, making it cozy, elegant, or even a personal retreat.**

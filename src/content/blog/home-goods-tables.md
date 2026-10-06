@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Tables: Stylish and Functional Desks for Every Home Office"
-description: "Home goods tables offer practical and stylish solutions for any room in your home. They combine function and design to fit various needs and spaces. Choosing th"
+title: 'Home Goods Tables: Stylish and Functional Desks for Every Home Office'
+description: Home goods tables offer practical and stylish solutions for any room
+  in your home. They combine function and design to fit various needs and spaces.
+  Choosing th
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods tables offer practical and stylish solutions for any room in your home. They combine function and design to fit various needs and spaces.**

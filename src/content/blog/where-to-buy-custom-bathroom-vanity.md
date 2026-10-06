@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Custom Bathroom Vanity: Top Trusted Shops Revealed"
-description: "Looking to give your bathroom a fresh, unique look? Finding the perfect custom bathroom vanity can transform your space and match your style exactly. But where "
+title: 'Where to Buy Custom Bathroom Vanity: Top Trusted Shops Revealed'
+description: 'Looking to give your bathroom a fresh, unique look? Finding the perfect
+  custom bathroom vanity can transform your space and match your style exactly. But
+  where '
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-custom-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-custom-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to give your bathroom a fresh, unique look? Finding the perfect custom bathroom vanity can transform your space and match your style exactly.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Sofa in Living Room Without Fireplace: Expert Tips"
-description: "Looking for the perfect spot to place your sofa in a living room without a fireplace? You might feel stuck, wondering how to create a cozy and inviting space wi"
+title: 'Where to Put Sofa in Living Room Without Fireplace: Expert Tips'
+description: Looking for the perfect spot to place your sofa in a living room without
+  a fireplace? You might feel stuck, wondering how to create a cozy and inviting space
+  wi
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-sofa-in-living-room-without-fireplace&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-sofa-in-living-room-without-fireplace&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for the perfect spot to place your sofa in a living room without a fireplace? You might feel stuck, wondering how to create a cozy and inviting space without that classic focal point.**

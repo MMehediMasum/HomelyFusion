@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Pottery at Home: Easy Steps for Stunning Creations"
-description: "Have you ever wanted to create something beautiful with your own hands? Making clay pottery at home is a fun and rewarding way to do just that. Imagine shaping "
+title: 'How to Make Clay Pottery at Home: Easy Steps for Stunning Creations'
+description: 'Have you ever wanted to create something beautiful with your own hands?
+  Making clay pottery at home is a fun and rewarding way to do just that. Imagine
+  shaping '
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-pottery-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-pottery-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Making clay pottery at home is a fun and rewarding way to do just that.**

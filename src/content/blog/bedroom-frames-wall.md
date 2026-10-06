@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Frames Wall Ideas: Stylish Collage Sets to Transform Your Space"
-description: "Transform your bedroom walls with stylish frame sets. These frames offer a simple way to personalize your space. A well-chosen frame can bring life to any bedro"
+title: 'Bedroom Frames Wall Ideas: Stylish Collage Sets to Transform Your Space'
+description: Transform your bedroom walls with stylish frame sets. These frames offer
+  a simple way to personalize your space. A well-chosen frame can bring life to any
+  bedro
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-frames-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-frames-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your bedroom walls with stylish frame sets. These frames offer a simple way to personalize your space.**

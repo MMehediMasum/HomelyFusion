@@ -1,10 +1,14 @@
 ---
-title: "Mirror Home Decor Art: Stunning Rustic and Modern Wall Mirrors for Every Room"
-description: "Mirror home decor art transforms spaces effortlessly with elegance and style. These mirrors add charm to any room. Various designs and sizes make it easy to fin"
+title: 'Mirror Home Decor Art: Stunning Rustic and Modern Wall Mirrors for Every Room'
+description: Mirror home decor art transforms spaces effortlessly with elegance and
+  style. These mirrors add charm to any room. Various designs and sizes make it easy
+  to fin
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirror-home-decor-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=mirror-home-decor-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirror home decor art transforms spaces effortlessly with elegance and style. These mirrors add charm to any room.**

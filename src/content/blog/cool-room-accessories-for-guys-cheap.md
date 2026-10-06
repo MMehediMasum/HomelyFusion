@@ -1,10 +1,14 @@
 ---
-title: "Cool Room Accessories for Guys Cheap: Top Picks for Stylish Men’s Spaces"
-description: "Sprucing up your room doesn’t have to break the bank. Discover cool and affordable accessories for guys. Creating a stylish and functional space can be easy wit"
+title: 'Cool Room Accessories for Guys Cheap: Top Picks for Stylish Men’s Spaces'
+description: Sprucing up your room doesn’t have to break the bank. Discover cool and
+  affordable accessories for guys. Creating a stylish and functional space can be
+  easy wit
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-room-accessories-for-guys-cheap&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cool-room-accessories-for-guys-cheap&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Sprucing up your room doesn’t have to break the bank. Discover cool and affordable accessories for guys.**

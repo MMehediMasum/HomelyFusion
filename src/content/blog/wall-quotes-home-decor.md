@@ -1,10 +1,14 @@
 ---
-title: "Wall Quotes Home Decor: Inspiring Rustic Signs for Every Room"
-description: "Wall quotes add personality and warmth to any room. They inspire, motivate, and create a cozy atmosphere. Choosing the right wall quote can change how a space f"
+title: 'Wall Quotes Home Decor: Inspiring Rustic Signs for Every Room'
+description: Wall quotes add personality and warmth to any room. They inspire, motivate,
+  and create a cozy atmosphere. Choosing the right wall quote can change how a space
+  f
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-quotes-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-quotes-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall quotes add personality and warmth to any room. They inspire, motivate, and create a cozy atmosphere.**

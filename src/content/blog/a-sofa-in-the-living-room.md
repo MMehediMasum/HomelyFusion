@@ -1,10 +1,14 @@
 ---
-title: "A Sofa in the Living Room: Ultimate Comfort and Style Tips"
-description: "Your living room is more than just a space—it’s where you relax, connect, and make memories. And at the heart of it all? A sofa. Choosing the right sofa can tra"
+title: 'A Sofa in the Living Room: Ultimate Comfort and Style Tips'
+description: Your living room is more than just a space—it’s where you relax, connect,
+  and make memories. And at the heart of it all? A sofa. Choosing the right sofa can
+  tra
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-sofa-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=a-sofa-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is more than just a space—it’s where you relax, connect, and make memories. And at the heart of it all?**

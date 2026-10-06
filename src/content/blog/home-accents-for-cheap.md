@@ -1,10 +1,14 @@
 ---
-title: "Home Accents for Cheap: Stylish Decor Ideas to Transform Your Space"
-description: "Transform your space with affordable home accents that add charm and personality without breaking the bank. Discover stylish options for every room with budget-"
+title: 'Home Accents for Cheap: Stylish Decor Ideas to Transform Your Space'
+description: Transform your space with affordable home accents that add charm and
+  personality without breaking the bank. Discover stylish options for every room with
+  budget-
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-for-cheap&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-for-cheap&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your space with affordable home accents that add charm and personality without breaking the bank. Discover stylish options for every room with budget-friendly finds.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint the Corner of a Wall: Easy Steps for Perfect Edges"
-description: "Painting the corner of a wall might sound simple, but it can quickly become tricky if you don’t know the right techniques. You want clean, sharp lines without m"
+title: 'How to Paint the Corner of a Wall: Easy Steps for Perfect Edges'
+description: Painting the corner of a wall might sound simple, but it can quickly
+  become tricky if you don’t know the right techniques. You want clean, sharp lines
+  without m
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-the-corner-of-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-the-corner-of-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Painting the corner of a wall might sound simple, but it can quickly become tricky if you don’t know the right techniques. You want clean, sharp lines without messy paint drips or uneven edges.**

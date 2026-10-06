@@ -1,10 +1,14 @@
 ---
-title: "Are Floating Bathroom Vanities Good: Top Benefits Revealed"
-description: "Are you thinking about upgrading your bathroom and wondering if floating bathroom vanities are the right choice? You might be drawn to their sleek look and mode"
+title: 'Are Floating Bathroom Vanities Good: Top Benefits Revealed'
+description: Are you thinking about upgrading your bathroom and wondering if floating
+  bathroom vanities are the right choice? You might be drawn to their sleek look and
+  mode
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-floating-bathroom-vanities-good&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-floating-bathroom-vanities-good&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom and wondering if floating bathroom vanities are the right choice? You might be drawn to their sleek look and modern feel, but you’re probably asking yourself—are floating vanities really good for your space?**

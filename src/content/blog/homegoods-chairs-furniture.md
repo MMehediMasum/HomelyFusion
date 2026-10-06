@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Chairs Furniture: Stylish, Comfortable Options for Every Room"
-description: "Chairs are more than just functional pieces; they enhance the aesthetics of your home. From dining to accent, the right chair can transform a space. Choosing th"
+title: 'Homegoods Chairs Furniture: Stylish, Comfortable Options for Every Room'
+description: Chairs are more than just functional pieces; they enhance the aesthetics
+  of your home. From dining to accent, the right chair can transform a space. Choosing
+  th
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-chairs-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-chairs-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Chairs are more than just functional pieces; they enhance the aesthetics of your home. From dining to accent, the right chair can transform a space.**

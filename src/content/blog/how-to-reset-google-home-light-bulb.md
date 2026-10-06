@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Google Home Light Bulb: Quick & Easy Guide"
-description: "Is your Google Home light bulb acting up or not responding as it should? Resetting it might be the simple fix you need. Whether you’re trying to solve connectio"
+title: 'How to Reset Google Home Light Bulb: Quick & Easy Guide'
+description: Is your Google Home light bulb acting up or not responding as it should?
+  Resetting it might be the simple fix you need. Whether you’re trying to solve connectio
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-google-home-light-bulb&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-google-home-light-bulb&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Is your Google Home light bulb acting up or not responding as it should? Resetting it might be the simple fix you need.**

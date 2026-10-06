@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Christmas Trees: Stunning Pre-Lit Artificial Holiday Picks"
-description: "Home Decorators Christmas Trees bring festive charm to any space with lifelike designs and bright LED lights. These trees come in various sizes and styles to fi"
+title: 'Home Decorators Christmas Trees: Stunning Pre-Lit Artificial Holiday Picks'
+description: Home Decorators Christmas Trees bring festive charm to any space with
+  lifelike designs and bright LED lights. These trees come in various sizes and styles
+  to fi
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-christmas-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-christmas-trees&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Decorators Christmas Trees bring festive charm to any space with lifelike designs and bright LED lights. These trees come in various sizes and styles to fit your holiday needs.**

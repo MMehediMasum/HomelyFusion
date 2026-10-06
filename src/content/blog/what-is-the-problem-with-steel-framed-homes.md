@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What is the Problem With Steel Framed Homes: Key Issues Uncovered"
 description: "Are you considering a steel framed home but wondering if it’s really the right choice for you? Steel framing has become popular for its strength and modern appe"
 pubDate: 2025-08-31

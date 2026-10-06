@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Curtains Online: Discover Perfect Blackout Drapes for Any Room"
-description: "Finding the right curtains online can change your home's look and feel instantly. Home goods curtains offer style, privacy, and light control all in one. Choosi"
+title: 'Home Goods Curtains Online: Discover Perfect Blackout Drapes for Any Room'
+description: Finding the right curtains online can change your home's look and feel
+  instantly. Home goods curtains offer style, privacy, and light control all in one.
+  Choosi
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-curtains-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-curtains-online&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the right curtains online can change your home's look and feel instantly. Home goods curtains offer style, privacy, and light control all in one.**

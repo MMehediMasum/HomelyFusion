@@ -1,10 +1,14 @@
 ---
-title: "Red Black Bedroom Accessories to Elevate Your Room’s Style Instantly"
-description: "Red and black bedroom accessories add bold style and energy to any space. These colors blend well to create a modern, inspiring look. Choosing the right red bla"
+title: Red Black Bedroom Accessories to Elevate Your Room’s Style Instantly
+description: Red and black bedroom accessories add bold style and energy to any space.
+  These colors blend well to create a modern, inspiring look. Choosing the right red
+  bla
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=red-black-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=red-black-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Red and black bedroom accessories add bold style and energy to any space. These colors blend well to create a modern, inspiring look.**

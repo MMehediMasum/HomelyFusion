@@ -1,10 +1,14 @@
 ---
-title: "Designer Flooring Solutions: Stylish Peel & Stick Vinyl Tiles for Every Room"
-description: "Designer flooring options combine style with practicality, enhancing any space. From chic vinyl tiles to comfortable anti-fatigue mats, there's something for ev"
+title: 'Designer Flooring Solutions: Stylish Peel & Stick Vinyl Tiles for Every Room'
+description: Designer flooring options combine style with practicality, enhancing
+  any space. From chic vinyl tiles to comfortable anti-fatigue mats, there's something
+  for ev
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=designer-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=designer-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Designer flooring options combine style with practicality, enhancing any space. From chic vinyl tiles to comfortable anti-fatigue mats, there's something for everyone.**

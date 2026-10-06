@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Balloon Arch Stand for Home Event: Easy DIY Guide"
-description: "Planning a special event at home? Imagine the wow factor a colorful balloon arch can add to your celebration. You might think it’s complicated or expensive to c"
+title: 'How to Make a Balloon Arch Stand for Home Event: Easy DIY Guide'
+description: Planning a special event at home? Imagine the wow factor a colorful balloon
+  arch can add to your celebration. You might think it’s complicated or expensive
+  to c
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-balloon-arch-stand-for-home-event&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-balloon-arch-stand-for-home-event&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Planning a special event at home? Imagine the wow factor a colorful balloon arch can add to your celebration.**

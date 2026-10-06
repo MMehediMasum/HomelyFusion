@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Dining Table in Living Room: Expert Placement Tips"
-description: "Finding the perfect spot for your dining table in the living room can feel tricky. You want a space that looks great, feels comfortable, and works well for your"
+title: 'Where to Put Dining Table in Living Room: Expert Placement Tips'
+description: Finding the perfect spot for your dining table in the living room can
+  feel tricky. You want a space that looks great, feels comfortable, and works well
+  for your
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-dining-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect spot for your dining table in the living room can feel tricky. You want a space that looks great, feels comfortable, and works well for your daily life.**

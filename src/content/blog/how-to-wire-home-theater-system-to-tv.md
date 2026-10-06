@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wire Home Theater System to Tv: Easy Steps for Perfect Sound"
 description: "Setting up your home theater system can transform your living room into a true entertainment hub. But wiring it to your TV might seem confusing or even overwhel"
 pubDate: 2025-11-13

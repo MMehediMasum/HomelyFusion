@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Picture Frames: Stylish Sets to Elevate Your Wall Decor"
-description: "Picture frames add charm and personality to any home interior. They showcase memories and enhance wall spaces beautifully. Choosing the right picture frames can"
+title: 'Home Interior Picture Frames: Stylish Sets to Elevate Your Wall Decor'
+description: Picture frames add charm and personality to any home interior. They showcase
+  memories and enhance wall spaces beautifully. Choosing the right picture frames
+  can
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Picture frames add charm and personality to any home interior. They showcase memories and enhance wall spaces beautifully.**

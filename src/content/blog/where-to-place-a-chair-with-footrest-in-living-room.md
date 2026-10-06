@@ -1,10 +1,14 @@
 ---
-title: "Where to Place a Chair With Footrest in Living Room: Ultimate Guide"
-description: "Are you wondering where to place a chair with a footrest in your living room to create the perfect cozy spot? Finding the right spot can transform your space in"
+title: 'Where to Place a Chair With Footrest in Living Room: Ultimate Guide'
+description: Are you wondering where to place a chair with a footrest in your living
+  room to create the perfect cozy spot? Finding the right spot can transform your
+  space in
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-a-chair-with-footrest-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-a-chair-with-footrest-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to place a chair with a footrest in your living room to create the perfect cozy spot? Finding the right spot can transform your space into a relaxing haven where you can unwind after a long day.**

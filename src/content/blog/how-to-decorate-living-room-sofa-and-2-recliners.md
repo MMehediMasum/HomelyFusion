@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Sofa And 2 Recliners: Stylish Tips"
-description: "Your living room is where comfort meets style, and decorating your sofa and two recliners can transform the entire space. But how do you make sure everything lo"
+title: 'How to Decorate Living Room Sofa And 2 Recliners: Stylish Tips'
+description: Your living room is where comfort meets style, and decorating your sofa
+  and two recliners can transform the entire space. But how do you make sure everything
+  lo
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-sofa-and-2-recliners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-sofa-and-2-recliners&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is where comfort meets style, and decorating your sofa and two recliners can transform the entire space. But how do you make sure everything looks balanced and inviting without feeling cluttered?**

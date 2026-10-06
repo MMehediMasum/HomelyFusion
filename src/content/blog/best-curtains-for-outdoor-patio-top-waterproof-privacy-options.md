@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Outdoor Patio: Top Waterproof & Privacy Options"
-description: "Choosing the best curtains for your outdoor patio can improve comfort and style. Outdoor curtains protect from sun, wind, and add privacy. Outdoor patios need c"
+title: 'Best Curtains for Outdoor Patio: Top Waterproof & Privacy Options'
+description: Choosing the best curtains for your outdoor patio can improve comfort
+  and style. Outdoor curtains protect from sun, wind, and add privacy. Outdoor patios
+  need c
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-outdoor-patio-top-waterproof-privacy-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-outdoor-patio-top-waterproof-privacy-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for your outdoor patio can improve comfort and style. Outdoor curtains protect from sun, wind, and add privacy.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Table Cloths: Stylish & Durable Covers for Every Table"
-description: "Tablecloths add elegance and functionality to any dining or living space. They protect surfaces and enhance decor effortlessly. Choosing the right tablecloth ca"
+title: 'Home Goods Table Cloths: Stylish & Durable Covers for Every Table'
+description: Tablecloths add elegance and functionality to any dining or living space.
+  They protect surfaces and enhance decor effortlessly. Choosing the right tablecloth
+  ca
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-table-cloths&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-table-cloths&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Tablecloths add elegance and functionality to any dining or living space. They protect surfaces and enhance decor effortlessly.**

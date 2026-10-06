@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Frames: Stylish Multi-Pack Sets for Elegant Wall Decor"
-description: "Home interior frames add charm and personality to any living space. They showcase your favorite memories and enhance wall decor with style. Choosing the right p"
+title: 'Home Interior Frames: Stylish Multi-Pack Sets for Elegant Wall Decor'
+description: Home interior frames add charm and personality to any living space. They
+  showcase your favorite memories and enhance wall decor with style. Choosing the
+  right p
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home interior frames add charm and personality to any living space. They showcase your favorite memories and enhance wall decor with style.**

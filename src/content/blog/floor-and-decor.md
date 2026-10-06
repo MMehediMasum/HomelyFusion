@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Must-Have Home Essentials for Stylish Living Spaces"
-description: "Floor and Decor offers a wide range of stylish and affordable home decoration items. From mirrors to rugs, their products suit various rooms and tastes. This co"
+title: Floor And Decor Must-Have Home Essentials for Stylish Living Spaces
+description: Floor and Decor offers a wide range of stylish and affordable home decoration
+  items. From mirrors to rugs, their products suit various rooms and tastes. This
+  co
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a wide range of stylish and affordable home decoration items. From mirrors to rugs, their products suit various rooms and tastes.**

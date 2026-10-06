@@ -1,10 +1,14 @@
 ---
-title: "How to Restore Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Is your bathroom vanity looking tired, worn out, or just plain outdated? You don’t have to spend a fortune replacing it. Imagine transforming your bathroom’s ce"
+title: 'How to Restore Bathroom Vanity: Easy Steps for Stunning Results'
+description: Is your bathroom vanity looking tired, worn out, or just plain outdated?
+  You don’t have to spend a fortune replacing it. Imagine transforming your bathroom’s
+  ce
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-restore-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-restore-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity looking tired, worn out, or just plain outdated? You don’t have to spend a fortune replacing it.**

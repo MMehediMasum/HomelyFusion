@@ -1,10 +1,13 @@
 ---
-title: "Easter Centerpiece With Tulips: Stunning Ideas to Brighten Your Table"
-description: "Looking to brighten your Easter table with something fresh and beautiful? An Easter centerpiece with tulips might be exactly what you need. Tulips bring vibrant"
+title: 'Easter Centerpiece With Tulips: Stunning Ideas to Brighten Your Table'
+description: Looking to brighten your Easter table with something fresh and beautiful?
+  An Easter centerpiece with tulips might be exactly what you need. Tulips bring vibrant
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-centerpiece-with-tulips&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-centerpiece-with-tulips&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to brighten your Easter table with something fresh and beautiful? An Easter centerpiece with tulips might be exactly what you need.**

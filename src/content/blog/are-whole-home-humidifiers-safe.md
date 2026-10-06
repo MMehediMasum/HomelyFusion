@@ -1,10 +1,14 @@
 ---
-title: "Are Whole Home Humidifiers Safe: Essential Facts You Must Know"
-description: "Are you thinking about adding a whole home humidifier to your living space but wondering if it’s safe? You’re not alone. Many people want to improve their home’"
+title: 'Are Whole Home Humidifiers Safe: Essential Facts You Must Know'
+description: Are you thinking about adding a whole home humidifier to your living
+  space but wondering if it’s safe? You’re not alone. Many people want to improve
+  their home’
 pubDate: 2026-04-04
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-safe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-safe&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a whole home humidifier to your living space but wondering if it’s safe? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Wreath With Ribbon Diy: Stunning Ideas to Brighten Your Door"
-description: "Are you ready to add a fresh, colorful touch to your home this Easter? Creating an Easter wreath with ribbon is a simple and fun DIY project that anyone can do."
+title: 'Easter Wreath With Ribbon Diy: Stunning Ideas to Brighten Your Door'
+description: Are you ready to add a fresh, colorful touch to your home this Easter?
+  Creating an Easter wreath with ribbon is a simple and fun DIY project that anyone
+  can do.
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-wreath-with-ribbon-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-wreath-with-ribbon-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a fresh, colorful touch to your home this Easter? Creating an Easter wreath with ribbon is a simple and fun DIY project that anyone can do.**

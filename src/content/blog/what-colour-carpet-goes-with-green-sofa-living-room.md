@@ -1,10 +1,14 @@
 ---
-title: "What Colour Carpet Goes With Green Sofa Living Room: Stunning Ideas"
-description: "Choosing the perfect carpet to go with your green sofa can feel tricky. You want your living room to look stylish and inviting, but the wrong carpet color might"
+title: 'What Colour Carpet Goes With Green Sofa Living Room: Stunning Ideas'
+description: Choosing the perfect carpet to go with your green sofa can feel tricky.
+  You want your living room to look stylish and inviting, but the wrong carpet color
+  might
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-carpet-goes-with-green-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-carpet-goes-with-green-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect carpet to go with your green sofa can feel tricky. You want your living room to look stylish and inviting, but the wrong carpet color might clash or dull your space.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wine Rack: Stylish, Durable Storage for Every Wine Lover"
-description: "Discover the perfect wine storage solution with our curated selection of home goods wine racks. These options fit any space and style. Wine enthusiasts know the"
+title: 'Home Goods Wine Rack: Stylish, Durable Storage for Every Wine Lover'
+description: Discover the perfect wine storage solution with our curated selection
+  of home goods wine racks. These options fit any space and style. Wine enthusiasts
+  know the
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wine-rack&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wine-rack&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Discover the perfect wine storage solution with our curated selection of home goods wine racks. These options fit any space and style.**

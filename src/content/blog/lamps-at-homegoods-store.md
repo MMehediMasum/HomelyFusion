@@ -1,10 +1,14 @@
 ---
-title: "Lamps at Homegoods Store: Stylish Farmhouse Table Lamps for Every Room"
-description: "Discover a wide range of stylish lamps at HomeGoods that can transform any room in your home. From modern designs to rustic farmhouse styles, there's something "
+title: 'Lamps at Homegoods Store: Stylish Farmhouse Table Lamps for Every Room'
+description: 'Discover a wide range of stylish lamps at HomeGoods that can transform
+  any room in your home. From modern designs to rustic farmhouse styles, there''s
+  something '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lamps-at-homegoods-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=lamps-at-homegoods-store&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Discover a wide range of stylish lamps at HomeGoods that can transform any room in your home. From modern designs to rustic farmhouse styles, there's something to suit every taste and decor.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Floor Lamp at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted a unique floor lamp that fits perfectly with your style and space? Making your own floor lamp at home is easier than you think. Not only wi"
+title: 'How to Make a Floor Lamp at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted a unique floor lamp that fits perfectly with your
+  style and space? Making your own floor lamp at home is easier than you think. Not
+  only wi
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-floor-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-floor-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted a unique floor lamp that fits perfectly with your style and space? Making your own floor lamp at home is easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Mirror on Plaster Wall: Easy Steps for Perfect Placement"
-description: "Hanging a mirror on a plaster wall might seem tricky, but with the right steps, you can do it safely and securely. You want your mirror to stay put without dama"
+title: 'How to Hang Mirror on Plaster Wall: Easy Steps for Perfect Placement'
+description: Hanging a mirror on a plaster wall might seem tricky, but with the right
+  steps, you can do it safely and securely. You want your mirror to stay put without
+  dama
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-plaster-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-plaster-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a mirror on a plaster wall might seem tricky, but with the right steps, you can do it safely and securely. You want your mirror to stay put without damaging your walls or falling down.**

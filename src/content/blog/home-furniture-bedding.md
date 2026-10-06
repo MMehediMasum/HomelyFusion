@@ -1,10 +1,14 @@
 ---
-title: "Home Furniture Bedding: Ultimate Cozy Comforter Sets and Stylish Decor Choices"
-description: "Creating a cozy and inviting bedroom starts with the right bedding. Explore our top picks for comfort and style. Choosing the perfect home furniture bedding can"
+title: 'Home Furniture Bedding: Ultimate Cozy Comforter Sets and Stylish Decor Choices'
+description: Creating a cozy and inviting bedroom starts with the right bedding. Explore
+  our top picks for comfort and style. Choosing the perfect home furniture bedding
+  can
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Creating a cozy and inviting bedroom starts with the right bedding. Explore our top picks for comfort and style.**

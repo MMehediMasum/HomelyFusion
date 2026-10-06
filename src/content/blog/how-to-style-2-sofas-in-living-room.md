@@ -1,10 +1,14 @@
 ---
-title: "How to Style 2 Sofas in Living Room: Stunning Tips for Harmony"
-description: "Are you wondering how to style two sofas in your living room without making the space feel crowded or awkward? You’re not alone. Arranging two sofas can be tric"
+title: 'How to Style 2 Sofas in Living Room: Stunning Tips for Harmony'
+description: Are you wondering how to style two sofas in your living room without
+  making the space feel crowded or awkward? You’re not alone. Arranging two sofas
+  can be tric
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-2-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-2-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to style two sofas in your living room without making the space feel crowded or awkward? You’re not alone.**

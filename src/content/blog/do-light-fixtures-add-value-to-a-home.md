@@ -1,10 +1,14 @@
 ---
-title: "Do Light Fixtures Add Value to a Home? Discover the Impact!"
-description: "Have you ever wondered if the light fixtures in your home do more than just brighten your space? What if those simple additions could actually boost the value o"
+title: Do Light Fixtures Add Value to a Home? Discover the Impact!
+description: Have you ever wondered if the light fixtures in your home do more than
+  just brighten your space? What if those simple additions could actually boost the
+  value o
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-light-fixtures-add-value-to-a-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=do-light-fixtures-add-value-to-a-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered if the light fixtures in your home do more than just brighten your space? What if those simple additions could actually boost the value of your property?**

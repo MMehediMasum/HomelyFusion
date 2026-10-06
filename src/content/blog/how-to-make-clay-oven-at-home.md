@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Oven at Home: Easy Steps for Perfect DIY Cooking"
 description: "Have you ever dreamed of baking delicious, crispy bread or juicy pizzas right at home, just like in a traditional clay oven? Making your own clay oven is easier"
 pubDate: 2026-02-24

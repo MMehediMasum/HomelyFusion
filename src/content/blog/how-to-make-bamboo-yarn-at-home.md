@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Yarn at Home: Easy Steps for Natural Fiber Crafting"
 description: "Are you looking for a unique and eco-friendly way to create your own yarn? Making bamboo yarn at home is easier than you think, and it opens up a world of possi"
 pubDate: 2026-04-05

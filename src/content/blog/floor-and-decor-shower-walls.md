@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Shower Walls: Top Waterproof Peel and Stick Solutions"
-description: "Floor and Decor shower walls offer practical and stylish solutions for bathroom upgrades. These products help protect walls from water damage while enhancing th"
+title: 'Floor And Decor Shower Walls: Top Waterproof Peel and Stick Solutions'
+description: Floor and Decor shower walls offer practical and stylish solutions for
+  bathroom upgrades. These products help protect walls from water damage while enhancing
+  th
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-shower-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-shower-walls&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor shower walls offer practical and stylish solutions for bathroom upgrades. These products help protect walls from water damage while enhancing the look of your shower.**

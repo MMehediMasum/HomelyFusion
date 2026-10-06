@@ -1,10 +1,14 @@
 ---
-title: "How to Ship a Living Room Chair: Easy Steps for Safe Delivery"
-description: "Shipping a living room chair might seem simple, but if you want it to arrive safely and without damage, there are important steps you must follow. You don’t wan"
+title: 'How to Ship a Living Room Chair: Easy Steps for Safe Delivery'
+description: Shipping a living room chair might seem simple, but if you want it to
+  arrive safely and without damage, there are important steps you must follow. You
+  don’t wan
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-ship-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-ship-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Shipping a living room chair might seem simple, but if you want it to arrive safely and without damage, there are important steps you must follow. You don’t want to end up with scratches, broken parts, or extra fees.**

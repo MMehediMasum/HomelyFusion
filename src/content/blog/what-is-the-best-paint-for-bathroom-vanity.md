@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Paint for Bathroom Vanity: Top Durable Picks"
-description: "Looking to refresh your bathroom without a full remodel? Choosing the best paint for your bathroom vanity can make all the difference. You want a finish that no"
+title: 'What is the Best Paint for Bathroom Vanity: Top Durable Picks'
+description: Looking to refresh your bathroom without a full remodel? Choosing the
+  best paint for your bathroom vanity can make all the difference. You want a finish
+  that no
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-paint-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-paint-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to refresh your bathroom without a full remodel? Choosing the best paint for your bathroom vanity can make all the difference.**

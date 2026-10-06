@@ -1,10 +1,14 @@
 ---
-title: "What is Tall Bedroom Dresser Called: Ultimate Guide to Identifying It"
-description: "Are you looking to organize your clothes but aren’t sure what to call that tall, narrow dresser in your bedroom? Knowing the right name can help you find the pe"
+title: 'What is Tall Bedroom Dresser Called: Ultimate Guide to Identifying It'
+description: Are you looking to organize your clothes but aren’t sure what to call
+  that tall, narrow dresser in your bedroom? Knowing the right name can help you find
+  the pe
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-tall-bedroom-dresser-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-is-tall-bedroom-dresser-called&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to organize your clothes but aren’t sure what to call that tall, narrow dresser in your bedroom? Knowing the right name can help you find the perfect piece to fit your space and style.**

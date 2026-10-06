@@ -1,10 +1,14 @@
 ---
-title: "Front Room Ornaments: Charming Decor Ideas for Every Season and Occasion"
-description: "Front room ornaments add charm and personality to your living space. They create a warm, inviting atmosphere for guests and family alike. Choosing the right orn"
+title: 'Front Room Ornaments: Charming Decor Ideas for Every Season and Occasion'
+description: Front room ornaments add charm and personality to your living space.
+  They create a warm, inviting atmosphere for guests and family alike. Choosing the
+  right orn
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=front-room-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=front-room-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Front room ornaments add charm and personality to your living space. They create a warm, inviting atmosphere for guests and family alike.**

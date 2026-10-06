@@ -1,10 +1,14 @@
 ---
-title: "Christmas Snowflake Window Cling Ideas: Stunning DIY Holiday Decor Tips"
-description: "Looking to add a magical touch to your home this holiday season? Christmas snowflake window clings are the perfect way to bring festive charm right to your wind"
+title: 'Christmas Snowflake Window Cling Ideas: Stunning DIY Holiday Decor Tips'
+description: Looking to add a magical touch to your home this holiday season? Christmas
+  snowflake window clings are the perfect way to bring festive charm right to your
+  wind
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-snowflake-window-cling-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-snowflake-window-cling-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a magical touch to your home this holiday season? Christmas snowflake window clings are the perfect way to bring festive charm right to your windows.**

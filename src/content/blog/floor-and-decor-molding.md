@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Molding: Top Flexible and Self-Adhesive Trim Solutions"
-description: "Floor and decor molding adds a polished touch to any space. It enhances aesthetics while providing functional benefits. Molding trims are essential for achievin"
+title: 'Floor And Decor Molding: Top Flexible and Self-Adhesive Trim Solutions'
+description: Floor and decor molding adds a polished touch to any space. It enhances
+  aesthetics while providing functional benefits. Molding trims are essential for
+  achievin
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-molding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-molding&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and decor molding adds a polished touch to any space. It enhances aesthetics while providing functional benefits.**

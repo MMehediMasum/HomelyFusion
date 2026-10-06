@@ -1,10 +1,14 @@
 ---
-title: "How to Install Slat Wall Panels: Easy Steps for a Perfect Finish"
-description: "Are you looking to organize your space and add a sleek, functional touch? Installing slat wall panels might be the perfect solution for you. These panels can tr"
+title: 'How to Install Slat Wall Panels: Easy Steps for a Perfect Finish'
+description: Are you looking to organize your space and add a sleek, functional touch?
+  Installing slat wall panels might be the perfect solution for you. These panels
+  can tr
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-slat-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-slat-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to organize your space and add a sleek, functional touch? Installing slat wall panels might be the perfect solution for you.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Place Dining Table in Living Room: Expert Space-Saving Tips"
-description: "Are you struggling to find the perfect spot for your dining table in your living room? You’re not alone. Placing a dining table in a shared space can feel trick"
+title: 'How to Place Dining Table in Living Room: Expert Space-Saving Tips'
+description: Are you struggling to find the perfect spot for your dining table in
+  your living room? You’re not alone. Placing a dining table in a shared space can
+  feel trick
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-dining-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you struggling to find the perfect spot for your dining table in your living room? You’re not alone.**

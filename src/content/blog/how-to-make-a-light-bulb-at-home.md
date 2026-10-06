@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Light Bulb at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wondered how a simple light bulb works or wished you could create one yourself? Making a light bulb at home is easier than you think, and it’s a f"
+title: 'How to Make a Light Bulb at Home: Easy DIY Guide for Beginners'
+description: Have you ever wondered how a simple light bulb works or wished you could
+  create one yourself? Making a light bulb at home is easier than you think, and it’s
+  a f
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-light-bulb-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-light-bulb-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered how a simple light bulb works or wished you could create one yourself? Making a light bulb at home is easier than you think, and it’s a fun way to understand the basics of electricity and light.**

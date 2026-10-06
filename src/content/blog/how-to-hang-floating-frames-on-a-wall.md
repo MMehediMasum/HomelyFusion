@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Floating Frames on a Wall: Easy Steps for Perfect Display"
-description: "Are you ready to give your walls a fresh, modern look? Hanging floating frames can transform any room, adding a sleek and stylish touch that catches the eye. Bu"
+title: 'How to Hang Floating Frames on a Wall: Easy Steps for Perfect Display'
+description: Are you ready to give your walls a fresh, modern look? Hanging floating
+  frames can transform any room, adding a sleek and stylish touch that catches the
+  eye. Bu
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-floating-frames-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-floating-frames-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your walls a fresh, modern look? Hanging floating frames can transform any room, adding a sleek and stylish touch that catches the eye.**

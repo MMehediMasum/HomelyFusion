@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up a Google Home Speaker: Easy Steps for Instant Use"
 description: "Setting up your Google Home speaker is easier than you might think. Imagine controlling your music, lights, and even your schedule with just your voice. If you’"
 pubDate: 2026-04-20

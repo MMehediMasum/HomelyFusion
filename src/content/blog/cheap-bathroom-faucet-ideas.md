@@ -1,10 +1,14 @@
 ---
-title: "Cheap Bathroom Faucet Ideas: Stylish & Budget-Friendly Picks"
-description: "Looking to refresh your bathroom without spending a fortune? You’re in the right place. Finding the perfect faucet that looks great and fits your budget can fee"
+title: 'Cheap Bathroom Faucet Ideas: Stylish & Budget-Friendly Picks'
+description: Looking to refresh your bathroom without spending a fortune? You’re in
+  the right place. Finding the perfect faucet that looks great and fits your budget
+  can fee
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-bathroom-faucet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Faucet Ideas
+heroImage: https://tse1.mm.bing.net/th?q=cheap-bathroom-faucet-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to refresh your bathroom without spending a fortune? You’re in the right place.**

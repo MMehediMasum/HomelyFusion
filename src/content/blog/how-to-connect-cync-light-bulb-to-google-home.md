@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Cync Light Bulb to Google Home: Easy Step-by-Step Guide"
-description: "Want to control your Cync light bulb with just your voice? Connecting it to Google Home can make your daily routine easier and more fun. Imagine turning your li"
+title: 'How to Connect Cync Light Bulb to Google Home: Easy Step-by-Step Guide'
+description: Want to control your Cync light bulb with just your voice? Connecting
+  it to Google Home can make your daily routine easier and more fun. Imagine turning
+  your li
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-cync-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-cync-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Want to control your Cync light bulb with just your voice? Connecting it to Google Home can make your daily routine easier and more fun.**

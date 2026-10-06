@@ -1,10 +1,14 @@
 ---
-title: "Home Decorator Christmas Tree Ideas for Stunning Holiday Ambiance"
-description: "Home Decorator Christmas Trees bring festive charm and easy setup to your holiday space. These trees combine style, light, and convenience for joyful decorating"
+title: Home Decorator Christmas Tree Ideas for Stunning Holiday Ambiance
+description: Home Decorator Christmas Trees bring festive charm and easy setup to
+  your holiday space. These trees combine style, light, and convenience for joyful
+  decorating
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorator-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorator-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Decorator Christmas Trees bring festive charm and easy setup to your holiday space. These trees combine style, light, and convenience for joyful decorating.**

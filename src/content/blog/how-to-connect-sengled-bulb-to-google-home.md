@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Sengled Bulb to Google Home: Easy Step-by-Step Guide"
-description: "Are you ready to make your home smarter and more convenient? Connecting your Sengled bulb to Google Home lets you control your lights with just your voice. Imag"
+title: 'How to Connect Sengled Bulb to Google Home: Easy Step-by-Step Guide'
+description: Are you ready to make your home smarter and more convenient? Connecting
+  your Sengled bulb to Google Home lets you control your lights with just your voice.
+  Imag
 pubDate: 2026-04-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-sengled-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-sengled-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Connecting your Sengled bulb to Google Home lets you control your lights with just your voice.**

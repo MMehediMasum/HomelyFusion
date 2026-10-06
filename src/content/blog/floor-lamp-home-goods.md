@@ -1,10 +1,14 @@
 ---
-title: "Floor Lamp Home Goods: Stylish Modern Designs for Every Room Decor"
-description: "Floor lamps add style and light to any room. Home Goods offers many choices to fit your space and needs. Choosing the right floor lamp can brighten your home an"
+title: 'Floor Lamp Home Goods: Stylish Modern Designs for Every Room Decor'
+description: Floor lamps add style and light to any room. Home Goods offers many choices
+  to fit your space and needs. Choosing the right floor lamp can brighten your home
+  an
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-lamp-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=floor-lamp-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Floor lamps add style and light to any room. Home Goods offers many choices to fit your space and needs.**

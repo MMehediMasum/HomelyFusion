@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Cold Weather: Top Thermal Insulated Blackout Drapes"
-description: "Choosing the best curtains for cold weather helps keep your home warm and cozy. Good thermal curtains block cold air and save energy. Cold weather can make your"
+title: 'Best Curtains for Cold Weather: Top Thermal Insulated Blackout Drapes'
+description: Choosing the best curtains for cold weather helps keep your home warm
+  and cozy. Good thermal curtains block cold air and save energy. Cold weather can
+  make your
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-cold-weather-top-thermal-insulated-blackout-drapes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-cold-weather-top-thermal-insulated-blackout-drapes&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for cold weather helps keep your home warm and cozy. Good thermal curtains block cold air and save energy.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Living Room Table: Stunning Ideas That Wow"
-description: "Your living room table is more than just a surface—it’s a chance to express your style and make your space feel inviting. But figuring out how to decorate it ca"
+title: 'How to Decorate Your Living Room Table: Stunning Ideas That Wow'
+description: Your living room table is more than just a surface—it’s a chance to express
+  your style and make your space feel inviting. But figuring out how to decorate it
+  ca
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room table is more than just a surface—it’s a chance to express your style and make your space feel inviting. But figuring out how to decorate it can be tricky.**

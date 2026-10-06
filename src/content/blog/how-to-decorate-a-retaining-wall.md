@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Retaining Wall: Stunning Ideas to Transform Your Space"
-description: "A retaining wall can be more than just a practical structure in your yard—it can become a stunning feature that adds charm and personality to your outdoor space"
+title: 'How to Decorate a Retaining Wall: Stunning Ideas to Transform Your Space'
+description: A retaining wall can be more than just a practical structure in your
+  yard—it can become a stunning feature that adds charm and personality to your outdoor
+  space
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-retaining-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-retaining-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A retaining wall can be more than just a practical structure in your yard—it can become a stunning feature that adds charm and personality to your outdoor space. But how do you turn a plain, sturdy wall into something beautiful and inviting?**

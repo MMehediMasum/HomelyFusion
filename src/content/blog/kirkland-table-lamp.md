@@ -1,10 +1,13 @@
 ---
-title: "Kirkland Table Lamp: Stylish and Functional Lighting for Every Room"
-description: "The Kirkland table lamp blends style and function for any room. It offers bright lighting with a simple, elegant design. This lamp suits living rooms, bedrooms,"
+title: 'Kirkland Table Lamp: Stylish and Functional Lighting for Every Room'
+description: The Kirkland table lamp blends style and function for any room. It offers
+  bright lighting with a simple, elegant design. This lamp suits living rooms, bedrooms,
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-table-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-table-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **The Kirkland table lamp blends style and function for any room. It offers bright lighting with a simple, elegant design.**

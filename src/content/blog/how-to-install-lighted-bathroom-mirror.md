@@ -1,10 +1,14 @@
 ---
-title: "How to Install Lighted Bathroom Mirror: Easy Steps for a Stylish Upgrade"
-description: "Are you ready to transform your bathroom with a stylish, lighted mirror? Installing a lighted bathroom mirror can instantly brighten your space and make your da"
+title: 'How to Install Lighted Bathroom Mirror: Easy Steps for a Stylish Upgrade'
+description: Are you ready to transform your bathroom with a stylish, lighted mirror?
+  Installing a lighted bathroom mirror can instantly brighten your space and make
+  your da
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-lighted-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-lighted-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your bathroom with a stylish, lighted mirror? Installing a lighted bathroom mirror can instantly brighten your space and make your daily routine easier and more enjoyable.**

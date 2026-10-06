@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Tile Suppliers: Discover Stunning Peel & Stick Options for Your Home"
 description: "Finding reliable floor tile suppliers helps you get quality materials for your home or office flooring. Good suppliers offer a wide range of tiles to fit differ"
 pubDate: 2026-08-18

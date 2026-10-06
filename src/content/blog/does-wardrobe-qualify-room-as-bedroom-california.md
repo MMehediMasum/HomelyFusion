@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Does Wardrobe Qualify Room As Bedroom California: Essential Facts Revealed"
 description: "Are you wondering if a wardrobe can count as a bedroom in California? This question might seem simple, but the answer can impact your home’s value, legal standi"
 pubDate: 2026-05-27

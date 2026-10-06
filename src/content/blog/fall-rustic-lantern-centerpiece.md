@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Lantern Centerpiece: Cozy Charm for Your Autumn Decor"
-description: "Imagine welcoming your guests with a warm, cozy glow that instantly sets the perfect fall mood. A fall rustic lantern centerpiece does just that—it brings charm"
+title: 'Fall Rustic Lantern Centerpiece: Cozy Charm for Your Autumn Decor'
+description: Imagine welcoming your guests with a warm, cozy glow that instantly sets
+  the perfect fall mood. A fall rustic lantern centerpiece does just that—it brings
+  charm
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-lantern-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-lantern-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine welcoming your guests with a warm, cozy glow that instantly sets the perfect fall mood. A fall rustic lantern centerpiece does just that—it brings charm, comfort, and a touch of nature right to your table.**

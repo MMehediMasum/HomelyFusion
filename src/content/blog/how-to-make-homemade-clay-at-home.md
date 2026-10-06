@@ -1,10 +1,14 @@
 ---
-title: "How to Make Homemade Clay at Home: Easy & Fun DIY Guide"
-description: "Have you ever wanted to create something unique with your own hands? Making homemade clay is easier than you think, and it’s a fun way to bring your ideas to li"
+title: 'How to Make Homemade Clay at Home: Easy & Fun DIY Guide'
+description: Have you ever wanted to create something unique with your own hands?
+  Making homemade clay is easier than you think, and it’s a fun way to bring your
+  ideas to li
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-homemade-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-homemade-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands? Making homemade clay is easier than you think, and it’s a fun way to bring your ideas to life right at home.**

@@ -1,10 +1,14 @@
 ---
-title: "Decor on Stand: Elevate Your Space with Stylish Display Solutions"
-description: "Decor on stand adds style and function to any room. These stands showcase items neatly and attractively. Display racks and wooden risers create organized, eye-c"
+title: 'Decor on Stand: Elevate Your Space with Stylish Display Solutions'
+description: Decor on stand adds style and function to any room. These stands showcase
+  items neatly and attractively. Display racks and wooden risers create organized,
+  eye-c
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-on-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-on-stand&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor on stand adds style and function to any room. These stands showcase items neatly and attractively.**

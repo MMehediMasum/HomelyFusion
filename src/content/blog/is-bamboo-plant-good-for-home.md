@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Bamboo Plant Good for Home: Surprising Benefits Revealed"
 description: "Are you thinking about adding a touch of green to your home? A bamboo plant might be just what you need. Not only does it look beautiful, but it can also bring "
 pubDate: 2026-03-03

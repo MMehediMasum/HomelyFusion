@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Keep Sofa in Living Room As Per Vastu: Ultimate Guide"
 description: "Where you place your sofa in the living room can affect more than just the look of your space—it can influence the flow of energy and harmony in your home. If y"
 pubDate: 2026-02-20

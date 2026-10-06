@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wall Mounted Bathroom Vanity: Easy Step-by-Step Guide"
-description: "Are you ready to transform your bathroom into a stylish, clutter-free space? Building a wall-mounted bathroom vanity is a smart way to save floor space and add "
+title: 'How to Build a Wall Mounted Bathroom Vanity: Easy Step-by-Step Guide'
+description: 'Are you ready to transform your bathroom into a stylish, clutter-free
+  space? Building a wall-mounted bathroom vanity is a smart way to save floor space
+  and add '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wall-mounted-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wall-mounted-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom into a stylish, clutter-free space? Building a wall-mounted bathroom vanity is a smart way to save floor space and add a modern touch.**

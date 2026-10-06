@@ -1,10 +1,14 @@
 ---
-title: "Cupcakes And Cashmere Bow Blanket: Cozy Elegance for Every Nursery"
-description: "The Cupcakes and Cashmere Bow Blanket adds a touch of elegance to any room. Its soft fabric and charming bow design provide comfort and style. This delightful b"
+title: 'Cupcakes And Cashmere Bow Blanket: Cozy Elegance for Every Nursery'
+description: The Cupcakes and Cashmere Bow Blanket adds a touch of elegance to any
+  room. Its soft fabric and charming bow design provide comfort and style. This delightful
+  b
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-bow-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-bow-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Cupcakes and Cashmere Bow Blanket adds a touch of elegance to any room. Its soft fabric and charming bow design provide comfort and style.**

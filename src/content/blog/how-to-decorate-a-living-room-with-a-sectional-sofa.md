@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With a Sectional Sofa: Stylish Tips"
-description: "Are you wondering how to make your living room both stylish and comfortable with a sectional sofa? You’re in the right place. A sectional sofa can transform you"
+title: 'How to Decorate a Living Room With a Sectional Sofa: Stylish Tips'
+description: Are you wondering how to make your living room both stylish and comfortable
+  with a sectional sofa? You’re in the right place. A sectional sofa can transform
+  you
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-sectional-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-sectional-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room both stylish and comfortable with a sectional sofa? You’re in the right place.**

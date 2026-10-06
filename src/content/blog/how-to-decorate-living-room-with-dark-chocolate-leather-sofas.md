@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Dark Chocolate Leather Sofas: Stylish Ideas"
-description: "Are you wondering how to make your living room feel warm, stylish, and inviting with dark chocolate leather sofas? These rich, elegant pieces can transform your"
+title: 'How to Decorate Living Room With Dark Chocolate Leather Sofas: Stylish Ideas'
+description: Are you wondering how to make your living room feel warm, stylish, and
+  inviting with dark chocolate leather sofas? These rich, elegant pieces can transform
+  your
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-dark-chocolate-leather-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-dark-chocolate-leather-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel warm, stylish, and inviting with dark chocolate leather sofas? These rich, elegant pieces can transform your space into a cozy retreat, but knowing how to decorate around them is key.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Shelf Reddit: Stunning Ideas Revealed"
-description: "Are you staring at your living room shelf, wondering how to make it stand out? Decorating that space can feel tricky, but with the right ideas, your shelf can b"
+title: 'How to Decorate Living Room Shelf Reddit: Stunning Ideas Revealed'
+description: Are you staring at your living room shelf, wondering how to make it stand
+  out? Decorating that space can feel tricky, but with the right ideas, your shelf
+  can b
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-shelf-reddit&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-shelf-reddit&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you staring at your living room shelf, wondering how to make it stand out? Decorating that space can feel tricky, but with the right ideas, your shelf can become the room’s highlight.**

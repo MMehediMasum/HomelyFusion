@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Coat at Home: Easy Steps for Freshness"
 description: "Your wool coat is a wardrobe staple that keeps you warm and stylish. But when it gets dirty, the thought of cleaning it at home can feel overwhelming. What if y"
 pubDate: 2026-04-01

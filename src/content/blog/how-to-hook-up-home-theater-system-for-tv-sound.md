@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Home Theater System for Tv Sound: Easy Setup Guide"
 description: "Want to turn your TV sound into an amazing home theater experience? You’re in the right place. Setting up a home theater system might sound tricky, but it’s eas"
 pubDate: 2025-08-30

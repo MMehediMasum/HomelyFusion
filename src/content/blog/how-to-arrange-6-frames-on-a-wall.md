@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange 6 Frames on a Wall: Stunning Ideas for Perfect Display"
-description: "Are you staring at a blank wall, wondering how to make it come alive with your favorite photos or artwork? Arranging six frames might seem tricky, but with the "
+title: 'How to Arrange 6 Frames on a Wall: Stunning Ideas for Perfect Display'
+description: 'Are you staring at a blank wall, wondering how to make it come alive
+  with your favorite photos or artwork? Arranging six frames might seem tricky, but
+  with the '
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-6-frames-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-6-frames-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a blank wall, wondering how to make it come alive with your favorite photos or artwork? Arranging six frames might seem tricky, but with the right tips, you can turn that empty space into a stunning gallery.**

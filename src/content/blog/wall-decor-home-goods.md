@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Home Goods: Top Picks for Stylish and Functional Spaces"
-description: "Wall decor home goods add style and personality to any room. They create a cozy, inviting space with ease. Choosing the right wall decor transforms plain walls "
+title: 'Wall Decor Home Goods: Top Picks for Stylish and Functional Spaces'
+description: 'Wall decor home goods add style and personality to any room. They create
+  a cozy, inviting space with ease. Choosing the right wall decor transforms plain
+  walls '
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor home goods add style and personality to any room. They create a cozy, inviting space with ease.**

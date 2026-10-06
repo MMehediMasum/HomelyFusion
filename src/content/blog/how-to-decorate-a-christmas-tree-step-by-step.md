@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Christmas Tree Step by Step: Ultimate Guide"
-description: "Decorating your Christmas tree is one of the most joyful parts of the holiday season. But sometimes, it can feel overwhelming—where do you start? What decoratio"
+title: 'How to Decorate a Christmas Tree Step by Step: Ultimate Guide'
+description: Decorating your Christmas tree is one of the most joyful parts of the
+  holiday season. But sometimes, it can feel overwhelming—where do you start? What
+  decoratio
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-christmas-tree-step-by-step&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-christmas-tree-step-by-step&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Decorating your Christmas tree is one of the most joyful parts of the holiday season. But sometimes, it can feel overwhelming—where do you start?**

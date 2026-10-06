@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Kids Mural on Wall: Easy Steps for Stunning Art"
-description: "Are you looking to transform your child’s room into a colorful, magical space? Painting a kids mural on the wall is a fun and creative way to do just that. Imag"
+title: 'How to Paint Kids Mural on Wall: Easy Steps for Stunning Art'
+description: Are you looking to transform your child’s room into a colorful, magical
+  space? Painting a kids mural on the wall is a fun and creative way to do just that.
+  Imag
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-kids-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-kids-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your child’s room into a colorful, magical space? Painting a kids mural on the wall is a fun and creative way to do just that.**

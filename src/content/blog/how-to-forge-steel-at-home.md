@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Forge Steel at Home: Essential Tips for Beginners"
 description: "Have you ever wanted to create something strong and lasting with your own hands? Forging steel at home might sound like a big challenge, but it’s more doable th"
 pubDate: 2026-03-21

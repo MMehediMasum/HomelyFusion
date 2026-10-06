@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Bathroom Cabinet: Easy Steps for a Quick Upgrade"
-description: "Are you ready to give your bathroom a fresh new look? Removing a bathroom cabinet might seem tricky, but with the right steps, you can do it yourself quickly an"
+title: 'How to Remove Bathroom Cabinet: Easy Steps for a Quick Upgrade'
+description: Are you ready to give your bathroom a fresh new look? Removing a bathroom
+  cabinet might seem tricky, but with the right steps, you can do it yourself quickly
+  an
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to give your bathroom a fresh new look? Removing a bathroom cabinet might seem tricky, but with the right steps, you can do it yourself quickly and safely.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for Selfie: Top Portable LED Lights for Perfect Shots"
 description: "Choosing the best lighting for selfies can dramatically improve your photos. Proper lighting highlights your features and reduces shadows for a clear, bright im"
 pubDate: 2025-10-28

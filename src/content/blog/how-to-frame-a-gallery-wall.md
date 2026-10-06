@@ -1,10 +1,14 @@
 ---
-title: "How to Frame a Gallery Wall: Expert Tips for Stunning Displays"
-description: "Are you ready to transform your blank wall into a stunning showcase of your favorite memories and art? Framing a gallery wall might sound tricky, but with the r"
+title: 'How to Frame a Gallery Wall: Expert Tips for Stunning Displays'
+description: Are you ready to transform your blank wall into a stunning showcase of
+  your favorite memories and art? Framing a gallery wall might sound tricky, but with
+  the r
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your blank wall into a stunning showcase of your favorite memories and art? Framing a gallery wall might sound tricky, but with the right steps, you can create a beautiful, personalized display that brings life to any room.**

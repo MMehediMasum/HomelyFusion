@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate around a Large Wall Clock: Stunning Ideas That Wow"
-description: "A large wall clock can be more than just a timekeeper—it can be the star of your room. But how do you decorate around it without making your space feel cluttere"
+title: 'How to Decorate around a Large Wall Clock: Stunning Ideas That Wow'
+description: A large wall clock can be more than just a timekeeper—it can be the star
+  of your room. But how do you decorate around it without making your space feel cluttere
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-large-wall-clock&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-large-wall-clock&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A large wall clock can be more than just a timekeeper—it can be the star of your room. But how do you decorate around it without making your space feel cluttered or unbalanced?**

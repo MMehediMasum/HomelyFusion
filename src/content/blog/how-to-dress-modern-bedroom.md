@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Modern Bedroom: Stunning Tips for Stylish Spaces"
-description: "Your bedroom should feel like a personal retreat—a place where comfort meets style. But how do you create a modern bedroom that truly reflects your taste and he"
+title: 'How to Dress Modern Bedroom: Stunning Tips for Stylish Spaces'
+description: Your bedroom should feel like a personal retreat—a place where comfort
+  meets style. But how do you create a modern bedroom that truly reflects your taste
+  and he
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-modern-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-modern-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your bedroom should feel like a personal retreat—a place where comfort meets style. But how do you create a modern bedroom that truly reflects your taste and helps you unwind?**

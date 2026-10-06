@@ -1,10 +1,14 @@
 ---
-title: "Homegoods End Table Ideas: Stylish, Functional Picks for Every Room"
-description: "End tables bring both style and function to any room. They are essential for enhancing your living space. A homegoods end table can transform your living room o"
+title: 'Homegoods End Table Ideas: Stylish, Functional Picks for Every Room'
+description: End tables bring both style and function to any room. They are essential
+  for enhancing your living space. A homegoods end table can transform your living
+  room o
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-end-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-end-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **End tables bring both style and function to any room. They are essential for enhancing your living space.**

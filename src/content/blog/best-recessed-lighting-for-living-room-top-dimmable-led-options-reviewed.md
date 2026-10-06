@@ -1,10 +1,14 @@
 ---
-title: "Best Recessed Lighting for Living Room: Top Dimmable LED Options Reviewed"
-description: "Choosing the best recessed lighting can transform your living room’s look and feel. Bright, dimmable, and energy-saving options create the perfect ambiance. Rec"
+title: 'Best Recessed Lighting for Living Room: Top Dimmable LED Options Reviewed'
+description: Choosing the best recessed lighting can transform your living room’s
+  look and feel. Bright, dimmable, and energy-saving options create the perfect ambiance.
+  Rec
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-recessed-lighting-for-living-room-top-dimmable-led-options-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-recessed-lighting-for-living-room-top-dimmable-led-options-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best recessed lighting can transform your living room’s look and feel. Bright, dimmable, and energy-saving options create the perfect ambiance.**

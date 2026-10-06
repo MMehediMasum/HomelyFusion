@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Store Essentials: Stylish Lamps, Mirrors, and Boho Accents"
-description: "A floor decor store offers a wide range of stylish items to enhance any room’s look. From lamps to mirrors and vases, these pieces add charm and function. Choos"
+title: 'Floor Decor Store Essentials: Stylish Lamps, Mirrors, and Boho Accents'
+description: A floor decor store offers a wide range of stylish items to enhance any
+  room’s look. From lamps to mirrors and vases, these pieces add charm and function.
+  Choos
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A floor decor store offers a wide range of stylish items to enhance any room’s look. From lamps to mirrors and vases, these pieces add charm and function.**

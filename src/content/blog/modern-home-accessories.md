@@ -1,10 +1,14 @@
 ---
-title: "Modern Home Accessories to Elevate Your Space with Stylish Functionality"
-description: "Modern home accessories blend style and function to enhance everyday living. Small changes create big impacts in your space’s look and feel. Choosing the right "
+title: Modern Home Accessories to Elevate Your Space with Stylish Functionality
+description: 'Modern home accessories blend style and function to enhance everyday
+  living. Small changes create big impacts in your space’s look and feel. Choosing
+  the right '
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern home accessories blend style and function to enhance everyday living. Small changes create big impacts in your space’s look and feel.**

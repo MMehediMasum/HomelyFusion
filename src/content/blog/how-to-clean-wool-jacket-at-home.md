@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Jacket at Home: Easy Steps for Perfect Care"
 description: "You love your wool jacket—it’s warm, stylish, and perfect for chilly days. But when it gets dirty, the thought of sending it to the dry cleaners or ruining it w"
 pubDate: 2026-03-03

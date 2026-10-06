@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Garland Diy: Easy & Charming Decoration Ideas"
-description: "Are you ready to add a soft, colorful touch to your Easter decorations? Creating your own Easter pastel garland is easier than you think—and it’s a fun way to b"
+title: 'Easter Pastel Garland Diy: Easy & Charming Decoration Ideas'
+description: Are you ready to add a soft, colorful touch to your Easter decorations?
+  Creating your own Easter pastel garland is easier than you think—and it’s a fun
+  way to b
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a soft, colorful touch to your Easter decorations? Creating your own Easter pastel garland is easier than you think—and it’s a fun way to bring your space to life.**

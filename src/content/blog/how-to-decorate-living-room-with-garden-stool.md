@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Garden Stool: Stylish Ideas Revealed"
-description: "Looking to add a fresh and stylish touch to your living room? A garden stool might be the perfect piece you didn’t know you needed. This simple, versatile item "
+title: 'How to Decorate Living Room With Garden Stool: Stylish Ideas Revealed'
+description: 'Looking to add a fresh and stylish touch to your living room? A garden
+  stool might be the perfect piece you didn’t know you needed. This simple, versatile
+  item '
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-garden-stool&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-garden-stool&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to add a fresh and stylish touch to your living room? A garden stool might be the perfect piece you didn’t know you needed.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Centre Table in Living Room: Stunning Ideas to Try"
-description: "Your living room’s centre table is more than just a piece of furniture—it’s the heart of your space. But how do you turn it from plain to stunning? You want it "
+title: 'How to Decorate Centre Table in Living Room: Stunning Ideas to Try'
+description: 'Your living room’s centre table is more than just a piece of furniture—it’s
+  the heart of your space. But how do you turn it from plain to stunning? You want
+  it '
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-centre-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-centre-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s centre table is more than just a piece of furniture—it’s the heart of your space. But how do you turn it from plain to stunning?**

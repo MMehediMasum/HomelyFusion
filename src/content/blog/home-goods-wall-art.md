@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Art: Stunning Rustic Farmhouse Decor Ideas for Every Room"
-description: "Wall art transforms spaces, adding personality and charm to your home. It speaks volumes about your style and taste. Explore a variety of home goods wall art op"
+title: 'Home Goods Wall Art: Stunning Rustic Farmhouse Decor Ideas for Every Room'
+description: Wall art transforms spaces, adding personality and charm to your home.
+  It speaks volumes about your style and taste. Explore a variety of home goods wall
+  art op
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art transforms spaces, adding personality and charm to your home. It speaks volumes about your style and taste.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Frame a Wall Mirror DIY: Easy Steps for Stunning Results"
-description: "Are you tired of plain, unframed wall mirrors that don’t add charm to your space? Imagine transforming that simple mirror into a stylish statement piece—all by "
+title: 'How to Frame a Wall Mirror DIY: Easy Steps for Stunning Results'
+description: 'Are you tired of plain, unframed wall mirrors that don’t add charm to
+  your space? Imagine transforming that simple mirror into a stylish statement piece—all
+  by '
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-wall-mirror-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-wall-mirror-diy&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of plain, unframed wall mirrors that don’t add charm to your space? Imagine transforming that simple mirror into a stylish statement piece—all by yourself.**

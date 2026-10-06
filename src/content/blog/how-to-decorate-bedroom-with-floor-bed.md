@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Floor Bed: Stylish Tips & Ideas"
-description: "Looking to give your bedroom a fresh, cozy look that feels both modern and inviting? Decorating with a floor bed might be the perfect solution for you. Not only"
+title: 'How to Decorate Bedroom With Floor Bed: Stylish Tips & Ideas'
+description: Looking to give your bedroom a fresh, cozy look that feels both modern
+  and inviting? Decorating with a floor bed might be the perfect solution for you.
+  Not only
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-floor-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-floor-bed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Looking to give your bedroom a fresh, cozy look that feels both modern and inviting? Decorating with a floor bed might be the perfect solution for you.**

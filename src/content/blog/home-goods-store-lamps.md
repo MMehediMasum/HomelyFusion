@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Store Lamps: Stylish and Functional Lighting for Every Room"
-description: "Home goods store lamps offer practical and stylish lighting options for every room. These lamps blend function with design to brighten your space efficiently. C"
+title: 'Home Goods Store Lamps: Stylish and Functional Lighting for Every Room'
+description: Home goods store lamps offer practical and stylish lighting options for
+  every room. These lamps blend function with design to brighten your space efficiently.
+  C
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-store-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-store-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Home goods store lamps offer practical and stylish lighting options for every room. These lamps blend function with design to brighten your space efficiently.**

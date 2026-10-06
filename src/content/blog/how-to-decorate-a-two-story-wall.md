@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Two Story Wall: Stunning Ideas to Transform Your Space"
-description: "Are you staring at your tall, empty two-story wall and wondering how to make it look amazing? Decorating such a large space can feel overwhelming, but it doesn’"
+title: 'How to Decorate a Two Story Wall: Stunning Ideas to Transform Your Space'
+description: Are you staring at your tall, empty two-story wall and wondering how
+  to make it look amazing? Decorating such a large space can feel overwhelming, but
+  it doesn’
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-two-story-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-two-story-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at your tall, empty two-story wall and wondering how to make it look amazing? Decorating such a large space can feel overwhelming, but it doesn’t have to be.**

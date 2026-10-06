@@ -1,10 +1,13 @@
 ---
-title: "Best Smart Lamps for Bedroom to Transform Your Space with Color"
-description: "Smart lamps create the perfect bedroom atmosphere with adjustable brightness and colors. These lamps offer convenience, style, and smart features for any space."
+title: Best Smart Lamps for Bedroom to Transform Your Space with Color
+description: Smart lamps create the perfect bedroom atmosphere with adjustable brightness
+  and colors. These lamps offer convenience, style, and smart features for any space.
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smart-lamps-for-bedroom-to-transform-your-space-with-color&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-smart-lamps-for-bedroom-to-transform-your-space-with-color&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Smart lamps create the perfect bedroom atmosphere with adjustable brightness and colors. These lamps offer convenience, style, and smart features for any space.**

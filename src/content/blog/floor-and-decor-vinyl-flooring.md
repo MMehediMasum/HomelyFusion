@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Vinyl Flooring: Top Peel & Stick Options for Easy Installation"
-description: "Floor and Decor vinyl flooring offers a simple way to upgrade any room with style and durability. These vinyl options come in many designs, colors, and easy-to-"
+title: 'Floor And Decor Vinyl Flooring: Top Peel & Stick Options for Easy Installation'
+description: Floor and Decor vinyl flooring offers a simple way to upgrade any room
+  with style and durability. These vinyl options come in many designs, colors, and
+  easy-to-
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-vinyl-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-vinyl-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor vinyl flooring offers a simple way to upgrade any room with style and durability. These vinyl options come in many designs, colors, and easy-to-install formats.**

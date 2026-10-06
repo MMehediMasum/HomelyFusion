@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Floral Wreath DIY: Easy Steps for Stunning Decor"
-description: "Are you looking for a fun and creative way to welcome spring this Easter? Imagine your front door adorned with a beautiful Easter Bunny floral wreath that you m"
+title: 'Easter Bunny Floral Wreath DIY: Easy Steps for Stunning Decor'
+description: Are you looking for a fun and creative way to welcome spring this Easter?
+  Imagine your front door adorned with a beautiful Easter Bunny floral wreath that
+  you m
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-floral-wreath-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-floral-wreath-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a fun and creative way to welcome spring this Easter? Imagine your front door adorned with a beautiful Easter Bunny floral wreath that you made yourself.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Bench With Storage: Stylish Solutions for Organized Living Spaces"
-description: "A Homegoods bench with storage adds style and function to any room. It offers a comfortable seat plus space to keep things organized. These benches come in many"
+title: 'Homegoods Bench With Storage: Stylish Solutions for Organized Living Spaces'
+description: A Homegoods bench with storage adds style and function to any room. It
+  offers a comfortable seat plus space to keep things organized. These benches come
+  in many
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bench-with-storage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bench-with-storage&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A Homegoods bench with storage adds style and function to any room. It offers a comfortable seat plus space to keep things organized.**

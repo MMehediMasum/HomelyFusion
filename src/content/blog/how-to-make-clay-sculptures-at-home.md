@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Sculptures at Home: Easy Steps for Stunning Art"
-description: "Are you ready to bring your creativity to life right at home? Making clay sculptures is a fun and satisfying way to express yourself, even if you’ve never tried"
+title: 'How to Make Clay Sculptures at Home: Easy Steps for Stunning Art'
+description: Are you ready to bring your creativity to life right at home? Making
+  clay sculptures is a fun and satisfying way to express yourself, even if you’ve
+  never tried
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-sculptures-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-sculptures-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to bring your creativity to life right at home? Making clay sculptures is a fun and satisfying way to express yourself, even if you’ve never tried it before.**

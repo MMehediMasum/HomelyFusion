@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Decor for Living Room: Stylish Key Holders, Shelves & Art"
-description: "Choosing the best wall decor can transform your living room instantly. It adds personality, style, and warmth to your space. Wall decor brings life to plain wal"
+title: 'Best Wall Decor for Living Room: Stylish Key Holders, Shelves & Art'
+description: Choosing the best wall decor can transform your living room instantly.
+  It adds personality, style, and warmth to your space. Wall decor brings life to
+  plain wal
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-decor-for-living-room-stylish-key-holders-shelves-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-decor-for-living-room-stylish-key-holders-shelves-art&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Choosing the best wall decor can transform your living room instantly. It adds personality, style, and warmth to your space.**

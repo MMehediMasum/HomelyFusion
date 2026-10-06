@@ -1,10 +1,14 @@
 ---
-title: "Flooring Distributor Essentials: Top Cleaning and Heating Solutions Reviewed"
-description: "A flooring distributor supplies essential products for floor care and installation. They offer a wide range of tools, cleaners, and accessories to maintain and "
+title: 'Flooring Distributor Essentials: Top Cleaning and Heating Solutions Reviewed'
+description: 'A flooring distributor supplies essential products for floor care and
+  installation. They offer a wide range of tools, cleaners, and accessories to maintain
+  and '
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-distributor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-distributor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A flooring distributor supplies essential products for floor care and installation. They offer a wide range of tools, cleaners, and accessories to maintain and protect floors.**

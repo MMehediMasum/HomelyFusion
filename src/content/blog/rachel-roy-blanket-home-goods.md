@@ -1,10 +1,14 @@
 ---
-title: "Rachel Roy Blanket Home Goods: Cozy, Stylish Throws Perfect for Every Room"
-description: "Rachel Roy's blanket home goods offer a delightful blend of style and comfort for any living space. These blankets provide warmth and elegance, making them perf"
+title: 'Rachel Roy Blanket Home Goods: Cozy, Stylish Throws Perfect for Every Room'
+description: Rachel Roy's blanket home goods offer a delightful blend of style and
+  comfort for any living space. These blankets provide warmth and elegance, making
+  them perf
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rachel-roy-blanket-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=rachel-roy-blanket-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Rachel Roy's blanket home goods offer a delightful blend of style and comfort for any living space. These blankets provide warmth and elegance, making them perfect for every season.**

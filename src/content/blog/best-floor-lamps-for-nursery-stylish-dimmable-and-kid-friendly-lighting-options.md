@@ -1,10 +1,15 @@
 ---
-title: "Best Floor Lamps for Nursery: Stylish, Dimmable, and Kid-Friendly Lighting Options"
-description: "Choosing the best floor lamp for a nursery helps create a soft, calming light perfect for babies and parents. The right lamp adds warmth and safety without hars"
+title: 'Best Floor Lamps for Nursery: Stylish, Dimmable, and Kid-Friendly Lighting
+  Options'
+description: Choosing the best floor lamp for a nursery helps create a soft, calming
+  light perfect for babies and parents. The right lamp adds warmth and safety without
+  hars
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-nursery-stylish-dimmable-and-kid-friendly-lighting-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-nursery-stylish-dimmable-and-kid-friendly-lighting-options&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for a nursery helps create a soft, calming light perfect for babies and parents. The right lamp adds warmth and safety without harsh brightness.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Brightest Light Bulb for Home: Ultimate Guide 2025"
-description: "Are you tired of dim, dull lighting in your home? Finding the brightest light bulb can completely change how your space feels and functions. Whether you want to"
+title: 'What is the Brightest Light Bulb for Home: Ultimate Guide 2025'
+description: Are you tired of dim, dull lighting in your home? Finding the brightest
+  light bulb can completely change how your space feels and functions. Whether you
+  want to
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-brightest-light-bulb-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-brightest-light-bulb-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you tired of dim, dull lighting in your home? Finding the brightest light bulb can completely change how your space feels and functions.**

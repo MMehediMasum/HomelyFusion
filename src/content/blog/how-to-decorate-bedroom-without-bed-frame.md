@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom Without Bed Frame: Stylish & Cozy Ideas"
-description: "Looking to refresh your bedroom but don’t have a bed frame? You’re not alone, and guess what—it’s easier than you think to create a cozy, stylish space without "
+title: 'How to Decorate Bedroom Without Bed Frame: Stylish & Cozy Ideas'
+description: 'Looking to refresh your bedroom but don’t have a bed frame? You’re not
+  alone, and guess what—it’s easier than you think to create a cozy, stylish space
+  without '
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-without-bed-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-without-bed-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to refresh your bedroom but don’t have a bed frame? You’re not alone, and guess what—it’s easier than you think to create a cozy, stylish space without one.**

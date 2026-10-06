@@ -1,10 +1,14 @@
 ---
-title: "Furniture Shops Around Me: Top Sofas and Living Room Sets to Explore"
-description: "Finding the perfect furniture shop nearby can be a daunting task. You want quality, variety, and affordability. Exploring local furniture shops can lead you to "
+title: 'Furniture Shops Around Me: Top Sofas and Living Room Sets to Explore'
+description: 'Finding the perfect furniture shop nearby can be a daunting task. You
+  want quality, variety, and affordability. Exploring local furniture shops can lead
+  you to '
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-shops-around-me&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-shops-around-me&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect furniture shop nearby can be a daunting task. You want quality, variety, and affordability.**

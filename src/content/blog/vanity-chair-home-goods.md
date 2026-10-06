@@ -1,10 +1,14 @@
 ---
-title: "Vanity Chair Home Goods: Stylish and Comfy Seats for Your Space"
-description: "Discover the perfect blend of style and comfort with vanity chairs from Home Goods. These versatile seating options transform any space. Vanity chairs are essen"
+title: 'Vanity Chair Home Goods: Stylish and Comfy Seats for Your Space'
+description: Discover the perfect blend of style and comfort with vanity chairs from
+  Home Goods. These versatile seating options transform any space. Vanity chairs are
+  essen
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vanity-chair-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=vanity-chair-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Discover the perfect blend of style and comfort with vanity chairs from Home Goods. These versatile seating options transform any space.**

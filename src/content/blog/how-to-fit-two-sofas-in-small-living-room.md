@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Two Sofas in Small Living Room: Smart Space Hacks"
-description: "Struggling to fit two sofas in your small living room without making it feel cramped? You’re not alone. Finding the perfect balance between comfort and space ca"
+title: 'How to Fit Two Sofas in Small Living Room: Smart Space Hacks'
+description: Struggling to fit two sofas in your small living room without making
+  it feel cramped? You’re not alone. Finding the perfect balance between comfort and
+  space ca
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-two-sofas-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-two-sofas-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit two sofas in your small living room without making it feel cramped? You’re not alone.**

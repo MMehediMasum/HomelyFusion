@@ -1,10 +1,14 @@
 ---
-title: "Home Frame Decor: Top Picture Frames for Stylish Wall and Table Display"
-description: "Home frame decor adds warmth and personality to your living space. Picture frames display memories and enhance your home’s style. Choosing the right frames can "
+title: 'Home Frame Decor: Top Picture Frames for Stylish Wall and Table Display'
+description: 'Home frame decor adds warmth and personality to your living space. Picture
+  frames display memories and enhance your home’s style. Choosing the right frames
+  can '
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-frame-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-frame-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home frame decor adds warmth and personality to your living space. Picture frames display memories and enhance your home’s style.**

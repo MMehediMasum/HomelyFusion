@@ -1,10 +1,15 @@
 ---
-title: "Decor Furniture Shop: Top Stylish Accent Tables and Bookshelves for Every Room"
-description: "Decor Furniture Shop offers a variety of stylish and functional furniture pieces. Find items that fit small spaces, modern homes, and vintage styles. This shop "
+title: 'Decor Furniture Shop: Top Stylish Accent Tables and Bookshelves for Every
+  Room'
+description: 'Decor Furniture Shop offers a variety of stylish and functional furniture
+  pieces. Find items that fit small spaces, modern homes, and vintage styles. This
+  shop '
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-furniture-shop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-furniture-shop&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor Furniture Shop offers a variety of stylish and functional furniture pieces. Find items that fit small spaces, modern homes, and vintage styles.**

@@ -1,10 +1,13 @@
 ---
-title: "Diy Christmas Advent Calendar: Creative Ideas to Spark Joy"
-description: "Are you ready to make this Christmas extra special? A DIY Christmas Advent Calendar is the perfect way to add a personal touch to your holiday countdown. Imagin"
+title: 'Diy Christmas Advent Calendar: Creative Ideas to Spark Joy'
+description: Are you ready to make this Christmas extra special? A DIY Christmas Advent
+  Calendar is the perfect way to add a personal touch to your holiday countdown. Imagin
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-advent-calendar&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-advent-calendar&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make this Christmas extra special? A DIY Christmas Advent Calendar is the perfect way to add a personal touch to your holiday countdown.**

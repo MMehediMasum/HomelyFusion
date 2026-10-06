@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Etch Stainless Steel at Home: Easy & Precise DIY Guide"
 description: "Have you ever wanted to add a personal touch to your stainless steel items? Etching stainless steel at home is easier than you think, and it lets you create uni"
 pubDate: 2026-02-22

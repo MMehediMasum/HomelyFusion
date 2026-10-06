@@ -1,10 +1,14 @@
 ---
-title: "Are Bathroom Vanities Waterproof: Essential Facts You Must Know"
-description: "When it comes to your bathroom, one question probably crosses your mind: Are bathroom vanities waterproof? You want a vanity that can handle moisture without wa"
+title: 'Are Bathroom Vanities Waterproof: Essential Facts You Must Know'
+description: 'When it comes to your bathroom, one question probably crosses your mind:
+  Are bathroom vanities waterproof? You want a vanity that can handle moisture without
+  wa'
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-bathroom-vanities-waterproof&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-bathroom-vanities-waterproof&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When it comes to your bathroom, one question probably crosses your mind: Are bathroom vanities waterproof? You want a vanity that can handle moisture without warping, peeling, or getting damaged.**

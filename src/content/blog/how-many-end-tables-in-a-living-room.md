@@ -1,10 +1,14 @@
 ---
-title: "How Many End Tables in a Living Room: Perfect Balance Tips"
-description: "Choosing how many end tables to place in your living room might seem simple, but it can actually change the entire feel and function of your space. You want you"
+title: 'How Many End Tables in a Living Room: Perfect Balance Tips'
+description: Choosing how many end tables to place in your living room might seem
+  simple, but it can actually change the entire feel and function of your space. You
+  want you
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-end-tables-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-many-end-tables-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing how many end tables to place in your living room might seem simple, but it can actually change the entire feel and function of your space. You want your room to look balanced, feel cozy, and stay practical for everyday use.**

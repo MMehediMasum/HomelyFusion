@@ -1,10 +1,14 @@
 ---
-title: "Best Candle for Home: Top Scented Sets to Elevate Your Space"
-description: "Choosing the best candle for your home can create a warm and inviting atmosphere. Scented candles bring comfort, relaxation, and pleasant aromas to any space. C"
+title: 'Best Candle for Home: Top Scented Sets to Elevate Your Space'
+description: Choosing the best candle for your home can create a warm and inviting
+  atmosphere. Scented candles bring comfort, relaxation, and pleasant aromas to any
+  space. C
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-candle-for-home-top-scented-sets-to-elevate-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-candle-for-home-top-scented-sets-to-elevate-your-space&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best candle for your home can create a warm and inviting atmosphere. Scented candles bring comfort, relaxation, and pleasant aromas to any space.**

@@ -1,10 +1,13 @@
 ---
-title: "Cute Apartment Accessories: Stylish Storage & Decor Ideas for Small Spaces"
-description: "Cute apartment accessories add charm and function to small living spaces. They make everyday life easier and more enjoyable. Small apartments need smart storage"
+title: 'Cute Apartment Accessories: Stylish Storage & Decor Ideas for Small Spaces'
+description: Cute apartment accessories add charm and function to small living spaces.
+  They make everyday life easier and more enjoyable. Small apartments need smart storage
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cute-apartment-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- House Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cute-apartment-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cute apartment accessories add charm and function to small living spaces. They make everyday life easier and more enjoyable.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build Cabinets in the Living Room Site Youtube.Com: Ultimate Guide"
-description: "Are you ready to transform your living room with custom cabinets that fit your style and needs? Building your own cabinets might sound challenging, but with the"
+title: 'How to Build Cabinets in the Living Room Site Youtube.Com: Ultimate Guide'
+description: Are you ready to transform your living room with custom cabinets that
+  fit your style and needs? Building your own cabinets might sound challenging, but
+  with the
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-cabinets-in-the-living-room-site-youtubecom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-cabinets-in-the-living-room-site-youtubecom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to transform your living room with custom cabinets that fit your style and needs? Building your own cabinets might sound challenging, but with the right guidance, you can create stunning storage solutions that make your space look organized and inviting.**

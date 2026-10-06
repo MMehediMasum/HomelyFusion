@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Desk Chairs: Top Ergonomic Picks for Comfort and Style"
-description: "Home goods desk chairs offer comfort and support for long hours at your desk. Choosing the right chair helps improve posture and productivity. A good desk chair"
+title: 'Home Goods Desk Chairs: Top Ergonomic Picks for Comfort and Style'
+description: Home goods desk chairs offer comfort and support for long hours at your
+  desk. Choosing the right chair helps improve posture and productivity. A good desk
+  chair
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-desk-chairs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-desk-chairs&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home goods desk chairs offer comfort and support for long hours at your desk. Choosing the right chair helps improve posture and productivity.**

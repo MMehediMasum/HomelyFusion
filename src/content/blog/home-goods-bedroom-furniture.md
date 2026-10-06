@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Bedroom Furniture: Stylish Storage Beds and Rustic Dressers Guide"
-description: "Home goods bedroom furniture combines style, comfort, and smart storage for your personal space. These pieces help organize and brighten your bedroom effortless"
+title: 'Home Goods Bedroom Furniture: Stylish Storage Beds and Rustic Dressers Guide'
+description: Home goods bedroom furniture combines style, comfort, and smart storage
+  for your personal space. These pieces help organize and brighten your bedroom effortless
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bedroom-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bedroom-furniture&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods bedroom furniture combines style, comfort, and smart storage for your personal space. These pieces help organize and brighten your bedroom effortlessly.**

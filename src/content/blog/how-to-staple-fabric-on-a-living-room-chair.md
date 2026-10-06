@@ -1,10 +1,14 @@
 ---
-title: "How to Staple Fabric on a Living Room Chair: Easy DIY Guide"
-description: "Is your living room chair looking a bit worn or loose? Stapling fabric back onto your chair might be the simple fix you need. You don’t have to spend a fortune "
+title: 'How to Staple Fabric on a Living Room Chair: Easy DIY Guide'
+description: 'Is your living room chair looking a bit worn or loose? Stapling fabric
+  back onto your chair might be the simple fix you need. You don’t have to spend a
+  fortune '
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-staple-fabric-on-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-staple-fabric-on-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room chair looking a bit worn or loose? Stapling fabric back onto your chair might be the simple fix you need.**

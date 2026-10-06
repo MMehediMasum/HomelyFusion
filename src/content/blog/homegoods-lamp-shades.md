@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Lamp Shades: Stylish Linen Shades to Brighten Any Room"
-description: "Finding the perfect lampshade can transform your home. Homegoods offers a diverse selection of stylish and functional lamp shades. Whether you're updating a liv"
+title: 'Homegoods Lamp Shades: Stylish Linen Shades to Brighten Any Room'
+description: Finding the perfect lampshade can transform your home. Homegoods offers
+  a diverse selection of stylish and functional lamp shades. Whether you're updating
+  a liv
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-lamp-shades&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-lamp-shades&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the perfect lampshade can transform your home. Homegoods offers a diverse selection of stylish and functional lamp shades.**

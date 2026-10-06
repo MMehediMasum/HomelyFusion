@@ -1,10 +1,14 @@
 ---
-title: "How to Fire Clay at Home Without a Kiln: Easy DIY Methods"
-description: "Have you ever wanted to create beautiful clay pieces but felt held back because you don’t have a kiln? What if you could fire your clay at home without needing "
+title: 'How to Fire Clay at Home Without a Kiln: Easy DIY Methods'
+description: 'Have you ever wanted to create beautiful clay pieces but felt held back
+  because you don’t have a kiln? What if you could fire your clay at home without
+  needing '
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fire-clay-at-home-without-a-kiln&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fire-clay-at-home-without-a-kiln&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful clay pieces but felt held back because you don’t have a kiln? What if you could fire your clay at home without needing expensive equipment?**

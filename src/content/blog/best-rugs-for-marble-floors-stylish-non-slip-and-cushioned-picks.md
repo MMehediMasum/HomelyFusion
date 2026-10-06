@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Marble Floors: Stylish, Non-Slip, and Cushioned Picks"
-description: "Marble floors look elegant but can feel cold and slippery. Choosing the best rugs helps protect the floor and adds comfort. Rugs with anti-fatigue padding suit "
+title: 'Best Rugs for Marble Floors: Stylish, Non-Slip, and Cushioned Picks'
+description: 'Marble floors look elegant but can feel cold and slippery. Choosing
+  the best rugs helps protect the floor and adds comfort. Rugs with anti-fatigue padding
+  suit '
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-marble-floors-stylish-non-slip-and-cushioned-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-marble-floors-stylish-non-slip-and-cushioned-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Marble floors look elegant but can feel cold and slippery. Choosing the best rugs helps protect the floor and adds comfort.**

@@ -1,10 +1,14 @@
 ---
-title: "Mirrors Home Goods: Stylish Full Length Mirrors for Modern Home Decor"
-description: "Mirrors add depth and style to any room. They brighten spaces and make rooms feel larger and more open. Mirrors from Mirrors Home Goods combine function and des"
+title: 'Mirrors Home Goods: Stylish Full Length Mirrors for Modern Home Decor'
+description: Mirrors add depth and style to any room. They brighten spaces and make
+  rooms feel larger and more open. Mirrors from Mirrors Home Goods combine function
+  and des
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirrors-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=mirrors-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors add depth and style to any room. They brighten spaces and make rooms feel larger and more open.**

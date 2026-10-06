@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for White Walls: Top Picks for Style and Privacy"
-description: "Choosing the best curtains for white walls can enhance any room’s style and comfort. Curtains add color, texture, and privacy to plain white walls. White walls "
+title: 'Best Curtains for White Walls: Top Picks for Style and Privacy'
+description: 'Choosing the best curtains for white walls can enhance any room’s style
+  and comfort. Curtains add color, texture, and privacy to plain white walls. White
+  walls '
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-white-walls-top-picks-for-style-and-privacy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-white-walls-top-picks-for-style-and-privacy&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for white walls can enhance any room’s style and comfort. Curtains add color, texture, and privacy to plain white walls.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Dry Clean Only Wool Pants at Home: Expert Tips"
 description: "You have a favorite pair of wool pants that say “dry clean only,” but the thought of spending money and time at the cleaners feels frustrating. What if you coul"
 pubDate: 2026-03-10

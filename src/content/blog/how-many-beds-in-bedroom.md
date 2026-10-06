@@ -1,10 +1,13 @@
 ---
-title: "How Many Beds in Bedroom: Ultimate Guide for Space & Comfort"
-description: "Have you ever wondered how many beds should fit comfortably in your bedroom? It’s a question that seems simple but can change the way your space feels and funct"
+title: 'How Many Beds in Bedroom: Ultimate Guide for Space & Comfort'
+description: Have you ever wondered how many beds should fit comfortably in your bedroom?
+  It’s a question that seems simple but can change the way your space feels and funct
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-beds-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-many-beds-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered how many beds should fit comfortably in your bedroom? It’s a question that seems simple but can change the way your space feels and functions.**

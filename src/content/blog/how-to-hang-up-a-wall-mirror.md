@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Up a Wall Mirror: Easy Steps for Perfect Placement"
-description: "Hanging up a wall mirror might seem simple, but getting it just right can transform your space instantly. You want your mirror to be secure, level, and perfectl"
+title: 'How to Hang Up a Wall Mirror: Easy Steps for Perfect Placement'
+description: Hanging up a wall mirror might seem simple, but getting it just right
+  can transform your space instantly. You want your mirror to be secure, level, and
+  perfectl
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-up-a-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-up-a-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging up a wall mirror might seem simple, but getting it just right can transform your space instantly. You want your mirror to be secure, level, and perfectly placed to catch the light and make your room feel bigger.**

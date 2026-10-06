@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Table for Cushion Cut Diamond: Top Settings for Lab Grown Rings"
 description: "The best table size for a cushion cut diamond affects its sparkle and beauty. Choosing the right table percentage ensures the diamond shines bright and looks st"
 pubDate: 2025-10-21

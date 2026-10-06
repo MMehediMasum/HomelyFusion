@@ -1,10 +1,14 @@
 ---
-title: "Are Home Decorators Ceiling Fans Good: Expert Reviews & Benefits"
-description: "Are you thinking about adding a ceiling fan to your home and wondering if Home Decorators ceiling fans are the right choice? Choosing the perfect fan can make a"
+title: 'Are Home Decorators Ceiling Fans Good: Expert Reviews & Benefits'
+description: Are you thinking about adding a ceiling fan to your home and wondering
+  if Home Decorators ceiling fans are the right choice? Choosing the perfect fan can
+  make a
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-home-decorators-ceiling-fans-good&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=are-home-decorators-ceiling-fans-good&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a ceiling fan to your home and wondering if Home Decorators ceiling fans are the right choice? Choosing the perfect fan can make a big difference in both comfort and style.**

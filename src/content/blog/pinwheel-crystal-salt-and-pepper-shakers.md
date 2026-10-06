@@ -1,10 +1,14 @@
 ---
-title: "Pinwheel Crystal Salt And Pepper Shakers: Elegant Kitchen Spice Solution"
-description: "Pinwheel crystal salt and pepper shakers combine elegance with functionality. These shakers enhance any dining setting beautifully. The range of crystal salt an"
+title: 'Pinwheel Crystal Salt And Pepper Shakers: Elegant Kitchen Spice Solution'
+description: Pinwheel crystal salt and pepper shakers combine elegance with functionality.
+  These shakers enhance any dining setting beautifully. The range of crystal salt
+  an
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pinwheel-crystal-salt-and-pepper-shakers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=pinwheel-crystal-salt-and-pepper-shakers&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pinwheel crystal salt and pepper shakers combine elegance with functionality. These shakers enhance any dining setting beautifully.**

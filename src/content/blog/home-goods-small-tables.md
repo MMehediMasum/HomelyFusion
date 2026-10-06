@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Small Tables: Stylish Solutions for Compact Living Spaces"
-description: "Small tables add style and function to any home space. They fit perfectly in living rooms, bedrooms, and offices. Home goods small tables come in many shapes an"
+title: 'Home Goods Small Tables: Stylish Solutions for Compact Living Spaces'
+description: Small tables add style and function to any home space. They fit perfectly
+  in living rooms, bedrooms, and offices. Home goods small tables come in many shapes
+  an
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-small-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-small-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Small tables add style and function to any home space. They fit perfectly in living rooms, bedrooms, and offices.**

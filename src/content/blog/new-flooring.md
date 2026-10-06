@@ -1,10 +1,14 @@
 ---
-title: "New Flooring Ideas: Top Peel & Stick Tiles for Easy Home Makeovers"
-description: "New flooring can transform any room quickly and affordably. Choose from easy-to-install options like peel-and-stick tiles or foam mats. Updating floors changes "
+title: 'New Flooring Ideas: Top Peel & Stick Tiles for Easy Home Makeovers'
+description: 'New flooring can transform any room quickly and affordably. Choose from
+  easy-to-install options like peel-and-stick tiles or foam mats. Updating floors
+  changes '
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=new-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=new-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **New flooring can transform any room quickly and affordably. Choose from easy-to-install options like peel-and-stick tiles or foam mats.**

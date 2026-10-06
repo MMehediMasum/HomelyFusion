@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Glass Cabinets in Kitchen: Stunning Style Tips"
-description: "Your kitchen glass cabinets are more than just storage—they’re a chance to showcase your style and make your space feel welcoming. But how do you decorate them "
+title: 'How to Decorate Glass Cabinets in Kitchen: Stunning Style Tips'
+description: 'Your kitchen glass cabinets are more than just storage—they’re a chance
+  to showcase your style and make your space feel welcoming. But how do you decorate
+  them '
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-glass-cabinets-in-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-glass-cabinets-in-kitchen&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen glass cabinets are more than just storage—they’re a chance to showcase your style and make your space feel welcoming. But how do you decorate them without cluttering or overwhelming your kitchen?**

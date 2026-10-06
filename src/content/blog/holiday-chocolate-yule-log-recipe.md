@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Chocolate Yule Log Recipe: Irresistible Festive Delight"
 description: "Are you ready to impress your family and friends this holiday season with a dessert that’s both beautiful and delicious? Your search ends here. This Holiday Cho"
 pubDate: 2026-01-20

@@ -1,10 +1,14 @@
 ---
-title: "Why Do Bathroom Mirrors Fog Up: Surprising Causes & Easy Fixes"
-description: "Have you ever stepped out of a hot shower, only to find your bathroom mirror completely covered in fog? It can be frustrating when you need to get ready quickly"
+title: 'Why Do Bathroom Mirrors Fog Up: Surprising Causes & Easy Fixes'
+description: Have you ever stepped out of a hot shower, only to find your bathroom
+  mirror completely covered in fog? It can be frustrating when you need to get ready
+  quickly
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-bathroom-mirrors-fog-up&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=why-do-bathroom-mirrors-fog-up&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever stepped out of a hot shower, only to find your bathroom mirror completely covered in fog? It can be frustrating when you need to get ready quickly, and that foggy mirror slows you down.**

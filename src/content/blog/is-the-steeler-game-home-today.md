@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is the Steeler Game Home Today: Ultimate Fan Guide & Tips"
 description: "Are you wondering if the Steeler game is at home today? Whether you’re planning to watch with friends, wear your favorite jersey, or just want to know where the"
 pubDate: 2026-03-28

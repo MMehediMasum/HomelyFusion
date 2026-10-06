@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Holiday Decorations: Stylish Seasonal Decor for Every Room"
-description: "Transform your home with charming holiday accents that capture the spirit of the season. From rustic wreaths to whimsical gnomes, there's something for every fe"
+title: 'Home Accents Holiday Decorations: Stylish Seasonal Decor for Every Room'
+description: Transform your home with charming holiday accents that capture the spirit
+  of the season. From rustic wreaths to whimsical gnomes, there's something for every
+  fe
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-holiday-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-holiday-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Transform your home with charming holiday accents that capture the spirit of the season. From rustic wreaths to whimsical gnomes, there's something for every festive occasion.**

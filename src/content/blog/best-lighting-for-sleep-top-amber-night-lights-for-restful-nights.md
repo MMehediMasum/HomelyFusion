@@ -1,10 +1,13 @@
 ---
-title: "Best Lighting for Sleep: Top Amber Night Lights for Restful Nights"
-description: "Choosing the best lighting for sleep helps improve rest quality and overall health. Soft, warm lights create a calm atmosphere that supports better sleep. Brigh"
+title: 'Best Lighting for Sleep: Top Amber Night Lights for Restful Nights'
+description: Choosing the best lighting for sleep helps improve rest quality and overall
+  health. Soft, warm lights create a calm atmosphere that supports better sleep. Brigh
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-sleep-top-amber-night-lights-for-restful-nights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-sleep-top-amber-night-lights-for-restful-nights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for sleep helps improve rest quality and overall health. Soft, warm lights create a calm atmosphere that supports better sleep.**

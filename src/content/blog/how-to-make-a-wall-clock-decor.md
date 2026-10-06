@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wall Clock Decor: Stunning DIY Ideas to Try Today"
-description: "Looking to add a personal touch to your space? Making your own wall clock decor is a fun and creative way to do just that. Imagine a clock that not only tells t"
+title: 'How to Make a Wall Clock Decor: Stunning DIY Ideas to Try Today'
+description: Looking to add a personal touch to your space? Making your own wall clock
+  decor is a fun and creative way to do just that. Imagine a clock that not only tells
+  t
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wall-clock-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wall-clock-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to add a personal touch to your space? Making your own wall clock decor is a fun and creative way to do just that.**

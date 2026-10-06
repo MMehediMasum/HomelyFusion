@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Trowel: Top Tools for Flooring, Tiling, and Adhesive Application"
-description: "Floor and Decor trowels are essential for precise and efficient flooring and tiling projects. These tools help evenly spread adhesives, ensuring a smooth finish"
+title: 'Floor And Decor Trowel: Top Tools for Flooring, Tiling, and Adhesive Application'
+description: Floor and Decor trowels are essential for precise and efficient flooring
+  and tiling projects. These tools help evenly spread adhesives, ensuring a smooth
+  finish
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-trowel&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-trowel&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor trowels are essential for precise and efficient flooring and tiling projects. These tools help evenly spread adhesives, ensuring a smooth finish.**

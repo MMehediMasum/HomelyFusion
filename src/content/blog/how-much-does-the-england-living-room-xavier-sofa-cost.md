@@ -1,10 +1,14 @@
 ---
-title: "How Much Does the England Living Room Xavier Sofa Cost: Ultimate Price Guide"
-description: "Are you thinking about upgrading your living room with the England Living Room Xavier Sofa but unsure about the cost? You’re not alone. Finding the perfect sofa"
+title: 'How Much Does the England Living Room Xavier Sofa Cost: Ultimate Price Guide'
+description: Are you thinking about upgrading your living room with the England Living
+  Room Xavier Sofa but unsure about the cost? You’re not alone. Finding the perfect
+  sofa
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-the-england-living-room-xavier-sofa-cost&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-the-england-living-room-xavier-sofa-cost&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about upgrading your living room with the England Living Room Xavier Sofa but unsure about the cost? You’re not alone.**

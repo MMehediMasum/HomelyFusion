@@ -1,10 +1,13 @@
 ---
-title: "How to Paint an Accent Wall: Easy Steps for Stunning Results"
-description: "Looking to give your room a fresh new look without a full makeover? Painting an accent wall might be the perfect solution for you. It’s a simple, budget-friendl"
+title: 'How to Paint an Accent Wall: Easy Steps for Stunning Results'
+description: Looking to give your room a fresh new look without a full makeover? Painting
+  an accent wall might be the perfect solution for you. It’s a simple, budget-friendl
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-an-accent-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-an-accent-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to give your room a fresh new look without a full makeover? Painting an accent wall might be the perfect solution for you.**

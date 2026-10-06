@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Attic Bedroom: Creative Ideas for Cozy Spaces"
-description: "Transforming your attic into a cozy bedroom can feel like a big challenge. But imagine stepping into a space that’s both stylish and comfortable, made just for "
+title: 'How to Decorate an Attic Bedroom: Creative Ideas for Cozy Spaces'
+description: 'Transforming your attic into a cozy bedroom can feel like a big challenge.
+  But imagine stepping into a space that’s both stylish and comfortable, made just
+  for '
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-attic-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-attic-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transforming your attic into a cozy bedroom can feel like a big challenge. But imagine stepping into a space that’s both stylish and comfortable, made just for you.**

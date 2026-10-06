@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Dog Bowls: Durable, Non-Slip, and Stylish Feeding Solutions"
-description: "Choosing the right dog bowl makes mealtime easier and cleaner for your pet. Home goods dog bowls come in many types to suit different needs. Dogs need bowls tha"
+title: 'Home Goods Dog Bowls: Durable, Non-Slip, and Stylish Feeding Solutions'
+description: Choosing the right dog bowl makes mealtime easier and cleaner for your
+  pet. Home goods dog bowls come in many types to suit different needs. Dogs need
+  bowls tha
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-dog-bowls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-dog-bowls&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the right dog bowl makes mealtime easier and cleaner for your pet. Home goods dog bowls come in many types to suit different needs.**

@@ -1,10 +1,14 @@
 ---
-title: "Mirror Home Goods: Stylish Full-Length Mirrors to Elevate Any Room"
-description: "Mirror home goods add style and function to any room. They make spaces look bigger and brighter instantly. Mirrors come in many shapes and sizes to fit differen"
+title: 'Mirror Home Goods: Stylish Full-Length Mirrors to Elevate Any Room'
+description: Mirror home goods add style and function to any room. They make spaces
+  look bigger and brighter instantly. Mirrors come in many shapes and sizes to fit
+  differen
 pubDate: 2025-10-03
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirror home goods add style and function to any room. They make spaces look bigger and brighter instantly.**

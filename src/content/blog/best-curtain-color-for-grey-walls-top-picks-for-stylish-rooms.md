@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Color for Grey Walls: Top Picks for Stylish Rooms"
-description: "Choosing the best curtain color for grey walls can change your room’s look completely. Curtains add style, warmth, and personality to any space with grey walls."
+title: 'Best Curtain Color for Grey Walls: Top Picks for Stylish Rooms'
+description: Choosing the best curtain color for grey walls can change your room’s
+  look completely. Curtains add style, warmth, and personality to any space with grey
+  walls.
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-color-for-grey-walls-top-picks-for-stylish-rooms&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-color-for-grey-walls-top-picks-for-stylish-rooms&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain color for grey walls can change your room’s look completely. Curtains add style, warmth, and personality to any space with grey walls.**

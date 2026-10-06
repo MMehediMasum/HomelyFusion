@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Grey Sofa Living Room: Stunning Style Tips"
-description: "Your grey sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you make it stand out without overwhelming the space? Decor"
+title: 'How to Decorate a Grey Sofa Living Room: Stunning Style Tips'
+description: Your grey sofa is more than just a piece of furniture—it’s the heart
+  of your living room. But how do you make it stand out without overwhelming the space?
+  Decor
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-grey-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-grey-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your grey sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you make it stand out without overwhelming the space?**

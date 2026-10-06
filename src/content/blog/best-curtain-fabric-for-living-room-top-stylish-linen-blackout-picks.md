@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Fabric for Living Room: Top Stylish Linen & Blackout Picks"
-description: "Choosing the best curtain fabric for your living room affects light, privacy, and style. The right fabric balances beauty and function perfectly. Curtains set t"
+title: 'Best Curtain Fabric for Living Room: Top Stylish Linen & Blackout Picks'
+description: Choosing the best curtain fabric for your living room affects light,
+  privacy, and style. The right fabric balances beauty and function perfectly. Curtains
+  set t
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-fabric-for-living-room-top-stylish-linen-blackout-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-fabric-for-living-room-top-stylish-linen-blackout-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain fabric for your living room affects light, privacy, and style. The right fabric balances beauty and function perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Large Bathroom Mirrors: Top Spots for Stunning Styles"
-description: "Looking to add a touch of style and spaciousness to your bathroom? Finding the perfect large bathroom mirror can completely transform your space, making it feel"
+title: 'Where to Buy Large Bathroom Mirrors: Top Spots for Stunning Styles'
+description: Looking to add a touch of style and spaciousness to your bathroom? Finding
+  the perfect large bathroom mirror can completely transform your space, making it
+  feel
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-large-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-large-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to add a touch of style and spaciousness to your bathroom? Finding the perfect large bathroom mirror can completely transform your space, making it feel brighter and more open.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Living Rooms: Stylish, Durable, and Washable Picks"
-description: "Choosing the best area rug can transform your living room’s look and feel. Area rugs add warmth, comfort, and style to any space. A good area rug ties your furn"
+title: 'Best Area Rugs for Living Rooms: Stylish, Durable, and Washable Picks'
+description: Choosing the best area rug can transform your living room’s look and
+  feel. Area rugs add warmth, comfort, and style to any space. A good area rug ties
+  your furn
 pubDate: 2025-12-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-living-rooms-stylish-durable-and-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-living-rooms-stylish-durable-and-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug can transform your living room’s look and feel. Area rugs add warmth, comfort, and style to any space.**

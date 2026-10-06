@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Christmas Tree 7.5 Ft Grand Duchess Review & Buying Guide"
-description: "The Home Decorators Collection Christmas Tree 7.5 Ft Grand Duchess offers a stunning holiday centerpiece. This tree blends elegance with easy setup for festive "
+title: Home Decorators Collection Christmas Tree 7.5 Ft Grand Duchess Review & Buying
+  Guide
+description: 'The Home Decorators Collection Christmas Tree 7.5 Ft Grand Duchess offers
+  a stunning holiday centerpiece. This tree blends elegance with easy setup for festive '
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-tree-75-ft-grand-duchess&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-tree-75-ft-grand-duchess&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Home Decorators Collection Christmas Tree 7.5 Ft Grand Duchess offers a stunning holiday centerpiece. This tree blends elegance with easy setup for festive decorating.**

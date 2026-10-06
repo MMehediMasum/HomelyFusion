@@ -1,10 +1,14 @@
 ---
-title: "How to Make Ghee Lamp at Home: Easy Steps for Radiant Glow"
-description: "Are you looking to create a warm, glowing atmosphere with a traditional touch? Making a ghee lamp at home is easier than you think, and it brings a special ligh"
+title: 'How to Make Ghee Lamp at Home: Easy Steps for Radiant Glow'
+description: Are you looking to create a warm, glowing atmosphere with a traditional
+  touch? Making a ghee lamp at home is easier than you think, and it brings a special
+  ligh
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-ghee-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-ghee-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to create a warm, glowing atmosphere with a traditional touch? Making a ghee lamp at home is easier than you think, and it brings a special light to your space.**

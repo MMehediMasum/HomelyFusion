@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Get Clay in Ocean is Home: Easy Tips for Fast Gathering"
 description: "Are you struggling to find clay in Ocean is Home? You’re not alone. Clay is a key resource that helps you build and craft important items in the game. Without i"
 pubDate: 2026-03-25

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Chair Cushion for Butt Pain: Top Memory Foam Comfort Picks"
 description: "Butt pain can make sitting uncomfortable and affect daily life. Choosing the best chair cushion helps reduce pain and improve comfort. Many people suffer from t"
 pubDate: 2025-09-17

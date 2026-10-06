@@ -1,10 +1,13 @@
 ---
-title: "Which Sofa is Best for Small Living Room: Top Space-Saving Picks"
-description: "Finding the perfect sofa for your small living room can feel like a challenge. You want something stylish, comfortable, and that fits just right without crowdin"
+title: 'Which Sofa is Best for Small Living Room: Top Space-Saving Picks'
+description: Finding the perfect sofa for your small living room can feel like a challenge.
+  You want something stylish, comfortable, and that fits just right without crowdin
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-sofa-is-best-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-sofa-is-best-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect sofa for your small living room can feel like a challenge. You want something stylish, comfortable, and that fits just right without crowding your space.**

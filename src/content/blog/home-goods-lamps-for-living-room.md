@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Lamps for Living Room: Stylish Lighting and Functional Designs"
-description: "Lamps can transform your living room's ambiance and functionality. They offer both style and practicality. Selecting the right lamp for your living room enhance"
+title: 'Home Goods Lamps for Living Room: Stylish Lighting and Functional Designs'
+description: Lamps can transform your living room's ambiance and functionality. They
+  offer both style and practicality. Selecting the right lamp for your living room
+  enhance
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamps-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamps-for-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lamps can transform your living room's ambiance and functionality. They offer both style and practicality.**

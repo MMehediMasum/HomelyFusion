@@ -1,10 +1,14 @@
 ---
-title: "Fall Acorn Craft Ideas: Easy & Creative Projects for Autumn Fun"
-description: "Are you looking for simple and fun ways to bring the cozy feeling of fall into your home? Fall acorn craft ideas are perfect for adding a touch of nature and wa"
+title: 'Fall Acorn Craft Ideas: Easy & Creative Projects for Autumn Fun'
+description: Are you looking for simple and fun ways to bring the cozy feeling of
+  fall into your home? Fall acorn craft ideas are perfect for adding a touch of nature
+  and wa
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-acorn-craft-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-acorn-craft-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for simple and fun ways to bring the cozy feeling of fall into your home? Fall acorn craft ideas are perfect for adding a touch of nature and warmth to your space.**

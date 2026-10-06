@@ -1,10 +1,13 @@
 ---
-title: "How Can I Clean My Wool Rug at Home: Easy & Effective Tips"
-description: "Do you love your wool rug but worry about keeping it clean without damaging it? You’re not alone. Wool rugs add warmth and style to any room, but cleaning them "
+title: 'How Can I Clean My Wool Rug at Home: Easy & Effective Tips'
+description: 'Do you love your wool rug but worry about keeping it clean without damaging
+  it? You’re not alone. Wool rugs add warmth and style to any room, but cleaning them '
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-can-i-clean-my-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-can-i-clean-my-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Do you love your wool rug but worry about keeping it clean without damaging it? You’re not alone.**

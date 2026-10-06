@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange a Living Room With a Recliner: Stylish & Cozy Tips"
-description: "Are you struggling to figure out where to place your recliner in your living room? You want your space to feel cozy and inviting, but also practical and stylish"
+title: 'How to Arrange a Living Room With a Recliner: Stylish & Cozy Tips'
+description: Are you struggling to figure out where to place your recliner in your
+  living room? You want your space to feel cozy and inviting, but also practical and
+  stylish
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-a-recliner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-a-recliner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to figure out where to place your recliner in your living room? You want your space to feel cozy and inviting, but also practical and stylish.**

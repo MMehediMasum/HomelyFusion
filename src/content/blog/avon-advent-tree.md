@@ -1,10 +1,14 @@
 ---
-title: "Avon Advent Tree: Magical Countdown with 24 Festive Ornaments Surprise"
-description: "The Avon Advent Tree brings festive joy with its unique countdown design. It combines classic holiday charm with daily surprises for the whole family. This Adve"
+title: 'Avon Advent Tree: Magical Countdown with 24 Festive Ornaments Surprise'
+description: The Avon Advent Tree brings festive joy with its unique countdown design.
+  It combines classic holiday charm with daily surprises for the whole family. This
+  Adve
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=avon-advent-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=avon-advent-tree&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Avon Advent Tree brings festive joy with its unique countdown design. It combines classic holiday charm with daily surprises for the whole family.**

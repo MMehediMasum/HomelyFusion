@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Side Table in Living Room: Stunning Decor Ideas"
-description: "Your living room’s side table is more than just a spot to place your coffee or remote. It’s a small space with big style potential. But how do you make sure it "
+title: 'How to Style a Side Table in Living Room: Stunning Decor Ideas'
+description: 'Your living room’s side table is more than just a spot to place your
+  coffee or remote. It’s a small space with big style potential. But how do you make
+  sure it '
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-side-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room’s side table is more than just a spot to place your coffee or remote. It’s a small space with big style potential.**

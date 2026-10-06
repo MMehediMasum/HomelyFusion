@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Christmas Ornaments: Unique Chicken and Festive Tree Decorations"
-description: "Homegoods Christmas ornaments add charm and joy to your holiday decor. Their wide variety fits every style and taste. Homegoods offers Christmas ornaments that "
+title: 'Homegoods Christmas Ornaments: Unique Chicken and Festive Tree Decorations'
+description: 'Homegoods Christmas ornaments add charm and joy to your holiday decor.
+  Their wide variety fits every style and taste. Homegoods offers Christmas ornaments
+  that '
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Homegoods Christmas ornaments add charm and joy to your holiday decor. Their wide variety fits every style and taste.**

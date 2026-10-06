@@ -1,10 +1,14 @@
 ---
-title: "Home.Decorators Christmas Tree: Stunning Pre-Lit Designs for Festive Cheer"
-description: "Home.Decorators Christmas Tree offers a variety of beautiful artificial trees to brighten your holiday. These trees come pre-lit and ready to decorate. Choose f"
+title: 'Home.Decorators Christmas Tree: Stunning Pre-Lit Designs for Festive Cheer'
+description: Home.Decorators Christmas Tree offers a variety of beautiful artificial
+  trees to brighten your holiday. These trees come pre-lit and ready to decorate.
+  Choose f
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homedecorators-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=homedecorators-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home.Decorators Christmas Tree offers a variety of beautiful artificial trees to brighten your holiday. These trees come pre-lit and ready to decorate.**

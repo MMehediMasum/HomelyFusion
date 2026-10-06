@@ -1,10 +1,14 @@
 ---
-title: "Best Scented Candles for Winter to Cozy Up Your Home"
-description: "Winter calls for cozy, warm scents that fill your home with comfort. Scented candles bring that perfect touch of seasonal charm. Choosing the right winter candl"
+title: Best Scented Candles for Winter to Cozy Up Your Home
+description: Winter calls for cozy, warm scents that fill your home with comfort.
+  Scented candles bring that perfect touch of seasonal charm. Choosing the right winter
+  candl
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scented-candles-for-winter-to-cozy-up-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-scented-candles-for-winter-to-cozy-up-your-home&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Winter calls for cozy, warm scents that fill your home with comfort. Scented candles bring that perfect touch of seasonal charm.**

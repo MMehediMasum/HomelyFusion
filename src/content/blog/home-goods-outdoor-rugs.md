@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Outdoor Rugs: Stylish Waterproof Rugs for Patio and Backyard"
-description: "Outdoor rugs can transform your space, adding comfort and style to patios, decks, or camping sites. These rugs are not only functional but also enhance the aest"
+title: 'Home Goods Outdoor Rugs: Stylish Waterproof Rugs for Patio and Backyard'
+description: Outdoor rugs can transform your space, adding comfort and style to patios,
+  decks, or camping sites. These rugs are not only functional but also enhance the
+  aest
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-outdoor-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-outdoor-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Outdoor rugs can transform your space, adding comfort and style to patios, decks, or camping sites. These rugs are not only functional but also enhance the aesthetic appeal of outdoor areas.**

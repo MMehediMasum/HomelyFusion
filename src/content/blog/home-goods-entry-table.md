@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Entry Table Ideas for Stylish and Functional Entryways"
-description: "Home goods entry tables add style and function to your hallway or living room. These tables offer storage, charging ports, and a place to display decor. Entrywa"
+title: Home Goods Entry Table Ideas for Stylish and Functional Entryways
+description: Home goods entry tables add style and function to your hallway or living
+  room. These tables offer storage, charging ports, and a place to display decor.
+  Entrywa
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-entry-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-entry-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home goods entry tables add style and function to your hallway or living room. These tables offer storage, charging ports, and a place to display decor.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Charcoal at Home: Easy & Eco-Friendly Guide"
 description: "Are you curious about making your own bamboo charcoal right at home? Bamboo charcoal is not only eco-friendly but also packed with benefits for your garden, hom"
 pubDate: 2026-04-04

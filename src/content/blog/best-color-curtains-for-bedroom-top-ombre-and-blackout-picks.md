@@ -1,10 +1,14 @@
 ---
-title: "Best Color Curtains for Bedroom: Top Ombre and Blackout Picks"
-description: "Choosing the best color curtains for your bedroom can change its look and feel instantly. Curtains set the mood by controlling light and adding style. Bedroom c"
+title: 'Best Color Curtains for Bedroom: Top Ombre and Blackout Picks'
+description: Choosing the best color curtains for your bedroom can change its look
+  and feel instantly. Curtains set the mood by controlling light and adding style.
+  Bedroom c
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-curtains-for-bedroom-top-ombre-and-blackout-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-color-curtains-for-bedroom-top-ombre-and-blackout-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color curtains for your bedroom can change its look and feel instantly. Curtains set the mood by controlling light and adding style.**

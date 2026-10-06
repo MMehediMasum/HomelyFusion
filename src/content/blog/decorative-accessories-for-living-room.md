@@ -1,10 +1,15 @@
 ---
-title: "Decorative Accessories for Living Room: Stylish Ornaments to Elevate Your Space"
-description: "Decorative accessories add charm and personality to your living room. They create a cozy, stylish space without much effort. Small bird statues bring a touch of"
+title: 'Decorative Accessories for Living Room: Stylish Ornaments to Elevate Your
+  Space'
+description: Decorative accessories add charm and personality to your living room.
+  They create a cozy, stylish space without much effort. Small bird statues bring
+  a touch of
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-accessories-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decorative-accessories-for-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative accessories add charm and personality to your living room. They create a cozy, stylish space without much effort.**

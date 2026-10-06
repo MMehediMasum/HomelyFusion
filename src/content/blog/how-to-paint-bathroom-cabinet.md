@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Bathroom Cabinet: Easy Steps for a Stunning Makeover"
-description: "Are your bathroom cabinets looking dull or outdated? Giving them a fresh coat of paint can completely transform your space without spending a fortune. But maybe"
+title: 'How to Paint Bathroom Cabinet: Easy Steps for a Stunning Makeover'
+description: Are your bathroom cabinets looking dull or outdated? Giving them a fresh
+  coat of paint can completely transform your space without spending a fortune. But
+  maybe
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your bathroom cabinets looking dull or outdated? Giving them a fresh coat of paint can completely transform your space without spending a fortune.**

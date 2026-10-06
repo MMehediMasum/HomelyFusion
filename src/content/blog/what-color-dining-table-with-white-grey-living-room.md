@@ -1,10 +1,14 @@
 ---
-title: "What Color Dining Table With White Grey Living Room: Stunning Ideas"
-description: "Choosing the right dining table color for your white and grey living room can feel tricky. You want your space to look stylish and inviting, but also balanced a"
+title: 'What Color Dining Table With White Grey Living Room: Stunning Ideas'
+description: Choosing the right dining table color for your white and grey living
+  room can feel tricky. You want your space to look stylish and inviting, but also
+  balanced a
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-dining-table-with-white-grey-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=what-color-dining-table-with-white-grey-living-room&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right dining table color for your white and grey living room can feel tricky. You want your space to look stylish and inviting, but also balanced and cozy.**

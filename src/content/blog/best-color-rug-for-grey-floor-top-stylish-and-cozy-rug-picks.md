@@ -1,10 +1,14 @@
 ---
-title: "Best Color Rug for Grey Floor: Top Stylish and Cozy Rug Picks"
-description: "Choosing the best color rug for a grey floor can change your room’s look completely. The right rug adds warmth and style without clashing with grey tones. Grey "
+title: 'Best Color Rug for Grey Floor: Top Stylish and Cozy Rug Picks'
+description: 'Choosing the best color rug for a grey floor can change your room’s
+  look completely. The right rug adds warmth and style without clashing with grey
+  tones. Grey '
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-rug-for-grey-floor-top-stylish-and-cozy-rug-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-color-rug-for-grey-floor-top-stylish-and-cozy-rug-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color rug for a grey floor can change your room’s look completely. The right rug adds warmth and style without clashing with grey tones.**

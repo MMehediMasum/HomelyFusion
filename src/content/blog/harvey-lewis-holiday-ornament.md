@@ -1,10 +1,14 @@
 ---
-title: "Harvey Lewis Holiday Ornament: Unique Suits & Festive Christmas Decor Ideas"
-description: "The Harvey Lewis Holiday Ornament collection offers unique and charming decorations for the festive season. These ornaments blend holiday spirit with personal a"
+title: 'Harvey Lewis Holiday Ornament: Unique Suits & Festive Christmas Decor Ideas'
+description: The Harvey Lewis Holiday Ornament collection offers unique and charming
+  decorations for the festive season. These ornaments blend holiday spirit with personal
+  a
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=harvey-lewis-holiday-ornament&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=harvey-lewis-holiday-ornament&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Harvey Lewis Holiday Ornament collection offers unique and charming decorations for the festive season. These ornaments blend holiday spirit with personal and popular culture themes.**

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Fog Machine Party Setup: Ultimate Guide for Spooky Fun"
-description: "Ready to take your Halloween party to the next level? A fog machine can transform your space into a spooky, mysterious wonderland that your guests won’t forget."
+title: 'Halloween Fog Machine Party Setup: Ultimate Guide for Spooky Fun'
+description: Ready to take your Halloween party to the next level? A fog machine can
+  transform your space into a spooky, mysterious wonderland that your guests won’t
+  forget.
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-fog-machine-party-setup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-fog-machine-party-setup&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Ready to take your Halloween party to the next level? A fog machine can transform your space into a spooky, mysterious wonderland that your guests won’t forget.**

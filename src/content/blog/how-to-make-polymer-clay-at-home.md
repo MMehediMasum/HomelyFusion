@@ -1,10 +1,14 @@
 ---
-title: "How to Make Polymer Clay at Home: Easy DIY Crafting Guide"
-description: "Have you ever wanted to create your own colorful, flexible clay right at home? Making polymer clay yourself is easier than you think—and it opens up a world of "
+title: 'How to Make Polymer Clay at Home: Easy DIY Crafting Guide'
+description: 'Have you ever wanted to create your own colorful, flexible clay right
+  at home? Making polymer clay yourself is easier than you think—and it opens up a
+  world of '
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-polymer-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-polymer-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own colorful, flexible clay right at home? Making polymer clay yourself is easier than you think—and it opens up a world of creative possibilities.**

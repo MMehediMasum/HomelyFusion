@@ -1,10 +1,14 @@
 ---
-title: "Easter Table Runner Craft Ideas: Stunning DIY Decor for Spring"
-description: "Looking to add a fresh, festive touch to your Easter celebration? Your table is the perfect place to start! An Easter table runner can transform your dining spa"
+title: 'Easter Table Runner Craft Ideas: Stunning DIY Decor for Spring'
+description: Looking to add a fresh, festive touch to your Easter celebration? Your
+  table is the perfect place to start! An Easter table runner can transform your dining
+  spa
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-table-runner-craft-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-table-runner-craft-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a fresh, festive touch to your Easter celebration? Your table is the perfect place to start!**

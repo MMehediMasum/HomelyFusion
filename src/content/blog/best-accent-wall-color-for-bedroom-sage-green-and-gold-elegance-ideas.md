@@ -1,10 +1,14 @@
 ---
-title: "Best Accent Wall Color for Bedroom: Sage Green and Gold Elegance Ideas"
-description: "Choosing the best accent wall color for your bedroom can change the entire room’s feel. It highlights your style and adds a fresh look without much effort. An a"
+title: 'Best Accent Wall Color for Bedroom: Sage Green and Gold Elegance Ideas'
+description: Choosing the best accent wall color for your bedroom can change the entire
+  room’s feel. It highlights your style and adds a fresh look without much effort.
+  An a
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-accent-wall-color-for-bedroom-sage-green-and-gold-elegance-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=best-accent-wall-color-for-bedroom-sage-green-and-gold-elegance-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the best accent wall color for your bedroom can change the entire room’s feel. It highlights your style and adds a fresh look without much effort.**

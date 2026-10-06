@@ -1,10 +1,14 @@
 ---
-title: "Avon Crystal Holiday Tree: Sparkling Elegance for Festive Home Decor"
-description: "The Avon Crystal Holiday Tree adds elegance to any festive setting. Its shimmering ornaments make it a standout piece. This exquisite holiday collection transfo"
+title: 'Avon Crystal Holiday Tree: Sparkling Elegance for Festive Home Decor'
+description: The Avon Crystal Holiday Tree adds elegance to any festive setting. Its
+  shimmering ornaments make it a standout piece. This exquisite holiday collection
+  transfo
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=avon-crystal-holiday-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=avon-crystal-holiday-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Avon Crystal Holiday Tree adds elegance to any festive setting. Its shimmering ornaments make it a standout piece.**

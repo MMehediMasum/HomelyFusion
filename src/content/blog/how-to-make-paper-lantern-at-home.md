@@ -1,10 +1,14 @@
 ---
-title: "How to Make Paper Lantern at Home: Easy & Stunning DIY Guide"
-description: "Have you ever wanted to add a warm, magical glow to your home without spending a lot of money? Making your own paper lantern is easier than you think—and it can"
+title: 'How to Make Paper Lantern at Home: Easy & Stunning DIY Guide'
+description: Have you ever wanted to add a warm, magical glow to your home without
+  spending a lot of money? Making your own paper lantern is easier than you think—and
+  it can
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-paper-lantern-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-paper-lantern-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to add a warm, magical glow to your home without spending a lot of money? Making your own paper lantern is easier than you think—and it can brighten up any room or event instantly.**

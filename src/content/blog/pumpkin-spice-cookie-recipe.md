@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Pumpkin Spice Cookie Recipe: Irresistibly Soft Fall Treats"
 description: "Are you ready to fill your kitchen with the warm, cozy scent of fall? This Pumpkin Spice Cookie Recipe is exactly what you need to satisfy your sweet cravings a"
 pubDate: 2025-10-26

@@ -1,10 +1,14 @@
 ---
-title: "Hello Kitty Halloween Blanket Homegoods: Cozy, Cute, and Perfect for Fall"
-description: "Halloween is just around the corner, and Hello Kitty fans have something special to look forward to. Discover adorable Hello Kitty Halloween blankets that bring"
+title: 'Hello Kitty Halloween Blanket Homegoods: Cozy, Cute, and Perfect for Fall'
+description: Halloween is just around the corner, and Hello Kitty fans have something
+  special to look forward to. Discover adorable Hello Kitty Halloween blankets that
+  bring
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hello-kitty-halloween-blanket-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=hello-kitty-halloween-blanket-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Halloween is just around the corner, and Hello Kitty fans have something special to look forward to. Discover adorable Hello Kitty Halloween blankets that bring festive charm and warmth to your home.**

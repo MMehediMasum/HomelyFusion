@@ -1,10 +1,14 @@
 ---
-title: "Living Room Picture Frames: Stylish Sets to Showcase Your Family Memories"
-description: "Picture frames can transform a living room, adding personality and warmth to your space. They showcase cherished memories and create a unique atmosphere. Choosi"
+title: 'Living Room Picture Frames: Stylish Sets to Showcase Your Family Memories'
+description: Picture frames can transform a living room, adding personality and warmth
+  to your space. They showcase cherished memories and create a unique atmosphere.
+  Choosi
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=living-room-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Picture frames can transform a living room, adding personality and warmth to your space. They showcase cherished memories and create a unique atmosphere.**

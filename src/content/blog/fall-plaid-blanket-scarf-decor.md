@@ -1,10 +1,14 @@
 ---
-title: "Fall Plaid Blanket Scarf Decor: Cozy Trends to Transform Your Space"
-description: "Imagine wrapping yourself in the cozy warmth of a fall plaid blanket scarf that does more than just keep you snug—it transforms your home into a welcoming autum"
+title: 'Fall Plaid Blanket Scarf Decor: Cozy Trends to Transform Your Space'
+description: Imagine wrapping yourself in the cozy warmth of a fall plaid blanket
+  scarf that does more than just keep you snug—it transforms your home into a welcoming
+  autum
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-plaid-blanket-scarf-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-plaid-blanket-scarf-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine wrapping yourself in the cozy warmth of a fall plaid blanket scarf that does more than just keep you snug—it transforms your home into a welcoming autumn haven. You might think scarves belong only in your wardrobe, but what if your favorite fall accessory could also bring charm and comfort to your living space?**

@@ -1,10 +1,14 @@
 ---
-title: "What are the Best Light Bulbs to Use at Home: Bright, Efficient Picks"
-description: "Choosing the right light bulbs for your home can make a bigger difference than you might think. The perfect bulb not only brightens your space but also saves yo"
+title: 'What are the Best Light Bulbs to Use at Home: Bright, Efficient Picks'
+description: Choosing the right light bulbs for your home can make a bigger difference
+  than you might think. The perfect bulb not only brightens your space but also saves
+  yo
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-best-light-bulbs-to-use-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-best-light-bulbs-to-use-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right light bulbs for your home can make a bigger difference than you might think. The perfect bulb not only brightens your space but also saves you money and sets the mood just right.**

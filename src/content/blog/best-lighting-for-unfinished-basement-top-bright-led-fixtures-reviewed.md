@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Unfinished Basement: Top Bright LED Fixtures Reviewed"
-description: "Choosing the best lighting for an unfinished basement improves safety and usability. Bright, adjustable LED lights work well in these often dark spaces. Unfinis"
+title: 'Best Lighting for Unfinished Basement: Top Bright LED Fixtures Reviewed'
+description: Choosing the best lighting for an unfinished basement improves safety
+  and usability. Bright, adjustable LED lights work well in these often dark spaces.
+  Unfinis
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-unfinished-basement-top-bright-led-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-unfinished-basement-top-bright-led-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for an unfinished basement improves safety and usability. Bright, adjustable LED lights work well in these often dark spaces.**

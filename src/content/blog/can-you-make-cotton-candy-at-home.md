@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Make Cotton Candy at Home: Easy Steps for Sweet Fun!"
 description: "Have you ever wondered if you can make cotton candy right in your own kitchen? Imagine enjoying that sweet, fluffy treat anytime you want without waiting in lon"
 pubDate: 2026-04-09

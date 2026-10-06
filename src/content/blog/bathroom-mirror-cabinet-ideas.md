@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Mirror Cabinet Ideas: Stylish Storage Solutions for Every Bath"
-description: "Your bathroom mirror cabinet is more than just a place to check your reflection. It can transform your entire space, making it feel bigger, brighter, and more o"
+title: 'Bathroom Mirror Cabinet Ideas: Stylish Storage Solutions for Every Bath'
+description: Your bathroom mirror cabinet is more than just a place to check your
+  reflection. It can transform your entire space, making it feel bigger, brighter,
+  and more o
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-mirror-cabinet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-mirror-cabinet-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bathroom mirror cabinet is more than just a place to check your reflection. It can transform your entire space, making it feel bigger, brighter, and more organized.**

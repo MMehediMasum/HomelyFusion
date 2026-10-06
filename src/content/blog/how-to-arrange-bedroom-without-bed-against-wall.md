@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Bedroom Without Bed against Wall: Creative Ideas"
-description: "Have you ever wondered what your bedroom would feel like if your bed wasn’t pushed against the wall? It might sound unusual, but arranging your bed away from th"
+title: 'How to Arrange Bedroom Without Bed against Wall: Creative Ideas'
+description: Have you ever wondered what your bedroom would feel like if your bed
+  wasn’t pushed against the wall? It might sound unusual, but arranging your bed away
+  from th
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-without-bed-against-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-without-bed-against-wall&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered what your bedroom would feel like if your bed wasn’t pushed against the wall? It might sound unusual, but arranging your bed away from the wall can completely change the vibe of your space.**

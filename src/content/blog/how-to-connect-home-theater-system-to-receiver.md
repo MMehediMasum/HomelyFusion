@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System to Receiver: Ultimate Step-by-Step Guide"
 description: "Setting up your home theater system can feel tricky, especially when it comes to connecting it to your receiver. But it doesn’t have to be confusing or frustrat"
 pubDate: 2026-04-21

@@ -1,10 +1,14 @@
 ---
-title: "Southern Living Placemats: Stylish, Durable Table Mats for Every Occasion"
-description: "Southern Living placemats add style and function to your dining table. They come in various materials, colors, and designs to fit every home. These placemats pr"
+title: 'Southern Living Placemats: Stylish, Durable Table Mats for Every Occasion'
+description: Southern Living placemats add style and function to your dining table.
+  They come in various materials, colors, and designs to fit every home. These placemats
+  pr
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=southern-living-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=southern-living-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Southern Living placemats add style and function to your dining table. They come in various materials, colors, and designs to fit every home.**

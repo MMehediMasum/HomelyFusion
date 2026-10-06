@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Blizzard at Home: Easy & Delicious Recipe"
 description: "Craving something sweet and fun that feels like a treat from your favorite ice cream shop? Imagine enjoying a fluffy, creamy Cotton Candy Blizzard right in your"
 pubDate: 2026-02-21

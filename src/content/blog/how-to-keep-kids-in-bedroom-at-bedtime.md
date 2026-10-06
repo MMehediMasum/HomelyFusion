@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Kids in Bedroom at Bedtime: Proven Tips That Work"
-description: "Getting your kids to stay in their bedroom at bedtime can feel like a constant battle. You want them to rest well, but they keep wandering out, making bedtime l"
+title: 'How to Keep Kids in Bedroom at Bedtime: Proven Tips That Work'
+description: Getting your kids to stay in their bedroom at bedtime can feel like a
+  constant battle. You want them to rest well, but they keep wandering out, making
+  bedtime l
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-kids-in-bedroom-at-bedtime&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-kids-in-bedroom-at-bedtime&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Getting your kids to stay in their bedroom at bedtime can feel like a constant battle. You want them to rest well, but they keep wandering out, making bedtime longer and more stressful.**

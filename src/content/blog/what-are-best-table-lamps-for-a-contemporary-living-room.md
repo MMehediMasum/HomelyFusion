@@ -1,10 +1,14 @@
 ---
-title: "What are Best Table Lamps for a Contemporary Living Room: Top Picks"
-description: "Looking to add the perfect touch to your contemporary living room? The right table lamp can transform your space, creating the ideal blend of style and comfort."
+title: 'What are Best Table Lamps for a Contemporary Living Room: Top Picks'
+description: Looking to add the perfect touch to your contemporary living room? The
+  right table lamp can transform your space, creating the ideal blend of style and
+  comfort.
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-best-table-lamps-for-a-contemporary-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=what-are-best-table-lamps-for-a-contemporary-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to add the perfect touch to your contemporary living room? The right table lamp can transform your space, creating the ideal blend of style and comfort.**

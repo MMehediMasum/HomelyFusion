@@ -1,10 +1,14 @@
 ---
-title: "A Chair in a Living Room: Stylish Comfort for Every Space"
-description: "Imagine walking into your living room and spotting the perfect chair waiting just for you. That one seat where comfort meets style, inviting you to relax, read,"
+title: 'A Chair in a Living Room: Stylish Comfort for Every Space'
+description: Imagine walking into your living room and spotting the perfect chair
+  waiting just for you. That one seat where comfort meets style, inviting you to relax,
+  read,
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-chair-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=a-chair-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and spotting the perfect chair waiting just for you. That one seat where comfort meets style, inviting you to relax, read, or simply unwind after a long day.**

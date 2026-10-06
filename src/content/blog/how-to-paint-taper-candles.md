@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Taper Candles: Easy Steps for Stunning Results"
-description: "Are you looking to add a personal touch to your home decor or create unique gifts? Painting taper candles is an easy and fun way to do just that. Imagine turnin"
+title: 'How to Paint Taper Candles: Easy Steps for Stunning Results'
+description: Are you looking to add a personal touch to your home decor or create
+  unique gifts? Painting taper candles is an easy and fun way to do just that. Imagine
+  turnin
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-taper-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-taper-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to add a personal touch to your home decor or create unique gifts? Painting taper candles is an easy and fun way to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Table Runner Tj Maxx: Stylish Boho & Rustic Picks for Every Occasion"
-description: "Table runners from TJ Maxx offer stylish and affordable options for home decor. They enhance dining spaces with elegance and charm. Discovering the perfect tabl"
+title: 'Table Runner Tj Maxx: Stylish Boho & Rustic Picks for Every Occasion'
+description: Table runners from TJ Maxx offer stylish and affordable options for home
+  decor. They enhance dining spaces with elegance and charm. Discovering the perfect
+  tabl
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-runner-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=table-runner-tj-maxx&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Table runners from TJ Maxx offer stylish and affordable options for home decor. They enhance dining spaces with elegance and charm.**

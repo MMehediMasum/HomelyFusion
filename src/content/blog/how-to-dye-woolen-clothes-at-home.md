@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye Woolen Clothes at Home: Easy Steps for Vibrant Colors"
 description: "Are you looking to refresh your woolen clothes with vibrant colors without spending a fortune? Dyeing wool at home is easier than you might think, and it gives "
 pubDate: 2025-11-17

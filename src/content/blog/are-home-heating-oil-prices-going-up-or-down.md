@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Going Up Or Down: Expert Insights"
 description: "Are you worried about how much you’ll pay to heat your home this season? You’re not alone. Home heating oil prices can change quickly, and knowing whether they’"
 pubDate: 2026-04-11

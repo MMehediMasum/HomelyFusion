@@ -1,10 +1,13 @@
 ---
-title: "Mirrored Nightstand Home Goods: Stylish Storage Solutions for Modern Bedrooms"
-description: "Mirrored nightstands add elegance and style to any room. They reflect light, making spaces appear larger and brighter. Mirrored furniture offers a sophisticated"
+title: 'Mirrored Nightstand Home Goods: Stylish Storage Solutions for Modern Bedrooms'
+description: Mirrored nightstands add elegance and style to any room. They reflect
+  light, making spaces appear larger and brighter. Mirrored furniture offers a sophisticated
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirrored-nightstand-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=mirrored-nightstand-home-goods&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Mirrored nightstands add elegance and style to any room. They reflect light, making spaces appear larger and brighter.**

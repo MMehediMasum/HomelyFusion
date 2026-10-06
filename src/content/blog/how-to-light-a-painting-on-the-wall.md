@@ -1,10 +1,14 @@
 ---
-title: "How to Light a Painting on the Wall: Expert Tips for Stunning Display"
-description: "Want your paintings to truly stand out on your wall? The right lighting can transform your artwork from ordinary to stunning, catching every eye that enters the"
+title: 'How to Light a Painting on the Wall: Expert Tips for Stunning Display'
+description: Want your paintings to truly stand out on your wall? The right lighting
+  can transform your artwork from ordinary to stunning, catching every eye that enters
+  the
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-light-a-painting-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-light-a-painting-on-the-wall&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Want your paintings to truly stand out on your wall? The right lighting can transform your artwork from ordinary to stunning, catching every eye that enters the room.**

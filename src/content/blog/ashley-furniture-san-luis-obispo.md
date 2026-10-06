@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture San Luis Obispo: Stylish Outdoor & Indoor Furniture Picks"
-description: "Ashley Furniture in San Luis Obispo offers a diverse range of stylish and functional pieces. From outdoor lounge chairs to elegant end tables, this store has it"
+title: 'Ashley Furniture San Luis Obispo: Stylish Outdoor & Indoor Furniture Picks'
+description: Ashley Furniture in San Luis Obispo offers a diverse range of stylish
+  and functional pieces. From outdoor lounge chairs to elegant end tables, this store
+  has it
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-san-luis-obispo&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-san-luis-obispo&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ashley Furniture in San Luis Obispo offers a diverse range of stylish and functional pieces. From outdoor lounge chairs to elegant end tables, this store has it all.**

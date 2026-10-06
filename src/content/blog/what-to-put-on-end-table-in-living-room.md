@@ -1,10 +1,13 @@
 ---
-title: "What to Put on End Table in Living Room: Stylish & Functional Ideas"
-description: "Your living room’s end table is more than just a small piece of furniture—it’s a powerful spot to boost your space’s style and function. But what should you put"
+title: 'What to Put on End Table in Living Room: Stylish & Functional Ideas'
+description: Your living room’s end table is more than just a small piece of furniture—it’s
+  a powerful spot to boost your space’s style and function. But what should you put
 pubDate: 2026-03-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-end-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-end-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s end table is more than just a small piece of furniture—it’s a powerful spot to boost your space’s style and function. But what should you put on it to make the most impact?**

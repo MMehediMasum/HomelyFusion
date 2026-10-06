@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Bedroom With Loft Bed: Stylish & Space-Saving Ideas"
-description: "Are you looking to make the most of your bedroom space without sacrificing style? Decorating a bedroom with a loft bed is a smart way to create a cozy, function"
+title: 'How to Decorate Bedroom With Loft Bed: Stylish & Space-Saving Ideas'
+description: Are you looking to make the most of your bedroom space without sacrificing
+  style? Decorating a bedroom with a loft bed is a smart way to create a cozy, function
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-loft-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-loft-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to make the most of your bedroom space without sacrificing style? Decorating a bedroom with a loft bed is a smart way to create a cozy, functional, and visually appealing room.**

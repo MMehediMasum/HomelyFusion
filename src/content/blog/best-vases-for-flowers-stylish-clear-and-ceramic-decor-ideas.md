@@ -1,10 +1,14 @@
 ---
-title: "Best Vases for Flowers: Stylish Clear and Ceramic Decor Ideas"
-description: "Choosing the best vases for flowers adds charm and style to any room. The right vase highlights your flowers and fits your space perfectly. Flower vases come in"
+title: 'Best Vases for Flowers: Stylish Clear and Ceramic Decor Ideas'
+description: Choosing the best vases for flowers adds charm and style to any room.
+  The right vase highlights your flowers and fits your space perfectly. Flower vases
+  come in
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-vases-for-flowers-stylish-clear-and-ceramic-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-vases-for-flowers-stylish-clear-and-ceramic-decor-ideas&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best vases for flowers adds charm and style to any room. The right vase highlights your flowers and fits your space perfectly.**

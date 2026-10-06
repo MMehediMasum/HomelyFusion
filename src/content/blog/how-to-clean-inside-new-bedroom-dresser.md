@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Inside New Bedroom Dresser: Easy Steps for Freshness"
-description: "You just got a new bedroom dresser, and it looks perfect in your room. But have you thought about what’s inside? Cleaning the inside of your dresser is just as "
+title: 'How to Clean Inside New Bedroom Dresser: Easy Steps for Freshness'
+description: 'You just got a new bedroom dresser, and it looks perfect in your room.
+  But have you thought about what’s inside? Cleaning the inside of your dresser is
+  just as '
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-inside-new-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-inside-new-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **You just got a new bedroom dresser, and it looks perfect in your room. But have you thought about what’s inside?**

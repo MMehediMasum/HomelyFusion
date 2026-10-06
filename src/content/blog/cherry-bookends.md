@@ -1,10 +1,14 @@
 ---
-title: "Cherry Bookends: Stylish Wooden Supports to Organize Your Bookshelves"
-description: "Cherry bookends add charm and strength to any bookshelf. They keep books upright while enhancing room decor. Wooden cherry bookends combine natural beauty with "
+title: 'Cherry Bookends: Stylish Wooden Supports to Organize Your Bookshelves'
+description: 'Cherry bookends add charm and strength to any bookshelf. They keep books
+  upright while enhancing room decor. Wooden cherry bookends combine natural beauty
+  with '
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cherry-bookends&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Bookends
+heroImage: https://tse1.mm.bing.net/th?q=cherry-bookends&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cherry bookends add charm and strength to any bookshelf. They keep books upright while enhancing room decor.**

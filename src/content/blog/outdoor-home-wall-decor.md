@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Home Wall Decor Ideas to Transform Your Garden and Patio"
-description: "Outdoor home wall decor can transform any space into a beautiful and inviting retreat. It adds personality and charm to your home’s exterior. Whether it's a coz"
+title: Outdoor Home Wall Decor Ideas to Transform Your Garden and Patio
+description: Outdoor home wall decor can transform any space into a beautiful and
+  inviting retreat. It adds personality and charm to your home’s exterior. Whether
+  it's a coz
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Outdoor home wall decor can transform any space into a beautiful and inviting retreat. It adds personality and charm to your home’s exterior.**

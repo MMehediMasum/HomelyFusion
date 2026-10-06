@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Nightstands: Stylish Storage and Charging Solutions for Bedrooms"
-description: "Nightstands serve as essential pieces in bedroom decor, offering both functionality and style. Homegoods offers a diverse range of nightstands to suit various n"
+title: 'Homegoods Nightstands: Stylish Storage and Charging Solutions for Bedrooms'
+description: Nightstands serve as essential pieces in bedroom decor, offering both
+  functionality and style. Homegoods offers a diverse range of nightstands to suit
+  various n
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-nightstands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-nightstands&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Nightstands serve as essential pieces in bedroom decor, offering both functionality and style. Homegoods offers a diverse range of nightstands to suit various needs and preferences.**

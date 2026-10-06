@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Case Harden Mild Steel at Home: Easy DIY Techniques"
 description: "If you’ve ever wanted to make your mild steel stronger and more durable without expensive equipment, you’re in the right place. Case hardening mild steel at hom"
 pubDate: 2026-02-23

@@ -1,10 +1,13 @@
 ---
-title: "Home Wall Decorations: Stunning Ideas to Elevate Your Living Space"
-description: "Home wall decorations add personality and warmth to any room. They transform plain walls into stylish, inviting spaces. Choosing the right wall decor can bright"
+title: 'Home Wall Decorations: Stunning Ideas to Elevate Your Living Space'
+description: Home wall decorations add personality and warmth to any room. They transform
+  plain walls into stylish, inviting spaces. Choosing the right wall decor can bright
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decorations&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home wall decorations add personality and warmth to any room. They transform plain walls into stylish, inviting spaces.**

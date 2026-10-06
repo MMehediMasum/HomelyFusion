@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye Cotton Yarn at Home: Easy & Vibrant DIY Guide"
 description: "Are you ready to bring new life to your cotton yarn with vibrant colors? Dyeing cotton yarn at home is easier than you think, and it gives you full control over"
 pubDate: 2026-02-07

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Earrings at Home: Easy DIY Guide for Beginners"
 description: "Are you looking for a fun and creative way to make your own jewelry? Making clay earrings at home is easier than you think, and it lets you design unique pieces"
 pubDate: 2025-10-24

@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Stairs: Top Non-Slip, Stylish Stair Runner Picks"
-description: "Choosing the best rug for stairs improves safety and adds style to your home. The right stair rug protects steps and prevents slips effectively. Stairs get heav"
+title: 'Best Rug for Stairs: Top Non-Slip, Stylish Stair Runner Picks'
+description: Choosing the best rug for stairs improves safety and adds style to your
+  home. The right stair rug protects steps and prevents slips effectively. Stairs
+  get heav
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-stairs-top-non-slip-stylish-stair-runner-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-stairs-top-non-slip-stylish-stair-runner-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for stairs improves safety and adds style to your home. The right stair rug protects steps and prevents slips effectively.**

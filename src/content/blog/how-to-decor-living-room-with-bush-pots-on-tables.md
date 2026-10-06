@@ -1,10 +1,14 @@
 ---
-title: "How to Decor Living Room With Bush Pots on Tables: Stunning Ideas"
-description: "Are you looking for a simple way to refresh your living room without spending a fortune? Adding bush pots on your tables can bring a burst of life and color to "
+title: 'How to Decor Living Room With Bush Pots on Tables: Stunning Ideas'
+description: 'Are you looking for a simple way to refresh your living room without
+  spending a fortune? Adding bush pots on your tables can bring a burst of life and
+  color to '
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decor-living-room-with-bush-pots-on-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decor-living-room-with-bush-pots-on-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking for a simple way to refresh your living room without spending a fortune? Adding bush pots on your tables can bring a burst of life and color to your space instantly.**

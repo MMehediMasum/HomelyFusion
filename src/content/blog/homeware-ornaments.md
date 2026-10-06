@@ -1,10 +1,14 @@
 ---
-title: "Homeware Ornaments: Stylish Decorations to Elevate Your Living Space"
-description: "Homeware ornaments bring charm and personality to any space. Perfect for adding a festive or personal touch. Explore a variety of homeware ornaments designed to"
+title: 'Homeware Ornaments: Stylish Decorations to Elevate Your Living Space'
+description: Homeware ornaments bring charm and personality to any space. Perfect
+  for adding a festive or personal touch. Explore a variety of homeware ornaments
+  designed to
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homeware-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=homeware-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homeware ornaments bring charm and personality to any space. Perfect for adding a festive or personal touch.**

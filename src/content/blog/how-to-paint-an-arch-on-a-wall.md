@@ -1,10 +1,13 @@
 ---
-title: "How to Paint an Arch on a Wall: Easy Steps for Stunning Results"
-description: "Have you ever looked at a plain wall and wished it had a bit more character? Painting an arch on your wall can instantly transform your space, adding charm and "
+title: 'How to Paint an Arch on a Wall: Easy Steps for Stunning Results'
+description: 'Have you ever looked at a plain wall and wished it had a bit more character?
+  Painting an arch on your wall can instantly transform your space, adding charm and '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-an-arch-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-an-arch-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever looked at a plain wall and wished it had a bit more character? Painting an arch on your wall can instantly transform your space, adding charm and a unique touch without major renovations.**

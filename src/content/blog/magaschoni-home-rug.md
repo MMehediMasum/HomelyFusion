@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Home Rug: Stylish, Durable, and Perfect for Any Living Room"
-description: "Magaschoni Home Rugs offer stylish and practical options for any room. These rugs combine comfort, durability, and easy care. A good rug changes a room’s look i"
+title: 'Magaschoni Home Rug: Stylish, Durable, and Perfect for Any Living Room'
+description: Magaschoni Home Rugs offer stylish and practical options for any room.
+  These rugs combine comfort, durability, and easy care. A good rug changes a room’s
+  look i
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-home-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-home-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Magaschoni Home Rugs offer stylish and practical options for any room. These rugs combine comfort, durability, and easy care.**

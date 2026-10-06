@@ -1,10 +1,14 @@
 ---
-title: "What Color Should a Living Room Table Be: Expert Tips to Choose Perfect Hue"
-description: "Choosing the right color for your living room table can completely change the feel of your space. You might wonder how a simple color choice can make such a big"
+title: 'What Color Should a Living Room Table Be: Expert Tips to Choose Perfect Hue'
+description: Choosing the right color for your living room table can completely change
+  the feel of your space. You might wonder how a simple color choice can make such
+  a big
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-should-a-living-room-table-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-color-should-a-living-room-table-be&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right color for your living room table can completely change the feel of your space. You might wonder how a simple color choice can make such a big difference.**

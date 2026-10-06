@@ -1,10 +1,14 @@
 ---
-title: "Home Styling Furniture Essentials for Stylish and Functional Living Spaces"
-description: "Transform your living spaces with versatile home styling furniture. Create functional and stylish environments effortlessly. Furniture plays a crucial role in d"
+title: Home Styling Furniture Essentials for Stylish and Functional Living Spaces
+description: Transform your living spaces with versatile home styling furniture. Create
+  functional and stylish environments effortlessly. Furniture plays a crucial role
+  in d
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-styling-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-styling-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Transform your living spaces with versatile home styling furniture. Create functional and stylish environments effortlessly.**

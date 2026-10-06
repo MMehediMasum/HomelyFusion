@@ -1,10 +1,13 @@
 ---
-title: "Floor Design Ideas: Creative Gear Decals and Stylish Modern Lamps Guide"
-description: "Floor design ideas can transform your space, adding style and functionality. Discover creative ways to enhance every room. Flooring plays a crucial role in home"
+title: 'Floor Design Ideas: Creative Gear Decals and Stylish Modern Lamps Guide'
+description: Floor design ideas can transform your space, adding style and functionality.
+  Discover creative ways to enhance every room. Flooring plays a crucial role in home
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-design-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=floor-design-ideas&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor design ideas can transform your space, adding style and functionality. Discover creative ways to enhance every room.**

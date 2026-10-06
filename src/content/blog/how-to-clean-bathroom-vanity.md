@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bathroom Vanity: Quick Tips for a Sparkling Shine"
-description: "Your bathroom vanity is more than just a place to wash up—it’s a centerpiece that sets the tone for your entire bathroom. But over time, dirt, soap scum, and wa"
+title: 'How to Clean Bathroom Vanity: Quick Tips for a Sparkling Shine'
+description: Your bathroom vanity is more than just a place to wash up—it’s a centerpiece
+  that sets the tone for your entire bathroom. But over time, dirt, soap scum, and
+  wa
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to wash up—it’s a centerpiece that sets the tone for your entire bathroom. But over time, dirt, soap scum, and water stains can dull its shine and make your space feel less inviting.**

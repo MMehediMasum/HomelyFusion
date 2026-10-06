@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Shelves in Office: Creative Ideas to Inspire You"
-description: "Your office shelves are more than just storage—they’re a chance to show off your style and boost your productivity. But how do you decorate them without making "
+title: 'How to Decorate Shelves in Office: Creative Ideas to Inspire You'
+description: 'Your office shelves are more than just storage—they’re a chance to show
+  off your style and boost your productivity. But how do you decorate them without
+  making '
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-office&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your office shelves are more than just storage—they’re a chance to show off your style and boost your productivity. But how do you decorate them without making the space feel cluttered or dull?**

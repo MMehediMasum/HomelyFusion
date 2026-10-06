@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room End Tables Farmhouse: Stylish Ideas"
-description: "Your living room says a lot about who you are, and those small details can make a big difference. If you’ve been staring at your end tables wondering how to giv"
+title: 'How to Decorate Living Room End Tables Farmhouse: Stylish Ideas'
+description: Your living room says a lot about who you are, and those small details
+  can make a big difference. If you’ve been staring at your end tables wondering how
+  to giv
 pubDate: 2026-03-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-end-tables-farmhouse&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-end-tables-farmhouse&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room says a lot about who you are, and those small details can make a big difference. If you’ve been staring at your end tables wondering how to give them that warm, cozy farmhouse look, you’re in the right place.**

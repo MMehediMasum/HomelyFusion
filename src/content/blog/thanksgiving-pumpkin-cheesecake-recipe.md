@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Cheesecake Recipe: Irresistible Holiday Delight"
 description: "If you want to make your Thanksgiving celebration extra special this year, you need a dessert that everyone will love. Imagine serving a creamy, rich pumpkin ch"
 pubDate: 2025-12-20

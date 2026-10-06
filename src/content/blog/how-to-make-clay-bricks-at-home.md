@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Bricks at Home: Easy Steps for DIY Success"
 description: "Are you looking for a simple way to create strong, durable bricks right at home? Making clay bricks yourself can save you money and give you a hands-on project "
 pubDate: 2026-03-06

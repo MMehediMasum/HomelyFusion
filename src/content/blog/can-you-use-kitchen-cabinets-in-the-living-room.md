@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Kitchen Cabinets in the Living Room: Stylish Storage Ideas"
-description: "Have you ever thought about using kitchen cabinets in your living room? It might sound unusual, but this clever idea can transform your space in ways you never "
+title: 'Can You Use Kitchen Cabinets in the Living Room: Stylish Storage Ideas'
+description: 'Have you ever thought about using kitchen cabinets in your living room?
+  It might sound unusual, but this clever idea can transform your space in ways you
+  never '
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-kitchen-cabinets-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-kitchen-cabinets-in-the-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Have you ever thought about using kitchen cabinets in your living room? It might sound unusual, but this clever idea can transform your space in ways you never imagined.**

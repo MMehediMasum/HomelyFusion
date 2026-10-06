@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Art: Top Rechargeable Picture Lights with Remote Control"
-description: "Choosing the best lighting for art enhances every detail and color in your artwork. Proper lighting creates the perfect mood and draws attention to your pieces."
+title: 'Best Lighting for Art: Top Rechargeable Picture Lights with Remote Control'
+description: Choosing the best lighting for art enhances every detail and color in
+  your artwork. Proper lighting creates the perfect mood and draws attention to your
+  pieces.
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-art-top-rechargeable-picture-lights-with-remote-control&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-art-top-rechargeable-picture-lights-with-remote-control&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for art enhances every detail and color in your artwork. Proper lighting creates the perfect mood and draws attention to your pieces.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Oil Lamp at Home: Easy Steps for a Cozy Glow"
-description: "Have you ever wanted to create a warm, glowing oil lamp right at home? Making your own oil lamp is easier than you think, and it brings a cozy, charming light t"
+title: 'How to Make Oil Lamp at Home: Easy Steps for a Cozy Glow'
+description: Have you ever wanted to create a warm, glowing oil lamp right at home?
+  Making your own oil lamp is easier than you think, and it brings a cozy, charming
+  light t
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-oil-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-oil-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted to create a warm, glowing oil lamp right at home? Making your own oil lamp is easier than you think, and it brings a cozy, charming light to any room.**

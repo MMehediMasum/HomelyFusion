@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Desks for Home Office: Top Picks for Productivity"
-description: "Looking for the perfect desk to boost your home office productivity? You want a space that feels comfortable, organized, and inspires focus. But with so many op"
+title: 'Where to Buy Desks for Home Office: Top Picks for Productivity'
+description: Looking for the perfect desk to boost your home office productivity?
+  You want a space that feels comfortable, organized, and inspires focus. But with
+  so many op
 pubDate: 2025-08-31
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-desks-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-desks-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Looking for the perfect desk to boost your home office productivity? You want a space that feels comfortable, organized, and inspires focus.**

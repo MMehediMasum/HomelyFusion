@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ashley Furniture Lexington SC: Top Sofas for Stylish Living Room Comfort"
 description: "Ashley Furniture in Lexington, SC, offers a wide array of stylish and comfortable sofas for every living room. The selection includes options from classic leath"
 pubDate: 2025-10-15

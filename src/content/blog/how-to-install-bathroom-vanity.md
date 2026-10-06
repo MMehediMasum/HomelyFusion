@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity: Easy Steps for a Perfect Upgrade"
-description: "Are you ready to transform your bathroom with a brand-new vanity but worried it might be too complicated? Installing a bathroom vanity yourself can save you tim"
+title: 'How to Install Bathroom Vanity: Easy Steps for a Perfect Upgrade'
+description: Are you ready to transform your bathroom with a brand-new vanity but
+  worried it might be too complicated? Installing a bathroom vanity yourself can save
+  you tim
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom with a brand-new vanity but worried it might be too complicated? Installing a bathroom vanity yourself can save you time and money, and it’s easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "Nautica Nightstand Homegoods: Stylish Storage Solutions for Modern Bedrooms"
-description: "The Nautica Nightstand at Homegoods combines functionality with style, offering practical storage solutions for any room. Its modern design fits seamlessly into"
+title: 'Nautica Nightstand Homegoods: Stylish Storage Solutions for Modern Bedrooms'
+description: The Nautica Nightstand at Homegoods combines functionality with style,
+  offering practical storage solutions for any room. Its modern design fits seamlessly
+  into
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-nightstand-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=nautica-nightstand-homegoods&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **The Nautica Nightstand at Homegoods combines functionality with style, offering practical storage solutions for any room. Its modern design fits seamlessly into various decor themes.**

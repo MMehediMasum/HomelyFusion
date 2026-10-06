@@ -1,10 +1,14 @@
 ---
-title: "Contemporary Home Accents: Stunning Modern Sculptures and Wall Art Ideas"
-description: "Contemporary home accents bring style and personality to any living space. They add charm without clutter, blending art and function seamlessly. Choosing the ri"
+title: 'Contemporary Home Accents: Stunning Modern Sculptures and Wall Art Ideas'
+description: Contemporary home accents bring style and personality to any living space.
+  They add charm without clutter, blending art and function seamlessly. Choosing the
+  ri
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=contemporary-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=contemporary-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Contemporary home accents bring style and personality to any living space. They add charm without clutter, blending art and function seamlessly.**

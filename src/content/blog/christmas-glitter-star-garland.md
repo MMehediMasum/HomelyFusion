@@ -1,10 +1,14 @@
 ---
-title: "Christmas Glitter Star Garland: Sparkle Up Your Holiday Decor"
-description: "Are you looking to add a sparkling touch to your holiday decorations this year? A Christmas Glitter Star Garland might be just what you need. Imagine your home "
+title: 'Christmas Glitter Star Garland: Sparkle Up Your Holiday Decor'
+description: 'Are you looking to add a sparkling touch to your holiday decorations
+  this year? A Christmas Glitter Star Garland might be just what you need. Imagine
+  your home '
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-glitter-star-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-glitter-star-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a sparkling touch to your holiday decorations this year? A Christmas Glitter Star Garland might be just what you need.**

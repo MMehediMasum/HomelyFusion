@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Round Dining Table: Stunning Ideas to Impress"
-description: "Your round dining table is more than just a place to eat—it’s where memories are made, conversations flow, and style shines. But decorating it can feel tricky. "
+title: 'How to Decorate a Round Dining Table: Stunning Ideas to Impress'
+description: 'Your round dining table is more than just a place to eat—it’s where
+  memories are made, conversations flow, and style shines. But decorating it can feel
+  tricky. '
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-round-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-round-dining-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your round dining table is more than just a place to eat—it’s where memories are made, conversations flow, and style shines. But decorating it can feel tricky.**

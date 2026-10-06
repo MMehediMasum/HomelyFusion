@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Accent Tables: Stylish Solutions for Small Spaces and Storage"
-description: "Accent tables can transform any room, adding style and functionality to small spaces. These versatile pieces serve multiple purposes. From rustic wood to sleek "
+title: 'Home Goods Accent Tables: Stylish Solutions for Small Spaces and Storage'
+description: 'Accent tables can transform any room, adding style and functionality
+  to small spaces. These versatile pieces serve multiple purposes. From rustic wood
+  to sleek '
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-accent-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-accent-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Accent tables can transform any room, adding style and functionality to small spaces. These versatile pieces serve multiple purposes.**

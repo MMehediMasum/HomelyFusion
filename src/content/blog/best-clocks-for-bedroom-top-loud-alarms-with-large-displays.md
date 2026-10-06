@@ -1,10 +1,14 @@
 ---
-title: "Best Clocks for Bedroom: Top Loud Alarms with Large Displays"
-description: "Choosing the best clock for your bedroom helps you wake up on time and adds style to your space. A good clock should be easy to read, loud enough, and fit your "
+title: 'Best Clocks for Bedroom: Top Loud Alarms with Large Displays'
+description: 'Choosing the best clock for your bedroom helps you wake up on time and
+  adds style to your space. A good clock should be easy to read, loud enough, and
+  fit your '
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-clocks-for-bedroom-top-loud-alarms-with-large-displays&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=best-clocks-for-bedroom-top-loud-alarms-with-large-displays&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best clock for your bedroom helps you wake up on time and adds style to your space. A good clock should be easy to read, loud enough, and fit your room’s look.**

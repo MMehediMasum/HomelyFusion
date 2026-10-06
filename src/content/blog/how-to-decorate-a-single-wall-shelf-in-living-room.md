@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Single Wall Shelf in Living Room: Stunning Ideas"
-description: "Looking at that single wall shelf in your living room, do you ever wonder how to make it stand out? You want it to catch the eye, reflect your style, and add wa"
+title: 'How to Decorate a Single Wall Shelf in Living Room: Stunning Ideas'
+description: Looking at that single wall shelf in your living room, do you ever wonder
+  how to make it stand out? You want it to catch the eye, reflect your style, and
+  add wa
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-single-wall-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-single-wall-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking at that single wall shelf in your living room, do you ever wonder how to make it stand out? You want it to catch the eye, reflect your style, and add warmth to your space—but where do you start?**

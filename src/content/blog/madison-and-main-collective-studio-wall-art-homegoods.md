@@ -1,10 +1,14 @@
 ---
-title: "Madison And Main Collective Studio Wall Art Homegoods: Stylish Decor Ideas"
-description: "Discover a world of artistic inspiration with Madison and Main Collective Studio's wall art homegoods. These pieces transform spaces with elegance and style. Ma"
+title: 'Madison And Main Collective Studio Wall Art Homegoods: Stylish Decor Ideas'
+description: Discover a world of artistic inspiration with Madison and Main Collective
+  Studio's wall art homegoods. These pieces transform spaces with elegance and style.
+  Ma
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=madison-and-main-collective-studio-wall-art-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=madison-and-main-collective-studio-wall-art-homegoods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover a world of artistic inspiration with Madison and Main Collective Studio's wall art homegoods. These pieces transform spaces with elegance and style.**

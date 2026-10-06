@@ -1,10 +1,14 @@
 ---
-title: "Floor Tile Store: Top Durable and Stylish Tiles for Every Room"
-description: "Floor Tile Store offers a wide range of tiles for every space. Discover stylish options that suit your needs. Finding the right floor tiles can transform any sp"
+title: 'Floor Tile Store: Top Durable and Stylish Tiles for Every Room'
+description: Floor Tile Store offers a wide range of tiles for every space. Discover
+  stylish options that suit your needs. Finding the right floor tiles can transform
+  any sp
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-tile-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-tile-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Tile Store offers a wide range of tiles for every space. Discover stylish options that suit your needs.**

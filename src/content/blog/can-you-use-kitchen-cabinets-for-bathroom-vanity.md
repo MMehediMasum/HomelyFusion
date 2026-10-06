@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Kitchen Cabinets for Bathroom Vanity? Smart Ideas!"
-description: "Are you thinking about upgrading your bathroom but don’t want to spend a fortune on a new vanity? What if you could use kitchen cabinets instead? It might sound"
+title: Can You Use Kitchen Cabinets for Bathroom Vanity? Smart Ideas!
+description: Are you thinking about upgrading your bathroom but don’t want to spend
+  a fortune on a new vanity? What if you could use kitchen cabinets instead? It might
+  sound
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-kitchen-cabinets-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-kitchen-cabinets-for-bathroom-vanity&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you thinking about upgrading your bathroom but don’t want to spend a fortune on a new vanity? What if you could use kitchen cabinets instead?**

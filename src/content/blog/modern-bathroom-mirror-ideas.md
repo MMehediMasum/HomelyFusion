@@ -1,10 +1,14 @@
 ---
-title: "Modern Bathroom Mirror Ideas: Stunning Designs to Transform Your Space"
-description: "Your bathroom mirror does more than just reflect—you deserve one that adds style and function to your space. Imagine stepping into your bathroom and instantly f"
+title: 'Modern Bathroom Mirror Ideas: Stunning Designs to Transform Your Space'
+description: Your bathroom mirror does more than just reflect—you deserve one that
+  adds style and function to your space. Imagine stepping into your bathroom and instantly
+  f
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=modern-bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bathroom mirror does more than just reflect—you deserve one that adds style and function to your space. Imagine stepping into your bathroom and instantly feeling a fresh, modern vibe that lifts your mood every day.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "When Do Bed Bugs Spread from Bedroom: Warning Signs & Prevention Tips"
 description: "Are you waking up with itchy red bites and wondering if bed bugs have started to spread beyond your bedroom? Knowing exactly when bed bugs move from your bedroo"
 pubDate: 2026-05-12

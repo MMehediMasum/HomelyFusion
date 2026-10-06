@@ -1,10 +1,14 @@
 ---
-title: "How to Decor Living Room Table: Stunning Ideas for a Chic Space"
-description: "Your living room table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can change the entire vibe of the room. But wher"
+title: 'How to Decor Living Room Table: Stunning Ideas for a Chic Space'
+description: Your living room table is more than just a piece of furniture—it’s the
+  heart of your space. How you decorate it can change the entire vibe of the room.
+  But wher
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decor-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decor-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can change the entire vibe of the room.**

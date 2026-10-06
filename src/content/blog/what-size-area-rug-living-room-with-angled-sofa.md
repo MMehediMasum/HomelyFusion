@@ -1,10 +1,13 @@
 ---
-title: "What Size Area Rug Living Room With Angled Sofa: Ultimate Guide"
-description: "Choosing the perfect area rug size for your living room can feel tricky, especially when your sofa is angled. You want your space to look balanced and inviting,"
+title: 'What Size Area Rug Living Room With Angled Sofa: Ultimate Guide'
+description: Choosing the perfect area rug size for your living room can feel tricky,
+  especially when your sofa is angled. You want your space to look balanced and inviting,
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-area-rug-living-room-with-angled-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-area-rug-living-room-with-angled-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect area rug size for your living room can feel tricky, especially when your sofa is angled. You want your space to look balanced and inviting, not cramped or awkward.**

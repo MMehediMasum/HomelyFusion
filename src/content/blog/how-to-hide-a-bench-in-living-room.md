@@ -1,10 +1,14 @@
 ---
-title: "How to Hide a Bench in Living Room: Clever & Stylish Ideas"
-description: "Do you have a bench in your living room that takes up too much space or doesn’t quite match your style? You’re not alone. Finding ways to hide or cleverly blend"
+title: 'How to Hide a Bench in Living Room: Clever & Stylish Ideas'
+description: Do you have a bench in your living room that takes up too much space
+  or doesn’t quite match your style? You’re not alone. Finding ways to hide or cleverly
+  blend
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-a-bench-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-a-bench-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Do you have a bench in your living room that takes up too much space or doesn’t quite match your style? You’re not alone.**

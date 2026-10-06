@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Georgia: Top Unique Home Decor Finds for Every Room"
 description: "Discover a world of home decor in Georgia with unique and artistic pieces. Explore the charm of Georgia's decor offerings. Georgia offers a diverse range of dec"
 pubDate: 2026-06-20

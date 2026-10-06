@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Corner in Living Room: Stunning Ideas That Inspire"
-description: "Is there a corner in your living room that feels empty or overlooked? You’re not alone. Many people struggle with how to make these small spaces feel inviting a"
+title: 'How to Decorate a Corner in Living Room: Stunning Ideas That Inspire'
+description: Is there a corner in your living room that feels empty or overlooked?
+  You’re not alone. Many people struggle with how to make these small spaces feel
+  inviting a
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-corner-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-corner-in-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Is there a corner in your living room that feels empty or overlooked? You’re not alone.**

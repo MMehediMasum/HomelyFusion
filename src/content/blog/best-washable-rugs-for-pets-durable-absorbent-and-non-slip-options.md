@@ -1,10 +1,14 @@
 ---
-title: "Best Washable Rugs for Pets: Durable, Absorbent, and Non-Slip Options"
-description: "Finding the best washable rugs for pets helps keep your home clean and fresh. These rugs absorb moisture, dirt, and pet accidents with ease. Pets often bring me"
+title: 'Best Washable Rugs for Pets: Durable, Absorbent, and Non-Slip Options'
+description: Finding the best washable rugs for pets helps keep your home clean and
+  fresh. These rugs absorb moisture, dirt, and pet accidents with ease. Pets often
+  bring me
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-washable-rugs-for-pets-durable-absorbent-and-non-slip-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-washable-rugs-for-pets-durable-absorbent-and-non-slip-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best washable rugs for pets helps keep your home clean and fresh. These rugs absorb moisture, dirt, and pet accidents with ease.**

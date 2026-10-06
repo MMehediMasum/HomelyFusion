@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What is Feng Shui Rule for Bedroom Bed: Ultimate Guide to Harmony"
 description: "Are you looking to create a bedroom that feels calm, balanced, and inviting? The Feng Shui rule for your bedroom bed could be the key to transforming your space"
 pubDate: 2026-05-11

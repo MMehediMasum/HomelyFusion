@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Restaurant Depot Salt Lake City Reviews: Top Picks for Bulk Salt & More"
 description: "Restaurant Depot in Salt Lake City offers a diverse range of products for food industry professionals. From bulk kosher sea salt to Lawry's seasoned salt, this "
 pubDate: 2026-08-02

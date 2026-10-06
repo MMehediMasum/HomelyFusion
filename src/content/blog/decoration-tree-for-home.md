@@ -1,10 +1,14 @@
 ---
-title: "Decoration Tree for Home: Stunning Lighted Trees to Brighten Any Space"
-description: "Creating a cozy and stylish home is easier with decorative trees. They add charm and elegance to any space. Decorative trees are versatile and enhance the ambia"
+title: 'Decoration Tree for Home: Stunning Lighted Trees to Brighten Any Space'
+description: Creating a cozy and stylish home is easier with decorative trees. They
+  add charm and elegance to any space. Decorative trees are versatile and enhance
+  the ambia
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decoration-tree-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=decoration-tree-for-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating a cozy and stylish home is easier with decorative trees. They add charm and elegance to any space.**

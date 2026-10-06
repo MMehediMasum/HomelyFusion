@@ -1,10 +1,14 @@
 ---
-title: "How to Design a Living Room Without a Sofa: Creative Ideas Revealed"
-description: "Imagine stepping into your living room and feeling completely relaxed, even without a sofa taking up space. You might think a sofa is a must-have, but what if y"
+title: 'How to Design a Living Room Without a Sofa: Creative Ideas Revealed'
+description: Imagine stepping into your living room and feeling completely relaxed,
+  even without a sofa taking up space. You might think a sofa is a must-have, but
+  what if y
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-a-living-room-without-a-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-a-living-room-without-a-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine stepping into your living room and feeling completely relaxed, even without a sofa taking up space. You might think a sofa is a must-have, but what if you could create a cozy, stylish, and functional living area without one?**

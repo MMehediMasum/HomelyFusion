@@ -1,10 +1,14 @@
 ---
-title: "Home Cinema Wall Decor Ideas to Elevate Your Movie Night Experience"
-description: "Home cinema wall decor adds style and personality to your movie-watching space. It creates a cozy and inviting atmosphere for every film lover. Decorating your "
+title: Home Cinema Wall Decor Ideas to Elevate Your Movie Night Experience
+description: 'Home cinema wall decor adds style and personality to your movie-watching
+  space. It creates a cozy and inviting atmosphere for every film lover. Decorating
+  your '
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-cinema-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-cinema-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home cinema wall decor adds style and personality to your movie-watching space. It creates a cozy and inviting atmosphere for every film lover.**

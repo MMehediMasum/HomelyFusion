@@ -1,10 +1,14 @@
 ---
-title: "Easter Dyed Egg Garland DIY: Stunning Spring Decor Ideas"
-description: "Looking for a fun and colorful way to brighten up your home this Easter? You’re in the right place. Creating your own Easter dyed egg garland DIY is not only si"
+title: 'Easter Dyed Egg Garland DIY: Stunning Spring Decor Ideas'
+description: Looking for a fun and colorful way to brighten up your home this Easter?
+  You’re in the right place. Creating your own Easter dyed egg garland DIY is not
+  only si
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-dyed-egg-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-dyed-egg-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fun and colorful way to brighten up your home this Easter? You’re in the right place.**

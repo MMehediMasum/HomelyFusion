@@ -1,10 +1,14 @@
 ---
-title: "Laura Ashley Table Cloth: Elegant Designs for Every Occasion"
-description: "Laura Ashley tablecloths blend style and function for any dining occasion. Their quality fabrics and elegant designs suit formal and casual settings alike. Thes"
+title: 'Laura Ashley Table Cloth: Elegant Designs for Every Occasion'
+description: Laura Ashley tablecloths blend style and function for any dining occasion.
+  Their quality fabrics and elegant designs suit formal and casual settings alike.
+  Thes
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=laura-ashley-table-cloth&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=laura-ashley-table-cloth&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Laura Ashley tablecloths blend style and function for any dining occasion. Their quality fabrics and elegant designs suit formal and casual settings alike.**

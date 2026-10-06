@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Diesel Fuel Be Used As Home Heating Oil: Essential Facts Revealed"
 description: "Are you wondering if you can use diesel fuel to heat your home? It’s a question many homeowners ask, especially when faced with high heating costs or supply sho"
 pubDate: 2026-04-13

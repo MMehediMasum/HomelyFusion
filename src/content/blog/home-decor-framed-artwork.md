@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Framed Artwork: Stylish Canvas Prints to Elevate Any Room"
-description: "Framed artwork adds a personal touch to any home decor. It transforms spaces with color, style, and personality. Enhancing your living space with framed artwork"
+title: 'Home Decor Framed Artwork: Stylish Canvas Prints to Elevate Any Room'
+description: Framed artwork adds a personal touch to any home decor. It transforms
+  spaces with color, style, and personality. Enhancing your living space with framed
+  artwork
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-framed-artwork&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-framed-artwork&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Framed artwork adds a personal touch to any home decor. It transforms spaces with color, style, and personality.**

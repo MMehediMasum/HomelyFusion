@@ -1,10 +1,14 @@
 ---
-title: "Best Full Length Mirror for Bedroom: Stylish, Sturdy, and Space-Saving Picks"
-description: "A full length mirror adds style and function to any bedroom. It helps you check your outfit from head to toe with ease. Choosing the best full length mirror mea"
+title: 'Best Full Length Mirror for Bedroom: Stylish, Sturdy, and Space-Saving Picks'
+description: A full length mirror adds style and function to any bedroom. It helps
+  you check your outfit from head to toe with ease. Choosing the best full length
+  mirror mea
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-full-length-mirror-for-bedroom-stylish-sturdy-and-space-saving-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=best-full-length-mirror-for-bedroom-stylish-sturdy-and-space-saving-picks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A full length mirror adds style and function to any bedroom. It helps you check your outfit from head to toe with ease.**

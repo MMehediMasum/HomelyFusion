@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Cheese Fondue Recipe: Irresistible & Cozy Winter Delight"
 description: "Imagine gathering around a warm, bubbling pot of melted cheese with your closest friends and family. This Holiday Cheese Fondue Recipe is your ticket to creatin"
 pubDate: 2026-01-15

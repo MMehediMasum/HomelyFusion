@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Pillow Shams: Stylish Comfort for Elegant Bedroom Decor"
-description: "Nicole Miller pillow shams add style and comfort to any bedroom. These shams come in various designs and quality fabrics. Pillow shams protect pillows and enhan"
+title: 'Nicole Miller Pillow Shams: Stylish Comfort for Elegant Bedroom Decor'
+description: Nicole Miller pillow shams add style and comfort to any bedroom. These
+  shams come in various designs and quality fabrics. Pillow shams protect pillows
+  and enhan
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-pillow-shams&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-pillow-shams&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Nicole Miller pillow shams add style and comfort to any bedroom. These shams come in various designs and quality fabrics.**

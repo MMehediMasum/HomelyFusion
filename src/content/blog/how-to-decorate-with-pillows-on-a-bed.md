@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate With Pillows on a Bed: Stylish Tips for Cozy Elegance"
-description: "Are you looking to transform your bedroom into a cozy, stylish retreat without spending a fortune? Decorating your bed with pillows is one of the easiest and mo"
+title: 'How to Decorate With Pillows on a Bed: Stylish Tips for Cozy Elegance'
+description: Are you looking to transform your bedroom into a cozy, stylish retreat
+  without spending a fortune? Decorating your bed with pillows is one of the easiest
+  and mo
 pubDate: 2025-09-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-pillows-on-a-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-pillows-on-a-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to transform your bedroom into a cozy, stylish retreat without spending a fortune? Decorating your bed with pillows is one of the easiest and most effective ways to do just that.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Clothing at Home: Easy Tips for Soft, Fresh Wool"
 description: "Wool clothing feels soft and warm, but cleaning it can be tricky. If you’ve ever worried about shrinking or damaging your favorite wool sweater, you’re not alon"
 pubDate: 2026-03-19

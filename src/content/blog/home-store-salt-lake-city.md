@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Store Salt Lake City: Unique Souvenirs and Modern Wall Art Ideas"
 description: "Discover unique Salt Lake City souvenirs and decor pieces at our home store. Perfect for locals and visitors alike. Salt Lake City is a treasure trove of unique"
 pubDate: 2026-07-26

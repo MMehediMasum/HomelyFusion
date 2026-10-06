@@ -1,10 +1,14 @@
 ---
-title: "Fall Table Runner Centerpiece Ideas: Stunning Designs to Wow Guests"
-description: "Are you ready to transform your dining table into a cozy autumn haven? Your fall table runner is more than just a piece of fabric—it’s the perfect canvas to cre"
+title: 'Fall Table Runner Centerpiece Ideas: Stunning Designs to Wow Guests'
+description: Are you ready to transform your dining table into a cozy autumn haven?
+  Your fall table runner is more than just a piece of fabric—it’s the perfect canvas
+  to cre
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-table-runner-centerpiece-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-table-runner-centerpiece-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your dining table into a cozy autumn haven? Your fall table runner is more than just a piece of fabric—it’s the perfect canvas to create a stunning centerpiece that brings warmth and charm to every meal.**

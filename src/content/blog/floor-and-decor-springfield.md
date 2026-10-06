@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Springfield: Stylish Retro Mid Century Floor Lamp Review"
-description: "Discover the charm of the JBNJANKDAV Retro Mid Century Floor Lamp in Springfield. This stylish floor lamp enhances any room's decor effortlessly. This floor lam"
+title: 'Floor And Decor Springfield: Stylish Retro Mid Century Floor Lamp Review'
+description: Discover the charm of the JBNJANKDAV Retro Mid Century Floor Lamp in
+  Springfield. This stylish floor lamp enhances any room's decor effortlessly. This
+  floor lam
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-springfield&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-springfield&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the charm of the JBNJANKDAV Retro Mid Century Floor Lamp in Springfield. This stylish floor lamp enhances any room's decor effortlessly.**

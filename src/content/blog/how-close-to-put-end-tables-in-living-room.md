@@ -1,10 +1,14 @@
 ---
-title: "How Close to Put End Tables in Living Room: Expert Spacing Tips"
-description: "Have you ever wondered how close to place end tables in your living room for the perfect balance of style and function? Getting this just right can transform yo"
+title: 'How Close to Put End Tables in Living Room: Expert Spacing Tips'
+description: Have you ever wondered how close to place end tables in your living room
+  for the perfect balance of style and function? Getting this just right can transform
+  yo
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-close-to-put-end-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-close-to-put-end-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how close to place end tables in your living room for the perfect balance of style and function? Getting this just right can transform your space from cluttered to cozy, making every moment more enjoyable.**

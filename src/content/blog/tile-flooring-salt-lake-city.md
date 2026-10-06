@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Tile Flooring Salt Lake City: Stylish Peel & Stick Tiles for Every Room"
 description: "Tile flooring in Salt Lake City offers a durable and stylish option for homes and offices. It fits well with various designs and stands up to daily use. FloorPo"
 pubDate: 2026-08-04

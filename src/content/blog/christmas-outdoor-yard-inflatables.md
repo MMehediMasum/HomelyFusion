@@ -1,10 +1,14 @@
 ---
-title: "Christmas Outdoor Yard Inflatables: Stunning Decor Ideas to Wow Neighbors"
-description: "Imagine turning your yard into the most magical spot on the block this Christmas. With Christmas outdoor yard inflatables, you can create a festive display that"
+title: 'Christmas Outdoor Yard Inflatables: Stunning Decor Ideas to Wow Neighbors'
+description: Imagine turning your yard into the most magical spot on the block this
+  Christmas. With Christmas outdoor yard inflatables, you can create a festive display
+  that
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-outdoor-yard-inflatables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-outdoor-yard-inflatables&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine turning your yard into the most magical spot on the block this Christmas. With Christmas outdoor yard inflatables, you can create a festive display that grabs attention and spreads holiday cheer.**

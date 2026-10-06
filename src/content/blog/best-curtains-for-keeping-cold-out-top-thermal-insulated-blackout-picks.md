@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Keeping Cold Out: Top Thermal Insulated Blackout Picks"
-description: "Cold air sneaks in through windows and makes rooms chilly. Choosing the best curtains helps keep the cold out and saves energy. Good curtains block drafts and a"
+title: 'Best Curtains for Keeping Cold Out: Top Thermal Insulated Blackout Picks'
+description: Cold air sneaks in through windows and makes rooms chilly. Choosing the
+  best curtains helps keep the cold out and saves energy. Good curtains block drafts
+  and a
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-keeping-cold-out-top-thermal-insulated-blackout-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-keeping-cold-out-top-thermal-insulated-blackout-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Cold air sneaks in through windows and makes rooms chilly. Choosing the best curtains helps keep the cold out and saves energy.**

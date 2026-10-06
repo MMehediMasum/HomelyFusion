@@ -1,10 +1,14 @@
 ---
-title: "How to Design an Accent Wall: Stunning Ideas to Transform Your Space"
-description: "Are you looking to transform your space without a complete makeover? Designing an accent wall might be exactly what you need. It’s a simple way to add personali"
+title: 'How to Design an Accent Wall: Stunning Ideas to Transform Your Space'
+description: Are you looking to transform your space without a complete makeover?
+  Designing an accent wall might be exactly what you need. It’s a simple way to add
+  personali
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-an-accent-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-an-accent-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space without a complete makeover? Designing an accent wall might be exactly what you need.**

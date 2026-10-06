@@ -1,10 +1,14 @@
 ---
-title: "How Do You Stage a Living Room Table: Expert Tips to Impress Guests"
-description: "Are you wondering how to make your living room table the centerpiece that catches everyone’s eye? Staging your living room table the right way can transform the"
+title: 'How Do You Stage a Living Room Table: Expert Tips to Impress Guests'
+description: Are you wondering how to make your living room table the centerpiece
+  that catches everyone’s eye? Staging your living room table the right way can transform
+  the
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-stage-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-stage-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room table the centerpiece that catches everyone’s eye? Staging your living room table the right way can transform the entire space, making it feel inviting, stylish, and perfectly balanced.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Iron Bed: Stunning Style Ideas"
-description: "Your bedroom is more than just a place to sleep—it’s your personal retreat. If you have an iron bed, you already own a piece full of charm and character. But ho"
+title: 'How to Decorate Bedroom With Iron Bed: Stunning Style Ideas'
+description: Your bedroom is more than just a place to sleep—it’s your personal retreat.
+  If you have an iron bed, you already own a piece full of charm and character. But
+  ho
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-iron-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-iron-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom is more than just a place to sleep—it’s your personal retreat. If you have an iron bed, you already own a piece full of charm and character.**

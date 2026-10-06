@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Water Damaged Bathroom Vanity: Easy DIY Solutions"
-description: "Is your bathroom vanity showing signs of water damage? You’re not alone, and the good news is that you don’t have to replace it just yet. Water damage can cause"
+title: 'How to Fix Water Damaged Bathroom Vanity: Easy DIY Solutions'
+description: Is your bathroom vanity showing signs of water damage? You’re not alone,
+  and the good news is that you don’t have to replace it just yet. Water damage can
+  cause
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-water-damaged-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-water-damaged-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity showing signs of water damage? You’re not alone, and the good news is that you don’t have to replace it just yet.**

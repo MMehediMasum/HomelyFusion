@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Mirror: Easy Steps for a Perfect Finish"
-description: "Are you ready to give your bathroom a fresh, stylish upgrade? Installing a bathroom mirror is one of the easiest and most effective ways to transform your space"
+title: 'How to Install Bathroom Mirror: Easy Steps for a Perfect Finish'
+description: Are you ready to give your bathroom a fresh, stylish upgrade? Installing
+  a bathroom mirror is one of the easiest and most effective ways to transform your
+  space
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your bathroom a fresh, stylish upgrade? Installing a bathroom mirror is one of the easiest and most effective ways to transform your space.**

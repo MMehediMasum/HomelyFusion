@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Two Sofas: Stylish Tips Revealed"
-description: "Are you wondering how to make the most of your living room with two sofas? Whether you have a spacious area or a cozy corner, arranging two sofas can transform "
+title: 'How to Decorate a Living Room With Two Sofas: Stylish Tips Revealed'
+description: 'Are you wondering how to make the most of your living room with two
+  sofas? Whether you have a spacious area or a cozy corner, arranging two sofas can
+  transform '
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-two-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-two-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make the most of your living room with two sofas? Whether you have a spacious area or a cozy corner, arranging two sofas can transform your space into a stylish and inviting place.**

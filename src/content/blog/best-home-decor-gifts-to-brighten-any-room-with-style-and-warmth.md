@@ -1,10 +1,14 @@
 ---
-title: "Best Home Decor Gifts to Brighten Any Room with Style and Warmth"
-description: "Home decor gifts add warmth and style to any living space. They make thoughtful presents for birthdays, housewarmings, or special occasions. Choosing the best h"
+title: Best Home Decor Gifts to Brighten Any Room with Style and Warmth
+description: Home decor gifts add warmth and style to any living space. They make
+  thoughtful presents for birthdays, housewarmings, or special occasions. Choosing
+  the best h
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-home-decor-gifts-to-brighten-any-room-with-style-and-warmth&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=best-home-decor-gifts-to-brighten-any-room-with-style-and-warmth&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor gifts add warmth and style to any living space. They make thoughtful presents for birthdays, housewarmings, or special occasions.**

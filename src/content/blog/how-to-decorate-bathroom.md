@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bathroom: Stunning Ideas for a Stylish Makeover"
-description: "Your bathroom is more than just a place to get ready—it’s your personal retreat. But if it feels dull or cramped, it can be hard to relax or enjoy your time the"
+title: 'How to Decorate Bathroom: Stunning Ideas for a Stylish Makeover'
+description: Your bathroom is more than just a place to get ready—it’s your personal
+  retreat. But if it feels dull or cramped, it can be hard to relax or enjoy your
+  time the
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom is more than just a place to get ready—it’s your personal retreat. But if it feels dull or cramped, it can be hard to relax or enjoy your time there.**

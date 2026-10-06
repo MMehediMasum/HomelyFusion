@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Cabinet: Easy Steps for a Stunning Upgrade"
-description: "Are you ready to upgrade your bathroom and add more storage space? Installing a bathroom cabinet can make your space look neat and organized, while giving you e"
+title: 'How to Install Bathroom Cabinet: Easy Steps for a Stunning Upgrade'
+description: Are you ready to upgrade your bathroom and add more storage space? Installing
+  a bathroom cabinet can make your space look neat and organized, while giving you
+  e
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to upgrade your bathroom and add more storage space? Installing a bathroom cabinet can make your space look neat and organized, while giving you easy access to your essentials.**

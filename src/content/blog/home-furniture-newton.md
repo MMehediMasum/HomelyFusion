@@ -1,10 +1,14 @@
 ---
-title: "Home Furniture Newton: Stylish Counter Stools, Nightstands & Recliners Guide"
-description: "Home Furniture Newton offers versatile pieces for every home. From stools to nightstands, find functional and stylish options here. Explore a wide range of furn"
+title: 'Home Furniture Newton: Stylish Counter Stools, Nightstands & Recliners Guide'
+description: Home Furniture Newton offers versatile pieces for every home. From stools
+  to nightstands, find functional and stylish options here. Explore a wide range of
+  furn
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-newton&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-newton&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Furniture Newton offers versatile pieces for every home. From stools to nightstands, find functional and stylish options here.**

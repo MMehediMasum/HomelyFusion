@@ -1,10 +1,14 @@
 ---
-title: "Coffee Tables Home Goods: Stylish Storage Solutions for Every Living Room"
-description: "Coffee tables add style and function to any living space. Home Goods offers many options to fit different needs and tastes. Choosing the right coffee table can "
+title: 'Coffee Tables Home Goods: Stylish Storage Solutions for Every Living Room'
+description: 'Coffee tables add style and function to any living space. Home Goods
+  offers many options to fit different needs and tastes. Choosing the right coffee
+  table can '
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coffee-tables-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=coffee-tables-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Coffee tables add style and function to any living space. Home Goods offers many options to fit different needs and tastes.**

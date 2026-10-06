@@ -1,10 +1,14 @@
 ---
-title: "How to Make Play Clay at Home: Easy, Fun, and Safe Recipe"
-description: "Looking for a fun and easy way to keep your kids entertained? Making play clay at home is a fantastic idea that you can try right now. Not only is it simple and"
+title: 'How to Make Play Clay at Home: Easy, Fun, and Safe Recipe'
+description: Looking for a fun and easy way to keep your kids entertained? Making
+  play clay at home is a fantastic idea that you can try right now. Not only is it
+  simple and
 pubDate: 2026-02-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-play-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-play-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking for a fun and easy way to keep your kids entertained? Making play clay at home is a fantastic idea that you can try right now.**

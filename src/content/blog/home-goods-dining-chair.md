@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Dining Chair: Top Stylish and Comfortable Picks for Your Kitchen"
-description: "Dining chairs shape the look and comfort of your home dining space. Choosing the right chair blends style, comfort, and durability. This blog post explores popu"
+title: 'Home Goods Dining Chair: Top Stylish and Comfortable Picks for Your Kitchen'
+description: Dining chairs shape the look and comfort of your home dining space. Choosing
+  the right chair blends style, comfort, and durability. This blog post explores popu
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-dining-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-dining-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Dining chairs shape the look and comfort of your home dining space. Choosing the right chair blends style, comfort, and durability.**

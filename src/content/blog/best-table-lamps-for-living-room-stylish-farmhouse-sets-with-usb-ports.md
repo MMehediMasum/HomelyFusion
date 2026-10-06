@@ -1,10 +1,14 @@
 ---
-title: "Best Table Lamps for Living Room: Stylish Farmhouse Sets with USB Ports"
-description: "Choosing the best table lamps for your living room can brighten your space and add style. The right lamp balances light, design, and function. Table lamps creat"
+title: 'Best Table Lamps for Living Room: Stylish Farmhouse Sets with USB Ports'
+description: Choosing the best table lamps for your living room can brighten your
+  space and add style. The right lamp balances light, design, and function. Table
+  lamps creat
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-table-lamps-for-living-room-stylish-farmhouse-sets-with-usb-ports&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-table-lamps-for-living-room-stylish-farmhouse-sets-with-usb-ports&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best table lamps for your living room can brighten your space and add style. The right lamp balances light, design, and function.**

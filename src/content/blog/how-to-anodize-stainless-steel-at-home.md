@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Anodize Stainless Steel at Home: Easy DIY Guide"
 description: "Have you ever wanted to give your stainless steel items a unique, colorful, and durable finish without spending a fortune? Imagine transforming your plain steel"
 pubDate: 2026-03-29

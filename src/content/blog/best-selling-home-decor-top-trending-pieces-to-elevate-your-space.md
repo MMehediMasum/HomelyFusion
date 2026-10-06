@@ -1,10 +1,14 @@
 ---
-title: "Best Selling Home Decor: Top Trending Pieces to Elevate Your Space"
-description: "Best selling home decor items bring style and comfort to any space. These popular pieces suit various tastes and room types. Home decor shapes the mood and look"
+title: 'Best Selling Home Decor: Top Trending Pieces to Elevate Your Space'
+description: Best selling home decor items bring style and comfort to any space. These
+  popular pieces suit various tastes and room types. Home decor shapes the mood and
+  look
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-selling-home-decor-top-trending-pieces-to-elevate-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=best-selling-home-decor-top-trending-pieces-to-elevate-your-space&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Best selling home decor items bring style and comfort to any space. These popular pieces suit various tastes and room types.**

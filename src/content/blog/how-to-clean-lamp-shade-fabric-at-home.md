@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Lamp Shade Fabric at Home: Easy DIY Tips"
-description: "Your lampshade adds a special touch to your room, but over time, dust and stains can make it look dull and dirty. Cleaning your fabric lampshade at home might s"
+title: 'How to Clean Lamp Shade Fabric at Home: Easy DIY Tips'
+description: Your lampshade adds a special touch to your room, but over time, dust
+  and stains can make it look dull and dirty. Cleaning your fabric lampshade at home
+  might s
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-lamp-shade-fabric-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-lamp-shade-fabric-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your lampshade adds a special touch to your room, but over time, dust and stains can make it look dull and dirty. Cleaning your fabric lampshade at home might seem tricky, but it doesn’t have to be.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Tools: Essential Kits for Easy Laminate Flooring Installation"
-description: "Floor and decor tools make flooring projects easier and more precise. These kits include essential items for installing laminate, vinyl, and hardwood floors. Ch"
+title: 'Floor And Decor Tools: Essential Kits for Easy Laminate Flooring Installation'
+description: Floor and decor tools make flooring projects easier and more precise.
+  These kits include essential items for installing laminate, vinyl, and hardwood
+  floors. Ch
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-tools&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-tools&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and decor tools make flooring projects easier and more precise. These kits include essential items for installing laminate, vinyl, and hardwood floors.**

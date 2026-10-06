@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Garland Pastel Colors: Delightful DIY Decor Ideas"
-description: "Looking to add a fresh, cheerful touch to your Easter decorations? An Easter Bunny Garland in pastel colors might be just what your space needs. Imagine soft pi"
+title: 'Easter Bunny Garland Pastel Colors: Delightful DIY Decor Ideas'
+description: Looking to add a fresh, cheerful touch to your Easter decorations? An
+  Easter Bunny Garland in pastel colors might be just what your space needs. Imagine
+  soft pi
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-garland-pastel-colors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-garland-pastel-colors&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a fresh, cheerful touch to your Easter decorations? An Easter Bunny Garland in pastel colors might be just what your space needs.**

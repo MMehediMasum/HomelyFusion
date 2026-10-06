@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Engineered Wood Flooring: Stylish, Durable, Easy Installation"
-description: "Home Decorators Collection engineered wood offers durable and stylish flooring options for any home. This collection combines real wood surfaces with strong bac"
+title: 'Home Decorators Collection Engineered Wood Flooring: Stylish, Durable, Easy
+  Installation'
+description: Home Decorators Collection engineered wood offers durable and stylish
+  flooring options for any home. This collection combines real wood surfaces with
+  strong bac
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-engineered-wood&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-engineered-wood&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Decorators Collection engineered wood offers durable and stylish flooring options for any home. This collection combines real wood surfaces with strong backing for lasting beauty.**

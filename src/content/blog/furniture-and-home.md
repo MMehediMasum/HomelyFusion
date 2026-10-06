@@ -1,10 +1,14 @@
 ---
-title: "Furniture And Home: Stylish Modern Decor Ideas for Every Room"
-description: "Decorating a home involves more than just choosing colors and fabrics. It’s about finding the right pieces that fit your style. A well-decorated space can trans"
+title: 'Furniture And Home: Stylish Modern Decor Ideas for Every Room'
+description: Decorating a home involves more than just choosing colors and fabrics.
+  It’s about finding the right pieces that fit your style. A well-decorated space
+  can trans
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decorating a home involves more than just choosing colors and fabrics. It’s about finding the right pieces that fit your style.**

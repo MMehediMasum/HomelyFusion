@@ -1,10 +1,14 @@
 ---
-title: "How Do U.White Wash a Wood Living Room Table: Easy Step-by-Step Guide"
-description: "Are you looking to give your wood living room table a fresh, bright new look? White washing your table can transform its appearance without the need for expensi"
+title: 'How Do U.White Wash a Wood Living Room Table: Easy Step-by-Step Guide'
+description: Are you looking to give your wood living room table a fresh, bright new
+  look? White washing your table can transform its appearance without the need for
+  expensi
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-uwhite-wash-a-wood-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-do-uwhite-wash-a-wood-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to give your wood living room table a fresh, bright new look? White washing your table can transform its appearance without the need for expensive replacements.**

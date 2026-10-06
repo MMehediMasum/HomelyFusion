@@ -1,10 +1,14 @@
 ---
-title: "At Home Furniture Stores: Top Stylish Storage Solutions for Every Room"
-description: "At-home furniture stores offer diverse options for enhancing your living space. Discover functional and stylish pieces for every room. Finding the right furnitu"
+title: 'At Home Furniture Stores: Top Stylish Storage Solutions for Every Room'
+description: At-home furniture stores offer diverse options for enhancing your living
+  space. Discover functional and stylish pieces for every room. Finding the right
+  furnitu
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-furniture-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=at-home-furniture-stores&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **At-home furniture stores offer diverse options for enhancing your living space. Discover functional and stylish pieces for every room.**

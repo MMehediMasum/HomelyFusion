@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rugs for RV Camping: Durable, Stylish, and Waterproof Picks"
-description: "Choosing the best outdoor rugs for RV camping enhances comfort and style at your campsite. Durable and easy-to-clean mats create a cozy outdoor living space. Ou"
+title: 'Best Outdoor Rugs for RV Camping: Durable, Stylish, and Waterproof Picks'
+description: Choosing the best outdoor rugs for RV camping enhances comfort and style
+  at your campsite. Durable and easy-to-clean mats create a cozy outdoor living space.
+  Ou
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rv-camping-durable-stylish-and-waterproof-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rv-camping-durable-stylish-and-waterproof-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best outdoor rugs for RV camping enhances comfort and style at your campsite. Durable and easy-to-clean mats create a cozy outdoor living space.**

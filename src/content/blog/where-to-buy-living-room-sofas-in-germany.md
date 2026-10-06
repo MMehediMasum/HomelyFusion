@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Living Room Sofas in Germany: Top Picks 2025"
-description: "Looking for the perfect living room sofa in Germany can feel overwhelming. You want something comfortable, stylish, and affordable—but where do you start? Wheth"
+title: 'Where to Buy Living Room Sofas in Germany: Top Picks 2025'
+description: Looking for the perfect living room sofa in Germany can feel overwhelming.
+  You want something comfortable, stylish, and affordable—but where do you start?
+  Wheth
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-living-room-sofas-in-germany&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-living-room-sofas-in-germany&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for the perfect living room sofa in Germany can feel overwhelming. You want something comfortable, stylish, and affordable—but where do you start?**

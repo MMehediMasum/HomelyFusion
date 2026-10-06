@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Decor Wall Ideas: Stylish Mirrors, Shelves, and Rustic Accents"
-description: "Decorating bedroom walls can transform your personal space into a cozy haven. Explore diverse decor items to elevate your room. Creating an inviting bedroom inv"
+title: 'Bedroom Decor Wall Ideas: Stylish Mirrors, Shelves, and Rustic Accents'
+description: Decorating bedroom walls can transform your personal space into a cozy
+  haven. Explore diverse decor items to elevate your room. Creating an inviting bedroom
+  inv
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-decor-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-decor-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating bedroom walls can transform your personal space into a cozy haven. Explore diverse decor items to elevate your room.**

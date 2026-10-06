@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Living Room With Dining Table: Stylish & Smart Ideas"
-description: "Struggling to make the most of your small living room while fitting in a dining table? You’re not alone. Creating a space that feels cozy, functional, and styli"
+title: 'How to Decorate Small Living Room With Dining Table: Stylish & Smart Ideas'
+description: Struggling to make the most of your small living room while fitting in
+  a dining table? You’re not alone. Creating a space that feels cozy, functional,
+  and styli
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-dining-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to make the most of your small living room while fitting in a dining table? You’re not alone.**

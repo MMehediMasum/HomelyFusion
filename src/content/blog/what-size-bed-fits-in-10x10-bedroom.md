@@ -1,10 +1,14 @@
 ---
-title: "What Size Bed Fits in 10X10 Bedroom: Ultimate Space-Saving Guide"
-description: "Finding the perfect bed size for your 10x10 bedroom can feel tricky. You want a cozy, comfortable space without making the room feel cramped. Choosing the right"
+title: 'What Size Bed Fits in 10X10 Bedroom: Ultimate Space-Saving Guide'
+description: Finding the perfect bed size for your 10x10 bedroom can feel tricky.
+  You want a cozy, comfortable space without making the room feel cramped. Choosing
+  the right
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-fits-in-10x10-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-fits-in-10x10-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding the perfect bed size for your 10x10 bedroom can feel tricky. You want a cozy, comfortable space without making the room feel cramped.**

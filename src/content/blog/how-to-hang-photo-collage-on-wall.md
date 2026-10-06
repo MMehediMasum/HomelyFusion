@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Photo Collage on Wall: Easy Steps for Stunning Display"
-description: "Are you ready to transform your blank wall into a stunning display of memories? Hanging a photo collage can instantly brighten up your space and make it feel tr"
+title: 'How to Hang Photo Collage on Wall: Easy Steps for Stunning Display'
+description: Are you ready to transform your blank wall into a stunning display of
+  memories? Hanging a photo collage can instantly brighten up your space and make
+  it feel tr
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-photo-collage-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-photo-collage-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your blank wall into a stunning display of memories? Hanging a photo collage can instantly brighten up your space and make it feel truly yours.**

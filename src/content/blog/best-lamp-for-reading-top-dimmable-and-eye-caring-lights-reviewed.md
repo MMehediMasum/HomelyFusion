@@ -1,10 +1,14 @@
 ---
-title: "Best Lamp for Reading: Top Dimmable and Eye-Caring Lights Reviewed"
-description: "Finding the best lamp for reading can improve comfort and reduce eye strain. A good reading lamp offers adjustable brightness and easy controls. Choosing the ri"
+title: 'Best Lamp for Reading: Top Dimmable and Eye-Caring Lights Reviewed'
+description: Finding the best lamp for reading can improve comfort and reduce eye
+  strain. A good reading lamp offers adjustable brightness and easy controls. Choosing
+  the ri
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamp-for-reading-top-dimmable-and-eye-caring-lights-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamp-for-reading-top-dimmable-and-eye-caring-lights-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Finding the best lamp for reading can improve comfort and reduce eye strain. A good reading lamp offers adjustable brightness and easy controls.**

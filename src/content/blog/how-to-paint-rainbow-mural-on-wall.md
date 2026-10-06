@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Rainbow Mural on Wall: Easy Steps for Vibrant Art"
-description: "Are you ready to transform your plain wall into a vibrant masterpiece? Painting a rainbow mural is a fun and creative way to brighten up any space. Whether you "
+title: 'How to Paint Rainbow Mural on Wall: Easy Steps for Vibrant Art'
+description: 'Are you ready to transform your plain wall into a vibrant masterpiece?
+  Painting a rainbow mural is a fun and creative way to brighten up any space. Whether
+  you '
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-rainbow-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-rainbow-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a vibrant masterpiece? Painting a rainbow mural is a fun and creative way to brighten up any space.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Paint Wall Tiles: Easy Steps for Stunning Results"
-description: "Are your wall tiles looking dull or outdated? You don’t need to replace them to give your space a fresh new look. Painting wall tiles is an easy and affordable "
+title: 'How to Paint Wall Tiles: Easy Steps for Stunning Results'
+description: 'Are your wall tiles looking dull or outdated? You don’t need to replace
+  them to give your space a fresh new look. Painting wall tiles is an easy and affordable '
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-wall-tiles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-wall-tiles&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are your wall tiles looking dull or outdated? You don’t need to replace them to give your space a fresh new look.**

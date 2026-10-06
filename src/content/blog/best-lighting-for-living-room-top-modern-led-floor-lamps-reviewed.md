@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Living Room: Top Modern LED Floor Lamps Reviewed"
-description: "Choosing the best lighting for your living room sets the mood and improves comfort. Good lighting blends style, function, and ease of use. A living room needs l"
+title: 'Best Lighting for Living Room: Top Modern LED Floor Lamps Reviewed'
+description: Choosing the best lighting for your living room sets the mood and improves
+  comfort. Good lighting blends style, function, and ease of use. A living room needs
+  l
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-living-room-top-modern-led-floor-lamps-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-living-room-top-modern-led-floor-lamps-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your living room sets the mood and improves comfort. Good lighting blends style, function, and ease of use.**

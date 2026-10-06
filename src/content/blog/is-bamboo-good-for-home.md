@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Bamboo Good for Home: Surprising Benefits You Must Know"
 description: "Are you thinking about adding something fresh and natural to your home? Bamboo might be the perfect choice. It’s not just a plant—it’s a smart, stylish option t"
 pubDate: 2026-03-19

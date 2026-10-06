@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Feit Smart Bulbs to Google Home: Quick Guide"
-description: "Are you ready to make your home smarter and lighting easier to control? Connecting your Feit Smart Bulbs to Google Home is a simple way to bring convenience rig"
+title: 'How to Connect Feit Smart Bulbs to Google Home: Quick Guide'
+description: Are you ready to make your home smarter and lighting easier to control?
+  Connecting your Feit Smart Bulbs to Google Home is a simple way to bring convenience
+  rig
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-feit-smart-bulbs-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-feit-smart-bulbs-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and lighting easier to control? Connecting your Feit Smart Bulbs to Google Home is a simple way to bring convenience right to your fingertips.**

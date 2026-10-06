@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Built-In Cabinets in Living Room: Easy Step-by-Step Guide"
-description: "Are your built-in cabinets in the living room starting to feel more like a burden than a benefit? Maybe they no longer fit your style, or you need to create mor"
+title: 'How to Remove Built-In Cabinets in Living Room: Easy Step-by-Step Guide'
+description: Are your built-in cabinets in the living room starting to feel more like
+  a burden than a benefit? Maybe they no longer fit your style, or you need to create
+  mor
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-built-in-cabinets-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-built-in-cabinets-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your built-in cabinets in the living room starting to feel more like a burden than a benefit? Maybe they no longer fit your style, or you need to create more space for new furniture and decor.**

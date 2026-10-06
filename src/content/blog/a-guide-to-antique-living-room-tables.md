@@ -1,10 +1,14 @@
 ---
-title: "A Guide to Antique Living Room Tables: Timeless Elegance Uncovered"
-description: "Are you looking to add a touch of timeless charm to your living room? Antique living room tables are more than just furniture—they are pieces of history that br"
+title: 'A Guide to Antique Living Room Tables: Timeless Elegance Uncovered'
+description: Are you looking to add a touch of timeless charm to your living room?
+  Antique living room tables are more than just furniture—they are pieces of history
+  that br
 pubDate: 2026-02-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-guide-to-antique-living-room-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=a-guide-to-antique-living-room-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add a touch of timeless charm to your living room? Antique living room tables are more than just furniture—they are pieces of history that bring warmth and character to your space.**

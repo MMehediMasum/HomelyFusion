@@ -1,10 +1,14 @@
 ---
-title: "Wall Frames for Bedroom: Stylish 10-Pack Collage Sets for Elegant Decor"
-description: "Wall frames can transform a bedroom, adding personality and style. Choosing the right frames enhances your space's aesthetic. Decorating your bedroom with wall "
+title: 'Wall Frames for Bedroom: Stylish 10-Pack Collage Sets for Elegant Decor'
+description: 'Wall frames can transform a bedroom, adding personality and style. Choosing
+  the right frames enhances your space''s aesthetic. Decorating your bedroom with
+  wall '
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-frames-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=wall-frames-for-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall frames can transform a bedroom, adding personality and style. Choosing the right frames enhances your space's aesthetic.**

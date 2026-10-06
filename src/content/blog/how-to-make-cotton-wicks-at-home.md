@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Wicks at Home: Easy DIY Guide for Beginners"
 description: "Are you tired of buying expensive cotton wicks that never seem to last? What if you could make your own right at home, saving money and customizing them to your"
 pubDate: 2026-02-10

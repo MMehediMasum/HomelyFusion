@@ -1,10 +1,14 @@
 ---
-title: "Home Goods File Cabinet: Top Stylish and Functional Storage Solutions"
-description: "Organizing your home office can be challenging without the right storage solutions. A home goods file cabinet offers practicality and style. Choosing the perfec"
+title: 'Home Goods File Cabinet: Top Stylish and Functional Storage Solutions'
+description: Organizing your home office can be challenging without the right storage
+  solutions. A home goods file cabinet offers practicality and style. Choosing the
+  perfec
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-file-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-file-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Organizing your home office can be challenging without the right storage solutions. A home goods file cabinet offers practicality and style.**

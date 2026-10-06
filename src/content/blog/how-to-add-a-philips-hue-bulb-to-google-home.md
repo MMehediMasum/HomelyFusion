@@ -1,10 +1,14 @@
 ---
-title: "How to Add a Philips Hue Bulb to Google Home: Easy Step-by-Step Guide"
-description: "Imagine controlling your Philips Hue bulbs with just your voice, making your home smarter and your life easier. If you’ve ever wondered how to add a Philips Hue"
+title: 'How to Add a Philips Hue Bulb to Google Home: Easy Step-by-Step Guide'
+description: Imagine controlling your Philips Hue bulbs with just your voice, making
+  your home smarter and your life easier. If you’ve ever wondered how to add a Philips
+  Hue
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-a-philips-hue-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-a-philips-hue-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your Philips Hue bulbs with just your voice, making your home smarter and your life easier. If you’ve ever wondered how to add a Philips Hue bulb to Google Home, you’re in the right place.**

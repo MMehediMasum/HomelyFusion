@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up Generator to Home Wiring: Easy Steps for Safety"
-description: "When the power goes out, you want your home to stay comfortable and safe. Knowing how to hook up a generator to your home wiring can be a real lifesaver. But it"
+title: 'How to Hook Up Generator to Home Wiring: Easy Steps for Safety'
+description: When the power goes out, you want your home to stay comfortable and safe.
+  Knowing how to hook up a generator to your home wiring can be a real lifesaver.
+  But it
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-to-home-wiring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-to-home-wiring&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **When the power goes out, you want your home to stay comfortable and safe. Knowing how to hook up a generator to your home wiring can be a real lifesaver.**

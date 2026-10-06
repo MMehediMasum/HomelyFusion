@@ -1,10 +1,14 @@
 ---
-title: "Decorating Home With Christmas Lights: Top Tips for Magical Holiday Glow"
-description: "Decorating your home with Christmas lights brings festive cheer and warmth during the holiday season. Bright, colorful lights create a joyful and welcoming atmo"
+title: 'Decorating Home With Christmas Lights: Top Tips for Magical Holiday Glow'
+description: Decorating your home with Christmas lights brings festive cheer and warmth
+  during the holiday season. Bright, colorful lights create a joyful and welcoming
+  atmo
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorating-home-with-christmas-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=decorating-home-with-christmas-lights&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Decorating your home with Christmas lights brings festive cheer and warmth during the holiday season. Bright, colorful lights create a joyful and welcoming atmosphere for family and friends.**

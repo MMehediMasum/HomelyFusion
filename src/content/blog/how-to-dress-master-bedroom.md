@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Master Bedroom: Stunning Ideas for a Luxe Look"
-description: "Your master bedroom is more than just a place to sleep—it’s your personal sanctuary. How you dress this space can change the way you feel every day. Imagine wal"
+title: 'How to Dress Master Bedroom: Stunning Ideas for a Luxe Look'
+description: Your master bedroom is more than just a place to sleep—it’s your personal
+  sanctuary. How you dress this space can change the way you feel every day. Imagine
+  wal
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-master-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-master-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your master bedroom is more than just a place to sleep—it’s your personal sanctuary. How you dress this space can change the way you feel every day.**

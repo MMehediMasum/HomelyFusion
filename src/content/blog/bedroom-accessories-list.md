@@ -1,10 +1,13 @@
 ---
-title: "Bedroom Accessories List: Must-Have Items for a Stylish, Functional Space"
-description: "Creating a cozy and functional bedroom involves choosing the right accessories. From lighting to storage, each item adds value and comfort. In this post, we exp"
+title: 'Bedroom Accessories List: Must-Have Items for a Stylish, Functional Space'
+description: Creating a cozy and functional bedroom involves choosing the right accessories.
+  From lighting to storage, each item adds value and comfort. In this post, we exp
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-accessories-list&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-accessories-list&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Creating a cozy and functional bedroom involves choosing the right accessories. From lighting to storage, each item adds value and comfort.**

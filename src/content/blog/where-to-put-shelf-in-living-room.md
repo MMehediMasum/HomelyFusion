@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Shelf in Living Room: Ultimate Guide for Perfect Placement"
-description: "Are you wondering where to put a shelf in your living room to make the most of your space? Choosing the right spot can transform your room from cluttered to coz"
+title: 'Where to Put Shelf in Living Room: Ultimate Guide for Perfect Placement'
+description: Are you wondering where to put a shelf in your living room to make the
+  most of your space? Choosing the right spot can transform your room from cluttered
+  to coz
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering where to put a shelf in your living room to make the most of your space? Choosing the right spot can transform your room from cluttered to cozy and stylish.**

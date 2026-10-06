@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pillows: Top Stylish Picks for Sofa and Bed Decor"
-description: "Pillows add style and comfort to any living space. They can transform a room with minimal effort. Explore the variety of home goods pillows to enhance your déco"
+title: 'Home Goods Pillows: Top Stylish Picks for Sofa and Bed Decor'
+description: Pillows add style and comfort to any living space. They can transform
+  a room with minimal effort. Explore the variety of home goods pillows to enhance
+  your déco
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pillows add style and comfort to any living space. They can transform a room with minimal effort.**

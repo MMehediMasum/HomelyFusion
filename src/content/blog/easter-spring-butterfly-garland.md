@@ -1,10 +1,14 @@
 ---
-title: "Easter Spring Butterfly Garland: Brighten Your Decor Instantly"
-description: "Are you ready to bring a fresh burst of color and joy to your home this Easter? Imagine a beautiful spring butterfly garland that instantly lifts your space and"
+title: 'Easter Spring Butterfly Garland: Brighten Your Decor Instantly'
+description: Are you ready to bring a fresh burst of color and joy to your home this
+  Easter? Imagine a beautiful spring butterfly garland that instantly lifts your space
+  and
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-spring-butterfly-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-spring-butterfly-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring a fresh burst of color and joy to your home this Easter? Imagine a beautiful spring butterfly garland that instantly lifts your space and fills it with the magic of the season.**

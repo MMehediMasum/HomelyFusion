@@ -1,10 +1,14 @@
 ---
-title: "Best Cordless Lamps for Living Room: Stylish, Bright, and Wireless Choices"
-description: "Cordless lamps offer flexible lighting without messy wires in your living room. They combine style, convenience, and easy portability for any space. Choosing th"
+title: 'Best Cordless Lamps for Living Room: Stylish, Bright, and Wireless Choices'
+description: Cordless lamps offer flexible lighting without messy wires in your living
+  room. They combine style, convenience, and easy portability for any space. Choosing
+  th
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cordless-lamps-for-living-room-stylish-bright-and-wireless-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-cordless-lamps-for-living-room-stylish-bright-and-wireless-choices&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Cordless lamps offer flexible lighting without messy wires in your living room. They combine style, convenience, and easy portability for any space.**

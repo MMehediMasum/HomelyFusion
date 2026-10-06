@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Blacken Steel at Home: Easy & Effective DIY Techniques"
 description: "Have you ever wanted to give your steel tools or knives a sleek, black finish without spending a fortune or going to a professional? Blackening steel at home is"
 pubDate: 2026-02-25

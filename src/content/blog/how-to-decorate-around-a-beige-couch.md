@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate around a Beige Couch: Stunning Style Ideas"
-description: "A beige couch is a fantastic blank canvas for your living room. But sometimes, you might wonder how to bring life and personality to a space that feels a bit to"
+title: 'How to Decorate around a Beige Couch: Stunning Style Ideas'
+description: A beige couch is a fantastic blank canvas for your living room. But sometimes,
+  you might wonder how to bring life and personality to a space that feels a bit to
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-beige-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-beige-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A beige couch is a fantastic blank canvas for your living room. But sometimes, you might wonder how to bring life and personality to a space that feels a bit too neutral.**

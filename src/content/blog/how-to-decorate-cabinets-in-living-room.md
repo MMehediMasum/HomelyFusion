@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Cabinets in Living Room: Stunning Ideas to Transform"
-description: "Your living room cabinets are more than just storage—they’re a chance to showcase your style and make your space truly yours. But how do you decorate them in a "
+title: 'How to Decorate Cabinets in Living Room: Stunning Ideas to Transform'
+description: 'Your living room cabinets are more than just storage—they’re a chance
+  to showcase your style and make your space truly yours. But how do you decorate
+  them in a '
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-cabinets-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-cabinets-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room cabinets are more than just storage—they’re a chance to showcase your style and make your space truly yours. But how do you decorate them in a way that stands out without overwhelming the room?**

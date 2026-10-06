@@ -1,10 +1,14 @@
 ---
-title: "Home Flooring Solutions: Peel & Stick Vinyl Tiles for Easy DIY Upgrades"
-description: "Choosing the right flooring transforms your home's look and feel. It impacts aesthetics and function, creating a comfortable environment. Home flooring options "
+title: 'Home Flooring Solutions: Peel & Stick Vinyl Tiles for Easy DIY Upgrades'
+description: 'Choosing the right flooring transforms your home''s look and feel. It
+  impacts aesthetics and function, creating a comfortable environment. Home flooring
+  options '
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right flooring transforms your home's look and feel. It impacts aesthetics and function, creating a comfortable environment.**

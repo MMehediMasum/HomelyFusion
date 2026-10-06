@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Nightstand: Stylish Charging Stations with Storage Solutions"
-description: "A nightstand is a must-have for any bedroom. It keeps essentials close and adds style to your space. Choosing the right nightstand makes your room more organize"
+title: 'Home Goods Nightstand: Stylish Charging Stations with Storage Solutions'
+description: A nightstand is a must-have for any bedroom. It keeps essentials close
+  and adds style to your space. Choosing the right nightstand makes your room more
+  organize
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A nightstand is a must-have for any bedroom. It keeps essentials close and adds style to your space.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Living Room Tables: Top Spots for Stylish Finds"
-description: "Looking for the perfect living room table can feel overwhelming. You want a piece that fits your style, meets your needs, and lasts for years. But where do you "
+title: 'Where to Buy Living Room Tables: Top Spots for Stylish Finds'
+description: 'Looking for the perfect living room table can feel overwhelming. You
+  want a piece that fits your style, meets your needs, and lasts for years. But where
+  do you '
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-living-room-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-living-room-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for the perfect living room table can feel overwhelming. You want a piece that fits your style, meets your needs, and lasts for years.**

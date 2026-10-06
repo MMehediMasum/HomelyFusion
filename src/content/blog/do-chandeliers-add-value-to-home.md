@@ -1,10 +1,13 @@
 ---
-title: "Do Chandeliers Add Value to Home? Stunning Benefits Revealed"
-description: "Are you wondering if adding a chandelier to your home is worth the investment? You might think a chandelier is just a fancy light fixture, but it can do much mo"
+title: Do Chandeliers Add Value to Home? Stunning Benefits Revealed
+description: Are you wondering if adding a chandelier to your home is worth the investment?
+  You might think a chandelier is just a fancy light fixture, but it can do much mo
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-chandeliers-add-value-to-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=do-chandeliers-add-value-to-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if adding a chandelier to your home is worth the investment? You might think a chandelier is just a fancy light fixture, but it can do much more than brighten a room.**

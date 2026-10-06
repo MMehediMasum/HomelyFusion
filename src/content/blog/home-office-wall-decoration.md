@@ -1,10 +1,14 @@
 ---
-title: "Home Office Wall Decoration Ideas: Rustic, Motivational & Boho Style Essentials"
-description: "Creating a cozy and inspiring home office is essential for productivity. Wall decorations play a crucial role in this transformation. Choosing the right decor i"
+title: 'Home Office Wall Decoration Ideas: Rustic, Motivational & Boho Style Essentials'
+description: Creating a cozy and inspiring home office is essential for productivity.
+  Wall decorations play a crucial role in this transformation. Choosing the right
+  decor i
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-office-wall-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-office-wall-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating a cozy and inspiring home office is essential for productivity. Wall decorations play a crucial role in this transformation.**

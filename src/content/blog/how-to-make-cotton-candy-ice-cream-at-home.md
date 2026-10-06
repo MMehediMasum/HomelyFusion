@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Ice Cream at Home: Easy & Delicious Recipe"
 description: "Imagine tasting your favorite childhood treat in a whole new way—cotton candy turned into creamy, dreamy ice cream you can make right at home. You don’t need fa"
 pubDate: 2026-02-17

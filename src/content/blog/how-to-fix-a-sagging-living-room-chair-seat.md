@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Sagging Living Room Chair Seat: Easy DIY Solutions"
-description: "Is your living room chair seat sagging and feeling uncomfortable? You’re not alone, and the good news is you don’t have to replace the entire chair. Imagine sin"
+title: 'How to Fix a Sagging Living Room Chair Seat: Easy DIY Solutions'
+description: Is your living room chair seat sagging and feeling uncomfortable? You’re
+  not alone, and the good news is you don’t have to replace the entire chair. Imagine
+  sin
 pubDate: 2026-02-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-sagging-living-room-chair-seat&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-sagging-living-room-chair-seat&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room chair seat sagging and feeling uncomfortable? You’re not alone, and the good news is you don’t have to replace the entire chair.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Smelling Candles for Home to Create a Cozy, Inviting Ambiance"
-description: "Candles add warmth and scent to any home. Choosing the best smelling candle creates a cozy, inviting space. The right candle scent can change your mood and fres"
+title: Best Smelling Candles for Home to Create a Cozy, Inviting Ambiance
+description: Candles add warmth and scent to any home. Choosing the best smelling
+  candle creates a cozy, inviting space. The right candle scent can change your mood
+  and fres
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smelling-candles-for-home-to-create-a-cozy-inviting-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-smelling-candles-for-home-to-create-a-cozy-inviting-ambiance&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Candles add warmth and scent to any home. Choosing the best smelling candle creates a cozy, inviting space.**

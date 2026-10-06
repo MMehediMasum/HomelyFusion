@@ -1,10 +1,13 @@
 ---
-title: "Halloween Skeleton Hand Punch Bowl: Spooky Party Essential Ideas"
-description: "Looking to add a spooky twist to your Halloween party? Imagine your guests reaching into a chillingly cool skeleton hand to grab their punch. A Halloween Skelet"
+title: 'Halloween Skeleton Hand Punch Bowl: Spooky Party Essential Ideas'
+description: Looking to add a spooky twist to your Halloween party? Imagine your guests
+  reaching into a chillingly cool skeleton hand to grab their punch. A Halloween Skelet
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-skeleton-hand-punch-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-skeleton-hand-punch-bowl&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a spooky twist to your Halloween party? Imagine your guests reaching into a chillingly cool skeleton hand to grab their punch.**

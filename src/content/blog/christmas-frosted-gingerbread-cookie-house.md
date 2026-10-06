@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Frosted Gingerbread Cookie House: Festive DIY Delight"
 description: "Imagine the warm smell of ginger and cinnamon filling your kitchen as you create a Christmas frosted gingerbread cookie house that looks as magical as it tastes"
 pubDate: 2026-01-02

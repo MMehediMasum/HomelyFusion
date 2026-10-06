@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Short Wide Windows: Stylish & Functional Picks"
-description: "Short wide windows need curtains that fit well and look good. Choosing the right curtains can improve light control, privacy, and style in your space. Finding c"
+title: 'Best Curtains for Short Wide Windows: Stylish & Functional Picks'
+description: Short wide windows need curtains that fit well and look good. Choosing
+  the right curtains can improve light control, privacy, and style in your space.
+  Finding c
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-short-wide-windows-stylish-functional-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-short-wide-windows-stylish-functional-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Short wide windows need curtains that fit well and look good. Choosing the right curtains can improve light control, privacy, and style in your space.**

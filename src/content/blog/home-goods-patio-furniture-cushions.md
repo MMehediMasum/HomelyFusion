@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Furniture Cushions: Stylish, Waterproof Comfort for Outdoors"
-description: "Choosing the right patio furniture cushions can transform your outdoor space into a cozy retreat. These cushions offer comfort and style, enhancing your patio e"
+title: 'Home Goods Patio Furniture Cushions: Stylish, Waterproof Comfort for Outdoors'
+description: Choosing the right patio furniture cushions can transform your outdoor
+  space into a cozy retreat. These cushions offer comfort and style, enhancing your
+  patio e
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-cushions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-cushions&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the right patio furniture cushions can transform your outdoor space into a cozy retreat. These cushions offer comfort and style, enhancing your patio experience.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Warranty: What You Need to Know Before Buying"
-description: "Understanding the warranty options for your floor and decor purchases is crucial. This guide demystifies the details for you. Floor and Decor offer a variety of"
+title: 'Floor And Decor Warranty: What You Need to Know Before Buying'
+description: Understanding the warranty options for your floor and decor purchases
+  is crucial. This guide demystifies the details for you. Floor and Decor offer a
+  variety of
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-warranty&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-warranty&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Understanding the warranty options for your floor and decor purchases is crucial. This guide demystifies the details for you.**

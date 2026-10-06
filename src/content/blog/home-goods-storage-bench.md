@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Storage Bench: Stylish Seating and Smart Organization Solutions"
-description: "Storage benches offer a practical solution to declutter your living spaces. They combine functionality with stylish design, ideal for any home. A storage bench "
+title: 'Home Goods Storage Bench: Stylish Seating and Smart Organization Solutions'
+description: 'Storage benches offer a practical solution to declutter your living
+  spaces. They combine functionality with stylish design, ideal for any home. A storage
+  bench '
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-storage-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-storage-bench&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Storage benches offer a practical solution to declutter your living spaces. They combine functionality with stylish design, ideal for any home.**

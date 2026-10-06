@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Candle Reviews: Best Scented Wax Melts and Warmers"
-description: "Homegoods candles bring warmth and elegance to any space. They offer a variety of scents and styles to suit different tastes. Imagine your room filled with deli"
+title: 'Homegoods Candle Reviews: Best Scented Wax Melts and Warmers'
+description: Homegoods candles bring warmth and elegance to any space. They offer
+  a variety of scents and styles to suit different tastes. Imagine your room filled
+  with deli
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-candle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-candle&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods candles bring warmth and elegance to any space. They offer a variety of scents and styles to suit different tastes.**

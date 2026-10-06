@@ -1,10 +1,14 @@
 ---
-title: "How to Make Led Bulb at Home: Easy DIY Guide for Beginners"
-description: "Are you curious about how to make an LED bulb at home? Imagine saving money while creating your own bright, energy-saving light. You don’t need to be an expert "
+title: 'How to Make Led Bulb at Home: Easy DIY Guide for Beginners'
+description: 'Are you curious about how to make an LED bulb at home? Imagine saving
+  money while creating your own bright, energy-saving light. You don’t need to be
+  an expert '
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-led-bulb-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-led-bulb-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you curious about how to make an LED bulb at home? Imagine saving money while creating your own bright, energy-saving light.**

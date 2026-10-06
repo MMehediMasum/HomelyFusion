@@ -1,10 +1,14 @@
 ---
-title: "Easter Basket Filler Ideas: Unique Gifts Kids Will Love"
-description: "Looking for the perfect Easter basket filler ideas that will make your loved ones smile? You want to fill those baskets with fun, thoughtful treats that stand o"
+title: 'Easter Basket Filler Ideas: Unique Gifts Kids Will Love'
+description: Looking for the perfect Easter basket filler ideas that will make your
+  loved ones smile? You want to fill those baskets with fun, thoughtful treats that
+  stand o
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-basket-filler-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-basket-filler-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for the perfect Easter basket filler ideas that will make your loved ones smile? You want to fill those baskets with fun, thoughtful treats that stand out—but sometimes, finding the right items can feel overwhelming.**

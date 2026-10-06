@@ -1,10 +1,14 @@
 ---
-title: "Modern Room Accessories: Elevate Your Space with Chic Decor Essentials"
-description: "Modern room accessories add style and function to any space. They create a cozy, organized, and visually pleasing environment. Choosing the right accessories ca"
+title: 'Modern Room Accessories: Elevate Your Space with Chic Decor Essentials'
+description: Modern room accessories add style and function to any space. They create
+  a cozy, organized, and visually pleasing environment. Choosing the right accessories
+  ca
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=modern-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern room accessories add style and function to any space. They create a cozy, organized, and visually pleasing environment.**

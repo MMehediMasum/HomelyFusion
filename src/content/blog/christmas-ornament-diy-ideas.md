@@ -1,10 +1,14 @@
 ---
-title: "Christmas Ornament Diy Ideas: Stunning Crafts to Spark Joy"
-description: "Are you ready to make your Christmas decorations truly special this year? Imagine creating ornaments that carry your personal touch and bring a warm, festive gl"
+title: 'Christmas Ornament Diy Ideas: Stunning Crafts to Spark Joy'
+description: Are you ready to make your Christmas decorations truly special this year?
+  Imagine creating ornaments that carry your personal touch and bring a warm, festive
+  gl
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-ornament-diy-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-ornament-diy-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas decorations truly special this year? Imagine creating ornaments that carry your personal touch and bring a warm, festive glow to your home.**

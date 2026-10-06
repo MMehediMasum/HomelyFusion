@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Mirrors: Stylish Full-Length Options for Modern Home Decor"
-description: "Mirrors from Homegoods enhance any space with style and functionality. They reflect light and create the illusion of space. Mirrors serve as more than just func"
+title: 'Homegoods Mirrors: Stylish Full-Length Options for Modern Home Decor'
+description: Mirrors from Homegoods enhance any space with style and functionality.
+  They reflect light and create the illusion of space. Mirrors serve as more than
+  just func
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors from Homegoods enhance any space with style and functionality. They reflect light and create the illusion of space.**

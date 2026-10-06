@@ -1,10 +1,14 @@
 ---
-title: "Where to Place the Sofa in Living Room: Ultimate Layout Tips"
-description: "Where you place your sofa in the living room can change everything. It affects how your space feels, how you move around, and even how comfortable you are when "
+title: 'Where to Place the Sofa in Living Room: Ultimate Layout Tips'
+description: 'Where you place your sofa in the living room can change everything.
+  It affects how your space feels, how you move around, and even how comfortable you
+  are when '
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-the-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-the-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Where you place your sofa in the living room can change everything. It affects how your space feels, how you move around, and even how comfortable you are when you relax.**

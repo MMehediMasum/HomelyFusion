@@ -1,10 +1,14 @@
 ---
-title: "How to Add Smart Bulb to Apple Home: Easy Setup Guide"
-description: "Are you ready to make your home smarter and more convenient? Adding a smart bulb to your Apple Home setup is easier than you think. Imagine controlling your lig"
+title: 'How to Add Smart Bulb to Apple Home: Easy Setup Guide'
+description: Are you ready to make your home smarter and more convenient? Adding a
+  smart bulb to your Apple Home setup is easier than you think. Imagine controlling
+  your lig
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-smart-bulb-to-apple-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-smart-bulb-to-apple-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Adding a smart bulb to your Apple Home setup is easier than you think.**

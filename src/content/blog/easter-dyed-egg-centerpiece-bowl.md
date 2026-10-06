@@ -1,10 +1,14 @@
 ---
-title: "Easter Dyed Egg Centerpiece Bowl: Stunning Ideas to Brighten Your Table"
-description: "Looking for a simple way to brighten up your Easter table? An Easter dyed egg centerpiece bowl is just what you need. It’s colorful, festive, and instantly brin"
+title: 'Easter Dyed Egg Centerpiece Bowl: Stunning Ideas to Brighten Your Table'
+description: Looking for a simple way to brighten up your Easter table? An Easter
+  dyed egg centerpiece bowl is just what you need. It’s colorful, festive, and instantly
+  brin
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-dyed-egg-centerpiece-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-dyed-egg-centerpiece-bowl&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a simple way to brighten up your Easter table? An Easter dyed egg centerpiece bowl is just what you need.**

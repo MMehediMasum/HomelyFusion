@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is the Steeler Game Home Or Away: Ultimate Fan Guide 2025"
 description: "Are you wondering whether the next Steeler game is happening at home or on the road? Knowing the location can make all the difference in how you plan your day, "
 pubDate: 2025-10-16

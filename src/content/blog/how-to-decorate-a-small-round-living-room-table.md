@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Small Round Living Room Table: Stunning Ideas"
-description: "Your small round living room table is more than just a piece of furniture—it’s the heart of your space. But decorating it can feel tricky when you want it to st"
+title: 'How to Decorate a Small Round Living Room Table: Stunning Ideas'
+description: Your small round living room table is more than just a piece of furniture—it’s
+  the heart of your space. But decorating it can feel tricky when you want it to st
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-round-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-round-living-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your small round living room table is more than just a piece of furniture—it’s the heart of your space. But decorating it can feel tricky when you want it to stand out without cluttering your room.**

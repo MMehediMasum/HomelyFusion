@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Entryway Wall With Mirrors: Stunning Style Tips"
-description: "Your entryway is the first thing you and your guests see when you walk into your home. It sets the tone for the entire space, so why not make it unforgettable? "
+title: 'How to Decorate Entryway Wall With Mirrors: Stunning Style Tips'
+description: 'Your entryway is the first thing you and your guests see when you walk
+  into your home. It sets the tone for the entire space, so why not make it unforgettable? '
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-entryway-wall-with-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-entryway-wall-with-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your entryway is the first thing you and your guests see when you walk into your home. It sets the tone for the entire space, so why not make it unforgettable?**

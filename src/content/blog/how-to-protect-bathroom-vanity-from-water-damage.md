@@ -1,10 +1,14 @@
 ---
-title: "How to Protect Bathroom Vanity from Water Damage: Essential Tips"
-description: "Your bathroom vanity is more than just a place to store toiletries—it’s a key part of your bathroom’s look and feel. But if water damage strikes, it can quickly"
+title: 'How to Protect Bathroom Vanity from Water Damage: Essential Tips'
+description: Your bathroom vanity is more than just a place to store toiletries—it’s
+  a key part of your bathroom’s look and feel. But if water damage strikes, it can
+  quickly
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-protect-bathroom-vanity-from-water-damage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-protect-bathroom-vanity-from-water-damage&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to store toiletries—it’s a key part of your bathroom’s look and feel. But if water damage strikes, it can quickly turn into a costly and frustrating problem.**

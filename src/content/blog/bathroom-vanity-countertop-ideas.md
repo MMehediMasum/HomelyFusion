@@ -1,10 +1,13 @@
 ---
-title: "Bathroom Vanity Countertop Ideas: Stunning Designs to Transform Your Space"
-description: "Your bathroom vanity countertop can transform the entire look and feel of your space. Choosing the right style, material, and color isn’t just about aesthetics—"
+title: 'Bathroom Vanity Countertop Ideas: Stunning Designs to Transform Your Space'
+description: Your bathroom vanity countertop can transform the entire look and feel
+  of your space. Choosing the right style, material, and color isn’t just about aesthetics—
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-vanity-countertop-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-vanity-countertop-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity countertop can transform the entire look and feel of your space. Choosing the right style, material, and color isn’t just about aesthetics—it’s about creating a spot that feels personal and functional every day.**

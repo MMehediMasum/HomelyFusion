@@ -1,10 +1,14 @@
 ---
-title: "Coral Color Home Decor Accents to Brighten Your Living Space Instantly"
-description: "Coral color home decor accents bring warmth and energy to any living space. These vibrant pieces add a fresh, coastal touch to your home style. Coral shades ble"
+title: Coral Color Home Decor Accents to Brighten Your Living Space Instantly
+description: Coral color home decor accents bring warmth and energy to any living
+  space. These vibrant pieces add a fresh, coastal touch to your home style. Coral
+  shades ble
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coral-color-home-decor-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=coral-color-home-decor-accents&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Coral color home decor accents bring warmth and energy to any living space. These vibrant pieces add a fresh, coastal touch to your home style.**

@@ -1,10 +1,13 @@
 ---
-title: "Nautica Lamps Home Goods: Stylish Coastal Lighting for Every Room"
-description: "Nautica lamps can transform any space with their coastal charm and functionality. These lamps blend style with practicality, offering a versatile lighting solut"
+title: 'Nautica Lamps Home Goods: Stylish Coastal Lighting for Every Room'
+description: Nautica lamps can transform any space with their coastal charm and functionality.
+  These lamps blend style with practicality, offering a versatile lighting solut
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=nautica-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Nautica lamps can transform any space with their coastal charm and functionality. These lamps blend style with practicality, offering a versatile lighting solution.**

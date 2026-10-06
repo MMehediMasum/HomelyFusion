@@ -1,10 +1,14 @@
 ---
-title: "What Decor for Top of Bedroom Chest of Drawers: Stylish Ideas"
-description: "Are you staring at the top of your bedroom chest of drawers, wondering how to make it look stylish without cluttering your space? You’re not alone. The right de"
+title: 'What Decor for Top of Bedroom Chest of Drawers: Stylish Ideas'
+description: Are you staring at the top of your bedroom chest of drawers, wondering
+  how to make it look stylish without cluttering your space? You’re not alone. The
+  right de
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-decor-for-top-of-bedroom-chest-of-drawers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=what-decor-for-top-of-bedroom-chest-of-drawers&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you staring at the top of your bedroom chest of drawers, wondering how to make it look stylish without cluttering your space? You’re not alone.**

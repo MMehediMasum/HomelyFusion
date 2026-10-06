@@ -1,10 +1,14 @@
 ---
-title: "Designer Home Decor Accessories to Elevate Your Living Space Instantly"
-description: "Designer home decor accessories add style and personality to any living space. These carefully crafted pieces bring charm and function to your home. From vintag"
+title: Designer Home Decor Accessories to Elevate Your Living Space Instantly
+description: Designer home decor accessories add style and personality to any living
+  space. These carefully crafted pieces bring charm and function to your home. From
+  vintag
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=designer-home-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=designer-home-decor-accessories&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Designer home decor accessories add style and personality to any living space. These carefully crafted pieces bring charm and function to your home.**

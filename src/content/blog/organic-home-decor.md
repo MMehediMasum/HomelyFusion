@@ -1,10 +1,14 @@
 ---
-title: "Organic Home Decor Ideas: Stylish Natural Accents for Every Room"
-description: "Organic home decor transforms spaces into serene, natural retreats. It embraces materials like seagrass, wood, and eucalyptus. This blog explores the charm and "
+title: 'Organic Home Decor Ideas: Stylish Natural Accents for Every Room'
+description: 'Organic home decor transforms spaces into serene, natural retreats.
+  It embraces materials like seagrass, wood, and eucalyptus. This blog explores the
+  charm and '
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=organic-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=organic-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Organic home decor transforms spaces into serene, natural retreats. It embraces materials like seagrass, wood, and eucalyptus.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Spray Paint a Bathroom Vanity? Expert Tips Revealed"
-description: "Are you tired of your old bathroom vanity but don’t want to spend a fortune on a new one? You might be wondering if spray painting is a good way to give it a fr"
+title: Can You Spray Paint a Bathroom Vanity? Expert Tips Revealed
+description: Are you tired of your old bathroom vanity but don’t want to spend a fortune
+  on a new one? You might be wondering if spray painting is a good way to give it
+  a fr
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-spray-paint-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-spray-paint-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your old bathroom vanity but don’t want to spend a fortune on a new one? You might be wondering if spray painting is a good way to give it a fresh, stylish look.**

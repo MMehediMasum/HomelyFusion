@@ -1,10 +1,14 @@
 ---
-title: "How Many Mirrors in Bedroom: Expert Tips for Perfect Placement"
-description: "Have you ever wondered how many mirrors you should have in your bedroom? It might seem like a small detail, but the right number of mirrors can change the entir"
+title: 'How Many Mirrors in Bedroom: Expert Tips for Perfect Placement'
+description: Have you ever wondered how many mirrors you should have in your bedroom?
+  It might seem like a small detail, but the right number of mirrors can change the
+  entir
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-mirrors-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-many-mirrors-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered how many mirrors you should have in your bedroom? It might seem like a small detail, but the right number of mirrors can change the entire feel of your space.**

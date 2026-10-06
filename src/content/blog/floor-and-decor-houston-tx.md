@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Houston TX: Top Vintage Wall Art & Home Decor Picks"
 description: "Discover the charm of Houston, TX, through a wide array of unique floor and wall decor options. Elevate your space with vintage signs, cityscape prints, and the"
 pubDate: 2026-07-25

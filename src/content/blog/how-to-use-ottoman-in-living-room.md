@@ -1,10 +1,14 @@
 ---
-title: "How to Use Ottoman in Living Room: Stylish Tips for Cozy Spaces"
-description: "Are you looking to make your living room more stylish and functional? An ottoman might be just what you need. This simple piece of furniture can transform your "
+title: 'How to Use Ottoman in Living Room: Stylish Tips for Cozy Spaces'
+description: 'Are you looking to make your living room more stylish and functional?
+  An ottoman might be just what you need. This simple piece of furniture can transform
+  your '
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-ottoman-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-ottoman-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to make your living room more stylish and functional? An ottoman might be just what you need.**

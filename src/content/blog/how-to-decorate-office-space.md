@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Office Space: Creative Tips for Inspiring Workspaces"
-description: "Your office space says a lot about you. It affects your mood, focus, and even how others see your professionalism. But decorating an office isn’t just about mak"
+title: 'How to Decorate Office Space: Creative Tips for Inspiring Workspaces'
+description: Your office space says a lot about you. It affects your mood, focus,
+  and even how others see your professionalism. But decorating an office isn’t just
+  about mak
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-office-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-office-space&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office space says a lot about you. It affects your mood, focus, and even how others see your professionalism.**

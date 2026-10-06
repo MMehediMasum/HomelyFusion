@@ -1,10 +1,14 @@
 ---
-title: "How to Hide Speaker Wires on Wall Mount: Easy & Clean Solutions"
-description: "You love the clean look of your wall-mounted speakers, but those visible wires are driving you crazy. They spoil the sleek design and make your space look clutt"
+title: 'How to Hide Speaker Wires on Wall Mount: Easy & Clean Solutions'
+description: You love the clean look of your wall-mounted speakers, but those visible
+  wires are driving you crazy. They spoil the sleek design and make your space look
+  clutt
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-on-wall-mount&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-on-wall-mount&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **You love the clean look of your wall-mounted speakers, but those visible wires are driving you crazy. They spoil the sleek design and make your space look cluttered.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Spooky Popcorn Recipe: Easy, Creepy & Delicious Treats"
 description: "Looking for a fun and spooky treat to make this Halloween? Your search ends here with this Halloween Spooky Popcorn Recipe! It’s easy, delicious, and perfect fo"
 pubDate: 2026-01-04

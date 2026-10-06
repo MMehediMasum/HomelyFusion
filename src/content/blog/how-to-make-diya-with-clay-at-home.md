@@ -1,10 +1,14 @@
 ---
-title: "How to Make Diya With Clay at Home: Easy & Creative Steps"
-description: "Are you looking for a simple and creative way to brighten your home this festive season? Making a diya with clay at home is easier than you think—and it brings "
+title: 'How to Make Diya With Clay at Home: Easy & Creative Steps'
+description: 'Are you looking for a simple and creative way to brighten your home
+  this festive season? Making a diya with clay at home is easier than you think—and
+  it brings '
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-diya-with-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-diya-with-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a simple and creative way to brighten your home this festive season? Making a diya with clay at home is easier than you think—and it brings a special charm that store-bought lamps can’t match.**

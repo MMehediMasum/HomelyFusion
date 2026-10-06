@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Dining Room: Stylish Linen Drapes for Privacy & Light Filtering"
-description: "Choosing the best curtains for your dining room helps set the right mood and style. Curtains control light, privacy, and add comfort to this special space. Dini"
+title: 'Best Curtains for Dining Room: Stylish Linen Drapes for Privacy & Light Filtering'
+description: Choosing the best curtains for your dining room helps set the right mood
+  and style. Curtains control light, privacy, and add comfort to this special space.
+  Dini
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-dining-room-stylish-linen-drapes-for-privacy-light-filtering&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-dining-room-stylish-linen-drapes-for-privacy-light-filtering&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for your dining room helps set the right mood and style. Curtains control light, privacy, and add comfort to this special space.**

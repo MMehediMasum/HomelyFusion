@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend 1/4 Steel Plate at Home: Easy DIY Techniques"
 description: "Have you ever faced the challenge of bending a 1/4 steel plate but didn’t know where to start? Whether you’re working on a DIY project or fixing something aroun"
 pubDate: 2026-03-13

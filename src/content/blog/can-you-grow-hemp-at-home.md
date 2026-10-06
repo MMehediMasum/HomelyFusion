@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Grow Hemp at Home: Essential Tips for Success"
 description: "Have you ever wondered if you can grow hemp right in your own home? Imagine having a natural, versatile plant growing just steps away—one that can be used for e"
 pubDate: 2026-02-08

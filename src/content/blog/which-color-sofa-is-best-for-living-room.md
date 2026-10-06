@@ -1,10 +1,14 @@
 ---
-title: "Which Color Sofa is Best for Living Room: Ultimate Style Guide"
-description: "Choosing the perfect sofa color for your living room can feel overwhelming. You want something that not only looks great but also matches your lifestyle and per"
+title: 'Which Color Sofa is Best for Living Room: Ultimate Style Guide'
+description: Choosing the perfect sofa color for your living room can feel overwhelming.
+  You want something that not only looks great but also matches your lifestyle and
+  per
 pubDate: 2026-03-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-color-sofa-is-best-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-color-sofa-is-best-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa color for your living room can feel overwhelming. You want something that not only looks great but also matches your lifestyle and personality.**

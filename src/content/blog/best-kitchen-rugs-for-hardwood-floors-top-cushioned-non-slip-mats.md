@@ -1,10 +1,14 @@
 ---
-title: "Best Kitchen Rugs for Hardwood Floors: Top Cushioned Non-Slip Mats"
-description: "Choosing the best kitchen rugs for hardwood floors protects your floor and adds comfort. These rugs prevent slips and reduce fatigue during long cooking session"
+title: 'Best Kitchen Rugs for Hardwood Floors: Top Cushioned Non-Slip Mats'
+description: Choosing the best kitchen rugs for hardwood floors protects your floor
+  and adds comfort. These rugs prevent slips and reduce fatigue during long cooking
+  session
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-kitchen-rugs-for-hardwood-floors-top-cushioned-non-slip-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-kitchen-rugs-for-hardwood-floors-top-cushioned-non-slip-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best kitchen rugs for hardwood floors protects your floor and adds comfort. These rugs prevent slips and reduce fatigue during long cooking sessions.**

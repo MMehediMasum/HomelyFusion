@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Websites Offering Unique Boho and Modern Home Accents"
-description: "Decorating walls transforms a room's atmosphere instantly. Discover unique wall decor options to enhance your living space effortlessly. Wall decor websites off"
+title: Wall Decor Websites Offering Unique Boho and Modern Home Accents
+description: Decorating walls transforms a room's atmosphere instantly. Discover unique
+  wall decor options to enhance your living space effortlessly. Wall decor websites
+  off
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-websites&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-websites&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating walls transforms a room's atmosphere instantly. Discover unique wall decor options to enhance your living space effortlessly.**

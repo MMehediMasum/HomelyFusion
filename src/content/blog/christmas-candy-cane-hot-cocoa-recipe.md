@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Candy Cane Hot Cocoa Recipe: Irresistibly Cozy & Festive"
 description: "Imagine wrapping your hands around a warm mug filled with rich, creamy hot cocoa that has a delightful twist—sweet, minty candy cane flavor melting in every sip"
 pubDate: 2025-09-20

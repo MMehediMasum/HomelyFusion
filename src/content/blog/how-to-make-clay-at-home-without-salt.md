@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Without Salt: Easy, Safe DIY Recipe"
 description: "Looking for a simple way to make clay at home without using salt? You’re in the right place. Whether you want to craft, sculpt, or keep your kids busy with a fu"
 pubDate: 2026-03-14

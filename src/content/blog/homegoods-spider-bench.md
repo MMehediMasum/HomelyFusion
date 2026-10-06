@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Spider Bench Review: Stylish Comfort Meets Durable Design"
-description: "The Homegoods Spider Bench offers a unique blend of style and function for any space. Its design fits well in homes, offices, or outdoor areas. This bench stand"
+title: 'Homegoods Spider Bench Review: Stylish Comfort Meets Durable Design'
+description: The Homegoods Spider Bench offers a unique blend of style and function
+  for any space. Its design fits well in homes, offices, or outdoor areas. This bench
+  stand
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-spider-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-spider-bench&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Homegoods Spider Bench offers a unique blend of style and function for any space. Its design fits well in homes, offices, or outdoor areas.**

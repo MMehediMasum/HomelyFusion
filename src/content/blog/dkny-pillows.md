@@ -1,10 +1,14 @@
 ---
-title: "Dkny Pillows: Stylish Decorative Cushions to Elevate Your Home Decor"
-description: "DKNY pillows blend style and comfort for any home space. Their designs range from simple stripes to textured knits and embroidery. These pillows add a cozy touc"
+title: 'Dkny Pillows: Stylish Decorative Cushions to Elevate Your Home Decor'
+description: DKNY pillows blend style and comfort for any home space. Their designs
+  range from simple stripes to textured knits and embroidery. These pillows add a
+  cozy touc
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=dkny-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **DKNY pillows blend style and comfort for any home space. Their designs range from simple stripes to textured knits and embroidery.**

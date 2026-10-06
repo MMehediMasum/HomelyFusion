@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Home Theater Cables: Expert Tips for a Clean Setup"
 description: "Are your home theater cables turning your sleek setup into a tangled mess? You’re not alone. Messy cables can ruin the look of your room and even cause frustrat"
 pubDate: 2025-10-15

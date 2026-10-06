@@ -1,10 +1,14 @@
 ---
-title: "What is the Depth of a Bathroom Vanity: Ultimate Guide to Perfect Fit"
-description: "When you’re planning your bathroom makeover, one detail can make a big difference: the depth of your bathroom vanity. You might not have thought about it before"
+title: 'What is the Depth of a Bathroom Vanity: Ultimate Guide to Perfect Fit'
+description: 'When you’re planning your bathroom makeover, one detail can make a big
+  difference: the depth of your bathroom vanity. You might not have thought about
+  it before'
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-depth-of-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-depth-of-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When you’re planning your bathroom makeover, one detail can make a big difference: the depth of your bathroom vanity. You might not have thought about it before, but the right depth affects how comfortable and practical your space feels every day.**

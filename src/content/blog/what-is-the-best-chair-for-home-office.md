@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Chair for Home Office: Ultimate Comfort Guide"
-description: "Choosing the best chair for your home office can change how you feel every single workday. You spend hours sitting, so why settle for discomfort or poor support"
+title: 'What is the Best Chair for Home Office: Ultimate Comfort Guide'
+description: Choosing the best chair for your home office can change how you feel
+  every single workday. You spend hours sitting, so why settle for discomfort or poor
+  support
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-chair-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-chair-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the best chair for your home office can change how you feel every single workday. You spend hours sitting, so why settle for discomfort or poor support?**

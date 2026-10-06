@@ -1,10 +1,13 @@
 ---
-title: "Christmas Pillows Home Goods: Cozy Decorative Picks for Festive Living Spaces"
-description: "Decorating your home for Christmas brings warmth and joy. Christmas pillows add a festive touch to any space. These decorative pillows, with their vibrant desig"
+title: 'Christmas Pillows Home Goods: Cozy Decorative Picks for Festive Living Spaces'
+description: Decorating your home for Christmas brings warmth and joy. Christmas pillows
+  add a festive touch to any space. These decorative pillows, with their vibrant desig
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=christmas-pillows-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Decorating your home for Christmas brings warmth and joy. Christmas pillows add a festive touch to any space.**

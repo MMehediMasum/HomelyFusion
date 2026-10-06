@@ -1,10 +1,14 @@
 ---
-title: "What to Put behind Cabinets into Living Room: Stunning Ideas Revealed"
-description: "Are you wondering what to put behind cabinets in your living room? This small design choice can make a big difference in how your space looks and feels. Whether"
+title: 'What to Put behind Cabinets into Living Room: Stunning Ideas Revealed'
+description: Are you wondering what to put behind cabinets in your living room? This
+  small design choice can make a big difference in how your space looks and feels.
+  Whether
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-behind-cabinets-into-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-behind-cabinets-into-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering what to put behind cabinets in your living room? This small design choice can make a big difference in how your space looks and feels.**

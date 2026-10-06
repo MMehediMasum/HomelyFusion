@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Bay Windows: Stylish Rods and Blackout Panels Guide"
-description: "Choosing the best curtains for bay windows enhances both style and function in your home. Bay windows need special curtain rods and panels to fit their unique s"
+title: 'Best Curtains for Bay Windows: Stylish Rods and Blackout Panels Guide'
+description: Choosing the best curtains for bay windows enhances both style and function
+  in your home. Bay windows need special curtain rods and panels to fit their unique
+  s
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-bay-windows-stylish-rods-and-blackout-panels-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-bay-windows-stylish-rods-and-blackout-panels-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for bay windows enhances both style and function in your home. Bay windows need special curtain rods and panels to fit their unique shape.**

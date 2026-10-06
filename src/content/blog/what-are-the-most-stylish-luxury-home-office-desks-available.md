@@ -1,10 +1,14 @@
 ---
-title: "What are the Most Stylish Luxury Home Office Desks Available: Top Picks"
-description: "Your home office deserves a desk that matches your style and boosts your productivity. Imagine sitting at a desk that not only looks stunning but also makes you"
+title: 'What are the Most Stylish Luxury Home Office Desks Available: Top Picks'
+description: Your home office deserves a desk that matches your style and boosts your
+  productivity. Imagine sitting at a desk that not only looks stunning but also makes
+  you
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-most-stylish-luxury-home-office-desks-available&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-most-stylish-luxury-home-office-desks-available&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your home office deserves a desk that matches your style and boosts your productivity. Imagine sitting at a desk that not only looks stunning but also makes you feel motivated every single day.**

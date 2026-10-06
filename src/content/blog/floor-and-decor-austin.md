@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Austin: Top Vintage & Modern Home Decor Picks"
-description: "Discover the charm of Austin, Texas, through unique home decor and thoughtful gifts. Floor and Decor Austin offers a diverse range of items that bring the city'"
+title: 'Floor And Decor Austin: Top Vintage & Modern Home Decor Picks'
+description: Discover the charm of Austin, Texas, through unique home decor and thoughtful
+  gifts. Floor and Decor Austin offers a diverse range of items that bring the city'
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-austin&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-austin&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the charm of Austin, Texas, through unique home decor and thoughtful gifts. Floor and Decor Austin offers a diverse range of items that bring the city's vibrant spirit into your living space.**

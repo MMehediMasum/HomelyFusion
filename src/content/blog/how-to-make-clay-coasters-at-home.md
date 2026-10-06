@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Coasters at Home: Easy DIY Craft Guide"
-description: "Are you looking for a fun and creative way to add a personal touch to your home? Making clay coasters at home is easier than you think. Not only will you get un"
+title: 'How to Make Clay Coasters at Home: Easy DIY Craft Guide'
+description: Are you looking for a fun and creative way to add a personal touch to
+  your home? Making clay coasters at home is easier than you think. Not only will
+  you get un
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-coasters-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-coasters-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your home? Making clay coasters at home is easier than you think.**

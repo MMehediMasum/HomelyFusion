@@ -1,10 +1,14 @@
 ---
-title: "What Color Sofa for Living Room: Ultimate Guide to Perfect Hues"
-description: "Choosing the right color sofa for your living room can change everything. It sets the mood, highlights your style, and even affects how comfortable you feel in "
+title: 'What Color Sofa for Living Room: Ultimate Guide to Perfect Hues'
+description: 'Choosing the right color sofa for your living room can change everything.
+  It sets the mood, highlights your style, and even affects how comfortable you feel
+  in '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-sofa-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-color-sofa-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right color sofa for your living room can change everything. It sets the mood, highlights your style, and even affects how comfortable you feel in the space.**

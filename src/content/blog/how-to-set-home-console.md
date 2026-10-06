@@ -1,10 +1,14 @@
 ---
-title: "How to Set Home Console: Easy Steps for Perfect Setup"
-description: "Setting up your home console doesn’t have to be confusing or stressful. Whether you just bought a new gaming system or want to get the most out of the one you h"
+title: 'How to Set Home Console: Easy Steps for Perfect Setup'
+description: Setting up your home console doesn’t have to be confusing or stressful.
+  Whether you just bought a new gaming system or want to get the most out of the one
+  you h
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-home-console&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-home-console&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Setting up your home console doesn’t have to be confusing or stressful. Whether you just bought a new gaming system or want to get the most out of the one you have, this guide will help you step-by-step.**

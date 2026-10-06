@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Dressing Table in Small Bedroom: Smart Space Hacks"
-description: "Struggling to find the perfect spot for your dressing table in a small bedroom? You’re not alone. When space is tight, every inch counts, and placing your dress"
+title: 'Where to Put Dressing Table in Small Bedroom: Smart Space Hacks'
+description: Struggling to find the perfect spot for your dressing table in a small
+  bedroom? You’re not alone. When space is tight, every inch counts, and placing your
+  dress
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-dressing-table-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-dressing-table-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to find the perfect spot for your dressing table in a small bedroom? You’re not alone.**

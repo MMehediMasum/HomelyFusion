@@ -1,10 +1,14 @@
 ---
-title: "Marshalls Winnie the Pooh Blanket: Cozy Comfort for Disney Fans"
-description: "The Marshalls Winnie the Pooh Blanket offers warmth and comfort with beloved Disney characters. It suits kids and fans who enjoy soft, cozy throws. This blanket"
+title: 'Marshalls Winnie the Pooh Blanket: Cozy Comfort for Disney Fans'
+description: The Marshalls Winnie the Pooh Blanket offers warmth and comfort with
+  beloved Disney characters. It suits kids and fans who enjoy soft, cozy throws. This
+  blanket
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=marshalls-winnie-the-pooh-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=marshalls-winnie-the-pooh-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Marshalls Winnie the Pooh Blanket offers warmth and comfort with beloved Disney characters. It suits kids and fans who enjoy soft, cozy throws.**

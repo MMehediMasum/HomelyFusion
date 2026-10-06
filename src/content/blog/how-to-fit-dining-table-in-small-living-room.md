@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Dining Table in Small Living Room: Smart Space Hacks"
-description: "Struggling to fit a dining table in your small living room? You’re not alone. Finding the perfect spot for your table without making the space feel cramped can "
+title: 'How to Fit Dining Table in Small Living Room: Smart Space Hacks'
+description: 'Struggling to fit a dining table in your small living room? You’re not
+  alone. Finding the perfect spot for your table without making the space feel cramped
+  can '
 pubDate: 2026-03-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-dining-table-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-dining-table-in-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to fit a dining table in your small living room? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Mirrors Home Goods: Stylish Full-Length Mirrors for Every Room"
-description: "Wall mirrors add style and function to any home space. They reflect light and create a feeling of openness. Wall mirrors come in many shapes and sizes, perfect "
+title: 'Wall Mirrors Home Goods: Stylish Full-Length Mirrors for Every Room'
+description: 'Wall mirrors add style and function to any home space. They reflect
+  light and create a feeling of openness. Wall mirrors come in many shapes and sizes,
+  perfect '
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-mirrors-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=wall-mirrors-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall mirrors add style and function to any home space. They reflect light and create a feeling of openness.**

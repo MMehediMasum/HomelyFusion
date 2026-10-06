@@ -1,10 +1,14 @@
 ---
-title: "Best Bathroom Sink for Small Bathroom: Top Space-Saving Picks"
-description: "Finding the best bathroom sink for your small bathroom can feel like a tough puzzle. You want something that fits perfectly, looks great, and doesn’t steal all "
+title: 'Best Bathroom Sink for Small Bathroom: Top Space-Saving Picks'
+description: 'Finding the best bathroom sink for your small bathroom can feel like
+  a tough puzzle. You want something that fits perfectly, looks great, and doesn’t
+  steal all '
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bathroom-sink-for-small-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-bathroom-sink-for-small-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding the best bathroom sink for your small bathroom can feel like a tough puzzle. You want something that fits perfectly, looks great, and doesn’t steal all your space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Cups at Home: Easy Steps for Beautiful DIY Crafts"
-description: "Have you ever wanted to create something beautiful and useful with your own hands? Making clay cups at home is easier than you might think, and it’s a fun way t"
+title: 'How to Make Clay Cups at Home: Easy Steps for Beautiful DIY Crafts'
+description: Have you ever wanted to create something beautiful and useful with your
+  own hands? Making clay cups at home is easier than you might think, and it’s a fun
+  way t
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-cups-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-cups-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something beautiful and useful with your own hands? Making clay cups at home is easier than you might think, and it’s a fun way to bring a personal touch to your kitchen.**

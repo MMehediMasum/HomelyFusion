@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Cabinet: Stylish Storage Solutions for Modern Living Spaces"
-description: "Tahari Home Cabinets offer stylish and practical storage solutions for any room. These cabinets blend modern design with useful features. Tahari Home Cabinets c"
+title: 'Tahari Home Cabinet: Stylish Storage Solutions for Modern Living Spaces'
+description: Tahari Home Cabinets offer stylish and practical storage solutions for
+  any room. These cabinets blend modern design with useful features. Tahari Home Cabinets
+  c
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Tahari Home Cabinets offer stylish and practical storage solutions for any room. These cabinets blend modern design with useful features.**

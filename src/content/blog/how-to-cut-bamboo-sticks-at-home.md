@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Bamboo Sticks at Home: Easy Tips for Perfect Cuts"
 description: "Are you looking to cut bamboo sticks at home but don’t know where to start? You’re in the right place. Cutting bamboo might seem tricky, but with the right tips"
 pubDate: 2026-02-11

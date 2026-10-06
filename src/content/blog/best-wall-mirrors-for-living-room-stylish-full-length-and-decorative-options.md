@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Mirrors for Living Room: Stylish Full-Length and Decorative Options"
-description: "Choosing the best wall mirrors for your living room can brighten and enlarge your space instantly. Mirrors add style and light, making any room feel more open a"
+title: 'Best Wall Mirrors for Living Room: Stylish Full-Length and Decorative Options'
+description: Choosing the best wall mirrors for your living room can brighten and
+  enlarge your space instantly. Mirrors add style and light, making any room feel
+  more open a
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-mirrors-for-living-room-stylish-full-length-and-decorative-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-mirrors-for-living-room-stylish-full-length-and-decorative-options&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best wall mirrors for your living room can brighten and enlarge your space instantly. Mirrors add style and light, making any room feel more open and inviting.**

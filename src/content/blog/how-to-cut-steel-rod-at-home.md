@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Steel Rod at Home: Easy & Safe DIY Methods"
 description: "Cutting a steel rod at home might sound tough, but it’s easier than you think. Whether you’re working on a DIY project or fixing something around the house, kno"
 pubDate: 2026-02-07

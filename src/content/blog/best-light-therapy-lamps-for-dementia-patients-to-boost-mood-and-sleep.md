@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Light Therapy Lamps for Dementia Patients to Boost Mood and Sleep"
 description: "Light therapy lamps can help improve mood and sleep for dementia patients. These lamps provide bright, UV-free light that supports daily well-being. Dementia of"
 pubDate: 2025-11-12

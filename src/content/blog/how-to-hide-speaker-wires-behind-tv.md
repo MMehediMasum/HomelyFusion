@@ -1,10 +1,13 @@
 ---
-title: "How to Hide Speaker Wires behind Tv: Easy & Neat Cable Solutions"
-description: "Are your speaker wires cluttering the space behind your TV? Tangled cords can ruin the clean, sleek look you want for your entertainment area. But don’t worry—y"
+title: 'How to Hide Speaker Wires behind Tv: Easy & Neat Cable Solutions'
+description: Are your speaker wires cluttering the space behind your TV? Tangled cords
+  can ruin the clean, sleek look you want for your entertainment area. But don’t worry—y
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-behind-tv&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TV Wire Concealment
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-behind-tv&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your speaker wires cluttering the space behind your TV? Tangled cords can ruin the clean, sleek look you want for your entertainment area.**

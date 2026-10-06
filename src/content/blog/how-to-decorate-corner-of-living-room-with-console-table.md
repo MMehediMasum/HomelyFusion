@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Corner of Living Room With Console Table: Stunning Ideas"
-description: "Are you struggling to make the most of that empty corner in your living room? A console table could be the perfect solution to transform that unused space into "
+title: 'How to Decorate Corner of Living Room With Console Table: Stunning Ideas'
+description: 'Are you struggling to make the most of that empty corner in your living
+  room? A console table could be the perfect solution to transform that unused space
+  into '
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-corner-of-living-room-with-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-corner-of-living-room-with-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to make the most of that empty corner in your living room? A console table could be the perfect solution to transform that unused space into a stylish and functional area.**

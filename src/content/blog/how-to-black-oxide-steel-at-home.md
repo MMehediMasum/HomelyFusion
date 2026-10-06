@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Black Oxide Steel at Home: Easy Steps for Perfect Finish"
 description: "Are you looking to give your steel tools or parts a sleek, black finish right at home? Black oxide coating not only improves the appearance of your steel but al"
 pubDate: 2026-04-11

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor West Palm Beach: Top Tropical Wall Art & Coastal Decor Picks"
 description: "Floor And Decor West Palm Beach offers a wide range of coastal and tropical-themed home decor. Their collection suits bedrooms, living rooms, bathrooms, and out"
 pubDate: 2026-07-16

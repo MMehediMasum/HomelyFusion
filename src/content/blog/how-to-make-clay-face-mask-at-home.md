@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Face Mask at Home: Easy Steps for Glowing Skin"
 description: "Are you looking for a simple way to refresh your skin without spending a lot on expensive products? Making a clay face mask at home could be exactly what you ne"
 pubDate: 2026-02-07

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Ottoman: Stylish Storage Solutions for Living Room & Bedroom"
-description: "Homegoods ottomans offer style and functionality for every room. These versatile pieces enhance living spaces with ease. Ottomans are the unsung heroes of home "
+title: 'Homegoods Ottoman: Stylish Storage Solutions for Living Room & Bedroom'
+description: 'Homegoods ottomans offer style and functionality for every room. These
+  versatile pieces enhance living spaces with ease. Ottomans are the unsung heroes
+  of home '
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-ottoman&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-ottoman&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Homegoods ottomans offer style and functionality for every room. These versatile pieces enhance living spaces with ease.**

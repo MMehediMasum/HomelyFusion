@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Picture Frames Without Damaging Wall: Easy & Safe Tips"
-description: "Hanging picture frames can instantly brighten up your space and make it feel like home. But if you’re worried about leaving holes or marks on your walls, you’re"
+title: 'How to Hang Picture Frames Without Damaging Wall: Easy & Safe Tips'
+description: Hanging picture frames can instantly brighten up your space and make
+  it feel like home. But if you’re worried about leaving holes or marks on your walls,
+  you’re
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-picture-frames-without-damaging-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-picture-frames-without-damaging-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging picture frames can instantly brighten up your space and make it feel like home. But if you’re worried about leaving holes or marks on your walls, you’re not alone.**

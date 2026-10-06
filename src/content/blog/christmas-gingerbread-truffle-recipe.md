@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Gingerbread Truffle Recipe: Irresistible Holiday Delight"
 description: "Are you ready to add a delicious twist to your holiday treats? This Christmas Gingerbread Truffle Recipe is just what you need to impress your family and friend"
 pubDate: 2025-09-16

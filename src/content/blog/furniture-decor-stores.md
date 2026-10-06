@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decor Stores: Top Picks for Stylish Lamps, Shelves, and Rustic Accents"
-description: "Discover the charm of furniture decor stores with a range of stylish and practical options. Enhance your living space effortlessly. Furniture decor stores offer"
+title: 'Furniture Decor Stores: Top Picks for Stylish Lamps, Shelves, and Rustic Accents'
+description: Discover the charm of furniture decor stores with a range of stylish
+  and practical options. Enhance your living space effortlessly. Furniture decor stores
+  offer
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decor-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decor-stores&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the charm of furniture decor stores with a range of stylish and practical options. Enhance your living space effortlessly.**

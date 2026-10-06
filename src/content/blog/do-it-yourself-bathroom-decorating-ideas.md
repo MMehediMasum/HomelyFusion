@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Bathroom Decorating Ideas: Stunning Transformations Made Easy"
-description: "Your bathroom should feel like a personal retreat, a place where you start and end your day with comfort and style. But you don’t need to spend a fortune or hir"
+title: 'Do It Yourself Bathroom Decorating Ideas: Stunning Transformations Made Easy'
+description: Your bathroom should feel like a personal retreat, a place where you
+  start and end your day with comfort and style. But you don’t need to spend a fortune
+  or hir
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-bathroom-decorating-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-bathroom-decorating-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom should feel like a personal retreat, a place where you start and end your day with comfort and style. But you don’t need to spend a fortune or hire experts to make it look amazing.**

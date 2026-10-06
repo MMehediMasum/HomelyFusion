@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor Maryland: Unique Maryland-Themed Rugs and Doormats for Home"
 description: "Floor Decor Maryland offers unique and practical floor mats and rugs inspired by Maryland’s rich heritage. These items add comfort, style, and local pride to an"
 pubDate: 2026-07-28

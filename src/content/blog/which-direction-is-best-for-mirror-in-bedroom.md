@@ -1,10 +1,14 @@
 ---
-title: "Which Direction is Best for Mirror in Bedroom: Ultimate Feng Shui Guide"
-description: "Have you ever wondered if the direction of your bedroom mirror affects your energy, sleep, or even your mood? You might be surprised to learn that where you pla"
+title: 'Which Direction is Best for Mirror in Bedroom: Ultimate Feng Shui Guide'
+description: Have you ever wondered if the direction of your bedroom mirror affects
+  your energy, sleep, or even your mood? You might be surprised to learn that where
+  you pla
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-direction-is-best-for-mirror-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=which-direction-is-best-for-mirror-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if the direction of your bedroom mirror affects your energy, sleep, or even your mood? You might be surprised to learn that where you place your mirror can change how your room feels and functions.**

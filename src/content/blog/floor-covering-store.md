@@ -1,10 +1,14 @@
 ---
-title: "Floor Covering Store: Top Peel & Stick Tiles and Durable Rugs Reviewed"
-description: "Choosing the right floor covering can transform your home. Whether it's style, protection, or functionality, options abound. Floor covering stores offer a diver"
+title: 'Floor Covering Store: Top Peel & Stick Tiles and Durable Rugs Reviewed'
+description: Choosing the right floor covering can transform your home. Whether it's
+  style, protection, or functionality, options abound. Floor covering stores offer
+  a diver
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-covering-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-covering-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right floor covering can transform your home. Whether it's style, protection, or functionality, options abound.**

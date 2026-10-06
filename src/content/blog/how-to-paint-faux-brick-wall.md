@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Faux Brick Wall: Easy Steps for Stunning Results"
-description: "Are you looking to add charm and character to your space without the cost and hassle of real brick? Painting a faux brick wall is a simple and affordable way to"
+title: 'How to Paint Faux Brick Wall: Easy Steps for Stunning Results'
+description: Are you looking to add charm and character to your space without the
+  cost and hassle of real brick? Painting a faux brick wall is a simple and affordable
+  way to
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-faux-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-faux-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add charm and character to your space without the cost and hassle of real brick? Painting a faux brick wall is a simple and affordable way to transform any room instantly.**

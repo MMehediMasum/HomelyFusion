@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Hemp Oil at Home: Easy Steps for Pure, Natural Oil"
 description: "Are you curious about making hemp oil right in your own kitchen? Imagine having fresh, natural hemp oil that you made yourself—pure, affordable, and free from a"
 pubDate: 2026-02-25

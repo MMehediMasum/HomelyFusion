@@ -1,10 +1,14 @@
 ---
-title: "How to Do a Lava Lamp at Home: Easy DIY Science Experiment"
-description: "Have you ever been mesmerized by the slow, colorful bubbles rising and falling inside a lava lamp? Imagine creating that magical effect right in your own home w"
+title: 'How to Do a Lava Lamp at Home: Easy DIY Science Experiment'
+description: Have you ever been mesmerized by the slow, colorful bubbles rising and
+  falling inside a lava lamp? Imagine creating that magical effect right in your own
+  home w
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-do-a-lava-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lava Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-do-a-lava-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever been mesmerized by the slow, colorful bubbles rising and falling inside a lava lamp? Imagine creating that magical effect right in your own home with simple ingredients you probably already have.**

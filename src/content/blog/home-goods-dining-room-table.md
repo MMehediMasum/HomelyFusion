@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Dining Room Table: Transform Your Space with Versatile Elegance"
-description: "Choosing the right dining room table shapes your home’s atmosphere and daily comfort. Home goods dining room tables offer many styles and sizes to fit your need"
+title: 'Home Goods Dining Room Table: Transform Your Space with Versatile Elegance'
+description: Choosing the right dining room table shapes your home’s atmosphere and
+  daily comfort. Home goods dining room tables offer many styles and sizes to fit
+  your need
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-dining-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-dining-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right dining room table shapes your home’s atmosphere and daily comfort. Home goods dining room tables offer many styles and sizes to fit your needs.**

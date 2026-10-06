@@ -1,10 +1,14 @@
 ---
-title: "Christmas Rustic Plaid Table Decor: Cozy Ideas to Impress Guests"
-description: "Looking to make your Christmas table feel warm and inviting this year? Rustic plaid table decor might be exactly what you need to create that cozy holiday atmos"
+title: 'Christmas Rustic Plaid Table Decor: Cozy Ideas to Impress Guests'
+description: Looking to make your Christmas table feel warm and inviting this year?
+  Rustic plaid table decor might be exactly what you need to create that cozy holiday
+  atmos
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-rustic-plaid-table-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-rustic-plaid-table-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to make your Christmas table feel warm and inviting this year? Rustic plaid table decor might be exactly what you need to create that cozy holiday atmosphere.**

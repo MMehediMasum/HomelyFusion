@@ -1,10 +1,14 @@
 ---
-title: "How to Make Small Bedroom Look Bigger With Mirrors: Stunning Tips"
-description: "Do you ever feel like your small bedroom is closing in on you? What if you could instantly open up the space without any major renovations? Mirrors hold a secre"
+title: 'How to Make Small Bedroom Look Bigger With Mirrors: Stunning Tips'
+description: Do you ever feel like your small bedroom is closing in on you? What if
+  you could instantly open up the space without any major renovations? Mirrors hold
+  a secre
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-small-bedroom-look-bigger-with-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-small-bedroom-look-bigger-with-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Do you ever feel like your small bedroom is closing in on you? What if you could instantly open up the space without any major renovations?**

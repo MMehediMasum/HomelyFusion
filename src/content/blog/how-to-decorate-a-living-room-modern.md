@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Modern: Stunning Tips for Chic Style"
-description: "Are you ready to transform your living room into a stylish, modern space that feels both comfortable and inviting? Decorating a living room with a modern touch "
+title: 'How to Decorate a Living Room Modern: Stunning Tips for Chic Style'
+description: 'Are you ready to transform your living room into a stylish, modern space
+  that feels both comfortable and inviting? Decorating a living room with a modern
+  touch '
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-modern&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-modern&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you ready to transform your living room into a stylish, modern space that feels both comfortable and inviting? Decorating a living room with a modern touch doesn’t have to be complicated or expensive.**

@@ -1,10 +1,14 @@
 ---
-title: "Tree Skirt Home Goods: Cozy Rustic Christmas Decor for Holiday Cheer"
-description: "Tree skirts add charm and warmth to holiday decor. Home Goods offers a variety of stylish tree skirts for every festive need. Choosing the right tree skirt can "
+title: 'Tree Skirt Home Goods: Cozy Rustic Christmas Decor for Holiday Cheer'
+description: 'Tree skirts add charm and warmth to holiday decor. Home Goods offers
+  a variety of stylish tree skirts for every festive need. Choosing the right tree
+  skirt can '
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tree-skirt-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=tree-skirt-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tree skirts add charm and warmth to holiday decor. Home Goods offers a variety of stylish tree skirts for every festive need.**

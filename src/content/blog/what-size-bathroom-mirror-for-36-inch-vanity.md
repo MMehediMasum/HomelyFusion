@@ -1,10 +1,14 @@
 ---
-title: "What Size Bathroom Mirror for 36 Inch Vanity: Perfect Fit Guide"
-description: "Choosing the right bathroom mirror for your 36-inch vanity might seem simple, but it can make a big difference in how your space looks and feels. You want a mir"
+title: 'What Size Bathroom Mirror for 36 Inch Vanity: Perfect Fit Guide'
+description: Choosing the right bathroom mirror for your 36-inch vanity might seem
+  simple, but it can make a big difference in how your space looks and feels. You
+  want a mir
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-36-inch-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-36-inch-vanity&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right bathroom mirror for your 36-inch vanity might seem simple, but it can make a big difference in how your space looks and feels. You want a mirror that fits perfectly, enhances your bathroom’s style, and makes your daily routine easier.**

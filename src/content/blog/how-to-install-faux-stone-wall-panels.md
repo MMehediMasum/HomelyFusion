@@ -1,10 +1,14 @@
 ---
-title: "How to Install Faux Stone Wall Panels: Easy Steps for Stunning Walls"
-description: "Are you looking to give your walls a stunning makeover without breaking the bank or spending weeks on construction? Installing faux stone wall panels is a smart"
+title: 'How to Install Faux Stone Wall Panels: Easy Steps for Stunning Walls'
+description: Are you looking to give your walls a stunning makeover without breaking
+  the bank or spending weeks on construction? Installing faux stone wall panels is
+  a smart
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-faux-stone-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-faux-stone-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your walls a stunning makeover without breaking the bank or spending weeks on construction? Installing faux stone wall panels is a smart and simple way to add charm and style to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Select Sofa Set for Living Room: Ultimate Buying Guide"
-description: "Choosing the perfect sofa set for your living room can feel overwhelming. You want something comfortable, stylish, and just right for your space. But how do you"
+title: 'How to Select Sofa Set for Living Room: Ultimate Buying Guide'
+description: Choosing the perfect sofa set for your living room can feel overwhelming.
+  You want something comfortable, stylish, and just right for your space. But how
+  do you
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-select-sofa-set-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-select-sofa-set-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa set for your living room can feel overwhelming. You want something comfortable, stylish, and just right for your space.**

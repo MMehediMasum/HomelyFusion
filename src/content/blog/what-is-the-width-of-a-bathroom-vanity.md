@@ -1,10 +1,14 @@
 ---
-title: "What is the Width of a Bathroom Vanity: Ultimate Size Guide"
-description: "Are you planning to upgrade your bathroom but unsure about the perfect vanity size? The width of a bathroom vanity can make a big difference in how your space l"
+title: 'What is the Width of a Bathroom Vanity: Ultimate Size Guide'
+description: Are you planning to upgrade your bathroom but unsure about the perfect
+  vanity size? The width of a bathroom vanity can make a big difference in how your
+  space l
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-width-of-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-width-of-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom but unsure about the perfect vanity size? The width of a bathroom vanity can make a big difference in how your space looks and feels.**

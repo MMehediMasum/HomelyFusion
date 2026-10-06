@@ -1,10 +1,13 @@
 ---
-title: "Home Wall Decor Ideas: Transform Your Space with Stylish Accents"
-description: "Home wall decor adds style and personality to any living space. It transforms plain walls into vibrant, welcoming areas. Choosing the right wall decor can brigh"
+title: 'Home Wall Decor Ideas: Transform Your Space with Stylish Accents'
+description: Home wall decor adds style and personality to any living space. It transforms
+  plain walls into vibrant, welcoming areas. Choosing the right wall decor can brigh
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home wall decor adds style and personality to any living space. It transforms plain walls into vibrant, welcoming areas.**

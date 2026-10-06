@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Open Shelves in Kitchen: Stunning Stylish Ideas"
-description: "Are your kitchen shelves feeling a bit plain or cluttered? Decorating open shelves can completely transform your kitchen’s look, making it both stylish and func"
+title: 'How to Decorate Open Shelves in Kitchen: Stunning Stylish Ideas'
+description: Are your kitchen shelves feeling a bit plain or cluttered? Decorating
+  open shelves can completely transform your kitchen’s look, making it both stylish
+  and func
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-open-shelves-in-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-open-shelves-in-kitchen&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your kitchen shelves feeling a bit plain or cluttered? Decorating open shelves can completely transform your kitchen’s look, making it both stylish and functional.**

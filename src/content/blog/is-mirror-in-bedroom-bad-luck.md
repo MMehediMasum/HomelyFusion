@@ -1,10 +1,14 @@
 ---
-title: "Is Mirror in Bedroom Bad Luck: Myths, Truths & Expert Tips"
-description: "Have you ever wondered if having a mirror in your bedroom could bring bad luck? You’re not alone. Many people believe mirrors in the bedroom can affect your ene"
+title: 'Is Mirror in Bedroom Bad Luck: Myths, Truths & Expert Tips'
+description: Have you ever wondered if having a mirror in your bedroom could bring
+  bad luck? You’re not alone. Many people believe mirrors in the bedroom can affect
+  your ene
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-mirror-in-bedroom-bad-luck&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=is-mirror-in-bedroom-bad-luck&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if having a mirror in your bedroom could bring bad luck? You’re not alone.**

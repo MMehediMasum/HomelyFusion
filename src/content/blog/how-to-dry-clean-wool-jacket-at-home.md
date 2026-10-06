@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean Wool Jacket at Home: Easy Steps for Perfect Care"
 description: "Wool jackets are a stylish and cozy addition to your wardrobe, but cleaning them can feel tricky. You might worry about shrinking, damaging, or losing the softn"
 pubDate: 2026-02-05

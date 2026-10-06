@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Letters Wall Ideas: Stylish Alphabet Signs for Every Room"
-description: "Home decor letters wall add charm and personality to any room. They create unique, eye-catching designs with simple style. Decorative letters come in many mater"
+title: 'Home Decor Letters Wall Ideas: Stylish Alphabet Signs for Every Room'
+description: Home decor letters wall add charm and personality to any room. They create
+  unique, eye-catching designs with simple style. Decorative letters come in many
+  mater
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-letters-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-letters-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home decor letters wall add charm and personality to any room. They create unique, eye-catching designs with simple style.**

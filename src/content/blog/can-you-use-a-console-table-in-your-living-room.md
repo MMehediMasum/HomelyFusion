@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Console Table in Your Living Room: Stylish Ideas"
-description: "Have you ever walked into your living room and felt like something was missing? Maybe your space lacks that perfect blend of style and function. That’s where a "
+title: 'Can You Use a Console Table in Your Living Room: Stylish Ideas'
+description: 'Have you ever walked into your living room and felt like something was
+  missing? Maybe your space lacks that perfect blend of style and function. That’s
+  where a '
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-console-table-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-console-table-in-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into your living room and felt like something was missing? Maybe your space lacks that perfect blend of style and function.**

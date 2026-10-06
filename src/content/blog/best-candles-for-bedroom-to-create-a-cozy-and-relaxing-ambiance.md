@@ -1,10 +1,14 @@
 ---
-title: "Best Candles for Bedroom to Create a Cozy and Relaxing Ambiance"
-description: "Candles add warmth and calm to any bedroom. Choosing the best candle helps create a cozy and relaxing space. A good bedroom candle offers pleasant scents and a "
+title: Best Candles for Bedroom to Create a Cozy and Relaxing Ambiance
+description: 'Candles add warmth and calm to any bedroom. Choosing the best candle
+  helps create a cozy and relaxing space. A good bedroom candle offers pleasant scents
+  and a '
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-candles-for-bedroom-to-create-a-cozy-and-relaxing-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=best-candles-for-bedroom-to-create-a-cozy-and-relaxing-ambiance&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Candles add warmth and calm to any bedroom. Choosing the best candle helps create a cozy and relaxing space.**

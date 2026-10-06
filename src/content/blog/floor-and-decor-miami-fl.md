@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Miami Fl: Unique Miami-Themed Wall and Home Décor Ideas"
 description: "Discover the vibrant world of floor and decor in Miami, FL. Transform your space with unique, stylish items. Miami offers diverse decor options for every taste."
 pubDate: 2026-07-31

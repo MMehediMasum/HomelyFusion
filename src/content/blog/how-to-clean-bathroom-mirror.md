@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bathroom Mirror: Easy Tips for a Streak-Free Shine"
-description: "Your bathroom mirror is one of the first things you see every day. But if it’s foggy, spotted, or streaked, it can ruin your whole morning. Imagine looking into"
+title: 'How to Clean Bathroom Mirror: Easy Tips for a Streak-Free Shine'
+description: Your bathroom mirror is one of the first things you see every day. But
+  if it’s foggy, spotted, or streaked, it can ruin your whole morning. Imagine looking
+  into
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bathroom mirror is one of the first things you see every day. But if it’s foggy, spotted, or streaked, it can ruin your whole morning.**

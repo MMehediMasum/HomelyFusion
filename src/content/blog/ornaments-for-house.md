@@ -1,10 +1,14 @@
 ---
-title: "Ornaments for House: Elegant Keepsake Gifts and Stunning Holiday Decorations"
-description: "Ornaments add charm and personality to any home. They offer a touch of elegance and warmth. Whether celebrating a new home or marking a special occasion, orname"
+title: 'Ornaments for House: Elegant Keepsake Gifts and Stunning Holiday Decorations'
+description: Ornaments add charm and personality to any home. They offer a touch of
+  elegance and warmth. Whether celebrating a new home or marking a special occasion,
+  orname
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornaments-for-house&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=ornaments-for-house&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Ornaments add charm and personality to any home. They offer a touch of elegance and warmth.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Use Kitchen Table in Living Room: Creative Space Hacks"
-description: "Are you struggling to make the most of your living room space? Using a kitchen table in your living room can be a smart and stylish solution. Imagine turning a "
+title: 'How to Use Kitchen Table in Living Room: Creative Space Hacks'
+description: 'Are you struggling to make the most of your living room space? Using
+  a kitchen table in your living room can be a smart and stylish solution. Imagine
+  turning a '
 pubDate: 2026-03-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-kitchen-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-kitchen-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to make the most of your living room space? Using a kitchen table in your living room can be a smart and stylish solution.**

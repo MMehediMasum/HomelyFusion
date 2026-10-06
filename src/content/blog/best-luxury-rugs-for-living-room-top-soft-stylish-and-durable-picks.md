@@ -1,10 +1,14 @@
 ---
-title: "Best Luxury Rugs for Living Room: Top Soft, Stylish, and Durable Picks"
-description: "Choosing the best luxury rugs for your living room adds comfort and style. These rugs bring warmth and elegance to any space. Luxury rugs blend soft textures an"
+title: 'Best Luxury Rugs for Living Room: Top Soft, Stylish, and Durable Picks'
+description: Choosing the best luxury rugs for your living room adds comfort and style.
+  These rugs bring warmth and elegance to any space. Luxury rugs blend soft textures
+  an
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-luxury-rugs-for-living-room-top-soft-stylish-and-durable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-luxury-rugs-for-living-room-top-soft-stylish-and-durable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best luxury rugs for your living room adds comfort and style. These rugs bring warmth and elegance to any space.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Cheap Bedroom Wardrobes: Top Budget-Friendly Stores"
-description: "Looking for a great deal on bedroom wardrobes? You want something stylish, sturdy, and affordable—all at the same time. But where do you find wardrobes that won"
+title: 'Where to Buy Cheap Bedroom Wardrobes: Top Budget-Friendly Stores'
+description: Looking for a great deal on bedroom wardrobes? You want something stylish,
+  sturdy, and affordable—all at the same time. But where do you find wardrobes that
+  won
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bedroom-wardrobes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bedroom-wardrobes&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking for a great deal on bedroom wardrobes? You want something stylish, sturdy, and affordable—all at the same time.**

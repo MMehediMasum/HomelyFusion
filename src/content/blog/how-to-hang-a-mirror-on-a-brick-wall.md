@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Mirror on a Brick Wall: Easy Steps for Perfect Mounting"
-description: "Hanging a mirror on a brick wall might seem tricky, but with the right steps, you can do it yourself and transform your space instantly. Imagine how a well-plac"
+title: 'How to Hang a Mirror on a Brick Wall: Easy Steps for Perfect Mounting'
+description: Hanging a mirror on a brick wall might seem tricky, but with the right
+  steps, you can do it yourself and transform your space instantly. Imagine how a
+  well-plac
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-mirror-on-a-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-mirror-on-a-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a mirror on a brick wall might seem tricky, but with the right steps, you can do it yourself and transform your space instantly. Imagine how a well-placed mirror can brighten your room, add depth, and make your home feel larger.**

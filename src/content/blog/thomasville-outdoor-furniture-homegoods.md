@@ -1,10 +1,15 @@
 ---
-title: "Thomasville Outdoor Furniture Homegoods: Ultimate Patio Comfort and Style Guide"
-description: "Discover Thomasville's outdoor furniture collection designed for style and comfort. This selection offers versatile pieces for any space. Thomasville Outdoor Fu"
+title: 'Thomasville Outdoor Furniture Homegoods: Ultimate Patio Comfort and Style
+  Guide'
+description: Discover Thomasville's outdoor furniture collection designed for style
+  and comfort. This selection offers versatile pieces for any space. Thomasville Outdoor
+  Fu
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thomasville-outdoor-furniture-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=thomasville-outdoor-furniture-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Discover Thomasville's outdoor furniture collection designed for style and comfort. This selection offers versatile pieces for any space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Farmhouse Bathroom Vanity: Easy Step-by-Step Guide"
-description: "Are you dreaming of a bathroom that feels warm, cozy, and full of charm? Building your own farmhouse bathroom vanity can transform your space into a stylish ret"
+title: 'How to Build a Farmhouse Bathroom Vanity: Easy Step-by-Step Guide'
+description: Are you dreaming of a bathroom that feels warm, cozy, and full of charm?
+  Building your own farmhouse bathroom vanity can transform your space into a stylish
+  ret
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-farmhouse-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-farmhouse-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of a bathroom that feels warm, cozy, and full of charm? Building your own farmhouse bathroom vanity can transform your space into a stylish retreat without breaking the bank.**

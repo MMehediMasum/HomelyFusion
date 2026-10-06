@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Color Stainless Steel at Home: Easy DIY Guide"
 description: "Have you ever wanted to add a splash of color to your stainless steel items without spending a fortune? Whether it's your kitchen appliances, jewelry, or decora"
 pubDate: 2026-03-19

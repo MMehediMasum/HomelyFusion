@@ -1,10 +1,14 @@
 ---
-title: "How to Install Wood Slat Wall Panels: Easy Steps for Stunning Walls"
-description: "Are you looking to give your space a fresh, modern look without spending a fortune? Installing wood slat wall panels might be the perfect solution for you. Thes"
+title: 'How to Install Wood Slat Wall Panels: Easy Steps for Stunning Walls'
+description: Are you looking to give your space a fresh, modern look without spending
+  a fortune? Installing wood slat wall panels might be the perfect solution for you.
+  Thes
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wood-slat-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wood-slat-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your space a fresh, modern look without spending a fortune? Installing wood slat wall panels might be the perfect solution for you.**

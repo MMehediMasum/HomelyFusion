@@ -1,10 +1,14 @@
 ---
-title: "Art Home Wall Decor Ideas to Elevate Your Living Space Instantly"
-description: "Art home wall decor adds personality and warmth to any room. It transforms plain walls into stylish focal points. Choosing the right wall art brings life to you"
+title: Art Home Wall Decor Ideas to Elevate Your Living Space Instantly
+description: Art home wall decor adds personality and warmth to any room. It transforms
+  plain walls into stylish focal points. Choosing the right wall art brings life to
+  you
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=art-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=art-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Art home wall decor adds personality and warmth to any room. It transforms plain walls into stylish focal points.**

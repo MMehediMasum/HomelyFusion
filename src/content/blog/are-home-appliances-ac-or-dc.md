@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Appliances Ac Or Dc: Understanding Power Types Clearly"
 description: "Have you ever wondered if your home appliances run on AC or DC power? It’s a simple question but the answer can change how you think about the devices you use e"
 pubDate: 2025-11-18

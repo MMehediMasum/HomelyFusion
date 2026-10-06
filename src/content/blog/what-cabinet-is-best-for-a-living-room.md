@@ -1,10 +1,14 @@
 ---
-title: "What Cabinet is Best for a Living Room: Stylish & Functional Picks"
-description: "Choosing the right cabinet for your living room can completely change the way your space feels and functions. You want something that fits your style, holds you"
+title: 'What Cabinet is Best for a Living Room: Stylish & Functional Picks'
+description: Choosing the right cabinet for your living room can completely change
+  the way your space feels and functions. You want something that fits your style,
+  holds you
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-cabinet-is-best-for-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-cabinet-is-best-for-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Choosing the right cabinet for your living room can completely change the way your space feels and functions. You want something that fits your style, holds your essentials, and keeps the room looking neat.**

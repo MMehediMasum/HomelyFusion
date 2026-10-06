@@ -1,10 +1,14 @@
 ---
-title: "Halloween Front Porch Decorating Ideas: Spooktacular Designs to Try"
-description: "Your front porch is the first thing guests see, and this Halloween, it’s your chance to make a spooky, fun impression. Imagine your neighbors stopping by just t"
+title: 'Halloween Front Porch Decorating Ideas: Spooktacular Designs to Try'
+description: Your front porch is the first thing guests see, and this Halloween, it’s
+  your chance to make a spooky, fun impression. Imagine your neighbors stopping by
+  just t
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-front-porch-decorating-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-front-porch-decorating-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your front porch is the first thing guests see, and this Halloween, it’s your chance to make a spooky, fun impression. Imagine your neighbors stopping by just to admire your creative decorations or kids eagerly ringing your doorbell for a treat.**

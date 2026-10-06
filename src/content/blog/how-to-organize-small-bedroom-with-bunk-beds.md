@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Small Bedroom With Bunk Beds: Smart Space Hacks"
-description: "Is your small bedroom feeling cramped and cluttered? If you have bunk beds, you might think there’s no way to make the space feel bigger and more organized. But"
+title: 'How to Organize Small Bedroom With Bunk Beds: Smart Space Hacks'
+description: Is your small bedroom feeling cramped and cluttered? If you have bunk
+  beds, you might think there’s no way to make the space feel bigger and more organized.
+  But
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-small-bedroom-with-bunk-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-small-bedroom-with-bunk-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your small bedroom feeling cramped and cluttered? If you have bunk beds, you might think there’s no way to make the space feel bigger and more organized.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean a Wool Pea Coat at Home: Easy Steps for Freshness"
 description: "Your wool pea coat is a timeless piece that keeps you warm and stylish. But when it gets dirty, the thought of cleaning it at home can feel overwhelming. What i"
 pubDate: 2026-04-13

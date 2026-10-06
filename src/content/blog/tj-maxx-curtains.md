@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Curtains: Stylish Black Car Sun Shades for Thar 2020"
-description: "Tj Maxx curtains offer stylish and affordable window treatments for your home. They combine quality fabrics with trendy designs to brighten any room. The Auto P"
+title: 'Tj Maxx Curtains: Stylish Black Car Sun Shades for Thar 2020'
+description: Tj Maxx curtains offer stylish and affordable window treatments for your
+  home. They combine quality fabrics with trendy designs to brighten any room. The
+  Auto P
 pubDate: 2025-10-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx curtains offer stylish and affordable window treatments for your home. They combine quality fabrics with trendy designs to brighten any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Furniture Store Around Me: Top Stylish Sofas and Storage Benches Reviewed"
-description: "Finding a reliable furniture store around me can make home furnishing simple and stress-free. Local stores offer a wide range of styles and practical pieces to "
+title: 'Furniture Store Around Me: Top Stylish Sofas and Storage Benches Reviewed'
+description: 'Finding a reliable furniture store around me can make home furnishing
+  simple and stress-free. Local stores offer a wide range of styles and practical
+  pieces to '
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-store-around-me&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-store-around-me&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding a reliable furniture store around me can make home furnishing simple and stress-free. Local stores offer a wide range of styles and practical pieces to fit any space.**

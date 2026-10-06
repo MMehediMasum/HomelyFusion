@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bedroom Wardrobe: Ultimate Guide for Stylish Storage"
-description: "Are you tired of clutter taking over your bedroom? Building your own wardrobe can be the perfect solution to organize your clothes and create a stylish space. I"
+title: 'How to Build Bedroom Wardrobe: Ultimate Guide for Stylish Storage'
+description: Are you tired of clutter taking over your bedroom? Building your own
+  wardrobe can be the perfect solution to organize your clothes and create a stylish
+  space. I
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-wardrobe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-wardrobe&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of clutter taking over your bedroom? Building your own wardrobe can be the perfect solution to organize your clothes and create a stylish space.**

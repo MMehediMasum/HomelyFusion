@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "At Home Store Salt Lake City: Unique Vintage Posters and Decor Picks"
 description: "Discover a wide range of Salt Lake City-themed home decor and souvenirs. Perfect for adding a unique touch to your space. Salt Lake City offers an array of arti"
 pubDate: 2026-06-07

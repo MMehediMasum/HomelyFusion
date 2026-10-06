@@ -1,10 +1,14 @@
 ---
-title: "Cool House Accessories to Transform Your Space with Style and Function"
-description: "Cool house accessories add style and function to any room. They help organize, decorate, and brighten your living space. Small changes can make a big difference"
+title: Cool House Accessories to Transform Your Space with Style and Function
+description: Cool house accessories add style and function to any room. They help
+  organize, decorate, and brighten your living space. Small changes can make a big
+  difference
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-house-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- House Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cool-house-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cool house accessories add style and function to any room. They help organize, decorate, and brighten your living space.**

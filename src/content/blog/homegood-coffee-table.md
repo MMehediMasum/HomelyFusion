@@ -1,10 +1,15 @@
 ---
-title: "Homegood Coffee Table Ideas: Stylish Storage and Rustic Designs for Living Rooms"
-description: "A Homegood coffee table blends style and function in any living space. It offers practical storage and a charming look for your room. Choosing the right coffee "
+title: 'Homegood Coffee Table Ideas: Stylish Storage and Rustic Designs for Living
+  Rooms'
+description: 'A Homegood coffee table blends style and function in any living space.
+  It offers practical storage and a charming look for your room. Choosing the right
+  coffee '
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegood-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegood-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A Homegood coffee table blends style and function in any living space. It offers practical storage and a charming look for your room.**

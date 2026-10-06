@@ -1,10 +1,14 @@
 ---
-title: "Easter Egg Mosaic Craft Ideas: Stunning DIY Projects to Try Today"
-description: "Looking for a fun and creative way to celebrate Easter this year? You’re in the right place! Easter egg mosaic crafts are a fantastic way to bring color, textur"
+title: 'Easter Egg Mosaic Craft Ideas: Stunning DIY Projects to Try Today'
+description: Looking for a fun and creative way to celebrate Easter this year? You’re
+  in the right place! Easter egg mosaic crafts are a fantastic way to bring color,
+  textur
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-egg-mosaic-craft-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-egg-mosaic-craft-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fun and creative way to celebrate Easter this year? You’re in the right place!**

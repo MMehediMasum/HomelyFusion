@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rugs for Wood Decks: Stylish, Durable, and Waterproof Picks"
-description: "Choosing the right outdoor rug can transform a wood deck into a cozy, stylish space. The best rugs protect wood and add comfort for outdoor living. Outdoor rugs"
+title: 'Best Outdoor Rugs for Wood Decks: Stylish, Durable, and Waterproof Picks'
+description: Choosing the right outdoor rug can transform a wood deck into a cozy,
+  stylish space. The best rugs protect wood and add comfort for outdoor living. Outdoor
+  rugs
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-wood-decks-stylish-durable-and-waterproof-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-wood-decks-stylish-durable-and-waterproof-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right outdoor rug can transform a wood deck into a cozy, stylish space. The best rugs protect wood and add comfort for outdoor living.**

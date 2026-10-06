@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Decorative Pillows on a Couch: Stunning Tips"
-description: "Your couch is more than just a place to sit—it’s the centerpiece of your living space. But are your decorative pillows arranged in a way that truly highlights y"
+title: 'How to Arrange Decorative Pillows on a Couch: Stunning Tips'
+description: Your couch is more than just a place to sit—it’s the centerpiece of your
+  living space. But are your decorative pillows arranged in a way that truly highlights
+  y
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-decorative-pillows-on-a-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-decorative-pillows-on-a-couch&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your couch is more than just a place to sit—it’s the centerpiece of your living space. But are your decorative pillows arranged in a way that truly highlights your style and brings comfort?**

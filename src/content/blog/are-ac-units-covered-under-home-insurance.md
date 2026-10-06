@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Ac Units Covered under Home Insurance? Essential Facts Revealed"
 description: "Have you ever wondered if your air conditioning (AC) unit is protected by your home insurance? Imagine facing a sudden breakdown or damage after a storm—would y"
 pubDate: 2025-10-15

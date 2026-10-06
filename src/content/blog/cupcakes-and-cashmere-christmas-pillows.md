@@ -1,10 +1,14 @@
 ---
-title: "Cupcakes And Cashmere Christmas Pillows: Cozy Holiday Decor Ideas to Try"
-description: "Cupcakes And Cashmere Christmas pillows add cozy charm to holiday decor. These festive cushion covers brighten any room with classic designs. Decorating your ho"
+title: 'Cupcakes And Cashmere Christmas Pillows: Cozy Holiday Decor Ideas to Try'
+description: Cupcakes And Cashmere Christmas pillows add cozy charm to holiday decor.
+  These festive cushion covers brighten any room with classic designs. Decorating
+  your ho
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-christmas-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-christmas-pillows&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Cupcakes And Cashmere Christmas pillows add cozy charm to holiday decor. These festive cushion covers brighten any room with classic designs.**

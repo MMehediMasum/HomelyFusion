@@ -1,10 +1,14 @@
 ---
-title: "How to Select a Bathroom Vanity: Ultimate Guide for Perfect Style"
-description: "Choosing the perfect bathroom vanity can feel overwhelming. You want something that fits your space, matches your style, and keeps your bathroom organized. But "
+title: 'How to Select a Bathroom Vanity: Ultimate Guide for Perfect Style'
+description: 'Choosing the perfect bathroom vanity can feel overwhelming. You want
+  something that fits your space, matches your style, and keeps your bathroom organized.
+  But '
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-select-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-select-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect bathroom vanity can feel overwhelming. You want something that fits your space, matches your style, and keeps your bathroom organized.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Home Theater Wires Invisible: Ultimate Guide & Tips"
 description: "Are tangled wires ruining the sleek look of your home theater? You’re not alone. Messy cables can distract from the amazing movie experience you want to create."
 pubDate: 2025-10-15

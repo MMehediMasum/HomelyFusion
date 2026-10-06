@@ -1,10 +1,14 @@
 ---
-title: "Floor Standing Decor Ideas: Stylish Mirrors, Vases, and Lamps for Every Room"
-description: "Floor standing decor adds style and function to any room. These pieces create focal points and enhance your home’s look. Floor standing decor includes mirrors, "
+title: 'Floor Standing Decor Ideas: Stylish Mirrors, Vases, and Lamps for Every Room'
+description: 'Floor standing decor adds style and function to any room. These pieces
+  create focal points and enhance your home’s look. Floor standing decor includes
+  mirrors, '
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-standing-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-standing-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor standing decor adds style and function to any room. These pieces create focal points and enhance your home’s look.**

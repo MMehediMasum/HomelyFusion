@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Area Rugs: Stylish, Washable Rugs for Every Room"
-description: "Floor And Decor area rugs offer stylish, practical floor coverings for any room. Their wide range suits various tastes and home spaces. These rugs combine comfo"
+title: 'Floor And Decor Area Rugs: Stylish, Washable Rugs for Every Room'
+description: Floor And Decor area rugs offer stylish, practical floor coverings for
+  any room. Their wide range suits various tastes and home spaces. These rugs combine
+  comfo
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-area-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-area-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor area rugs offer stylish, practical floor coverings for any room. Their wide range suits various tastes and home spaces.**

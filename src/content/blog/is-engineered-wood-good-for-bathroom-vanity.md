@@ -1,10 +1,14 @@
 ---
-title: "Is Engineered Wood Good for Bathroom Vanity: Durable & Stylish Choices"
-description: "Are you thinking about upgrading your bathroom vanity but unsure which material to choose? Engineered wood might be the answer you’re looking for. It offers a s"
+title: 'Is Engineered Wood Good for Bathroom Vanity: Durable & Stylish Choices'
+description: Are you thinking about upgrading your bathroom vanity but unsure which
+  material to choose? Engineered wood might be the answer you’re looking for. It offers
+  a s
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-engineered-wood-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-engineered-wood-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom vanity but unsure which material to choose? Engineered wood might be the answer you’re looking for.**

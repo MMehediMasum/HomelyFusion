@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Company Essentials: Movable Vertical Shelf Floor Rack Organizer Guide"
 description: "Choosing the right flooring company can transform your space. Quality flooring enhances aesthetics and adds value to your home. Flooring plays a crucial role in"
 pubDate: 2026-07-21

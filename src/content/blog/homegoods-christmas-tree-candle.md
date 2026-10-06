@@ -1,10 +1,15 @@
 ---
-title: "Homegoods Christmas Tree Candle: Elevate Your Holiday Atmosphere with Scented Bliss"
-description: "Homegoods Christmas Tree Candles bring festive charm and warm light to holiday spaces. These candles create a cozy atmosphere for celebrations and decorating. C"
+title: 'Homegoods Christmas Tree Candle: Elevate Your Holiday Atmosphere with Scented
+  Bliss'
+description: Homegoods Christmas Tree Candles bring festive charm and warm light to
+  holiday spaces. These candles create a cozy atmosphere for celebrations and decorating.
+  C
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-christmas-tree-candle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-christmas-tree-candle&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Homegoods Christmas Tree Candles bring festive charm and warm light to holiday spaces. These candles create a cozy atmosphere for celebrations and decorating.**

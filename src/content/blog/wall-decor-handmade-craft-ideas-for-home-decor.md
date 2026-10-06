@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Handmade Craft Ideas for Home Decor: Stunning Macrame Art"
-description: "Handmade wall decor adds a personal touch to any home. Crafting unique pieces can brighten your space with style and warmth. Creating wall art by hand lets you "
+title: 'Wall Decor Handmade Craft Ideas for Home Decor: Stunning Macrame Art'
+description: 'Handmade wall decor adds a personal touch to any home. Crafting unique
+  pieces can brighten your space with style and warmth. Creating wall art by hand
+  lets you '
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-handmade-craft-ideas-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-handmade-craft-ideas-for-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Handmade wall decor adds a personal touch to any home. Crafting unique pieces can brighten your space with style and warmth.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Without Glue: Easy & Safe DIY Recipe"
 description: "Have you ever wanted to make your own clay at home but don’t have any glue? You’re not alone. Many people think glue is a must-have ingredient, but that’s not t"
 pubDate: 2026-02-06

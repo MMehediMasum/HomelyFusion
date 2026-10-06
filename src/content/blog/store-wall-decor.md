@@ -1,10 +1,14 @@
 ---
-title: "Store Wall Decor Ideas to Elevate Your Retail Space Instantly"
-description: "Store wall decor adds character and style to any retail space. It creates a welcoming and memorable environment for customers. Choosing the right wall decor can"
+title: Store Wall Decor Ideas to Elevate Your Retail Space Instantly
+description: Store wall decor adds character and style to any retail space. It creates
+  a welcoming and memorable environment for customers. Choosing the right wall decor
+  can
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=store-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=store-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Store wall decor adds character and style to any retail space. It creates a welcoming and memorable environment for customers.**

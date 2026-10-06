@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Entryway Ideas: Stylish Rustic Signs and Boho Wall Art"
-description: "The entryway sets the tone for your home and offers a glimpse of your personal style. It's the first impression guests encounter, making its decor crucial. Tran"
+title: 'Home Decor Entryway Ideas: Stylish Rustic Signs and Boho Wall Art'
+description: The entryway sets the tone for your home and offers a glimpse of your
+  personal style. It's the first impression guests encounter, making its decor crucial.
+  Tran
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-entryway&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-entryway&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **The entryway sets the tone for your home and offers a glimpse of your personal style. It's the first impression guests encounter, making its decor crucial.**

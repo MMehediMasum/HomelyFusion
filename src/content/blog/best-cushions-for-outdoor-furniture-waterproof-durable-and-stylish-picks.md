@@ -1,10 +1,14 @@
 ---
-title: "Best Cushions for Outdoor Furniture: Waterproof, Durable, and Stylish Picks"
-description: "Choosing the best cushions for outdoor furniture improves comfort and style in your outdoor space. Durable, water-resistant cushions protect your seating and ad"
+title: 'Best Cushions for Outdoor Furniture: Waterproof, Durable, and Stylish Picks'
+description: Choosing the best cushions for outdoor furniture improves comfort and
+  style in your outdoor space. Durable, water-resistant cushions protect your seating
+  and ad
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cushions-for-outdoor-furniture-waterproof-durable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=best-cushions-for-outdoor-furniture-waterproof-durable-and-stylish-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best cushions for outdoor furniture improves comfort and style in your outdoor space. Durable, water-resistant cushions protect your seating and add a cozy touch.**

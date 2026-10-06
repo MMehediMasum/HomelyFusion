@@ -1,10 +1,14 @@
 ---
-title: "Is 2 Sofas Good for a Large Living Room: Stylish Space Ideas"
-description: "Is your large living room feeling a bit empty or awkward? You might be wondering if adding two sofas is the right choice. Imagine creating a space that’s both c"
+title: 'Is 2 Sofas Good for a Large Living Room: Stylish Space Ideas'
+description: Is your large living room feeling a bit empty or awkward? You might be
+  wondering if adding two sofas is the right choice. Imagine creating a space that’s
+  both c
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-2-sofas-good-for-a-large-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=is-2-sofas-good-for-a-large-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your large living room feeling a bit empty or awkward? You might be wondering if adding two sofas is the right choice.**

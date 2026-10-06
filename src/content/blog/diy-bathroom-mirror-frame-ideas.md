@@ -1,10 +1,14 @@
 ---
-title: "Diy Bathroom Mirror Frame Ideas: Stunning Styles to Transform Your Space"
-description: "Looking to give your bathroom a fresh, stylish update without spending a fortune? Your mirror frame is the perfect place to start. With a few simple materials a"
+title: 'Diy Bathroom Mirror Frame Ideas: Stunning Styles to Transform Your Space'
+description: Looking to give your bathroom a fresh, stylish update without spending
+  a fortune? Your mirror frame is the perfect place to start. With a few simple materials
+  a
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-bathroom-mirror-frame-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=diy-bathroom-mirror-frame-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to give your bathroom a fresh, stylish update without spending a fortune? Your mirror frame is the perfect place to start.**

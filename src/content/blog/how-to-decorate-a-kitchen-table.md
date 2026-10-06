@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Kitchen Table: Stunning Ideas for Every Style"
-description: "Your kitchen table is more than just a place to eat—it’s where memories are made, conversations flow, and moments are shared. But how do you turn this everyday "
+title: 'How to Decorate a Kitchen Table: Stunning Ideas for Every Style'
+description: 'Your kitchen table is more than just a place to eat—it’s where memories
+  are made, conversations flow, and moments are shared. But how do you turn this everyday '
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen table is more than just a place to eat—it’s where memories are made, conversations flow, and moments are shared. But how do you turn this everyday spot into a stunning centerpiece that reflects your style and invites warmth?**

@@ -1,10 +1,14 @@
 ---
-title: "Holiday Home Decorations: Rustic & Charming Signs and Seasonal Accents"
-description: "Holiday home decorations create a warm and festive atmosphere for every season. They add charm and welcome guests with seasonal cheer. Decorating your home for "
+title: 'Holiday Home Decorations: Rustic & Charming Signs and Seasonal Accents'
+description: 'Holiday home decorations create a warm and festive atmosphere for every
+  season. They add charm and welcome guests with seasonal cheer. Decorating your home
+  for '
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday home decorations create a warm and festive atmosphere for every season. They add charm and welcome guests with seasonal cheer.**

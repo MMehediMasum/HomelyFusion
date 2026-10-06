@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Starch Cotton Clothes at Home: Easy Steps for Crisp Results"
 description: "Do you want your cotton clothes to look crisp, fresh, and perfectly stiff every time you wear them? Starching your cotton garments at home is easier than you th"
 pubDate: 2026-02-16

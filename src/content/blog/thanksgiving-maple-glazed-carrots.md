@@ -1,10 +1,14 @@
 ---
-title: "Thanksgiving Maple Glazed Carrots: Irresistible Sweet & Savory Delight"
-description: "Are you looking to add a sweet and savory twist to your Thanksgiving dinner? Thanksgiving Maple Glazed Carrots are the perfect way to bring warmth and flavor to"
+title: 'Thanksgiving Maple Glazed Carrots: Irresistible Sweet & Savory Delight'
+description: Are you looking to add a sweet and savory twist to your Thanksgiving
+  dinner? Thanksgiving Maple Glazed Carrots are the perfect way to bring warmth and
+  flavor to
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thanksgiving-maple-glazed-carrots&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=thanksgiving-maple-glazed-carrots&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a sweet and savory twist to your Thanksgiving dinner? Thanksgiving Maple Glazed Carrots are the perfect way to bring warmth and flavor to your holiday table.**

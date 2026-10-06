@@ -1,10 +1,14 @@
 ---
-title: "How to Make White Shelf in Bedroom: Easy DIY Ideas for Stylish Storage"
-description: "Are you looking to add a stylish and practical touch to your bedroom? A white shelf can brighten up your space, keep your things organized, and give your room a"
+title: 'How to Make White Shelf in Bedroom: Easy DIY Ideas for Stylish Storage'
+description: Are you looking to add a stylish and practical touch to your bedroom?
+  A white shelf can brighten up your space, keep your things organized, and give your
+  room a
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-white-shelf-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-white-shelf-in-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a stylish and practical touch to your bedroom? A white shelf can brighten up your space, keep your things organized, and give your room a fresh, clean look.**

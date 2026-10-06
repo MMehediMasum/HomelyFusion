@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Wall behind Tv: Stunning Ideas to Transform Your Space"
-description: "Your TV wall is more than just a spot to hang a screen—it’s a chance to transform your entire living space. How you decorate the wall behind your TV can change "
+title: 'How to Decorate Wall behind Tv: Stunning Ideas to Transform Your Space'
+description: 'Your TV wall is more than just a spot to hang a screen—it’s a chance
+  to transform your entire living space. How you decorate the wall behind your TV
+  can change '
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-wall-behind-tv&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-wall-behind-tv&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your TV wall is more than just a spot to hang a screen—it’s a chance to transform your entire living space. How you decorate the wall behind your TV can change the mood of the room, make your setup look stylish, and even showcase your personality.**

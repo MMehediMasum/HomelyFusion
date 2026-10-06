@@ -1,10 +1,14 @@
 ---
-title: "What Bedroom Furniture Goes With Black Metal Bed: Stylish Pairings"
-description: "Choosing the right bedroom furniture to match your black metal bed can feel tricky. You want a space that looks stylish, feels cozy, and shows off your personal"
+title: 'What Bedroom Furniture Goes With Black Metal Bed: Stylish Pairings'
+description: Choosing the right bedroom furniture to match your black metal bed can
+  feel tricky. You want a space that looks stylish, feels cozy, and shows off your
+  personal
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-bedroom-furniture-goes-with-black-metal-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=what-bedroom-furniture-goes-with-black-metal-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedroom furniture to match your black metal bed can feel tricky. You want a space that looks stylish, feels cozy, and shows off your personality.**

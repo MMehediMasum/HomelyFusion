@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Floor Lamp Home Goods: Elegant Lighting for Every Room"
-description: "Ralph Lauren floor lamps offer stylish lighting solutions for any home space. Their elegant designs blend well with various décor styles. These lamps combine fu"
+title: 'Ralph Lauren Floor Lamp Home Goods: Elegant Lighting for Every Room'
+description: Ralph Lauren floor lamps offer stylish lighting solutions for any home
+  space. Their elegant designs blend well with various décor styles. These lamps combine
+  fu
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-floor-lamp-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-floor-lamp-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren floor lamps offer stylish lighting solutions for any home space. Their elegant designs blend well with various décor styles.**

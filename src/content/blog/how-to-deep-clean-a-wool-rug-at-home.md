@@ -1,10 +1,14 @@
 ---
-title: "How to Deep Clean a Wool Rug at Home: Easy Steps for Stunning Results"
-description: "Your wool rug adds warmth and charm to your home, but over time, dirt and stains can dull its beauty. You might think deep cleaning a wool rug is tough or expen"
+title: 'How to Deep Clean a Wool Rug at Home: Easy Steps for Stunning Results'
+description: Your wool rug adds warmth and charm to your home, but over time, dirt
+  and stains can dull its beauty. You might think deep cleaning a wool rug is tough
+  or expen
 pubDate: 2026-02-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-deep-clean-a-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-deep-clean-a-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool rug adds warmth and charm to your home, but over time, dirt and stains can dull its beauty. You might think deep cleaning a wool rug is tough or expensive, but what if you could do it yourself, right at home?**

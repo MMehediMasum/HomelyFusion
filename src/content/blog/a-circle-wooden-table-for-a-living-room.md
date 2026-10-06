@@ -1,10 +1,14 @@
 ---
-title: "A Circle Wooden Table for a Living Room: Stylish & Cozy Centerpiece"
-description: "Are you looking to add a touch of warmth and style to your living room? A circle wooden table might be exactly what your space needs. Not only does it bring a n"
+title: 'A Circle Wooden Table for a Living Room: Stylish & Cozy Centerpiece'
+description: Are you looking to add a touch of warmth and style to your living room?
+  A circle wooden table might be exactly what your space needs. Not only does it bring
+  a n
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-circle-wooden-table-for-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=a-circle-wooden-table-for-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add a touch of warmth and style to your living room? A circle wooden table might be exactly what your space needs.**

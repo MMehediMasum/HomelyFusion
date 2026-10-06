@@ -1,10 +1,14 @@
 ---
-title: "Harvey Lewis Ornaments: Unique Holiday Decor with Swarovski Sparkle"
-description: "Harvey Lewis ornaments bring charm and warmth to holiday decorations. These unique pieces capture festive spirit with classic and modern designs. Harvey Lewis o"
+title: 'Harvey Lewis Ornaments: Unique Holiday Decor with Swarovski Sparkle'
+description: Harvey Lewis ornaments bring charm and warmth to holiday decorations.
+  These unique pieces capture festive spirit with classic and modern designs. Harvey
+  Lewis o
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=harvey-lewis-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=harvey-lewis-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Harvey Lewis ornaments bring charm and warmth to holiday decorations. These unique pieces capture festive spirit with classic and modern designs.**

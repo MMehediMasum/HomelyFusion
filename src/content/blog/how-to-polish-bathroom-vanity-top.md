@@ -1,10 +1,14 @@
 ---
-title: "How to Polish Bathroom Vanity Top: Expert Tips for a Sparkling Shine"
-description: "Your bathroom vanity top plays a big role in how your bathroom looks and feels. Over time, it can lose its shine and start to look dull or stained. But here’s t"
+title: 'How to Polish Bathroom Vanity Top: Expert Tips for a Sparkling Shine'
+description: Your bathroom vanity top plays a big role in how your bathroom looks
+  and feels. Over time, it can lose its shine and start to look dull or stained. But
+  here’s t
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-polish-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-polish-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity top plays a big role in how your bathroom looks and feels. Over time, it can lose its shine and start to look dull or stained.**

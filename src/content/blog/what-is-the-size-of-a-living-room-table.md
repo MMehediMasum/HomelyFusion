@@ -1,10 +1,14 @@
 ---
-title: "What is the Size of a Living Room Table: Ultimate Guide to Perfect Fit"
-description: "Choosing the right size for your living room table can change the way your space feels and functions. You might be wondering, \"What size should my living room t"
+title: 'What is the Size of a Living Room Table: Ultimate Guide to Perfect Fit'
+description: Choosing the right size for your living room table can change the way
+  your space feels and functions. You might be wondering, "What size should my living
+  room t
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-size-of-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-size-of-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right size for your living room table can change the way your space feels and functions. You might be wondering, "What size should my living room table be?"**

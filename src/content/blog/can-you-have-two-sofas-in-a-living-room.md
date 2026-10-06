@@ -1,10 +1,14 @@
 ---
-title: "Can You Have Two Sofas in a Living Room? Stylish Tips Revealed"
-description: "Have you ever wondered if you can have two sofas in your living room without making the space feel crowded? You’re not alone. Finding the perfect balance betwee"
+title: Can You Have Two Sofas in a Living Room? Stylish Tips Revealed
+description: Have you ever wondered if you can have two sofas in your living room
+  without making the space feel crowded? You’re not alone. Finding the perfect balance
+  betwee
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-have-two-sofas-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-you-have-two-sofas-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if you can have two sofas in your living room without making the space feel crowded? You’re not alone.**

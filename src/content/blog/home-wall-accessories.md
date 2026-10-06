@@ -1,10 +1,14 @@
 ---
-title: "Home Wall Accessories: Stylish Rustic Decor Ideas for Every Room"
-description: "Home wall accessories add personality and style to any room. They create a warm and inviting atmosphere with simple touches. Decorating walls with the right acc"
+title: 'Home Wall Accessories: Stylish Rustic Decor Ideas for Every Room'
+description: Home wall accessories add personality and style to any room. They create
+  a warm and inviting atmosphere with simple touches. Decorating walls with the right
+  acc
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-accessories&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home wall accessories add personality and style to any room. They create a warm and inviting atmosphere with simple touches.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Copper Plate Steel at Home: Easy Steps for Stunning Results"
 description: "Have you ever wanted to give your steel projects a stunning, shiny copper finish without spending a fortune? Copper plating steel at home is easier than you mig"
 pubDate: 2026-02-20

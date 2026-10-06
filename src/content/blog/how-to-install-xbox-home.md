@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Xbox Home: Easy Steps for Ultimate Gaming Setup"
 description: "Are you ready to unlock the full potential of your Xbox? Installing Xbox Home is the key to sharing games and subscriptions with your family and friends, saving"
 pubDate: 2025-11-11

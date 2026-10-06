@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Flat Canvas on the Wall: Easy Steps for Perfect Display"
-description: "Hanging a flat canvas on your wall might seem simple, but getting it just right can make a huge difference in how your space feels. You want your artwork to loo"
+title: 'How to Hang a Flat Canvas on the Wall: Easy Steps for Perfect Display'
+description: Hanging a flat canvas on your wall might seem simple, but getting it
+  just right can make a huge difference in how your space feels. You want your artwork
+  to loo
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-flat-canvas-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-flat-canvas-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a flat canvas on your wall might seem simple, but getting it just right can make a huge difference in how your space feels. You want your artwork to look perfect—straight, secure, and eye-catching every time.**

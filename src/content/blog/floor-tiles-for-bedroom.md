@@ -1,10 +1,14 @@
 ---
-title: "Floor Tiles for Bedroom: Stylish Peel & Stick Options for Easy DIY Flooring"
-description: "Choosing the right floor tiles for your bedroom can change its look and feel. Floor tiles combine style, comfort, and easy care for a cozy space. Bedroom floor "
+title: 'Floor Tiles for Bedroom: Stylish Peel & Stick Options for Easy DIY Flooring'
+description: 'Choosing the right floor tiles for your bedroom can change its look
+  and feel. Floor tiles combine style, comfort, and easy care for a cozy space. Bedroom
+  floor '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-tiles-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-tiles-for-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right floor tiles for your bedroom can change its look and feel. Floor tiles combine style, comfort, and easy care for a cozy space.**

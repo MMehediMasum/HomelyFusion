@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Place Card Holders: Charming Ideas to Delight Guests"
-description: "Looking to add a touch of charm and fun to your Easter table? Easter Bunny Place Card Holders are the perfect way to do just that. They not only help organize y"
+title: 'Easter Bunny Place Card Holders: Charming Ideas to Delight Guests'
+description: Looking to add a touch of charm and fun to your Easter table? Easter
+  Bunny Place Card Holders are the perfect way to do just that. They not only help
+  organize y
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-place-card-holders&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-place-card-holders&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a touch of charm and fun to your Easter table? Easter Bunny Place Card Holders are the perfect way to do just that.**

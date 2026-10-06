@@ -1,10 +1,14 @@
 ---
-title: "Can You Bring Home Tulip Bulbs from Amsterdam: Essential Travel Tips"
-description: "Have you ever dreamed of bringing a piece of Amsterdam’s famous tulip magic back home? Tulip bulbs are tempting souvenirs, bursting with color and promise. But "
+title: 'Can You Bring Home Tulip Bulbs from Amsterdam: Essential Travel Tips'
+description: 'Have you ever dreamed of bringing a piece of Amsterdam’s famous tulip
+  magic back home? Tulip bulbs are tempting souvenirs, bursting with color and promise.
+  But '
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-bring-home-tulip-bulbs-from-amsterdam&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=can-you-bring-home-tulip-bulbs-from-amsterdam&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever dreamed of bringing a piece of Amsterdam’s famous tulip magic back home? Tulip bulbs are tempting souvenirs, bursting with color and promise.**

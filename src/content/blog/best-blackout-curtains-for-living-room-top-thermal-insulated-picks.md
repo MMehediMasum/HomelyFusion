@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Curtains for Living Room: Top Thermal Insulated Picks"
-description: "Blackout curtains help control light and add privacy to your living room. They also improve energy efficiency by insulating windows. Choosing the best blackout "
+title: 'Best Blackout Curtains for Living Room: Top Thermal Insulated Picks'
+description: 'Blackout curtains help control light and add privacy to your living
+  room. They also improve energy efficiency by insulating windows. Choosing the best
+  blackout '
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-living-room-top-thermal-insulated-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-living-room-top-thermal-insulated-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains help control light and add privacy to your living room. They also improve energy efficiency by insulating windows.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Cranberry Sauce Recipe: Easy, Tangy, and Delicious"
 description: "Are you ready to make your Thanksgiving dinner truly unforgettable? The secret might just be in your cranberry sauce. This Thanksgiving Cranberry Sauce Recipe i"
 pubDate: 2025-12-30

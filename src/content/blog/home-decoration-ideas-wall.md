@@ -1,10 +1,14 @@
 ---
-title: "Home Decoration Ideas Wall: Stunning Signs and Rustic Accents for Every Room"
-description: "Wall decoration adds personality and warmth to any home space. Simple changes can transform plain walls into eye-catching features. Choosing the right wall deco"
+title: 'Home Decoration Ideas Wall: Stunning Signs and Rustic Accents for Every Room'
+description: Wall decoration adds personality and warmth to any home space. Simple
+  changes can transform plain walls into eye-catching features. Choosing the right
+  wall deco
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decoration-ideas-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decoration-ideas-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decoration adds personality and warmth to any home space. Simple changes can transform plain walls into eye-catching features.**

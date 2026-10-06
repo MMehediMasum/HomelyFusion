@@ -1,10 +1,14 @@
 ---
-title: "How Should I Decorate My Bedroom Quiz: Discover Your Perfect Style!"
-description: "Are you struggling to decide how to decorate your bedroom? You want a space that feels just right—comfortable, stylish, and truly yours—but the choices can be o"
+title: 'How Should I Decorate My Bedroom Quiz: Discover Your Perfect Style!'
+description: Are you struggling to decide how to decorate your bedroom? You want a
+  space that feels just right—comfortable, stylish, and truly yours—but the choices
+  can be o
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-should-i-decorate-my-bedroom-quiz&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-should-i-decorate-my-bedroom-quiz&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to decide how to decorate your bedroom? You want a space that feels just right—comfortable, stylish, and truly yours—but the choices can be overwhelming.**

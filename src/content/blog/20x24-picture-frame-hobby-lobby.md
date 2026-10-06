@@ -1,10 +1,14 @@
 ---
-title: "20X24 Picture Frame Hobby Lobby: Stylish Frames for Every Wall Display"
-description: "The 20x24 picture frame from Hobby Lobby offers a stylish way to display your photos and art. These frames fit both 16x20 images with mats or 20x24 pieces witho"
+title: '20X24 Picture Frame Hobby Lobby: Stylish Frames for Every Wall Display'
+description: The 20x24 picture frame from Hobby Lobby offers a stylish way to display
+  your photos and art. These frames fit both 16x20 images with mats or 20x24 pieces
+  witho
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=20x24-picture-frame-hobby-lobby&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=20x24-picture-frame-hobby-lobby&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The 20x24 picture frame from Hobby Lobby offers a stylish way to display your photos and art. These frames fit both 16x20 images with mats or 20x24 pieces without mats.**

@@ -1,10 +1,14 @@
 ---
-title: "Hobby Lobby Wall Paintings: Top DIY Rustic and Artistic Home Decor Ideas"
-description: "Discover the charm of Hobby Lobby wall paintings, perfect for adding a personal touch to your home. Whether you're a seasoned artist or a DIY enthusiast, these "
+title: 'Hobby Lobby Wall Paintings: Top DIY Rustic and Artistic Home Decor Ideas'
+description: 'Discover the charm of Hobby Lobby wall paintings, perfect for adding
+  a personal touch to your home. Whether you''re a seasoned artist or a DIY enthusiast,
+  these '
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-wall-paintings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-wall-paintings&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover the charm of Hobby Lobby wall paintings, perfect for adding a personal touch to your home. Whether you're a seasoned artist or a DIY enthusiast, these pieces offer endless possibilities for creativity.**

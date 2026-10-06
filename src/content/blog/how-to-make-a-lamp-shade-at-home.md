@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Lamp Shade at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to add a personal touch to your home decor? Making a lampshade at home is easier than you think, and it can transform any room instantly. I"
+title: 'How to Make a Lamp Shade at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted to add a personal touch to your home decor? Making
+  a lampshade at home is easier than you think, and it can transform any room instantly.
+  I
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-lamp-shade-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-lamp-shade-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted to add a personal touch to your home decor? Making a lampshade at home is easier than you think, and it can transform any room instantly.**

@@ -1,10 +1,15 @@
 ---
-title: "Best Curtains for Apartment Windows: Stylish Allergy-Friendly Transparent Panels"
-description: "Choosing the best curtains for apartment windows can change the look and feel of your space. Curtains protect from dust and help with allergies, especially if y"
+title: 'Best Curtains for Apartment Windows: Stylish Allergy-Friendly Transparent
+  Panels'
+description: Choosing the best curtains for apartment windows can change the look
+  and feel of your space. Curtains protect from dust and help with allergies, especially
+  if y
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-apartment-windows-stylish-allergy-friendly-transparent-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-apartment-windows-stylish-allergy-friendly-transparent-panels&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for apartment windows can change the look and feel of your space. Curtains protect from dust and help with allergies, especially if you have pets.**

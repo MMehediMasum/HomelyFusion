@@ -1,10 +1,14 @@
 ---
-title: "Desk Chairs Home Goods: Top Ergonomic Picks for Comfort and Style"
-description: "Desk chairs play a key role in creating a comfortable home workspace. Choosing the right chair boosts focus and reduces back pain. A good desk chair supports yo"
+title: 'Desk Chairs Home Goods: Top Ergonomic Picks for Comfort and Style'
+description: Desk chairs play a key role in creating a comfortable home workspace.
+  Choosing the right chair boosts focus and reduces back pain. A good desk chair supports
+  yo
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=desk-chairs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=desk-chairs-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Desk chairs play a key role in creating a comfortable home workspace. Choosing the right chair boosts focus and reduces back pain.**

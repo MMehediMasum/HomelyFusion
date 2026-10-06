@@ -1,10 +1,14 @@
 ---
-title: "Christmas Reindeer Yard Decorations: Magical Ideas to Wow Your Neighbors"
-description: "Are you ready to transform your yard into a magical winter wonderland this Christmas? Christmas reindeer yard decorations are the perfect way to bring festive c"
+title: 'Christmas Reindeer Yard Decorations: Magical Ideas to Wow Your Neighbors'
+description: Are you ready to transform your yard into a magical winter wonderland
+  this Christmas? Christmas reindeer yard decorations are the perfect way to bring
+  festive c
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-reindeer-yard-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-reindeer-yard-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your yard into a magical winter wonderland this Christmas? Christmas reindeer yard decorations are the perfect way to bring festive cheer right to your doorstep.**

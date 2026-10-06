@@ -1,10 +1,14 @@
 ---
-title: "What is Average Size of Bedroom Dresser: Ultimate Guide Revealed"
-description: "Are you wondering how much space a bedroom dresser really takes up? Knowing the average size of a bedroom dresser can help you plan your room better and avoid c"
+title: 'What is Average Size of Bedroom Dresser: Ultimate Guide Revealed'
+description: Are you wondering how much space a bedroom dresser really takes up? Knowing
+  the average size of a bedroom dresser can help you plan your room better and avoid
+  c
 pubDate: 2025-08-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-average-size-of-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-average-size-of-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how much space a bedroom dresser really takes up? Knowing the average size of a bedroom dresser can help you plan your room better and avoid clutter.**

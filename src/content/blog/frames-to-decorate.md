@@ -1,10 +1,14 @@
 ---
-title: "Frames to Decorate Your Home: Top Stylish Picks for Every Space"
-description: "Frames to decorate add charm and style to any space. They highlight your favorite photos and artworks beautifully. Choosing the right frame can change how a pic"
+title: 'Frames to Decorate Your Home: Top Stylish Picks for Every Space'
+description: Frames to decorate add charm and style to any space. They highlight your
+  favorite photos and artworks beautifully. Choosing the right frame can change how
+  a pic
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-to-decorate&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=frames-to-decorate&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames to decorate add charm and style to any space. They highlight your favorite photos and artworks beautifully.**

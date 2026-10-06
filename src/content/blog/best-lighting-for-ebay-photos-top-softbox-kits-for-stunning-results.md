@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for Ebay Photos: Top Softbox Kits for Stunning Results"
 description: "Good lighting makes eBay photos clear and attractive. Choosing the right lighting helps show your products in the best way. Bright, even light reduces shadows a"
 pubDate: 2025-11-01

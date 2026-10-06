@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Slanted Wall: Creative Ideas for Stylish Spaces"
-description: "Is your slanted wall making you scratch your head, unsure how to decorate it without wasting space or ruining your style? You’re not alone. Slanted walls can be"
+title: 'How to Decorate Slanted Wall: Creative Ideas for Stylish Spaces'
+description: Is your slanted wall making you scratch your head, unsure how to decorate
+  it without wasting space or ruining your style? You’re not alone. Slanted walls
+  can be
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-slanted-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-slanted-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your slanted wall making you scratch your head, unsure how to decorate it without wasting space or ruining your style? You’re not alone.**

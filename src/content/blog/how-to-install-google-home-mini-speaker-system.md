@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home Mini Speaker System: Easy Step-by-Step Guide"
 description: "Are you ready to make your home smarter and more connected? Installing your Google Home Mini speaker system is easier than you think. With just a few simple ste"
 pubDate: 2026-04-20

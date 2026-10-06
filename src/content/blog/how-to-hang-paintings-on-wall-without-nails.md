@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Paintings on Wall Without Nails: Easy Damage-Free Tips"
-description: "Want to hang your favorite paintings without making holes in your walls? You’re not alone. Many people worry about damaging their walls or dealing with messy re"
+title: 'How to Hang Paintings on Wall Without Nails: Easy Damage-Free Tips'
+description: Want to hang your favorite paintings without making holes in your walls?
+  You’re not alone. Many people worry about damaging their walls or dealing with messy
+  re
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-paintings-on-wall-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-paintings-on-wall-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to hang your favorite paintings without making holes in your walls? You’re not alone.**

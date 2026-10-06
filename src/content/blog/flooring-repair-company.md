@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Repair Company Solutions: Fix Loose Tiles and Seal Floor Jacks Efficiently"
 description: "Finding the right flooring repair company can save you time and money. Quality repairs ensure your floors last longer. Floors endure daily wear and tear, often "
 pubDate: 2026-07-19

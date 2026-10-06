@@ -1,10 +1,14 @@
 ---
-title: "Ornaments for Room: Unique Elephant and Abstract Sculptures for Decor"
-description: "Room ornaments add charm and personality to any space. Small sculptures and figurines bring warmth and style to your home. Choosing the right ornaments can make"
+title: 'Ornaments for Room: Unique Elephant and Abstract Sculptures for Decor'
+description: Room ornaments add charm and personality to any space. Small sculptures
+  and figurines bring warmth and style to your home. Choosing the right ornaments
+  can make
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornaments-for-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=ornaments-for-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Room ornaments add charm and personality to any space. Small sculptures and figurines bring warmth and style to your home.**

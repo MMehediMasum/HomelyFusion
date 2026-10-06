@@ -1,10 +1,14 @@
 ---
-title: "What Size Table Lamp for Living Room: Perfect Fit Guide"
-description: "Choosing the right size table lamp for your living room can change the entire feel of the space. You might think any lamp will do, but the truth is, the size of"
+title: 'What Size Table Lamp for Living Room: Perfect Fit Guide'
+description: Choosing the right size table lamp for your living room can change the
+  entire feel of the space. You might think any lamp will do, but the truth is, the
+  size of
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-table-lamp-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-size-table-lamp-for-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right size table lamp for your living room can change the entire feel of the space. You might think any lamp will do, but the truth is, the size of your lamp affects both style and comfort.**

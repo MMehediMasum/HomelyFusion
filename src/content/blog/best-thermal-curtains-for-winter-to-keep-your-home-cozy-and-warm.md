@@ -1,10 +1,14 @@
 ---
-title: "Best Thermal Curtains for Winter to Keep Your Home Cozy and Warm"
-description: "Winter cold can seep through windows, making rooms uncomfortable and increasing heating bills. Thermal curtains help keep warmth inside and block cold drafts ef"
+title: Best Thermal Curtains for Winter to Keep Your Home Cozy and Warm
+description: Winter cold can seep through windows, making rooms uncomfortable and
+  increasing heating bills. Thermal curtains help keep warmth inside and block cold
+  drafts ef
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-thermal-curtains-for-winter-to-keep-your-home-cozy-and-warm&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-thermal-curtains-for-winter-to-keep-your-home-cozy-and-warm&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Winter cold can seep through windows, making rooms uncomfortable and increasing heating bills. Thermal curtains help keep warmth inside and block cold drafts effectively.**

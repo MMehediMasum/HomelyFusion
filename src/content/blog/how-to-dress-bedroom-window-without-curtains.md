@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom Window Without Curtains: Stunning Stylish Ideas"
-description: "Are you tired of the same old curtains hanging in your bedroom window? What if you could give your space a fresh look without them? Dressing your bedroom window"
+title: 'How to Dress Bedroom Window Without Curtains: Stunning Stylish Ideas'
+description: Are you tired of the same old curtains hanging in your bedroom window?
+  What if you could give your space a fresh look without them? Dressing your bedroom
+  window
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-without-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-without-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you tired of the same old curtains hanging in your bedroom window? What if you could give your space a fresh look without them?**

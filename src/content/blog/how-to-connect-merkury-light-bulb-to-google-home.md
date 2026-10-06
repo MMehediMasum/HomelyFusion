@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Merkury Light Bulb to Google Home: Easy Steps Guide"
-description: "Are you ready to make your home smarter with just a simple voice command? Connecting your Merkury light bulb to Google Home is easier than you think. Imagine co"
+title: 'How to Connect Merkury Light Bulb to Google Home: Easy Steps Guide'
+description: Are you ready to make your home smarter with just a simple voice command?
+  Connecting your Merkury light bulb to Google Home is easier than you think. Imagine
+  co
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-merkury-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-merkury-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter with just a simple voice command? Connecting your Merkury light bulb to Google Home is easier than you think.**

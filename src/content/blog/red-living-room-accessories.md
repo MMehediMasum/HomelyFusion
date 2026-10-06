@@ -1,10 +1,14 @@
 ---
-title: "Red Living Room Accessories to Transform Your Space with Style"
-description: "Red living room accessories add warmth and energy to your space with bold, eye-catching colors. These items create a cozy, inviting atmosphere while enhancing y"
+title: Red Living Room Accessories to Transform Your Space with Style
+description: Red living room accessories add warmth and energy to your space with
+  bold, eye-catching colors. These items create a cozy, inviting atmosphere while
+  enhancing y
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=red-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=red-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Red living room accessories add warmth and energy to your space with bold, eye-catching colors. These items create a cozy, inviting atmosphere while enhancing your room’s style.**

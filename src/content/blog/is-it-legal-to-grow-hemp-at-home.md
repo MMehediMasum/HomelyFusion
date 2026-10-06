@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is It Legal to Grow Hemp at Home? Essential Facts Revealed"
 description: "Are you curious about growing hemp at home but unsure if it’s legal? You’re not alone. Many people want to enjoy the benefits of hemp without breaking the law. "
 pubDate: 2026-03-28

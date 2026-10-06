@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Wall Decor Ideas: Stylish Accessories to Transform Your Space"
-description: "Transform your bedroom walls with unique and stylish decor. Personalize your space with creative touches that reflect your style. Finding the right wall decor c"
+title: 'Bedroom Wall Decor Ideas: Stylish Accessories to Transform Your Space'
+description: Transform your bedroom walls with unique and stylish decor. Personalize
+  your space with creative touches that reflect your style. Finding the right wall
+  decor c
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your bedroom walls with unique and stylish decor. Personalize your space with creative touches that reflect your style.**

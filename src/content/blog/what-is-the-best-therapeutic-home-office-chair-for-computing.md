@@ -1,10 +1,15 @@
 ---
-title: "What is the Best Therapeutic Home Office Chair for Computing: Ultimate Comfort Guide"
-description: "Are you spending long hours at your desk and feeling the strain on your back, neck, or wrists? Choosing the right therapeutic home office chair can make all the"
+title: 'What is the Best Therapeutic Home Office Chair for Computing: Ultimate Comfort
+  Guide'
+description: Are you spending long hours at your desk and feeling the strain on your
+  back, neck, or wrists? Choosing the right therapeutic home office chair can make
+  all the
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-therapeutic-home-office-chair-for-computing&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-therapeutic-home-office-chair-for-computing&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you spending long hours at your desk and feeling the strain on your back, neck, or wrists? Choosing the right therapeutic home office chair can make all the difference in how comfortable and productive you feel while computing.**

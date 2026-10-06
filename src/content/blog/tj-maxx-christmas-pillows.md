@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Christmas Pillows: Cozy Holiday Decor for Your Home"
-description: "Tj Maxx Christmas pillows bring festive cheer to your home with cozy, stylish designs. These pillows add warmth and holiday spirit to any room. Tj Maxx offers a"
+title: 'Tj Maxx Christmas Pillows: Cozy Holiday Decor for Your Home'
+description: Tj Maxx Christmas pillows bring festive cheer to your home with cozy,
+  stylish designs. These pillows add warmth and holiday spirit to any room. Tj Maxx
+  offers a
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-christmas-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-christmas-pillows&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Tj Maxx Christmas pillows bring festive cheer to your home with cozy, stylish designs. These pillows add warmth and holiday spirit to any room.**

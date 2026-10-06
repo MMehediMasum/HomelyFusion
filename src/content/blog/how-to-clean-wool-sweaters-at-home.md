@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Sweaters at Home: Easy Tips for Perfect Care"
 description: "Wool sweaters are cozy, warm, and perfect for chilly days. But cleaning them at home can feel tricky. You might worry about shrinking, stretching, or ruining yo"
 pubDate: 2026-03-07

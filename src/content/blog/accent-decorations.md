@@ -1,10 +1,14 @@
 ---
-title: "Accent Decorations: Stunning Ceramic Vases and Rustic Home Decor Ideas"
-description: "Accent decorations add personality and style to any space. They create a warm, inviting atmosphere with simple touches. These small yet impactful items can tran"
+title: 'Accent Decorations: Stunning Ceramic Vases and Rustic Home Decor Ideas'
+description: Accent decorations add personality and style to any space. They create
+  a warm, inviting atmosphere with simple touches. These small yet impactful items
+  can tran
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-decorations&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent decorations add personality and style to any space. They create a warm, inviting atmosphere with simple touches.**

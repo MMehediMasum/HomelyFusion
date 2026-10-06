@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Multiple Beds in Small Bedroom: Clever Space-Saving Hacks"
-description: "Struggling to fit more than one bed in your small bedroom? You’re not alone. When space feels tight, it’s easy to think adding extra beds is impossible. But wha"
+title: 'How to Fit Multiple Beds in Small Bedroom: Clever Space-Saving Hacks'
+description: Struggling to fit more than one bed in your small bedroom? You’re not
+  alone. When space feels tight, it’s easy to think adding extra beds is impossible.
+  But wha
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-multiple-beds-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-multiple-beds-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit more than one bed in your small bedroom? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Tahari Console Table: Stylish Storage and Charging Station for Entryways"
-description: "The Tahari Console Table blends style and function in one compact piece. It fits perfectly in hallways, entryways, or behind sofas. This console table offers sm"
+title: 'Tahari Console Table: Stylish Storage and Charging Station for Entryways'
+description: The Tahari Console Table blends style and function in one compact piece.
+  It fits perfectly in hallways, entryways, or behind sofas. This console table offers
+  sm
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=tahari-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **The Tahari Console Table blends style and function in one compact piece. It fits perfectly in hallways, entryways, or behind sofas.**

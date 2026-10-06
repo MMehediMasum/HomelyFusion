@@ -1,10 +1,14 @@
 ---
-title: "Best Sheer Curtains for Privacy: Top Picks for Light-Filtering Elegance"
-description: "Sheer curtains offer a perfect balance between natural light and privacy. Choosing the best ones can enhance your room’s comfort and style. Sheer curtains allow"
+title: 'Best Sheer Curtains for Privacy: Top Picks for Light-Filtering Elegance'
+description: Sheer curtains offer a perfect balance between natural light and privacy.
+  Choosing the best ones can enhance your room’s comfort and style. Sheer curtains
+  allow
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sheer-curtains-for-privacy-top-picks-for-light-filtering-elegance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-sheer-curtains-for-privacy-top-picks-for-light-filtering-elegance&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Sheer curtains offer a perfect balance between natural light and privacy. Choosing the best ones can enhance your room’s comfort and style.**

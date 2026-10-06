@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for under Dining Room Table: Stylish, Durable, and Affordable Picks"
-description: "Choosing the best rug for under your dining room table can improve your space’s look and comfort. A good rug protects floors and adds style without slipping or "
+title: 'Best Rugs for under Dining Room Table: Stylish, Durable, and Affordable Picks'
+description: 'Choosing the best rug for under your dining room table can improve your
+  space’s look and comfort. A good rug protects floors and adds style without slipping
+  or '
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-under-dining-room-table-stylish-durable-and-affordable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-under-dining-room-table-stylish-durable-and-affordable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for under your dining room table can improve your space’s look and comfort. A good rug protects floors and adds style without slipping or staining.**

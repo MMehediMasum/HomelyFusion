@@ -1,10 +1,13 @@
 ---
-title: "What to Put in a Cube Shelf in Living Room: Stylish & Functional Ideas"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and express your style. A cube shelf can be the perfect addition to bring both funct"
+title: 'What to Put in a Cube Shelf in Living Room: Stylish & Functional Ideas'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and express your style. A cube shelf can be the perfect addition to bring both funct
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-in-a-cube-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-in-a-cube-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and express your style. A cube shelf can be the perfect addition to bring both function and personality into this space.**

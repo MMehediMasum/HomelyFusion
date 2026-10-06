@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Center Table in Living Room: Stunning Style Tips"
-description: "Your living room’s center table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly lift the mood of the enti"
+title: 'How to Decorate Center Table in Living Room: Stunning Style Tips'
+description: Your living room’s center table is more than just a piece of furniture—it’s
+  the heart of your space. How you decorate it can instantly lift the mood of the
+  enti
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-center-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-center-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s center table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly lift the mood of the entire room.**

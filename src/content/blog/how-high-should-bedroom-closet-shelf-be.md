@@ -1,10 +1,14 @@
 ---
-title: "How High Should Bedroom Closet Shelf Be: Perfect Height Guide"
-description: "Have you ever wondered why your bedroom closet feels cluttered or hard to organize? One simple fix might be right above your head—the closet shelf. But how high"
+title: 'How High Should Bedroom Closet Shelf Be: Perfect Height Guide'
+description: Have you ever wondered why your bedroom closet feels cluttered or hard
+  to organize? One simple fix might be right above your head—the closet shelf. But
+  how high
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-should-bedroom-closet-shelf-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-high-should-bedroom-closet-shelf-be&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered why your bedroom closet feels cluttered or hard to organize? One simple fix might be right above your head—the closet shelf.**

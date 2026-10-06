@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Bathroom Sink: Easy Steps for a Stunning Makeover"
-description: "Is your bathroom sink looking old, chipped, or just plain boring? You don’t have to replace it to give your bathroom a fresh, new look. With the right steps, yo"
+title: 'How to Paint Bathroom Sink: Easy Steps for a Stunning Makeover'
+description: Is your bathroom sink looking old, chipped, or just plain boring? You
+  don’t have to replace it to give your bathroom a fresh, new look. With the right
+  steps, yo
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom sink looking old, chipped, or just plain boring? You don’t have to replace it to give your bathroom a fresh, new look.**

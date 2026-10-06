@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System to Receiver Audio: Ultimate Guide"
 description: "Setting up your home theater system can feel confusing, especially when it comes to connecting the audio to your receiver. But what if you could get crystal-cle"
 pubDate: 2026-04-20

@@ -1,10 +1,13 @@
 ---
-title: "How to Make Sand Clay at Home: Easy DIY Craft Recipe"
-description: "Looking for a fun and creative activity you can do right at home? Making sand clay is a simple, exciting way to turn ordinary materials into something amazing. "
+title: 'How to Make Sand Clay at Home: Easy DIY Craft Recipe'
+description: 'Looking for a fun and creative activity you can do right at home? Making
+  sand clay is a simple, exciting way to turn ordinary materials into something amazing. '
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-sand-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-sand-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking for a fun and creative activity you can do right at home? Making sand clay is a simple, exciting way to turn ordinary materials into something amazing.**

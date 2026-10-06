@@ -1,10 +1,14 @@
 ---
-title: "Exterior Home Wall Decor Ideas to Transform Your Outdoor Space Instantly"
-description: "Exterior home wall decor adds charm and personality to your outdoor space. It transforms plain walls into eye-catching features. Decorating exterior walls with "
+title: Exterior Home Wall Decor Ideas to Transform Your Outdoor Space Instantly
+description: 'Exterior home wall decor adds charm and personality to your outdoor
+  space. It transforms plain walls into eye-catching features. Decorating exterior
+  walls with '
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=exterior-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=exterior-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Exterior home wall decor adds charm and personality to your outdoor space. It transforms plain walls into eye-catching features.**

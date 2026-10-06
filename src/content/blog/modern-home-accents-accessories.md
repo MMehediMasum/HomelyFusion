@@ -1,10 +1,14 @@
 ---
-title: "Modern Home Accents Accessories to Elevate Your Living Space Decor"
-description: "Modern home accents accessories transform spaces with elegance and style. They offer a unique touch to any room. From small bird statues to decorative bowls, th"
+title: Modern Home Accents Accessories to Elevate Your Living Space Decor
+description: Modern home accents accessories transform spaces with elegance and style.
+  They offer a unique touch to any room. From small bird statues to decorative bowls,
+  th
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-accents-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-accents-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern home accents accessories transform spaces with elegance and style. They offer a unique touch to any room.**

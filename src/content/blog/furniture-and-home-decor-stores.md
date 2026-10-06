@@ -1,10 +1,14 @@
 ---
-title: "Furniture And Home Decor Stores: Top Stylish Storage and Decor Ideas"
-description: "Finding the perfect furniture and home decor can transform your living space. It reflects your style and enhances comfort. Explore a range of options to elevate"
+title: 'Furniture And Home Decor Stores: Top Stylish Storage and Decor Ideas'
+description: Finding the perfect furniture and home decor can transform your living
+  space. It reflects your style and enhances comfort. Explore a range of options to
+  elevate
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-home-decor-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-home-decor-stores&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect furniture and home decor can transform your living space. It reflects your style and enhances comfort.**

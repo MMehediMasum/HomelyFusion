@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Bathroom Mirror With Wood: Easy DIY Guide"
-description: "Are you tired of your plain bathroom mirror looking dull and boring? Framing your bathroom mirror with wood can instantly add warmth and style to your space. It"
+title: 'How to Frame Bathroom Mirror With Wood: Easy DIY Guide'
+description: Are you tired of your plain bathroom mirror looking dull and boring?
+  Framing your bathroom mirror with wood can instantly add warmth and style to your
+  space. It
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-bathroom-mirror-with-wood&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-bathroom-mirror-with-wood&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of your plain bathroom mirror looking dull and boring? Framing your bathroom mirror with wood can instantly add warmth and style to your space.**

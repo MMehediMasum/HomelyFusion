@@ -1,10 +1,14 @@
 ---
-title: "What Light Bulbs Connect to Google Home: Top Smart Picks 2025"
-description: "Are you ready to make your home smarter with just a simple voice command? Choosing the right light bulbs that connect to Google Home can transform your living s"
+title: 'What Light Bulbs Connect to Google Home: Top Smart Picks 2025'
+description: Are you ready to make your home smarter with just a simple voice command?
+  Choosing the right light bulbs that connect to Google Home can transform your living
+  s
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-light-bulbs-connect-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=what-light-bulbs-connect-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter with just a simple voice command? Choosing the right light bulbs that connect to Google Home can transform your living space instantly.**

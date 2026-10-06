@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Open Concept Living Room: Stylish Tips Revealed"
-description: "Your open concept living room has endless possibilities, but that can also feel overwhelming. How do you create a space that feels cozy, stylish, and functional"
+title: 'How to Decorate an Open Concept Living Room: Stylish Tips Revealed'
+description: Your open concept living room has endless possibilities, but that can
+  also feel overwhelming. How do you create a space that feels cozy, stylish, and
+  functional
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-open-concept-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-open-concept-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your open concept living room has endless possibilities, but that can also feel overwhelming. How do you create a space that feels cozy, stylish, and functional all at once?**

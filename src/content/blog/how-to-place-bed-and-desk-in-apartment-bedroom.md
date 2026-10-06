@@ -1,10 +1,13 @@
 ---
-title: "How to Place Bed And Desk in Apartment Bedroom: Space-Saving Tips"
-description: "Struggling to fit both your bed and desk comfortably in your apartment bedroom? You’re not alone. Finding the perfect layout can feel like a puzzle, especially "
+title: 'How to Place Bed And Desk in Apartment Bedroom: Space-Saving Tips'
+description: 'Struggling to fit both your bed and desk comfortably in your apartment
+  bedroom? You’re not alone. Finding the perfect layout can feel like a puzzle, especially '
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-bed-and-desk-in-apartment-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-bed-and-desk-in-apartment-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit both your bed and desk comfortably in your apartment bedroom? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bathroom Storage Solutions for Ultimate Organization and Style"
-description: "Organizing your bathroom can be daunting. The right storage solutions transform cluttered spaces into tidy, functional areas. Maximize your bathroom space with "
+title: Home Goods Bathroom Storage Solutions for Ultimate Organization and Style
+description: 'Organizing your bathroom can be daunting. The right storage solutions
+  transform cluttered spaces into tidy, functional areas. Maximize your bathroom space
+  with '
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bathroom-storage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bathroom-storage&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Organizing your bathroom can be daunting. The right storage solutions transform cluttered spaces into tidy, functional areas.**

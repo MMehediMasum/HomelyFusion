@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Blankets: Cozy, Stylish Throws Perfect for Every Home Decor"
-description: "Homegoods blankets offer comfort and style for every room in your home. These blankets come in various sizes, colors, and materials to fit your needs. Soft flee"
+title: 'Homegoods Blankets: Cozy, Stylish Throws Perfect for Every Home Decor'
+description: Homegoods blankets offer comfort and style for every room in your home.
+  These blankets come in various sizes, colors, and materials to fit your needs. Soft
+  flee
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-blankets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-blankets&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegoods blankets offer comfort and style for every room in your home. These blankets come in various sizes, colors, and materials to fit your needs.**

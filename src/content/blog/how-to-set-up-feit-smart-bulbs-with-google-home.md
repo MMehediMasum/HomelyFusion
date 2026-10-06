@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Feit Smart Bulbs With Google Home: Easy Steps"
-description: "Are you ready to make your home smarter and lighting easier to control? Setting up Feit Smart Bulbs with Google Home can transform the way you manage your light"
+title: 'How to Set Up Feit Smart Bulbs With Google Home: Easy Steps'
+description: Are you ready to make your home smarter and lighting easier to control?
+  Setting up Feit Smart Bulbs with Google Home can transform the way you manage your
+  light
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-feit-smart-bulbs-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-feit-smart-bulbs-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and lighting easier to control? Setting up Feit Smart Bulbs with Google Home can transform the way you manage your lights—right from your voice or phone.**

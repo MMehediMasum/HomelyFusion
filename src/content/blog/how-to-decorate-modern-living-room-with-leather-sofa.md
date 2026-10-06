@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Modern Living Room With Leather Sofa: Stylish Tips"
-description: "Are you looking to give your living room a fresh, stylish upgrade? A leather sofa can be the perfect centerpiece to achieve a modern, sophisticated look. But ho"
+title: 'How to Decorate Modern Living Room With Leather Sofa: Stylish Tips'
+description: Are you looking to give your living room a fresh, stylish upgrade? A
+  leather sofa can be the perfect centerpiece to achieve a modern, sophisticated look.
+  But ho
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-modern-living-room-with-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-modern-living-room-with-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to give your living room a fresh, stylish upgrade? A leather sofa can be the perfect centerpiece to achieve a modern, sophisticated look.**

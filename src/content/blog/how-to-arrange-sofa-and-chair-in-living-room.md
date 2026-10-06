@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofa And Chair in Living Room: Expert Tips"
-description: "Are you struggling to find the perfect way to arrange your sofa and chairs in your living room? You’re not alone. The right setup can make your space feel cozy,"
+title: 'How to Arrange Sofa And Chair in Living Room: Expert Tips'
+description: Are you struggling to find the perfect way to arrange your sofa and chairs
+  in your living room? You’re not alone. The right setup can make your space feel
+  cozy,
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-and-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-and-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect way to arrange your sofa and chairs in your living room? You’re not alone.**

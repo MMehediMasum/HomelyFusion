@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Retro Living Room With Plaid Sofas: Stylish Tips"
-description: "Are you ready to transform your living room into a cozy, stylish space that brings back the charm of the past? Using plaid sofas is a simple yet powerful way to"
+title: 'How to Make a Retro Living Room With Plaid Sofas: Stylish Tips'
+description: Are you ready to transform your living room into a cozy, stylish space
+  that brings back the charm of the past? Using plaid sofas is a simple yet powerful
+  way to
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-retro-living-room-with-plaid-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-retro-living-room-with-plaid-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to transform your living room into a cozy, stylish space that brings back the charm of the past? Using plaid sofas is a simple yet powerful way to create a retro vibe that feels warm and inviting.**

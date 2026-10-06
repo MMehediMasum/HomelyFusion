@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Tub Surround: Stunning Ideas to Transform Your Bath"
-description: "Your bathroom can be more than just a place to get clean—it can be your personal spa, a relaxing retreat where every detail feels just right. One key area that "
+title: 'How to Decorate a Tub Surround: Stunning Ideas to Transform Your Bath'
+description: 'Your bathroom can be more than just a place to get clean—it can be your
+  personal spa, a relaxing retreat where every detail feels just right. One key area
+  that '
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-tub-surround&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-tub-surround&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your bathroom can be more than just a place to get clean—it can be your personal spa, a relaxing retreat where every detail feels just right. One key area that often gets overlooked is the tub surround.**

@@ -1,10 +1,14 @@
 ---
-title: "What is Standard Bathroom Vanity Depth: Essential Guide Revealed"
-description: "Are you planning to upgrade your bathroom and wondering about the perfect vanity size? Knowing the standard bathroom vanity depth is key to making your space lo"
+title: 'What is Standard Bathroom Vanity Depth: Essential Guide Revealed'
+description: Are you planning to upgrade your bathroom and wondering about the perfect
+  vanity size? Knowing the standard bathroom vanity depth is key to making your space
+  lo
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-standard-bathroom-vanity-depth&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-standard-bathroom-vanity-depth&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom and wondering about the perfect vanity size? Knowing the standard bathroom vanity depth is key to making your space look great and function well.**

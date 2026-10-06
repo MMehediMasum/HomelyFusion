@@ -1,10 +1,14 @@
 ---
-title: "Best Lamp for Living Room: Top Modern Floor Lamps with Dimmable Features"
-description: "Choosing the best lamp for your living room can transform its look and feel. A good lamp adds light, style, and comfort to your space. A living room lamp should"
+title: 'Best Lamp for Living Room: Top Modern Floor Lamps with Dimmable Features'
+description: Choosing the best lamp for your living room can transform its look and
+  feel. A good lamp adds light, style, and comfort to your space. A living room lamp
+  should
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamp-for-living-room-top-modern-floor-lamps-with-dimmable-features&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamp-for-living-room-top-modern-floor-lamps-with-dimmable-features&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamp for your living room can transform its look and feel. A good lamp adds light, style, and comfort to your space.**

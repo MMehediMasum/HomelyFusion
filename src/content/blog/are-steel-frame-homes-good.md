@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Steel Frame Homes Good: Top Benefits You Need to Know"
 description: "Are you thinking about building a new home and wondering if steel frame homes are a good choice? You’re not alone. More people are curious about steel frames be"
 pubDate: 2026-02-12

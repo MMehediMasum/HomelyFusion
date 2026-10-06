@@ -1,10 +1,14 @@
 ---
-title: "Room Accessories Online: Top Stylish Decor and Lighting Ideas for Bedrooms"
-description: "Discovering the perfect room accessories online can transform any space into a personal haven. From lighting to cozy throws, the options are endless. Creating a"
+title: 'Room Accessories Online: Top Stylish Decor and Lighting Ideas for Bedrooms'
+description: Discovering the perfect room accessories online can transform any space
+  into a personal haven. From lighting to cozy throws, the options are endless. Creating
+  a
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=room-accessories-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=room-accessories-online&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discovering the perfect room accessories online can transform any space into a personal haven. From lighting to cozy throws, the options are endless.**

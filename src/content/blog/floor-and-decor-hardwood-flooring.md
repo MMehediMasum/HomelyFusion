@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Hardwood Flooring: Top Accessories for Perfect Wood Care"
-description: "Floor and Decor offers a wide variety of hardwood flooring options. Their products cater to diverse needs and styles. Choosing the right hardwood flooring can t"
+title: 'Floor And Decor Hardwood Flooring: Top Accessories for Perfect Wood Care'
+description: Floor and Decor offers a wide variety of hardwood flooring options. Their
+  products cater to diverse needs and styles. Choosing the right hardwood flooring
+  can t
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-hardwood-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-hardwood-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a wide variety of hardwood flooring options. Their products cater to diverse needs and styles.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Reading Lamps for Living Room: Top Stylish and Functional Picks"
-description: "Choosing the best reading lamp for your living room improves comfort and lighting quality. A good lamp helps reduce eye strain and creates a cozy reading space."
+title: 'Best Reading Lamps for Living Room: Top Stylish and Functional Picks'
+description: Choosing the best reading lamp for your living room improves comfort
+  and lighting quality. A good lamp helps reduce eye strain and creates a cozy reading
+  space.
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-reading-lamps-for-living-room-top-stylish-and-functional-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-reading-lamps-for-living-room-top-stylish-and-functional-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best reading lamp for your living room improves comfort and lighting quality. A good lamp helps reduce eye strain and creates a cozy reading space.**

@@ -1,10 +1,14 @@
 ---
-title: "How Much Does It Cost to Install a Bathroom Vanity: Ultimate Guide"
-description: "Thinking about upgrading your bathroom with a new vanity? You’re probably wondering, “How much will it really cost to install a bathroom vanity?” It’s a smart q"
+title: 'How Much Does It Cost to Install a Bathroom Vanity: Ultimate Guide'
+description: Thinking about upgrading your bathroom with a new vanity? You’re probably
+  wondering, “How much will it really cost to install a bathroom vanity?” It’s a smart
+  q
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-install-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-install-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about upgrading your bathroom with a new vanity? You’re probably wondering, “How much will it really cost to install a bathroom vanity?” It’s a smart question because the price can vary a lot depending on what you choose and how it’s installed.**

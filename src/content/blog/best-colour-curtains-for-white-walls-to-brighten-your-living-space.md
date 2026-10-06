@@ -1,10 +1,14 @@
 ---
-title: "Best Colour Curtains for White Walls to Brighten Your Living Space"
-description: "Choosing the best colour curtains for white walls can transform any room’s look and feel instantly. White walls offer a blank canvas, making curtain colour choi"
+title: Best Colour Curtains for White Walls to Brighten Your Living Space
+description: Choosing the best colour curtains for white walls can transform any room’s
+  look and feel instantly. White walls offer a blank canvas, making curtain colour
+  choi
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-colour-curtains-for-white-walls-to-brighten-your-living-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-colour-curtains-for-white-walls-to-brighten-your-living-space&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best colour curtains for white walls can transform any room’s look and feel instantly. White walls offer a blank canvas, making curtain colour choices both fun and important.**

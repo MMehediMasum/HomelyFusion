@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Sofa Size for Living Room: Ultimate Space-Saving Guide"
-description: "Choosing the right sofa size for your living room can change the entire feel of your space. Imagine a sofa that’s either too big, making your room look cramped,"
+title: 'How to Choose Sofa Size for Living Room: Ultimate Space-Saving Guide'
+description: Choosing the right sofa size for your living room can change the entire
+  feel of your space. Imagine a sofa that’s either too big, making your room look
+  cramped,
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-sofa-size-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-sofa-size-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa size for your living room can change the entire feel of your space. Imagine a sofa that’s either too big, making your room look cramped, or too small, leaving your seating area feeling empty and uninviting.**

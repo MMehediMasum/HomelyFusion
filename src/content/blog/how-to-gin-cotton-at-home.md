@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Gin Cotton at Home: Easy Steps for Fresh Fiber Success"
 description: "Are you curious about turning raw cotton into soft, clean fibers right at home? Learning how to gin cotton yourself can save you money and give you a deeper con"
 pubDate: 2026-02-13

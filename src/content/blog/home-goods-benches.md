@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Benches: Stylish and Durable Options for Every Room"
-description: "Benches offer versatile seating solutions for various spaces in your home. They blend functionality with style seamlessly. Home goods benches cater to diverse t"
+title: 'Home Goods Benches: Stylish and Durable Options for Every Room'
+description: Benches offer versatile seating solutions for various spaces in your
+  home. They blend functionality with style seamlessly. Home goods benches cater to
+  diverse t
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-benches&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-benches&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Benches offer versatile seating solutions for various spaces in your home. They blend functionality with style seamlessly.**

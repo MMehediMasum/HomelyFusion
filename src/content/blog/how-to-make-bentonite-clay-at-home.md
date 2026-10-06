@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bentonite Clay at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wondered how you can create your own bentonite clay right at home? Imagine having a natural, powerful ingredient ready whenever you need it for yo"
+title: 'How to Make Bentonite Clay at Home: Easy DIY Guide for Beginners'
+description: Have you ever wondered how you can create your own bentonite clay right
+  at home? Imagine having a natural, powerful ingredient ready whenever you need it
+  for yo
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bentonite-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bentonite-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered how you can create your own bentonite clay right at home? Imagine having a natural, powerful ingredient ready whenever you need it for your skin, hair, or detox routines.**

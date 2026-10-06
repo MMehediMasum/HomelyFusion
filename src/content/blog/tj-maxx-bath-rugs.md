@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Bath Rugs: Soft, Absorbent, and Stylish Bathroom Essentials"
-description: "Tj Maxx bath rugs offer comfort and style at affordable prices. They come in various sizes, colors, and materials for every bathroom. These bath rugs provide so"
+title: 'Tj Maxx Bath Rugs: Soft, Absorbent, and Stylish Bathroom Essentials'
+description: Tj Maxx bath rugs offer comfort and style at affordable prices. They
+  come in various sizes, colors, and materials for every bathroom. These bath rugs
+  provide so
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-bath-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-bath-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx bath rugs offer comfort and style at affordable prices. They come in various sizes, colors, and materials for every bathroom.**

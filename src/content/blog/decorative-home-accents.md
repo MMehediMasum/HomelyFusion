@@ -1,10 +1,14 @@
 ---
-title: "Decorative Home Accents That Transform Your Living Space Instantly"
-description: "Decorative home accents can transform any space, adding personality and charm. They breathe life into dull corners and plain surfaces. Incorporating decorative "
+title: Decorative Home Accents That Transform Your Living Space Instantly
+description: 'Decorative home accents can transform any space, adding personality
+  and charm. They breathe life into dull corners and plain surfaces. Incorporating
+  decorative '
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=decorative-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative home accents can transform any space, adding personality and charm. They breathe life into dull corners and plain surfaces.**

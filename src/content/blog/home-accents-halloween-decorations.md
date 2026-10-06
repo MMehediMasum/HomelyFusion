@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Halloween Decorations to Transform Your Porch and Living Room"
-description: "Home accents Halloween decorations bring spooky charm to your indoor and outdoor spaces. These simple pieces add festive warmth and fun for the season. Decorati"
+title: Home Accents Halloween Decorations to Transform Your Porch and Living Room
+description: Home accents Halloween decorations bring spooky charm to your indoor
+  and outdoor spaces. These simple pieces add festive warmth and fun for the season.
+  Decorati
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-halloween-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-halloween-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home accents Halloween decorations bring spooky charm to your indoor and outdoor spaces. These simple pieces add festive warmth and fun for the season.**

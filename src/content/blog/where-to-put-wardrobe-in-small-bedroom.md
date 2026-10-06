@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Wardrobe in Small Bedroom: Smart Space-Saving Ideas"
-description: "Struggling to find the perfect spot for your wardrobe in a small bedroom? You’re not alone. When space is tight, every inch counts, and placing your wardrobe ju"
+title: 'Where to Put Wardrobe in Small Bedroom: Smart Space-Saving Ideas'
+description: Struggling to find the perfect spot for your wardrobe in a small bedroom?
+  You’re not alone. When space is tight, every inch counts, and placing your wardrobe
+  ju
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-wardrobe-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-wardrobe-in-small-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Struggling to find the perfect spot for your wardrobe in a small bedroom? You’re not alone.**

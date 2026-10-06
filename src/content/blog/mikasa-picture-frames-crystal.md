@@ -1,10 +1,13 @@
 ---
-title: "Mikasa Picture Frames Crystal: Elegant Designs to Showcase Your Memories"
-description: "Mikasa Picture Frames Crystal offer elegant ways to display your cherished memories. These frames combine beauty and quality in clear, sparkling crystal designs"
+title: 'Mikasa Picture Frames Crystal: Elegant Designs to Showcase Your Memories'
+description: Mikasa Picture Frames Crystal offer elegant ways to display your cherished
+  memories. These frames combine beauty and quality in clear, sparkling crystal designs
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mikasa-picture-frames-crystal&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=mikasa-picture-frames-crystal&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mikasa Picture Frames Crystal offer elegant ways to display your cherished memories. These frames combine beauty and quality in clear, sparkling crystal designs.**

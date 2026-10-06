@@ -1,10 +1,14 @@
 ---
-title: "Wine Home Decor Kitchen Ideas to Elevate Your Rustic Wine Bar Space"
-description: "Wine home decor for the kitchen adds charm and personality to your space. It blends style with your love for wine and cooking. Decorating your kitchen with wine"
+title: Wine Home Decor Kitchen Ideas to Elevate Your Rustic Wine Bar Space
+description: Wine home decor for the kitchen adds charm and personality to your space.
+  It blends style with your love for wine and cooking. Decorating your kitchen with
+  wine
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wine-home-decor-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=wine-home-decor-kitchen&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Wine home decor for the kitchen adds charm and personality to your space. It blends style with your love for wine and cooking.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Style Bathroom Vanity: Stunning Ideas for a Chic Upgrade"
-description: "Your bathroom vanity is more than just a place to wash your hands—it’s the heart of your bathroom’s style. But how do you turn a simple vanity into a stunning f"
+title: 'How to Style Bathroom Vanity: Stunning Ideas for a Chic Upgrade'
+description: Your bathroom vanity is more than just a place to wash your hands—it’s
+  the heart of your bathroom’s style. But how do you turn a simple vanity into a stunning
+  f
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to wash your hands—it’s the heart of your bathroom’s style. But how do you turn a simple vanity into a stunning focal point that reflects your personality?**

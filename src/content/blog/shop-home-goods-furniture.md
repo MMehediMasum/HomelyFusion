@@ -1,10 +1,14 @@
 ---
-title: "Shop Home Goods Furniture: Stylish Storage & Decor Solutions for Every Room"
-description: "Find quality home goods furniture to organize and refresh your living space. Choose from shelves, tables, racks, and more that fit any room. A well-organized ho"
+title: 'Shop Home Goods Furniture: Stylish Storage & Decor Solutions for Every Room'
+description: Find quality home goods furniture to organize and refresh your living
+  space. Choose from shelves, tables, racks, and more that fit any room. A well-organized
+  ho
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shop-home-goods-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=shop-home-goods-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Find quality home goods furniture to organize and refresh your living space. Choose from shelves, tables, racks, and more that fit any room.**

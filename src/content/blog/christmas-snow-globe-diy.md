@@ -1,10 +1,14 @@
 ---
-title: "Christmas Snow Globe Diy: Easy Steps to Create Magical Decor"
-description: "Are you ready to add a magical touch to your holiday decorations? Creating your own Christmas snow globe DIY is easier than you think—and it’s a fun way to brin"
+title: 'Christmas Snow Globe Diy: Easy Steps to Create Magical Decor'
+description: Are you ready to add a magical touch to your holiday decorations? Creating
+  your own Christmas snow globe DIY is easier than you think—and it’s a fun way to
+  brin
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-snow-globe-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=christmas-snow-globe-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a magical touch to your holiday decorations? Creating your own Christmas snow globe DIY is easier than you think—and it’s a fun way to bring a little winter wonderland into your home.**

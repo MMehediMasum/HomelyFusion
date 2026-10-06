@@ -1,10 +1,14 @@
 ---
-title: "Mirror Home Decor Ideas: Stunning Gold and Rustic Wall Mirrors for Every Room"
-description: "Mirrors add light, space, and style to any room. They bring charm and function together in home decor. Choosing the right mirror can change a room’s look instan"
+title: 'Mirror Home Decor Ideas: Stunning Gold and Rustic Wall Mirrors for Every Room'
+description: Mirrors add light, space, and style to any room. They bring charm and
+  function together in home decor. Choosing the right mirror can change a room’s look
+  instan
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirror-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=mirror-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors add light, space, and style to any room. They bring charm and function together in home decor.**

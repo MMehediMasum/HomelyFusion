@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Wood Sign Decoration: Charming DIY Ideas for Cozy Homes"
-description: "Are you looking to bring a warm, cozy touch to your home this season? Fall rustic wood sign decorations are the perfect way to add charm and personality to your"
+title: 'Fall Rustic Wood Sign Decoration: Charming DIY Ideas for Cozy Homes'
+description: Are you looking to bring a warm, cozy touch to your home this season?
+  Fall rustic wood sign decorations are the perfect way to add charm and personality
+  to your
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-wood-sign-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-wood-sign-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to bring a warm, cozy touch to your home this season? Fall rustic wood sign decorations are the perfect way to add charm and personality to your space.**

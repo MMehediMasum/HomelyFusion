@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Bamboo Fishing Rod at Home: Easy Step-by-Step Guide"
 description: "Are you ready to create your very own bamboo fishing rod right at home? Imagine the satisfaction of holding a rod you built yourself, crafted from natural bambo"
 pubDate: 2026-02-06

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Candy Bowl Decoration Ideas: Spooky & Creative Inspirations"
-description: "Are you ready to make your Halloween candy bowl the highlight of your spooky celebration? Your candy bowl isn’t just a container—it’s a chance to wow your guest"
+title: 'Halloween Candy Bowl Decoration Ideas: Spooky & Creative Inspirations'
+description: Are you ready to make your Halloween candy bowl the highlight of your
+  spooky celebration? Your candy bowl isn’t just a container—it’s a chance to wow
+  your guest
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-candy-bowl-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-candy-bowl-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Halloween candy bowl the highlight of your spooky celebration? Your candy bowl isn’t just a container—it’s a chance to wow your guests and add a burst of festive fun to your space.**

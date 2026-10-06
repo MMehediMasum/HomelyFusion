@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Black Furniture And White Bedding: Stylish Tips"
-description: "Are you looking to create a bedroom that feels both stylish and cozy? Decorating with black furniture and white bedding is a simple way to achieve a sleek, mode"
+title: 'How to Decorate Bedroom With Black Furniture And White Bedding: Stylish Tips'
+description: Are you looking to create a bedroom that feels both stylish and cozy?
+  Decorating with black furniture and white bedding is a simple way to achieve a sleek,
+  mode
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-black-furniture-and-white-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-black-furniture-and-white-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to create a bedroom that feels both stylish and cozy? Decorating with black furniture and white bedding is a simple way to achieve a sleek, modern look without overwhelming your space.**

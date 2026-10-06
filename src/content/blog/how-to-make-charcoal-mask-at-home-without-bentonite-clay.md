@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Charcoal Mask at Home Without Bentonite Clay: Easy & Effective Guide"
 description: "Are you tired of searching for the perfect charcoal mask that suits your skin without harsh chemicals? What if you could make one yourself at home, without need"
 pubDate: 2025-09-17

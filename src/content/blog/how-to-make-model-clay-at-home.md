@@ -1,10 +1,14 @@
 ---
-title: "How to Make Model Clay at Home: Easy DIY Recipe for Kids"
-description: "Have you ever wanted to create your own model clay but didn’t know where to start? Making model clay at home is easier than you think, and it gives you full con"
+title: 'How to Make Model Clay at Home: Easy DIY Recipe for Kids'
+description: Have you ever wanted to create your own model clay but didn’t know where
+  to start? Making model clay at home is easier than you think, and it gives you full
+  con
 pubDate: 2025-08-28
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-model-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-model-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own model clay but didn’t know where to start? Making model clay at home is easier than you think, and it gives you full control over the ingredients and texture.**

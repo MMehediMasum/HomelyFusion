@@ -1,10 +1,13 @@
 ---
-title: "A&B Home Chandelier: Stunning Designs to Brighten Your Space"
-description: "Looking for the perfect chandelier to transform your home? A&B Home Chandelier offers stunning designs that bring both style and warmth to any room. Imagine wal"
+title: 'A&B Home Chandelier: Stunning Designs to Brighten Your Space'
+description: Looking for the perfect chandelier to transform your home? A&B Home Chandelier
+  offers stunning designs that bring both style and warmth to any room. Imagine wal
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=ab-home-chandelier&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=ab-home-chandelier&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking for the perfect chandelier to transform your home? A&B Home Chandelier offers stunning designs that bring both style and warmth to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Half Wall: Stunning Ideas to Transform Your Space"
-description: "Are you staring at that plain half wall and wondering how to make it stand out? Decorating a half wall might seem tricky, but with the right ideas, it can becom"
+title: 'How to Decorate a Half Wall: Stunning Ideas to Transform Your Space'
+description: Are you staring at that plain half wall and wondering how to make it
+  stand out? Decorating a half wall might seem tricky, but with the right ideas, it
+  can becom
 pubDate: 2025-10-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at that plain half wall and wondering how to make it stand out? Decorating a half wall might seem tricky, but with the right ideas, it can become the star of your room.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate around a Large Wall Mirror: Stunning Design Ideas"
-description: "A large wall mirror can instantly transform your space, making it feel bigger, brighter, and more stylish. But how do you decorate around it without overwhelmin"
+title: 'How to Decorate around a Large Wall Mirror: Stunning Design Ideas'
+description: A large wall mirror can instantly transform your space, making it feel
+  bigger, brighter, and more stylish. But how do you decorate around it without overwhelmin
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-large-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-large-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A large wall mirror can instantly transform your space, making it feel bigger, brighter, and more stylish. But how do you decorate around it without overwhelming the room or losing its impact?**

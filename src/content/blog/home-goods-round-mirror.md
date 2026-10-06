@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Round Mirror: Stylish Wall Decor Ideas for Every Room"
-description: "Round mirrors add style and light to any room. They create a simple, elegant look for home walls. Home goods round mirrors come in many sizes and designs. From "
+title: 'Home Goods Round Mirror: Stylish Wall Decor Ideas for Every Room'
+description: 'Round mirrors add style and light to any room. They create a simple,
+  elegant look for home walls. Home goods round mirrors come in many sizes and designs.
+  From '
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-round-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-round-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Round mirrors add style and light to any room. They create a simple, elegant look for home walls.**

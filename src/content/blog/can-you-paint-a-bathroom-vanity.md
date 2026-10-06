@@ -1,10 +1,14 @@
 ---
-title: "Can You Paint a Bathroom Vanity: Easy Tips for Stunning Results"
-description: "Thinking about giving your bathroom a fresh new look without spending a fortune? You might be wondering, “Can you paint a bathroom vanity?” The answer is yes—an"
+title: 'Can You Paint a Bathroom Vanity: Easy Tips for Stunning Results'
+description: Thinking about giving your bathroom a fresh new look without spending
+  a fortune? You might be wondering, “Can you paint a bathroom vanity?” The answer
+  is yes—an
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-paint-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-paint-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about giving your bathroom a fresh new look without spending a fortune? You might be wondering, “Can you paint a bathroom vanity?” The answer is yes—and it could be the easiest and most impactful change you make.**

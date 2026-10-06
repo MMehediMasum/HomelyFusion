@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bakeable Clay at Home: Easy DIY Craft Guide"
-description: "Are you ready to create beautiful, lasting crafts without spending a lot of money? Making bakeable clay at home is easier than you think. With just a few simple"
+title: 'How to Make Bakeable Clay at Home: Easy DIY Craft Guide'
+description: Are you ready to create beautiful, lasting crafts without spending a
+  lot of money? Making bakeable clay at home is easier than you think. With just a
+  few simple
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bakeable-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bakeable-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create beautiful, lasting crafts without spending a lot of money? Making bakeable clay at home is easier than you think.**

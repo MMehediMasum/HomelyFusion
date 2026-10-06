@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Throw Pillows T.J. Maxx: Stylish Scottish Tartan Decor Finds"
-description: "Ralph Lauren throw pillows at T.J. Maxx offer style and comfort at a fraction of the price. These pillows are perfect for adding a touch of elegance to any livi"
+title: 'Ralph Lauren Throw Pillows T.J. Maxx: Stylish Scottish Tartan Decor Finds'
+description: Ralph Lauren throw pillows at T.J. Maxx offer style and comfort at a
+  fraction of the price. These pillows are perfect for adding a touch of elegance
+  to any livi
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-throw-pillows-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-throw-pillows-tj-maxx&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Ralph Lauren throw pillows at T.J. Maxx offer style and comfort at a fraction of the price. These pillows are perfect for adding a touch of elegance to any living space.**

@@ -1,10 +1,14 @@
 ---
-title: "Poster Frame Hobby Lobby: Stylish Magnetic Frames for Easy Wall Display"
-description: "Poster frames at Hobby Lobby offer a versatile solution for showcasing artwork and photos. Whether displaying diamond paintings or cherished photos, these frame"
+title: 'Poster Frame Hobby Lobby: Stylish Magnetic Frames for Easy Wall Display'
+description: Poster frames at Hobby Lobby offer a versatile solution for showcasing
+  artwork and photos. Whether displaying diamond paintings or cherished photos, these
+  frame
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=poster-frame-hobby-lobby&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=poster-frame-hobby-lobby&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Poster frames at Hobby Lobby offer a versatile solution for showcasing artwork and photos. Whether displaying diamond paintings or cherished photos, these frames provide style and convenience.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Add Freon to My Home AC: Essential Tips You Must Know"
 description: "Is your home AC not cooling like it used to? You might be wondering, \"Can I add Freon to my home AC myself?\" It’s a common question because dealing with an unco"
 pubDate: 2026-04-10

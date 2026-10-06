@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Dresser With Mirror: Stunning Ideas to Transform"
-description: "Your dresser is more than just a place to store clothes—it’s a key part of your room’s style. Adding a mirror can instantly brighten your space and make your dr"
+title: 'How to Decorate a Dresser With Mirror: Stunning Ideas to Transform'
+description: Your dresser is more than just a place to store clothes—it’s a key part
+  of your room’s style. Adding a mirror can instantly brighten your space and make
+  your dr
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-dresser-with-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-dresser-with-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your dresser is more than just a place to store clothes—it’s a key part of your room’s style. Adding a mirror can instantly brighten your space and make your dresser stand out.**

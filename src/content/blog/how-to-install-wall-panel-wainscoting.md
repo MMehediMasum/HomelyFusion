@@ -1,10 +1,13 @@
 ---
-title: "How to Install Wall Panel Wainscoting: Easy Step-by-Step Guide"
-description: "Are you looking to give your walls a fresh, stylish upgrade without spending a fortune? Installing wall panel wainscoting is a simple way to add charm and value"
+title: 'How to Install Wall Panel Wainscoting: Easy Step-by-Step Guide'
+description: Are you looking to give your walls a fresh, stylish upgrade without spending
+  a fortune? Installing wall panel wainscoting is a simple way to add charm and value
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-panel-wainscoting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-panel-wainscoting&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your walls a fresh, stylish upgrade without spending a fortune? Installing wall panel wainscoting is a simple way to add charm and value to any room.**

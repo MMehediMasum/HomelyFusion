@@ -1,10 +1,14 @@
 ---
-title: "Lemon Wreaths And Home Decor: Brighten Your Space with Fresh Style"
-description: "Lemon wreaths offer a vibrant and fresh touch to home decor. Perfect for doors, walls, and various spaces. Incorporating lemon wreaths into your home can elevat"
+title: 'Lemon Wreaths And Home Decor: Brighten Your Space with Fresh Style'
+description: Lemon wreaths offer a vibrant and fresh touch to home decor. Perfect
+  for doors, walls, and various spaces. Incorporating lemon wreaths into your home
+  can elevat
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lemon-wreaths-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=lemon-wreaths-and-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Lemon wreaths offer a vibrant and fresh touch to home decor. Perfect for doors, walls, and various spaces.**

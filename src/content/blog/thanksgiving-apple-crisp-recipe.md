@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Apple Crisp Recipe: Irresistible & Easy Dessert Delight"
 description: "When Thanksgiving comes around, you want a dessert that feels warm, cozy, and full of flavor. Imagine the sweet smell of baked apples mixed with cinnamon fillin"
 pubDate: 2025-12-31

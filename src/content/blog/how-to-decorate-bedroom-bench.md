@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom Bench: Stylish Ideas for Cozy Spaces"
-description: "Your bedroom bench is more than just a place to sit or put on your shoes—it’s a key piece that can transform the whole look and feel of your room. But how do yo"
+title: 'How to Decorate Bedroom Bench: Stylish Ideas for Cozy Spaces'
+description: Your bedroom bench is more than just a place to sit or put on your shoes—it’s
+  a key piece that can transform the whole look and feel of your room. But how do
+  yo
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom bench is more than just a place to sit or put on your shoes—it’s a key piece that can transform the whole look and feel of your room. But how do you decorate it in a way that feels just right for you?**

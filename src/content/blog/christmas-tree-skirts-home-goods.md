@@ -1,10 +1,14 @@
 ---
-title: "Christmas Tree Skirts Home Goods: Stylish Holiday Decor for Every Tree"
-description: "Christmas tree skirts add charm and warmth to holiday decorations. They hide tree stands and catch fallen needles neatly. Choosing the right Christmas tree skir"
+title: 'Christmas Tree Skirts Home Goods: Stylish Holiday Decor for Every Tree'
+description: Christmas tree skirts add charm and warmth to holiday decorations. They
+  hide tree stands and catch fallen needles neatly. Choosing the right Christmas tree
+  skir
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-tree-skirts-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=christmas-tree-skirts-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas tree skirts add charm and warmth to holiday decorations. They hide tree stands and catch fallen needles neatly.**

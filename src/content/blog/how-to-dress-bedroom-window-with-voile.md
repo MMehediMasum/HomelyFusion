@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom Window With Voile: Stylish & Elegant Ideas"
-description: "Are you looking to refresh your bedroom without a full makeover? Dressing your bedroom window with voile could be the simple change you need. Voile curtains bri"
+title: 'How to Dress Bedroom Window With Voile: Stylish & Elegant Ideas'
+description: Are you looking to refresh your bedroom without a full makeover? Dressing
+  your bedroom window with voile could be the simple change you need. Voile curtains
+  bri
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-with-voile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-window-with-voile&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to refresh your bedroom without a full makeover? Dressing your bedroom window with voile could be the simple change you need.**

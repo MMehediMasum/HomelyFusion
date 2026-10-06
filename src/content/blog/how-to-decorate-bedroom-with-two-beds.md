@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Two Beds: Stylish Tips for Cozy Spaces"
-description: "Are you struggling to make your bedroom with two beds feel cozy and stylish? Decorating a shared space can be tricky, but it doesn’t have to be overwhelming. Wh"
+title: 'How to Decorate Bedroom With Two Beds: Stylish Tips for Cozy Spaces'
+description: Are you struggling to make your bedroom with two beds feel cozy and stylish?
+  Decorating a shared space can be tricky, but it doesn’t have to be overwhelming.
+  Wh
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to make your bedroom with two beds feel cozy and stylish? Decorating a shared space can be tricky, but it doesn’t have to be overwhelming.**

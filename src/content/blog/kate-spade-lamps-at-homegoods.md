@@ -1,10 +1,14 @@
 ---
-title: "Kate Spade Lamps at Homegoods: Stylish Lighting for Every Room"
-description: "Kate Spade lamps at HomeGoods add style and charm to any room. These lamps blend modern design with classic touches for a cozy atmosphere. Finding the right lam"
+title: 'Kate Spade Lamps at Homegoods: Stylish Lighting for Every Room'
+description: Kate Spade lamps at HomeGoods add style and charm to any room. These
+  lamps blend modern design with classic touches for a cozy atmosphere. Finding the
+  right lam
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kate-spade-lamps-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=kate-spade-lamps-at-homegoods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Kate Spade lamps at HomeGoods add style and charm to any room. These lamps blend modern design with classic touches for a cozy atmosphere.**

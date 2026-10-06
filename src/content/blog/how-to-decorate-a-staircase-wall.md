@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Staircase Wall: Stunning Ideas to Transform Your Space"
-description: "Your staircase wall is more than just a space between floors—it’s a hidden opportunity to add style and personality to your home. But how do you turn that often"
+title: 'How to Decorate a Staircase Wall: Stunning Ideas to Transform Your Space'
+description: Your staircase wall is more than just a space between floors—it’s a hidden
+  opportunity to add style and personality to your home. But how do you turn that
+  often
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-staircase-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-staircase-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your staircase wall is more than just a space between floors—it’s a hidden opportunity to add style and personality to your home. But how do you turn that often-overlooked area into a stunning feature without feeling overwhelmed?**

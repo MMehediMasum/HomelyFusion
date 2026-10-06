@@ -1,10 +1,14 @@
 ---
-title: "Standing Decor Ideas: Stylish Sculptures, Easels, and Shelves for Home"
-description: "Standing decor adds style and personality to any room. These items create focal points and enhance your home’s look. Standing decor pieces come in many shapes a"
+title: 'Standing Decor Ideas: Stylish Sculptures, Easels, and Shelves for Home'
+description: Standing decor adds style and personality to any room. These items create
+  focal points and enhance your home’s look. Standing decor pieces come in many shapes
+  a
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=standing-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=standing-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Standing decor adds style and personality to any room. These items create focal points and enhance your home’s look.**

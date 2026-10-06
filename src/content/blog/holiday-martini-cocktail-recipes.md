@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Martini Cocktail Recipes: Festive, Easy & Delicious Ideas"
 description: "Looking to add a festive twist to your holiday gatherings? You’re in the right place. Holiday martini cocktail recipes can turn any evening into a celebration. "
 pubDate: 2025-12-26

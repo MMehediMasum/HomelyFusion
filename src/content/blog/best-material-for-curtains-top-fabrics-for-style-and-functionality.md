@@ -1,10 +1,14 @@
 ---
-title: "Best Material for Curtains: Top Fabrics for Style and Functionality"
-description: "Choosing the best material for curtains affects your room’s look and function. Different fabrics offer various benefits like light control, privacy, and style. "
+title: 'Best Material for Curtains: Top Fabrics for Style and Functionality'
+description: 'Choosing the best material for curtains affects your room’s look and
+  function. Different fabrics offer various benefits like light control, privacy,
+  and style. '
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-material-for-curtains-top-fabrics-for-style-and-functionality&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-material-for-curtains-top-fabrics-for-style-and-functionality&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best material for curtains affects your room’s look and function. Different fabrics offer various benefits like light control, privacy, and style.**

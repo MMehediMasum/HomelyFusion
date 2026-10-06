@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Short Bedroom Windows: Stylish Ideas That Transform"
-description: "Are you struggling to find the perfect way to dress your short bedroom windows? You’re not alone. Short windows can be tricky—they often feel awkward or out of "
+title: 'How to Dress Short Bedroom Windows: Stylish Ideas That Transform'
+description: 'Are you struggling to find the perfect way to dress your short bedroom
+  windows? You’re not alone. Short windows can be tricky—they often feel awkward or
+  out of '
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-short-bedroom-windows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-short-bedroom-windows&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you struggling to find the perfect way to dress your short bedroom windows? You’re not alone.**

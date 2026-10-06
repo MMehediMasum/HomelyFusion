@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Tv Wall: Stunning Ideas to Transform Your Space"
-description: "Your TV wall is more than just a spot for your screen—it’s a chance to transform your living space. Imagine turning that plain wall into a stylish focal point t"
+title: 'How to Decorate a Tv Wall: Stunning Ideas to Transform Your Space'
+description: Your TV wall is more than just a spot for your screen—it’s a chance to
+  transform your living space. Imagine turning that plain wall into a stylish focal
+  point t
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-tv-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-tv-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your TV wall is more than just a spot for your screen—it’s a chance to transform your living space. Imagine turning that plain wall into a stylish focal point that reflects your personality and enhances your room’s vibe.**

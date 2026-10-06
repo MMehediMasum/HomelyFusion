@@ -1,10 +1,13 @@
 ---
-title: "Is It Okay to Have Mirror in Bedroom: Surprising Facts Revealed"
-description: "Have you ever wondered if having a mirror in your bedroom is a good idea? Maybe you love checking your look before heading out, but something inside you worries"
+title: 'Is It Okay to Have Mirror in Bedroom: Surprising Facts Revealed'
+description: Have you ever wondered if having a mirror in your bedroom is a good idea?
+  Maybe you love checking your look before heading out, but something inside you worries
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-okay-to-have-mirror-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=is-it-okay-to-have-mirror-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if having a mirror in your bedroom is a good idea? Maybe you love checking your look before heading out, but something inside you worries it might affect your sleep or energy.**

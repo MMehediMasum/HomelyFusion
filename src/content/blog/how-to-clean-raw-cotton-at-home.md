@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Raw Cotton at Home: Easy Steps for Fresh Fabric"
 description: "Do you have raw cotton at home and wonder how to clean it properly? Handling raw cotton can feel tricky, but with the right steps, you can easily prepare it for"
 pubDate: 2026-03-31

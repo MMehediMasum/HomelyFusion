@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Ladder Shelf: Stylish Storage Solutions for Every Room"
-description: "Ladder shelves are versatile and stylish additions to any home. They offer both functionality and aesthetic appeal. Perfect for organizing books, displaying déc"
+title: 'Home Goods Ladder Shelf: Stylish Storage Solutions for Every Room'
+description: Ladder shelves are versatile and stylish additions to any home. They
+  offer both functionality and aesthetic appeal. Perfect for organizing books, displaying
+  déc
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-ladder-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-ladder-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Ladder shelves are versatile and stylish additions to any home. They offer both functionality and aesthetic appeal.**

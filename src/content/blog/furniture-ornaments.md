@@ -1,10 +1,14 @@
 ---
-title: "Furniture Ornaments: Unique Decorations to Elevate Your Home Style"
-description: "Furniture ornaments add charm and personality to any room. They decorate furniture pieces and bring a unique style to your space. These small decorations come i"
+title: 'Furniture Ornaments: Unique Decorations to Elevate Your Home Style'
+description: Furniture ornaments add charm and personality to any room. They decorate
+  furniture pieces and bring a unique style to your space. These small decorations
+  come i
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=furniture-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Furniture ornaments add charm and personality to any room. They decorate furniture pieces and bring a unique style to your space.**

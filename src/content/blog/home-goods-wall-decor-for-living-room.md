@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Decor for Living Room: Stylish Key Holders & Boho Accents"
-description: "Transform your living room with charming wall decor that reflects your personal style. Wall decor adds character and warmth to any space. Decorating your living"
+title: 'Home Goods Wall Decor for Living Room: Stylish Key Holders & Boho Accents'
+description: Transform your living room with charming wall decor that reflects your
+  personal style. Wall decor adds character and warmth to any space. Decorating your
+  living
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-decor-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-decor-for-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living room with charming wall decor that reflects your personal style. Wall decor adds character and warmth to any space.**

@@ -1,10 +1,14 @@
 ---
-title: "Vanity Mirror Home Goods: Top Lighted Makeup Mirrors for Perfect Glam"
-description: "Vanity mirror home goods bring light and style to daily routines. These mirrors combine bright lighting and useful features for easy makeup application. A good "
+title: 'Vanity Mirror Home Goods: Top Lighted Makeup Mirrors for Perfect Glam'
+description: 'Vanity mirror home goods bring light and style to daily routines. These
+  mirrors combine bright lighting and useful features for easy makeup application.
+  A good '
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vanity-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=vanity-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Vanity mirror home goods bring light and style to daily routines. These mirrors combine bright lighting and useful features for easy makeup application.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Recliner in Living Room: Expert Tips for Cozy Style"
-description: "Are you wondering how to arrange your recliner in the living room to create the perfect blend of comfort and style? Your recliner is more than just a seat—it’s "
+title: 'How to Arrange Recliner in Living Room: Expert Tips for Cozy Style'
+description: 'Are you wondering how to arrange your recliner in the living room to
+  create the perfect blend of comfort and style? Your recliner is more than just a
+  seat—it’s '
 pubDate: 2026-02-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-recliner-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-recliner-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange your recliner in the living room to create the perfect blend of comfort and style? Your recliner is more than just a seat—it’s where you relax, unwind, and enjoy your favorite moments.**

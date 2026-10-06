@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home to Play Music: Easy Step-by-Step Guide"
 description: "Imagine walking into your room and instantly hearing your favorite song playing without lifting a finger. Setting up Google Home to play music is easier than yo"
 pubDate: 2025-10-10

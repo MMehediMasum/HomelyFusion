@@ -1,10 +1,14 @@
 ---
-title: "Tahari Gold Mirror: Elegant Full-Length Decor for Any Room"
-description: "The Tahari Gold Mirror brings classic elegance to any room. Its rich gold frame and detailed design create a timeless look. This mirror suits living rooms, bedr"
+title: 'Tahari Gold Mirror: Elegant Full-Length Decor for Any Room'
+description: The Tahari Gold Mirror brings classic elegance to any room. Its rich
+  gold frame and detailed design create a timeless look. This mirror suits living
+  rooms, bedr
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-gold-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=tahari-gold-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Tahari Gold Mirror brings classic elegance to any room. Its rich gold frame and detailed design create a timeless look.**

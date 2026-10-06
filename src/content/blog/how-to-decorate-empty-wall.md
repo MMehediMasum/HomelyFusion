@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Empty Wall: Stunning Ideas to Transform Your Space"
-description: "Is your empty wall staring back at you, feeling like a blank canvas waiting to be transformed? You’re not alone. That bare space holds so much potential to brin"
+title: 'How to Decorate Empty Wall: Stunning Ideas to Transform Your Space'
+description: Is your empty wall staring back at you, feeling like a blank canvas waiting
+  to be transformed? You’re not alone. That bare space holds so much potential to
+  brin
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-empty-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-empty-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your empty wall staring back at you, feeling like a blank canvas waiting to be transformed? You’re not alone.**

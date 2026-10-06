@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Candy Cane Brownie Recipe: Irresistible Holiday Treats"
 description: "Are you ready to make your holiday treats unforgettable? Imagine biting into a rich, fudgy brownie with a festive twist—the sweet crunch of candy canes melting "
 pubDate: 2025-10-28

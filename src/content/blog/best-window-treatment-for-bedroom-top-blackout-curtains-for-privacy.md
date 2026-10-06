@@ -1,10 +1,14 @@
 ---
-title: "Best Window Treatment for Bedroom: Top Blackout Curtains for Privacy"
-description: "Choosing the best window treatment for your bedroom can improve comfort and style. Blackout curtains and light-filtering panels offer different benefits for res"
+title: 'Best Window Treatment for Bedroom: Top Blackout Curtains for Privacy'
+description: Choosing the best window treatment for your bedroom can improve comfort
+  and style. Blackout curtains and light-filtering panels offer different benefits
+  for res
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-window-treatment-for-bedroom-top-blackout-curtains-for-privacy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-window-treatment-for-bedroom-top-blackout-curtains-for-privacy&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best window treatment for your bedroom can improve comfort and style. Blackout curtains and light-filtering panels offer different benefits for restful sleep and privacy.**

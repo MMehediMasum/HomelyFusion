@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bathroom Vanity With Drawers: Easy Step-by-Step Guide"
-description: "Are you tired of your bathroom clutter and ready to create a stylish, organized space? Building a bathroom vanity with drawers is a smart way to add both storag"
+title: 'How to Build Bathroom Vanity With Drawers: Easy Step-by-Step Guide'
+description: Are you tired of your bathroom clutter and ready to create a stylish,
+  organized space? Building a bathroom vanity with drawers is a smart way to add both
+  storag
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bathroom-vanity-with-drawers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bathroom-vanity-with-drawers&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your bathroom clutter and ready to create a stylish, organized space? Building a bathroom vanity with drawers is a smart way to add both storage and charm to your room.**

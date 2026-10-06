@@ -1,10 +1,14 @@
 ---
-title: "Is a Sleeper Sofa Enough for a Living Room? Expert Insights"
-description: "Are you wondering if a sleeper sofa can truly meet all your living room needs? You might think it’s a simple solution—extra seating by day, a bed by night. But "
+title: Is a Sleeper Sofa Enough for a Living Room? Expert Insights
+description: 'Are you wondering if a sleeper sofa can truly meet all your living room
+  needs? You might think it’s a simple solution—extra seating by day, a bed by night.
+  But '
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-sleeper-sofa-enough-for-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=is-a-sleeper-sofa-enough-for-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a sleeper sofa can truly meet all your living room needs? You might think it’s a simple solution—extra seating by day, a bed by night.**

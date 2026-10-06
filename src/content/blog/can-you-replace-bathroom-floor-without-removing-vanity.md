@@ -1,10 +1,14 @@
 ---
-title: "Can You Replace Bathroom Floor Without Removing Vanity? Expert Tips"
-description: "Are you thinking about giving your bathroom floor a fresh new look but dread the idea of tearing out your vanity? You’re not alone. Many homeowners wonder if it"
+title: Can You Replace Bathroom Floor Without Removing Vanity? Expert Tips
+description: Are you thinking about giving your bathroom floor a fresh new look but
+  dread the idea of tearing out your vanity? You’re not alone. Many homeowners wonder
+  if it
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-floor-without-removing-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-floor-without-removing-vanity&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you thinking about giving your bathroom floor a fresh new look but dread the idea of tearing out your vanity? You’re not alone.**

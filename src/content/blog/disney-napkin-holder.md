@@ -1,10 +1,14 @@
 ---
-title: "Disney Napkin Holder: Stylish and Fun Table Decor for Every Occasion"
-description: "A Disney napkin holder adds charm and fun to any table setting. It keeps napkins tidy while showing off beloved Disney characters. These napkin holders come in "
+title: 'Disney Napkin Holder: Stylish and Fun Table Decor for Every Occasion'
+description: 'A Disney napkin holder adds charm and fun to any table setting. It keeps
+  napkins tidy while showing off beloved Disney characters. These napkin holders come
+  in '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-napkin-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=disney-napkin-holder&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A Disney napkin holder adds charm and fun to any table setting. It keeps napkins tidy while showing off beloved Disney characters.**

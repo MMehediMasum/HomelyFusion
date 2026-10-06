@@ -1,10 +1,14 @@
 ---
-title: "What Beds Fit in 20X11 Bedroom: Perfect Size Guide for Comfort"
-description: "Are you wondering what size bed will fit comfortably in your 20x11 bedroom? Choosing the right bed isn’t just about fitting the mattress—it’s about creating a s"
+title: 'What Beds Fit in 20X11 Bedroom: Perfect Size Guide for Comfort'
+description: Are you wondering what size bed will fit comfortably in your 20x11 bedroom?
+  Choosing the right bed isn’t just about fitting the mattress—it’s about creating
+  a s
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-beds-fit-in-20x11-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=what-beds-fit-in-20x11-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering what size bed will fit comfortably in your 20x11 bedroom? Choosing the right bed isn’t just about fitting the mattress—it’s about creating a space where you can relax, move around easily, and make the most of your room.**

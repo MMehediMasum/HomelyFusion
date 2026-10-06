@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Carpet Ideas: Soft, Plush Rugs for Cozy Home Spaces"
-description: "Discover the perfect carpet to enhance your home's style and comfort. Floor decor carpets offer beauty and functionality. Carpets can transform any room, adding"
+title: 'Floor Decor Carpet Ideas: Soft, Plush Rugs for Cozy Home Spaces'
+description: Discover the perfect carpet to enhance your home's style and comfort.
+  Floor decor carpets offer beauty and functionality. Carpets can transform any room,
+  adding
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-carpet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-carpet&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the perfect carpet to enhance your home's style and comfort. Floor decor carpets offer beauty and functionality.**

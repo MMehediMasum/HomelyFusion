@@ -1,10 +1,14 @@
 ---
-title: "Tahari Furniture Website: Explore Luxury Bedding Collections for Modern Homes"
-description: "Discover Tahari Furniture's elegant bedding collections and luxurious linens, designed to elevate your home's style effortlessly. Their exquisite range offers c"
+title: 'Tahari Furniture Website: Explore Luxury Bedding Collections for Modern Homes'
+description: Discover Tahari Furniture's elegant bedding collections and luxurious
+  linens, designed to elevate your home's style effortlessly. Their exquisite range
+  offers c
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-furniture-website&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=tahari-furniture-website&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover Tahari Furniture's elegant bedding collections and luxurious linens, designed to elevate your home's style effortlessly. Their exquisite range offers comfort and sophistication for every bedroom.**

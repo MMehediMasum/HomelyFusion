@@ -1,10 +1,14 @@
 ---
-title: "What are Living Room Table Sets Called: Ultimate Guide to Styles"
-description: "Have you ever walked into a living room and wondered what the different tables are called? Maybe you’re shopping for new furniture or simply curious about the p"
+title: 'What are Living Room Table Sets Called: Ultimate Guide to Styles'
+description: Have you ever walked into a living room and wondered what the different
+  tables are called? Maybe you’re shopping for new furniture or simply curious about
+  the p
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-living-room-table-sets-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=what-are-living-room-table-sets-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into a living room and wondered what the different tables are called? Maybe you’re shopping for new furniture or simply curious about the pieces that bring your space together.**

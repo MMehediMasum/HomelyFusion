@@ -1,10 +1,14 @@
 ---
-title: "Christmas Snowy Village Decoration: Stunning Ideas to Spark Joy"
-description: "Imagine stepping into a cozy winter wonderland right in your own home. Christmas snowy village decorations can bring that magical feeling to your space, making "
+title: 'Christmas Snowy Village Decoration: Stunning Ideas to Spark Joy'
+description: 'Imagine stepping into a cozy winter wonderland right in your own home.
+  Christmas snowy village decorations can bring that magical feeling to your space,
+  making '
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-snowy-village-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-snowy-village-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine stepping into a cozy winter wonderland right in your own home. Christmas snowy village decorations can bring that magical feeling to your space, making every corner sparkle with holiday cheer.**

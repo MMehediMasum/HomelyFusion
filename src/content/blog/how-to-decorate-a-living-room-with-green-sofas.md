@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Green Sofas: Stunning Style Tips"
-description: "Are you thinking about adding a fresh, vibrant touch to your living room? Green sofas might be the perfect choice to breathe new life into your space. They brin"
+title: 'How to Decorate a Living Room With Green Sofas: Stunning Style Tips'
+description: Are you thinking about adding a fresh, vibrant touch to your living room?
+  Green sofas might be the perfect choice to breathe new life into your space. They
+  brin
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-green-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-green-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a fresh, vibrant touch to your living room? Green sofas might be the perfect choice to breathe new life into your space.**

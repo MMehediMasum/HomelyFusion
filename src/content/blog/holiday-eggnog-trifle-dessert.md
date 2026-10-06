@@ -1,10 +1,14 @@
 ---
-title: "Holiday Eggnog Trifle Dessert: Irresistible Festive Delight Recipe"
-description: "Are you ready to wow your guests this holiday season with a dessert that’s both festive and incredibly easy to make? Your search ends here with the Holiday Eggn"
+title: 'Holiday Eggnog Trifle Dessert: Irresistible Festive Delight Recipe'
+description: Are you ready to wow your guests this holiday season with a dessert that’s
+  both festive and incredibly easy to make? Your search ends here with the Holiday
+  Eggn
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-eggnog-trifle-dessert&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-eggnog-trifle-dessert&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to wow your guests this holiday season with a dessert that’s both festive and incredibly easy to make? Your search ends here with the Holiday Eggnog Trifle Dessert.**

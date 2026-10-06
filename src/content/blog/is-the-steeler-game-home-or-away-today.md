@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is the Steeler Game Home Or Away Today: Ultimate Fan Guide 2025"
 description: "Are you ready to catch the Steeler game but don’t know if it’s at home or away today? Knowing where the game is played can change your whole day — from planning"
 pubDate: 2026-02-28

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Stainless Steel Pipe at Home: Easy DIY Techniques"
 description: "Are you looking to bend a stainless steel pipe right at home but don’t know where to start? Bending stainless steel might sound tricky, but with the right steps"
 pubDate: 2026-03-23

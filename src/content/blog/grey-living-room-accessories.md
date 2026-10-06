@@ -1,10 +1,14 @@
 ---
-title: "Grey Living Room Accessories: Stylish Decor Ideas to Elevate Your Space"
-description: "Grey living room accessories add a calm and stylish touch to any space. They blend well with many colors and fit various decor styles. Choosing the right grey a"
+title: 'Grey Living Room Accessories: Stylish Decor Ideas to Elevate Your Space'
+description: Grey living room accessories add a calm and stylish touch to any space.
+  They blend well with many colors and fit various decor styles. Choosing the right
+  grey a
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grey-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=grey-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Grey living room accessories add a calm and stylish touch to any space. They blend well with many colors and fit various decor styles.**

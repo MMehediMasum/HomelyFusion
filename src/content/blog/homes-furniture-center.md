@@ -1,10 +1,14 @@
 ---
-title: "Homes Furniture Center: Top Stylish Storage Solutions for Every Room"
-description: "Discover a world of stylish and functional furniture at Homes Furniture Center. Transform your living space with versatile and modern pieces. Homes Furniture Ce"
+title: 'Homes Furniture Center: Top Stylish Storage Solutions for Every Room'
+description: Discover a world of stylish and functional furniture at Homes Furniture
+  Center. Transform your living space with versatile and modern pieces. Homes Furniture
+  Ce
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homes-furniture-center&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=homes-furniture-center&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover a world of stylish and functional furniture at Homes Furniture Center. Transform your living space with versatile and modern pieces.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Gold Framed Mirror: Stunning Ideas"
-description: "Are you looking to add a touch of elegance and warmth to your bedroom? A gold framed mirror might be just what you need. It’s more than just a reflective surfac"
+title: 'How to Decorate Bedroom With Gold Framed Mirror: Stunning Ideas'
+description: Are you looking to add a touch of elegance and warmth to your bedroom?
+  A gold framed mirror might be just what you need. It’s more than just a reflective
+  surfac
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-gold-framed-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-gold-framed-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a touch of elegance and warmth to your bedroom? A gold framed mirror might be just what you need.**

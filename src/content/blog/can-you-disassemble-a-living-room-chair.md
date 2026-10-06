@@ -1,10 +1,14 @@
 ---
-title: "Can You Disassemble a Living Room Chair? Easy Step-by-Step Guide"
-description: "Have you ever wondered if you can take apart your living room chair? Whether you're moving to a new home, trying to fix a loose part, or just curious, knowing h"
+title: Can You Disassemble a Living Room Chair? Easy Step-by-Step Guide
+description: Have you ever wondered if you can take apart your living room chair?
+  Whether you're moving to a new home, trying to fix a loose part, or just curious,
+  knowing h
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-disassemble-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=can-you-disassemble-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if you can take apart your living room chair? Whether you're moving to a new home, trying to fix a loose part, or just curious, knowing how to disassemble your chair can save you time and frustration.**

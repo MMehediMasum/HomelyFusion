@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Plays Home Games at the Cotton Bowl: Ultimate Guide Revealed"
 description: "Are you curious about which teams call the Cotton Bowl their home? Whether you’re a sports fan planning your next game day or just want to know more about this "
 pubDate: 2026-02-10

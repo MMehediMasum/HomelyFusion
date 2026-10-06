@@ -1,10 +1,14 @@
 ---
-title: "Easter Table Centerpiece With Daffodils: Brighten Your Spring Celebration"
-description: "Looking to brighten your Easter celebration with a touch of fresh spring charm? An Easter table centerpiece with daffodils is the perfect way to bring warmth an"
+title: 'Easter Table Centerpiece With Daffodils: Brighten Your Spring Celebration'
+description: Looking to brighten your Easter celebration with a touch of fresh spring
+  charm? An Easter table centerpiece with daffodils is the perfect way to bring warmth
+  an
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-table-centerpiece-with-daffodils&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-table-centerpiece-with-daffodils&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to brighten your Easter celebration with a touch of fresh spring charm? An Easter table centerpiece with daffodils is the perfect way to bring warmth and happiness to your gathering.**

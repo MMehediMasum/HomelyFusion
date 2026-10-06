@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bedroom Dresser Top: Stunning Ideas That Wow"
-description: "Your bedroom dresser top is more than just a place to store your things—it’s a chance to show your style and make your space feel truly yours. But how do you tu"
+title: 'How to Decorate a Bedroom Dresser Top: Stunning Ideas That Wow'
+description: Your bedroom dresser top is more than just a place to store your things—it’s
+  a chance to show your style and make your space feel truly yours. But how do you
+  tu
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-dresser-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-dresser-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser top is more than just a place to store your things—it’s a chance to show your style and make your space feel truly yours. But how do you turn that empty surface into a beautiful, organized, and inviting spot?**

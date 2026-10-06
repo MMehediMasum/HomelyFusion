@@ -1,10 +1,14 @@
 ---
-title: "What are Home Office Desk: Ultimate Guide to Boost Productivity"
-description: "Are you looking to create a productive and comfortable workspace right at home? Your home office desk plays a bigger role than you might think. It’s not just a "
+title: 'What are Home Office Desk: Ultimate Guide to Boost Productivity'
+description: 'Are you looking to create a productive and comfortable workspace right
+  at home? Your home office desk plays a bigger role than you might think. It’s not
+  just a '
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-home-office-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=what-are-home-office-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you looking to create a productive and comfortable workspace right at home? Your home office desk plays a bigger role than you might think.**

@@ -1,10 +1,14 @@
 ---
-title: "Will Traditional Recliner Go Well in a Farmhouse Living Room? Stylish Tips"
-description: "Are you wondering if a traditional recliner can fit perfectly in your farmhouse living room? You might think it’s tricky to mix classic comfort with rustic char"
+title: Will Traditional Recliner Go Well in a Farmhouse Living Room? Stylish Tips
+description: Are you wondering if a traditional recliner can fit perfectly in your
+  farmhouse living room? You might think it’s tricky to mix classic comfort with rustic
+  char
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-traditional-recliner-go-well-in-a-farmhouse-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=will-traditional-recliner-go-well-in-a-farmhouse-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a traditional recliner can fit perfectly in your farmhouse living room? You might think it’s tricky to mix classic comfort with rustic charm.**

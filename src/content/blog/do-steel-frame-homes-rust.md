@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Steel Frame Homes Rust: Truths You Need to Know Today"
 description: "Are you thinking about building a steel frame home but worried about rust? It’s a common concern that might stop you from choosing steel. After all, rust can da"
 pubDate: 2026-02-19

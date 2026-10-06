@@ -1,10 +1,14 @@
 ---
-title: "Diy Christmas Garland With Lights: Brighten Your Holiday Decor Easily"
-description: "Are you looking to add a warm, festive glow to your home this holiday season? A DIY Christmas garland with lights is the perfect way to bring that cozy magic to"
+title: 'Diy Christmas Garland With Lights: Brighten Your Holiday Decor Easily'
+description: Are you looking to add a warm, festive glow to your home this holiday
+  season? A DIY Christmas garland with lights is the perfect way to bring that cozy
+  magic to
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-garland-with-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-garland-with-lights&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a warm, festive glow to your home this holiday season? A DIY Christmas garland with lights is the perfect way to bring that cozy magic to your space.**

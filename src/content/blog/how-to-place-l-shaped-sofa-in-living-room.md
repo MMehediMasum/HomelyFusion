@@ -1,10 +1,14 @@
 ---
-title: "How to Place L Shaped Sofa in Living Room: Expert Tips & Tricks"
-description: "Are you wondering how to place your L shaped sofa in your living room to make the most of your space? Getting the arrangement right can completely change the fe"
+title: 'How to Place L Shaped Sofa in Living Room: Expert Tips & Tricks'
+description: Are you wondering how to place your L shaped sofa in your living room
+  to make the most of your space? Getting the arrangement right can completely change
+  the fe
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-l-shaped-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-l-shaped-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to place your L shaped sofa in your living room to make the most of your space? Getting the arrangement right can completely change the feel of your room, making it cozy, functional, and stylish.**

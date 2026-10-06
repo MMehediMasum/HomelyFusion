@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean Woolen Clothes at Home: Easy & Effective Tips"
 description: "Woolen clothes are cozy and stylish, but cleaning them can feel tricky. You might worry about shrinking, stretching, or ruining your favorite sweaters. What if "
 pubDate: 2026-03-27

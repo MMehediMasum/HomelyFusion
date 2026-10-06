@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Lamp Shade Ideas to Brighten Your Living Space Naturally"
-description: "Lampshades add style and function to any room. Choosing the right one enhances your home's decor and lighting. Lampshades come in various sizes, shapes, and mat"
+title: Home Goods Lamp Shade Ideas to Brighten Your Living Space Naturally
+description: Lampshades add style and function to any room. Choosing the right one
+  enhances your home's decor and lighting. Lampshades come in various sizes, shapes,
+  and mat
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamp-shade&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamp-shade&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lampshades add style and function to any room. Choosing the right one enhances your home's decor and lighting.**

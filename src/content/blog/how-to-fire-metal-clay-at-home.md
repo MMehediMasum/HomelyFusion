@@ -1,10 +1,14 @@
 ---
-title: "How to Fire Metal Clay at Home: Easy Steps for Stunning Results"
-description: "Are you ready to turn your metal clay creations into stunning, solid pieces right at home? Firing metal clay doesn’t have to be complicated or expensive. With t"
+title: 'How to Fire Metal Clay at Home: Easy Steps for Stunning Results'
+description: Are you ready to turn your metal clay creations into stunning, solid
+  pieces right at home? Firing metal clay doesn’t have to be complicated or expensive.
+  With t
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fire-metal-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fire-metal-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to turn your metal clay creations into stunning, solid pieces right at home? Firing metal clay doesn’t have to be complicated or expensive.**

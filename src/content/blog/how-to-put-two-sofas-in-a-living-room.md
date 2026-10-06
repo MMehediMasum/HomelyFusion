@@ -1,10 +1,14 @@
 ---
-title: "How to Put Two Sofas in a Living Room: Expert Space-Saving Tips"
-description: "Are you struggling to fit two sofas into your living room without making the space feel cramped or awkward? You’re not alone. Arranging multiple pieces of furni"
+title: 'How to Put Two Sofas in a Living Room: Expert Space-Saving Tips'
+description: Are you struggling to fit two sofas into your living room without making
+  the space feel cramped or awkward? You’re not alone. Arranging multiple pieces of
+  furni
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-two-sofas-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-two-sofas-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to fit two sofas into your living room without making the space feel cramped or awkward? You’re not alone.**

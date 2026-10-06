@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Paintings: Stunning Art to Transform Your Living Space"
-description: "Home goods wall paintings add charm and personality to any living space. They bring color, style, and warmth to your walls instantly. Choosing the right wall ar"
+title: 'Home Goods Wall Paintings: Stunning Art to Transform Your Living Space'
+description: Home goods wall paintings add charm and personality to any living space.
+  They bring color, style, and warmth to your walls instantly. Choosing the right
+  wall ar
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-paintings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-paintings&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods wall paintings add charm and personality to any living space. They bring color, style, and warmth to your walls instantly.**

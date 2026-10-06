@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should a Living Room Table Lamp Be: Perfect Height Guide"
-description: "Choosing the perfect lamp for your living room isn’t just about style—it’s about finding the right height. You might wonder, “How tall should a living room tabl"
+title: 'How Tall Should a Living Room Table Lamp Be: Perfect Height Guide'
+description: Choosing the perfect lamp for your living room isn’t just about style—it’s
+  about finding the right height. You might wonder, “How tall should a living room
+  tabl
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-table-lamp-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-table-lamp-be&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the perfect lamp for your living room isn’t just about style—it’s about finding the right height. You might wonder, “How tall should a living room table lamp be?” Getting this right can change the entire feel of your space.**

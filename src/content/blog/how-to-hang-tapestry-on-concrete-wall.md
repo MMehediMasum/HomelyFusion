@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Tapestry on Concrete Wall: Easy & Secure Tips"
-description: "Hanging a tapestry on a concrete wall might seem tricky, but it doesn’t have to be. If you want to add color, texture, and personality to your space, a tapestry"
+title: 'How to Hang Tapestry on Concrete Wall: Easy & Secure Tips'
+description: Hanging a tapestry on a concrete wall might seem tricky, but it doesn’t
+  have to be. If you want to add color, texture, and personality to your space, a
+  tapestry
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-tapestry-on-concrete-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-tapestry-on-concrete-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a tapestry on a concrete wall might seem tricky, but it doesn’t have to be. If you want to add color, texture, and personality to your space, a tapestry is a perfect choice.**

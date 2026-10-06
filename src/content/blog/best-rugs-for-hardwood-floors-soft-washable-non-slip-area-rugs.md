@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Hardwood Floors: Soft, Washable, Non-Slip Area Rugs"
-description: "Choosing the best rugs for hardwood floors adds warmth and style while protecting your floor. Rugs create cozy spaces and prevent scratches on wood surfaces. Ha"
+title: 'Best Rugs for Hardwood Floors: Soft, Washable, Non-Slip Area Rugs'
+description: Choosing the best rugs for hardwood floors adds warmth and style while
+  protecting your floor. Rugs create cozy spaces and prevent scratches on wood surfaces.
+  Ha
 pubDate: 2025-12-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-hardwood-floors-soft-washable-non-slip-area-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-hardwood-floors-soft-washable-non-slip-area-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for hardwood floors adds warmth and style while protecting your floor. Rugs create cozy spaces and prevent scratches on wood surfaces.**

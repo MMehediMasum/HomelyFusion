@@ -1,10 +1,14 @@
 ---
-title: "Home Accents And Decor: Stunning Rustic & Modern Pieces for Every Room"
-description: "Home accents and decor breathe life into any space, making it uniquely yours. They add personality and charm to your home. Incorporating the right decorative el"
+title: 'Home Accents And Decor: Stunning Rustic & Modern Pieces for Every Room'
+description: Home accents and decor breathe life into any space, making it uniquely
+  yours. They add personality and charm to your home. Incorporating the right decorative
+  el
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-and-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home accents and decor breathe life into any space, making it uniquely yours. They add personality and charm to your home.**

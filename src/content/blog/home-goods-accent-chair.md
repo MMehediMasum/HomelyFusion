@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Accent Chair: Stylish Comfort for Every Living Space"
-description: "Accent chairs are a versatile addition to any home, offering both style and comfort. They enhance living spaces with unique designs and textures. Accent chairs "
+title: 'Home Goods Accent Chair: Stylish Comfort for Every Living Space'
+description: 'Accent chairs are a versatile addition to any home, offering both style
+  and comfort. They enhance living spaces with unique designs and textures. Accent
+  chairs '
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-accent-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-accent-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Accent chairs are a versatile addition to any home, offering both style and comfort. They enhance living spaces with unique designs and textures.**

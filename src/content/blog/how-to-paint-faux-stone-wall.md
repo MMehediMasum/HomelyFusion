@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Faux Stone Wall: Easy Steps for Stunning Results"
-description: "Want to give your walls a stunning, natural stone look without the heavy cost or effort of real stone? You’re in the right place. Painting a faux stone wall is "
+title: 'How to Paint Faux Stone Wall: Easy Steps for Stunning Results'
+description: 'Want to give your walls a stunning, natural stone look without the heavy
+  cost or effort of real stone? You’re in the right place. Painting a faux stone wall
+  is '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-faux-stone-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-faux-stone-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to give your walls a stunning, natural stone look without the heavy cost or effort of real stone? You’re in the right place.**

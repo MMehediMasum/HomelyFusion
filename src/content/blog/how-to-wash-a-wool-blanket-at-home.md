@@ -1,10 +1,14 @@
 ---
-title: "How to Wash a Wool Blanket at Home: Easy Steps for Softness"
-description: "Your wool blanket keeps you warm and cozy, but washing it can feel tricky. You might worry about shrinking, stretching, or ruining its softness. What if you cou"
+title: 'How to Wash a Wool Blanket at Home: Easy Steps for Softness'
+description: Your wool blanket keeps you warm and cozy, but washing it can feel tricky.
+  You might worry about shrinking, stretching, or ruining its softness. What if you
+  cou
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-a-wool-blanket-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-a-wool-blanket-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your wool blanket keeps you warm and cozy, but washing it can feel tricky. You might worry about shrinking, stretching, or ruining its softness.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Desk And Dresser in Bedroom: Smart Space-Saving Tips"
-description: "Struggling to fit both a desk and a dresser in your bedroom without making it feel cramped? You’re not alone. Finding the right balance between functionality an"
+title: 'How to Fit Desk And Dresser in Bedroom: Smart Space-Saving Tips'
+description: Struggling to fit both a desk and a dresser in your bedroom without making
+  it feel cramped? You’re not alone. Finding the right balance between functionality
+  an
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-desk-and-dresser-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-desk-and-dresser-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit both a desk and a dresser in your bedroom without making it feel cramped? You’re not alone.**

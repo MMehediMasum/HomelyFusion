@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Canvas Pictures: Stunning Personalized Wall Art Ideas"
-description: "Bed Bath and Beyond offers a variety of canvas pictures to brighten your living space. These prints bring art and memories together in stylish ways. Canvas pict"
+title: 'Bed Bath And Beyond Canvas Pictures: Stunning Personalized Wall Art Ideas'
+description: Bed Bath and Beyond offers a variety of canvas pictures to brighten your
+  living space. These prints bring art and memories together in stylish ways. Canvas
+  pict
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-canvas-pictures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-canvas-pictures&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Bed Bath and Beyond offers a variety of canvas pictures to brighten your living space. These prints bring art and memories together in stylish ways.**

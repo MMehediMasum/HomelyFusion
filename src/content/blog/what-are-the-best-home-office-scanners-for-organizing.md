@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What are the Best Home Office Scanners for Organizing: Top Picks 2025"
 description: "Are you tired of piles of paperwork cluttering your desk and making it hard to find what you need? A reliable home office scanner can change that fast. Imagine "
 pubDate: 2025-10-15

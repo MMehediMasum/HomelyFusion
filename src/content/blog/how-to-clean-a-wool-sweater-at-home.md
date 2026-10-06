@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean a Wool Sweater at Home: Easy & Effective Tips"
 description: "Your favorite wool sweater can quickly lose its charm if it’s not cleaned properly. You might worry about shrinking, stretching, or damaging its soft fibers. Bu"
 pubDate: 2026-02-07

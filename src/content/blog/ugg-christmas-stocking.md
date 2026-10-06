@@ -1,10 +1,14 @@
 ---
-title: "Ugg Christmas Stocking Ideas: Cozy, Stylish Picks for Holiday Decor"
-description: "Ugg Christmas Stockings bring warmth and style to your holiday decorations. Their soft materials and cozy design make them perfect for festive cheer. These stoc"
+title: 'Ugg Christmas Stocking Ideas: Cozy, Stylish Picks for Holiday Decor'
+description: Ugg Christmas Stockings bring warmth and style to your holiday decorations.
+  Their soft materials and cozy design make them perfect for festive cheer. These
+  stoc
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ugg-christmas-stocking&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=ugg-christmas-stocking&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Ugg Christmas Stockings bring warmth and style to your holiday decorations. Their soft materials and cozy design make them perfect for festive cheer.**

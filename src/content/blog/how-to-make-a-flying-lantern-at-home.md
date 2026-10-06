@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Flying Lantern at Home: Easy Step-by-Step Guide"
-description: "Have you ever watched a glowing lantern drift gently into the night sky and wished you could make one yourself? Imagine creating your own flying lantern right a"
+title: 'How to Make a Flying Lantern at Home: Easy Step-by-Step Guide'
+description: Have you ever watched a glowing lantern drift gently into the night sky
+  and wished you could make one yourself? Imagine creating your own flying lantern
+  right a
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-flying-lantern-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-flying-lantern-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever watched a glowing lantern drift gently into the night sky and wished you could make one yourself? Imagine creating your own flying lantern right at home, lighting it up, and watching it soar beautifully above.**

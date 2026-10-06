@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Bedside Table in Living Room: Stylish Tips & Ideas"
-description: "Have you ever wondered if that bedside table you love could fit perfectly in your living room? You might think it’s just for the bedroom, but what if it could a"
+title: 'Can You Use Bedside Table in Living Room: Stylish Tips & Ideas'
+description: Have you ever wondered if that bedside table you love could fit perfectly
+  in your living room? You might think it’s just for the bedroom, but what if it could
+  a
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-bedside-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-bedside-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if that bedside table you love could fit perfectly in your living room? You might think it’s just for the bedroom, but what if it could add style and function to your main gathering space?**

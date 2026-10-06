@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a White Kitchen: Stunning Ideas to Transform Your Space"
-description: "Your white kitchen is a blank canvas full of possibilities. But how do you make it feel warm, inviting, and uniquely yours without losing its clean, bright appe"
+title: 'How to Decorate a White Kitchen: Stunning Ideas to Transform Your Space'
+description: Your white kitchen is a blank canvas full of possibilities. But how do
+  you make it feel warm, inviting, and uniquely yours without losing its clean, bright
+  appe
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-white-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-white-kitchen&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your white kitchen is a blank canvas full of possibilities. But how do you make it feel warm, inviting, and uniquely yours without losing its clean, bright appeal?**

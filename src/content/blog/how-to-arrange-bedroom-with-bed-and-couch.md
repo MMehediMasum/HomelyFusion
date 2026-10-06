@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Bedroom With Bed And Couch: Expert Space-Saving Tips"
-description: "Your bedroom should be your personal sanctuary—a place where comfort meets style. But when you have both a bed and a couch in the same room, arranging them can "
+title: 'How to Arrange Bedroom With Bed And Couch: Expert Space-Saving Tips'
+description: 'Your bedroom should be your personal sanctuary—a place where comfort
+  meets style. But when you have both a bed and a couch in the same room, arranging
+  them can '
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-with-bed-and-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-with-bed-and-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your bedroom should be your personal sanctuary—a place where comfort meets style. But when you have both a bed and a couch in the same room, arranging them can feel tricky.**

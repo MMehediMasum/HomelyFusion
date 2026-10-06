@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home AC Run Out of Freon: Signs, Causes & Fixes Explained"
 description: "Have you ever wondered if your home AC can run out of Freon? You rely on your air conditioner to keep your space cool and comfortable, especially during hot day"
 pubDate: 2025-10-15

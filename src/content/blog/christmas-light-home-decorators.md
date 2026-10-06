@@ -1,10 +1,14 @@
 ---
-title: "Christmas Light Home Decorators: Magical LED Lights for Festive Ambiance"
-description: "Christmas Light Home Decorators bring warmth and sparkle to your holiday season. These lights create a festive and cozy atmosphere inside and outside your home."
+title: 'Christmas Light Home Decorators: Magical LED Lights for Festive Ambiance'
+description: Christmas Light Home Decorators bring warmth and sparkle to your holiday
+  season. These lights create a festive and cozy atmosphere inside and outside your
+  home.
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-light-home-decorators&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-light-home-decorators&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas Light Home Decorators bring warmth and sparkle to your holiday season. These lights create a festive and cozy atmosphere inside and outside your home.**

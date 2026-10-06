@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Living Room Table Lamps Be: Perfect Size Guide"
-description: "Choosing the right size for your living room table lamps can change the entire feel of your space. If your lamps are too big, they might overwhelm your room. To"
+title: 'How Big Should Living Room Table Lamps Be: Perfect Size Guide'
+description: Choosing the right size for your living room table lamps can change the
+  entire feel of your space. If your lamps are too big, they might overwhelm your
+  room. To
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-living-room-table-lamps-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-living-room-table-lamps-be&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right size for your living room table lamps can change the entire feel of your space. If your lamps are too big, they might overwhelm your room.**

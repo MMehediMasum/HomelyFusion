@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Wool Blankets at Home: Easy Steps for Freshness"
-description: "Your wool blanket is more than just a cozy cover—it’s a treasured part of your home that keeps you warm and comfortable. But cleaning it can feel tricky. You mi"
+title: 'How to Clean Wool Blankets at Home: Easy Steps for Freshness'
+description: Your wool blanket is more than just a cozy cover—it’s a treasured part
+  of your home that keeps you warm and comfortable. But cleaning it can feel tricky.
+  You mi
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-wool-blankets-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-wool-blankets-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your wool blanket is more than just a cozy cover—it’s a treasured part of your home that keeps you warm and comfortable. But cleaning it can feel tricky.**

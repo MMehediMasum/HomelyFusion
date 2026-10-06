@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for a Selfie: Top Portable LED Lights with Tripod Stand"
 description: "Great lighting makes selfies look clear, bright, and natural. Choosing the best light helps you take perfect photos every time. Selfie lighting changes how your"
 pubDate: 2025-12-08

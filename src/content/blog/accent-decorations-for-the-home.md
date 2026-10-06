@@ -1,10 +1,14 @@
 ---
-title: "Accent Decorations for the Home: Stylish Rustic and Modern Decor Ideas"
-description: "Accent decorations add charm and personality to your home. These small touches bring warmth and style to any space. Choosing the right accent pieces can make a "
+title: 'Accent Decorations for the Home: Stylish Rustic and Modern Decor Ideas'
+description: 'Accent decorations add charm and personality to your home. These small
+  touches bring warmth and style to any space. Choosing the right accent pieces can
+  make a '
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-decorations-for-the-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-decorations-for-the-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent decorations add charm and personality to your home. These small touches bring warmth and style to any space.**

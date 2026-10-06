@@ -1,10 +1,14 @@
 ---
-title: "Are White Bathroom Vanities in Style: Timeless Elegance Unveiled"
-description: "Are you thinking about updating your bathroom but aren’t sure which style to choose? White bathroom vanities might be exactly what your space needs. They have a"
+title: 'Are White Bathroom Vanities in Style: Timeless Elegance Unveiled'
+description: Are you thinking about updating your bathroom but aren’t sure which style
+  to choose? White bathroom vanities might be exactly what your space needs. They
+  have a
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-white-bathroom-vanities-in-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-white-bathroom-vanities-in-style&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about updating your bathroom but aren’t sure which style to choose? White bathroom vanities might be exactly what your space needs.**

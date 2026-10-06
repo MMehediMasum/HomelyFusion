@@ -1,10 +1,14 @@
 ---
-title: "Which Oil is Good to Light Lamp in Hindu Home: Top Sacred Choices"
-description: "When it comes to lighting a lamp in your Hindu home, choosing the right oil is more than just a tradition—it’s about creating a sacred atmosphere that brings pe"
+title: 'Which Oil is Good to Light Lamp in Hindu Home: Top Sacred Choices'
+description: When it comes to lighting a lamp in your Hindu home, choosing the right
+  oil is more than just a tradition—it’s about creating a sacred atmosphere that brings
+  pe
 pubDate: 2026-04-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-oil-is-good-to-light-lamp-in-hindu-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=which-oil-is-good-to-light-lamp-in-hindu-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When it comes to lighting a lamp in your Hindu home, choosing the right oil is more than just a tradition—it’s about creating a sacred atmosphere that brings peace and positivity. But with so many options available, you might wonder: which oil is truly best for your lamp?**

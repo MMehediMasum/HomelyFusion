@@ -1,10 +1,15 @@
 ---
-title: "Max Studio Home Lamps: Stylish and Functional Lighting Solutions for Every Room"
-description: "Max Studio home lamps offer stylish and practical lighting solutions for every room. These lamps blend modern design with useful features to brighten your space"
+title: 'Max Studio Home Lamps: Stylish and Functional Lighting Solutions for Every
+  Room'
+description: Max Studio home lamps offer stylish and practical lighting solutions
+  for every room. These lamps blend modern design with useful features to brighten
+  your space
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=max-studio-home-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=max-studio-home-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Max Studio home lamps offer stylish and practical lighting solutions for every room. These lamps blend modern design with useful features to brighten your space.**

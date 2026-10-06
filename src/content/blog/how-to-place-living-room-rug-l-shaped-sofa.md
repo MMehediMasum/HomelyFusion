@@ -1,10 +1,14 @@
 ---
-title: "How to Place Living Room Rug L Shaped Sofa: Expert Tips Revealed"
-description: "Are you struggling to figure out the perfect spot for your living room rug with your L-shaped sofa? You’re not alone. Placing a rug can completely change the lo"
+title: 'How to Place Living Room Rug L Shaped Sofa: Expert Tips Revealed'
+description: Are you struggling to figure out the perfect spot for your living room
+  rug with your L-shaped sofa? You’re not alone. Placing a rug can completely change
+  the lo
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-living-room-rug-l-shaped-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-living-room-rug-l-shaped-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to figure out the perfect spot for your living room rug with your L-shaped sofa? You’re not alone.**

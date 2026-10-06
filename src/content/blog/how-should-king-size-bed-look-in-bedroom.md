@@ -1,10 +1,14 @@
 ---
-title: "How Should King Size Bed Look in Bedroom: Stunning Design Tips"
-description: "Are you wondering how a king size bed should look in your bedroom? The right setup can completely change the feel of your space. Imagine walking into your room "
+title: 'How Should King Size Bed Look in Bedroom: Stunning Design Tips'
+description: 'Are you wondering how a king size bed should look in your bedroom? The
+  right setup can completely change the feel of your space. Imagine walking into your
+  room '
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-should-king-size-bed-look-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-should-king-size-bed-look-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how a king size bed should look in your bedroom? The right setup can completely change the feel of your space.**

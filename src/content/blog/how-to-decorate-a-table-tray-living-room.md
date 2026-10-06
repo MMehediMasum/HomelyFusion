@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Table Tray Living Room: Stylish Tips & Ideas"
-description: "Your living room table tray can be more than just a place to hold remotes or magazines. It’s a small space that, when decorated right, can transform the entire "
+title: 'How to Decorate a Table Tray Living Room: Stylish Tips & Ideas'
+description: 'Your living room table tray can be more than just a place to hold remotes
+  or magazines. It’s a small space that, when decorated right, can transform the entire '
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-table-tray-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-table-tray-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room table tray can be more than just a place to hold remotes or magazines. It’s a small space that, when decorated right, can transform the entire feel of your room.**

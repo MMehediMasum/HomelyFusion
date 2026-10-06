@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Strongsville: Top Rustic Farmhouse Furniture Picks"
-description: "Ashley Furniture Strongsville offers quality home furniture with stylish designs. The store features many popular pieces for every room. This Ashley Furniture l"
+title: 'Ashley Furniture Strongsville: Top Rustic Farmhouse Furniture Picks'
+description: Ashley Furniture Strongsville offers quality home furniture with stylish
+  designs. The store features many popular pieces for every room. This Ashley Furniture
+  l
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-strongsville&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-strongsville&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ashley Furniture Strongsville offers quality home furniture with stylish designs. The store features many popular pieces for every room.**

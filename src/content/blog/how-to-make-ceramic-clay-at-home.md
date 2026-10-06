@@ -1,10 +1,14 @@
 ---
-title: "How to Make Ceramic Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create beautiful ceramic pieces but thought it was too hard or expensive to get started? What if you could make your own ceramic clay ri"
+title: 'How to Make Ceramic Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create beautiful ceramic pieces but thought it
+  was too hard or expensive to get started? What if you could make your own ceramic
+  clay ri
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-ceramic-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-ceramic-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful ceramic pieces but thought it was too hard or expensive to get started? What if you could make your own ceramic clay right at home using simple ingredients?**

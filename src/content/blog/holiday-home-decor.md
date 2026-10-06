@@ -1,10 +1,14 @@
 ---
-title: "Holiday Home Decor Ideas: Rustic, Cozy, and Festive Seasonal Must-Haves"
-description: "Holiday home decor brings warmth and charm to your living space during special seasons. Simple decorations can create a festive and welcoming atmosphere for fam"
+title: 'Holiday Home Decor Ideas: Rustic, Cozy, and Festive Seasonal Must-Haves'
+description: Holiday home decor brings warmth and charm to your living space during
+  special seasons. Simple decorations can create a festive and welcoming atmosphere
+  for fam
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday home decor brings warmth and charm to your living space during special seasons. Simple decorations can create a festive and welcoming atmosphere for family and guests.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Recover a Round Back Living Room Chair: Easy DIY Guide"
-description: "Is your round back living room chair looking tired or worn out? You don’t have to replace it just yet. Imagine turning that old chair into a fresh, stylish piec"
+title: 'How to Recover a Round Back Living Room Chair: Easy DIY Guide'
+description: Is your round back living room chair looking tired or worn out? You don’t
+  have to replace it just yet. Imagine turning that old chair into a fresh, stylish
+  piec
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recover-a-round-back-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recover-a-round-back-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your round back living room chair looking tired or worn out? You don’t have to replace it just yet.**

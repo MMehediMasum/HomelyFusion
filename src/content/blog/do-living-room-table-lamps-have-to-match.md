@@ -1,10 +1,14 @@
 ---
-title: "Do Living Room Table Lamps Have to Match: Expert Style Tips"
-description: "When you’re decorating your living room, you might wonder: do living room table lamps have to match? It’s a question that can feel tricky. You want your space t"
+title: 'Do Living Room Table Lamps Have to Match: Expert Style Tips'
+description: 'When you’re decorating your living room, you might wonder: do living
+  room table lamps have to match? It’s a question that can feel tricky. You want your
+  space t'
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-living-room-table-lamps-have-to-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=do-living-room-table-lamps-have-to-match&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When you’re decorating your living room, you might wonder: do living room table lamps have to match? It’s a question that can feel tricky.**

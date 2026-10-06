@@ -1,10 +1,13 @@
 ---
-title: "Best Artificial Trees for Outdoors: Top Durable and Stylish Picks"
-description: "Artificial trees offer a lasting green look without the upkeep of real plants. They stay fresh all year and fit perfectly outdoors. Choosing the best artificial"
+title: 'Best Artificial Trees for Outdoors: Top Durable and Stylish Picks'
+description: Artificial trees offer a lasting green look without the upkeep of real
+  plants. They stay fresh all year and fit perfectly outdoors. Choosing the best artificial
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-trees-for-outdoors-top-durable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-trees-for-outdoors-top-durable-and-stylish-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial trees offer a lasting green look without the upkeep of real plants. They stay fresh all year and fit perfectly outdoors.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Update Bathroom Vanity: Easy Steps for a Stunning Look"
-description: "Is your bathroom vanity looking tired or outdated? Updating it can instantly transform your space without a full remodel. Imagine stepping into your bathroom an"
+title: 'How to Update Bathroom Vanity: Easy Steps for a Stunning Look'
+description: Is your bathroom vanity looking tired or outdated? Updating it can instantly
+  transform your space without a full remodel. Imagine stepping into your bathroom
+  an
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-update-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-update-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity looking tired or outdated? Updating it can instantly transform your space without a full remodel.**

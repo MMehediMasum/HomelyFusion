@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Cats That Pee: Durable, Urine-Resistant Cat Litter Mats"
-description: "Cats that pee outside the litter box can ruin rugs and floors. Choosing the right rug helps protect your home and keep it clean. Some rugs resist urine and trap"
+title: 'Best Rugs for Cats That Pee: Durable, Urine-Resistant Cat Litter Mats'
+description: Cats that pee outside the litter box can ruin rugs and floors. Choosing
+  the right rug helps protect your home and keep it clean. Some rugs resist urine
+  and trap
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-cats-that-pee-durable-urine-resistant-cat-litter-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-cats-that-pee-durable-urine-resistant-cat-litter-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Cats that pee outside the litter box can ruin rugs and floors. Choosing the right rug helps protect your home and keep it clean.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Compact Glider Recliners for Living Room: Top Picks"
-description: "Are you looking to add comfort and style to your living room without taking up too much space? A compact glider recliner might be just what you need. These chai"
+title: 'Where to Buy Compact Glider Recliners for Living Room: Top Picks'
+description: Are you looking to add comfort and style to your living room without
+  taking up too much space? A compact glider recliner might be just what you need.
+  These chai
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-compact-glider-recliners-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-compact-glider-recliners-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add comfort and style to your living room without taking up too much space? A compact glider recliner might be just what you need.**

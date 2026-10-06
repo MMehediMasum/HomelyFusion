@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcovers for Wingback Chairs: Top Stretchy, Stylish, and Durable Picks"
-description: "Finding the best slipcovers for wingback chairs helps protect and refresh your furniture. Quality slipcovers fit well and suit different styles. Wingback chairs"
+title: 'Best Slipcovers for Wingback Chairs: Top Stretchy, Stylish, and Durable Picks'
+description: Finding the best slipcovers for wingback chairs helps protect and refresh
+  your furniture. Quality slipcovers fit well and suit different styles. Wingback
+  chairs
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-wingback-chairs-top-stretchy-stylish-and-durable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-wingback-chairs-top-stretchy-stylish-and-durable-picks&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the best slipcovers for wingback chairs helps protect and refresh your furniture. Quality slipcovers fit well and suit different styles.**

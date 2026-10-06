@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Merkury Light Bulb to Google Home: Easy Step-by-Step Guide"
-description: "Setting up your Merkury light bulb with Google Home can make your life easier and your home smarter. Imagine controlling your lights with just your voice—no mor"
+title: 'How to Set Up Merkury Light Bulb to Google Home: Easy Step-by-Step Guide'
+description: Setting up your Merkury light bulb with Google Home can make your life
+  easier and your home smarter. Imagine controlling your lights with just your voice—no
+  mor
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-merkury-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-merkury-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Setting up your Merkury light bulb with Google Home can make your life easier and your home smarter. Imagine controlling your lights with just your voice—no more fumbling for switches in the dark.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Xbox: Ultimate Guide for Easy Setup"
 description: "Setting up your home Xbox can feel tricky at first, but it doesn’t have to be. Imagine diving straight into your favorite games, sharing your library with frien"
 pubDate: 2025-08-31

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate You Small Living Room Wirh Two Sofas: Smart Space Hacks"
-description: "Struggling to fit two sofas into your small living room without making it look cramped? You’re not alone. Finding the perfect balance between comfort and style "
+title: 'How to Decorate You Small Living Room Wirh Two Sofas: Smart Space Hacks'
+description: 'Struggling to fit two sofas into your small living room without making
+  it look cramped? You’re not alone. Finding the perfect balance between comfort and
+  style '
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-you-small-living-room-wirh-two-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-you-small-living-room-wirh-two-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit two sofas into your small living room without making it look cramped? You’re not alone.**

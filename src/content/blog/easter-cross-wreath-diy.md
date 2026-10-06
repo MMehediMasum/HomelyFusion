@@ -1,10 +1,14 @@
 ---
-title: "Easter Cross Wreath DIY: Stunning Ideas to Craft at Home"
-description: "Looking for a creative way to celebrate Easter this year? You’re in the right place! Making your own Easter Cross Wreath DIY is a fun and meaningful project tha"
+title: 'Easter Cross Wreath DIY: Stunning Ideas to Craft at Home'
+description: Looking for a creative way to celebrate Easter this year? You’re in the
+  right place! Making your own Easter Cross Wreath DIY is a fun and meaningful project
+  tha
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-cross-wreath-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-cross-wreath-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a creative way to celebrate Easter this year? You’re in the right place!**

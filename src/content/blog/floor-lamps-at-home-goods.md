@@ -1,10 +1,13 @@
 ---
-title: "Floor Lamps at Home Goods: Stylish Lighting Ideas for Every Room"
-description: "Floor lamps from Home Goods offer style and functionality to any room. They blend design and practicality effortlessly. Home Goods presents a diverse selection "
+title: 'Floor Lamps at Home Goods: Stylish Lighting Ideas for Every Room'
+description: 'Floor lamps from Home Goods offer style and functionality to any room.
+  They blend design and practicality effortlessly. Home Goods presents a diverse selection '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-lamps-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=floor-lamps-at-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Floor lamps from Home Goods offer style and functionality to any room. They blend design and practicality effortlessly.**

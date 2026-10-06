@@ -1,10 +1,14 @@
 ---
-title: "Dining Table Home Goods: Space-Saving Stylish Tables for Every Kitchen"
-description: "Dining tables shape the heart of any home, bringing family and friends together. Choosing the right dining table home goods blends style, function, and space. D"
+title: 'Dining Table Home Goods: Space-Saving Stylish Tables for Every Kitchen'
+description: Dining tables shape the heart of any home, bringing family and friends
+  together. Choosing the right dining table home goods blends style, function, and
+  space. D
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dining-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=dining-table-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Dining tables shape the heart of any home, bringing family and friends together. Choosing the right dining table home goods blends style, function, and space.**

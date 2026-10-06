@@ -1,10 +1,14 @@
 ---
-title: "Which is Best Light Bulbs for Home: Ultimate Guide to Brighten Up"
-description: "Choosing the right light bulbs for your home can feel overwhelming. With so many options available, how do you know which one will brighten your space while sav"
+title: 'Which is Best Light Bulbs for Home: Ultimate Guide to Brighten Up'
+description: Choosing the right light bulbs for your home can feel overwhelming. With
+  so many options available, how do you know which one will brighten your space while
+  sav
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-is-best-light-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=which-is-best-light-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right light bulbs for your home can feel overwhelming. With so many options available, how do you know which one will brighten your space while saving you money and energy?**

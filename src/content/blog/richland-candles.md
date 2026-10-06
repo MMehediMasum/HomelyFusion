@@ -1,10 +1,14 @@
 ---
-title: "Richland Candles: Top Scented Votive and Tealight Candle Sets Reviewed"
-description: "Richland Candles offer a variety of options for candle enthusiasts. From soothing scents to elegant designs, there's something for everyone. Candles create a co"
+title: 'Richland Candles: Top Scented Votive and Tealight Candle Sets Reviewed'
+description: Richland Candles offer a variety of options for candle enthusiasts. From
+  soothing scents to elegant designs, there's something for everyone. Candles create
+  a co
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=richland-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=richland-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Richland Candles offer a variety of options for candle enthusiasts. From soothing scents to elegant designs, there's something for everyone.**

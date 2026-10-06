@@ -1,10 +1,14 @@
 ---
-title: "Fall Cozy Blanket Decor Ideas: Transform Your Home This Season"
-description: "As the air turns crisp and leaves start to fall, your home deserves a warm, inviting touch. Imagine wrapping yourself in a soft, cozy blanket that not only feel"
+title: 'Fall Cozy Blanket Decor Ideas: Transform Your Home This Season'
+description: As the air turns crisp and leaves start to fall, your home deserves a
+  warm, inviting touch. Imagine wrapping yourself in a soft, cozy blanket that not
+  only feel
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cozy-blanket-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-cozy-blanket-decor-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **As the air turns crisp and leaves start to fall, your home deserves a warm, inviting touch. Imagine wrapping yourself in a soft, cozy blanket that not only feels amazing but also adds a beautiful charm to your space.**

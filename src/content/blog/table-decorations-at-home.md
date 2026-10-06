@@ -1,10 +1,14 @@
 ---
-title: "Table Decorations at Home: Stunning Faux Plants and Elegant Centerpieces Ideas"
-description: "Creating a beautiful table setting at home can transform any meal into a special occasion. Simple decorations can make a big difference. Table decorations are n"
+title: 'Table Decorations at Home: Stunning Faux Plants and Elegant Centerpieces Ideas'
+description: Creating a beautiful table setting at home can transform any meal into
+  a special occasion. Simple decorations can make a big difference. Table decorations
+  are n
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-decorations-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=table-decorations-at-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a beautiful table setting at home can transform any meal into a special occasion. Simple decorations can make a big difference.**

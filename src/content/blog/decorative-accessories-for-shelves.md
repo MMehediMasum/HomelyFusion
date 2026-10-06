@@ -1,10 +1,14 @@
 ---
-title: "Decorative Accessories for Shelves: Elegant Accents to Elevate Your Space"
-description: "Decorative accessories for shelves add charm and personality to any room. They help organize and beautify your space with style. Shelves often look plain withou"
+title: 'Decorative Accessories for Shelves: Elegant Accents to Elevate Your Space'
+description: Decorative accessories for shelves add charm and personality to any room.
+  They help organize and beautify your space with style. Shelves often look plain
+  withou
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-accessories-for-shelves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=decorative-accessories-for-shelves&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Decorative accessories for shelves add charm and personality to any room. They help organize and beautify your space with style.**

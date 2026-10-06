@@ -1,10 +1,14 @@
 ---
-title: "Brown Living Room Accessories to Elevate Your Cozy Home Decor"
-description: "Transforming your living room into a cozy haven is easier with the right brown accessories. These pieces add warmth and charm. Brown living room accessories cre"
+title: Brown Living Room Accessories to Elevate Your Cozy Home Decor
+description: Transforming your living room into a cozy haven is easier with the right
+  brown accessories. These pieces add warmth and charm. Brown living room accessories
+  cre
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brown-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=brown-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transforming your living room into a cozy haven is easier with the right brown accessories. These pieces add warmth and charm.**

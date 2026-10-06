@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Bathroom: Top Waterproof and Stylish Shower Liners"
-description: "Choosing the best curtains for a bathroom helps protect your space from water and adds style. Durable, waterproof curtains keep your bathroom fresh and neat. Ba"
+title: 'Best Curtains for Bathroom: Top Waterproof and Stylish Shower Liners'
+description: Choosing the best curtains for a bathroom helps protect your space from
+  water and adds style. Durable, waterproof curtains keep your bathroom fresh and
+  neat. Ba
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-bathroom-top-waterproof-and-stylish-shower-liners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-bathroom-top-waterproof-and-stylish-shower-liners&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for a bathroom helps protect your space from water and adds style. Durable, waterproof curtains keep your bathroom fresh and neat.**

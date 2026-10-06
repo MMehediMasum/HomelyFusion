@@ -1,10 +1,14 @@
 ---
-title: "How to Dye Cotton Fabric at Home: Easy Steps for Vibrant Results"
-description: "Have you ever wanted to give your old cotton clothes a fresh, vibrant look without spending a lot? Dyeing cotton fabric at home is easier than you think, and it"
+title: 'How to Dye Cotton Fabric at Home: Easy Steps for Vibrant Results'
+description: Have you ever wanted to give your old cotton clothes a fresh, vibrant
+  look without spending a lot? Dyeing cotton fabric at home is easier than you think,
+  and it
 pubDate: 2026-02-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dye-cotton-fabric-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dye-cotton-fabric-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wanted to give your old cotton clothes a fresh, vibrant look without spending a lot? Dyeing cotton fabric at home is easier than you think, and it lets you create colors that match your style perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Two Sofa Sets in Living Room: Expert Space-Saving Tips"
-description: "Are you wondering how to arrange two sofa sets in your living room without making it feel cramped or awkward? You’re not alone. Getting the layout just right ca"
+title: 'How to Arrange Two Sofa Sets in Living Room: Expert Space-Saving Tips'
+description: Are you wondering how to arrange two sofa sets in your living room without
+  making it feel cramped or awkward? You’re not alone. Getting the layout just right
+  ca
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofa-sets-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofa-sets-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange two sofa sets in your living room without making it feel cramped or awkward? You’re not alone.**

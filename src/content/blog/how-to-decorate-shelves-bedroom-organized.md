@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Shelves Bedroom Organized: Stylish & Clutter-Free Tips"
-description: "Are your bedroom shelves looking cluttered or plain? You’re not alone. A well-decorated and organized shelf can transform your space, making it feel calm and in"
+title: 'How to Decorate Shelves Bedroom Organized: Stylish & Clutter-Free Tips'
+description: Are your bedroom shelves looking cluttered or plain? You’re not alone.
+  A well-decorated and organized shelf can transform your space, making it feel calm
+  and in
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-bedroom-organized&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-bedroom-organized&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your bedroom shelves looking cluttered or plain? You’re not alone.**

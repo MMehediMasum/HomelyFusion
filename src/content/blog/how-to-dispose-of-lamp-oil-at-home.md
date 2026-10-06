@@ -1,10 +1,14 @@
 ---
-title: "How to Dispose of Lamp Oil at Home: Safe & Easy Steps"
-description: "Do you have leftover lamp oil at home and wonder how to get rid of it safely? Disposing of lamp oil might seem simple, but if you don’t handle it the right way,"
+title: 'How to Dispose of Lamp Oil at Home: Safe & Easy Steps'
+description: Do you have leftover lamp oil at home and wonder how to get rid of it
+  safely? Disposing of lamp oil might seem simple, but if you don’t handle it the
+  right way,
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dispose-of-lamp-oil-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dispose-of-lamp-oil-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Do you have leftover lamp oil at home and wonder how to get rid of it safely? Disposing of lamp oil might seem simple, but if you don’t handle it the right way, it can harm your health and the environment.**

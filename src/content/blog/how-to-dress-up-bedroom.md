@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Bedroom: Stunning Ideas to Transform Your Space"
-description: "Your bedroom should be your personal sanctuary—a place where comfort meets style. But sometimes, it can feel plain or uninspiring. What if you could transform y"
+title: 'How to Dress Up Bedroom: Stunning Ideas to Transform Your Space'
+description: Your bedroom should be your personal sanctuary—a place where comfort
+  meets style. But sometimes, it can feel plain or uninspiring. What if you could
+  transform y
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be your personal sanctuary—a place where comfort meets style. But sometimes, it can feel plain or uninspiring.**

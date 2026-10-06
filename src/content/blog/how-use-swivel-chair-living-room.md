@@ -1,10 +1,14 @@
 ---
-title: "How Use Swivel Chair Living Room: Ultimate Comfort & Style Tips"
-description: "Are you looking to add comfort and style to your living room? A swivel chair might be just what you need. It’s more than just a seat—it’s a way to make your spa"
+title: 'How Use Swivel Chair Living Room: Ultimate Comfort & Style Tips'
+description: Are you looking to add comfort and style to your living room? A swivel
+  chair might be just what you need. It’s more than just a seat—it’s a way to make
+  your spa
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-use-swivel-chair-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-use-swivel-chair-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add comfort and style to your living room? A swivel chair might be just what you need.**

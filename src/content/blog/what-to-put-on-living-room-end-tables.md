@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Living Room End Tables: Stylish & Practical Ideas"
-description: "Your living room end tables are more than just small surfaces—they're key spots that can transform the feel of your entire space. But what should you put on the"
+title: 'What to Put on Living Room End Tables: Stylish & Practical Ideas'
+description: Your living room end tables are more than just small surfaces—they're
+  key spots that can transform the feel of your entire space. But what should you
+  put on the
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-living-room-end-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-living-room-end-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room end tables are more than just small surfaces—they're key spots that can transform the feel of your entire space. But what should you put on them to make your room both stylish and functional?**

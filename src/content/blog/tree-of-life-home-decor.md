@@ -1,10 +1,13 @@
 ---
-title: "Tree of Life Home Decor: Stunning Wall Art for Every Room"
-description: "Tree of Life home decor adds meaning and beauty to any space. This timeless symbol fits well in living rooms, bedrooms, and offices. The Tree of Life represents"
+title: 'Tree of Life Home Decor: Stunning Wall Art for Every Room'
+description: Tree of Life home decor adds meaning and beauty to any space. This timeless
+  symbol fits well in living rooms, bedrooms, and offices. The Tree of Life represents
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tree-of-life-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=tree-of-life-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tree of Life home decor adds meaning and beauty to any space. This timeless symbol fits well in living rooms, bedrooms, and offices.**

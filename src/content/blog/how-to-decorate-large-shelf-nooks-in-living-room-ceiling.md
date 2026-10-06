@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Large Shelf Nooks in Living Room Ceiling: Stunning Ideas"
-description: "Have you ever looked at those large shelf nooks in your living room ceiling and wondered how to make them stand out? These unique spaces offer a fantastic chanc"
+title: 'How to Decorate Large Shelf Nooks in Living Room Ceiling: Stunning Ideas'
+description: Have you ever looked at those large shelf nooks in your living room ceiling
+  and wondered how to make them stand out? These unique spaces offer a fantastic chanc
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-large-shelf-nooks-in-living-room-ceiling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-large-shelf-nooks-in-living-room-ceiling&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked at those large shelf nooks in your living room ceiling and wondered how to make them stand out? These unique spaces offer a fantastic chance to add personality and style to your home.**

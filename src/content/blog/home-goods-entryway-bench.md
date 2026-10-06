@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Entryway Bench: Stylish Storage and Seating Solutions for Every Home"
-description: "An entryway bench combines style and function in your home’s first impression. It offers seating and storage to keep spaces neat and welcoming. Entryway benches"
+title: 'Home Goods Entryway Bench: Stylish Storage and Seating Solutions for Every
+  Home'
+description: An entryway bench combines style and function in your home’s first impression.
+  It offers seating and storage to keep spaces neat and welcoming. Entryway benches
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-entryway-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-entryway-bench&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **An entryway bench combines style and function in your home’s first impression. It offers seating and storage to keep spaces neat and welcoming.**

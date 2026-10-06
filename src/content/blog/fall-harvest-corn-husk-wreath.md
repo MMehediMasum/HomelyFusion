@@ -1,10 +1,14 @@
 ---
-title: "Fall Harvest Corn Husk Wreath: Stunning DIY Autumn Decor Ideas"
-description: "Are you looking for a simple, beautiful way to bring the warm colors of fall into your home? A Fall Harvest Corn Husk Wreath might be just what you need. This c"
+title: 'Fall Harvest Corn Husk Wreath: Stunning DIY Autumn Decor Ideas'
+description: Are you looking for a simple, beautiful way to bring the warm colors
+  of fall into your home? A Fall Harvest Corn Husk Wreath might be just what you need.
+  This c
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-harvest-corn-husk-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-harvest-corn-husk-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple, beautiful way to bring the warm colors of fall into your home? A Fall Harvest Corn Husk Wreath might be just what you need.**

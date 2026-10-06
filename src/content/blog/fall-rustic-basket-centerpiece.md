@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Basket Centerpiece: Charming DIY Ideas for Cozy Decor"
-description: "Are you looking to add a warm and cozy touch to your home this fall? A rustic basket centerpiece could be just what you need. Imagine a charming mix of autumn l"
+title: 'Fall Rustic Basket Centerpiece: Charming DIY Ideas for Cozy Decor'
+description: Are you looking to add a warm and cozy touch to your home this fall?
+  A rustic basket centerpiece could be just what you need. Imagine a charming mix
+  of autumn l
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-basket-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-basket-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a warm and cozy touch to your home this fall? A rustic basket centerpiece could be just what you need.**

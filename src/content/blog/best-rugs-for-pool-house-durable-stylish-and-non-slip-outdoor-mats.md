@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Pool House: Durable, Stylish, and Non-Slip Outdoor Mats"
-description: "Choosing the best rugs for a pool house can improve comfort and style. Durable, water-resistant rugs keep the space safe and clean. Pool houses need rugs that h"
+title: 'Best Rugs for Pool House: Durable, Stylish, and Non-Slip Outdoor Mats'
+description: Choosing the best rugs for a pool house can improve comfort and style.
+  Durable, water-resistant rugs keep the space safe and clean. Pool houses need rugs
+  that h
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-pool-house-durable-stylish-and-non-slip-outdoor-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-pool-house-durable-stylish-and-non-slip-outdoor-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for a pool house can improve comfort and style. Durable, water-resistant rugs keep the space safe and clean.**

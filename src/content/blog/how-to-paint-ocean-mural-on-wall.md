@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Ocean Mural on Wall: Stunning Step-by-Step Guide"
-description: "Imagine turning your plain wall into a stunning ocean scene that brings calm and beauty to your space. You might think painting a mural is hard, but with the ri"
+title: 'How to Paint Ocean Mural on Wall: Stunning Step-by-Step Guide'
+description: Imagine turning your plain wall into a stunning ocean scene that brings
+  calm and beauty to your space. You might think painting a mural is hard, but with
+  the ri
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-ocean-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-ocean-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine turning your plain wall into a stunning ocean scene that brings calm and beauty to your space. You might think painting a mural is hard, but with the right steps, you can create your own ocean masterpiece.**

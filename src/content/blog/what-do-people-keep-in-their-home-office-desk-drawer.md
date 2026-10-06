@@ -1,10 +1,14 @@
 ---
-title: "What Do People Keep in Their Home Office Desk Drawer: Surprising Essentials"
-description: "Have you ever opened your home office desk drawer and wondered what others keep inside theirs? Your drawer is more than just a spot to stash random items—it ref"
+title: 'What Do People Keep in Their Home Office Desk Drawer: Surprising Essentials'
+description: Have you ever opened your home office desk drawer and wondered what others
+  keep inside theirs? Your drawer is more than just a spot to stash random items—it
+  ref
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-people-keep-in-their-home-office-desk-drawer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=what-do-people-keep-in-their-home-office-desk-drawer&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Have you ever opened your home office desk drawer and wondered what others keep inside theirs? Your drawer is more than just a spot to stash random items—it reflects how you work, stay organized, and even manage stress.**

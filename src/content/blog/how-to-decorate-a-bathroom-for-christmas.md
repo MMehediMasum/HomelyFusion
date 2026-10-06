@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bathroom for Christmas: Festive & Easy Ideas"
-description: "Christmas is the perfect time to bring festive cheer into every corner of your home — including your bathroom. You might not think about decorating this space, "
+title: 'How to Decorate a Bathroom for Christmas: Festive & Easy Ideas'
+description: 'Christmas is the perfect time to bring festive cheer into every corner
+  of your home — including your bathroom. You might not think about decorating this
+  space, '
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas is the perfect time to bring festive cheer into every corner of your home — including your bathroom. You might not think about decorating this space, but with a few simple touches, your bathroom can become a cozy, joyful spot that makes your holiday mornings even brighter.**

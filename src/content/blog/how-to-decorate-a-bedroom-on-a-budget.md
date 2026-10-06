@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bedroom on a Budget: Stunning Ideas That Save"
-description: "Your bedroom should be a place where you feel comfortable and inspired, but decorating it doesn’t have to drain your wallet. Imagine transforming your space int"
+title: 'How to Decorate a Bedroom on a Budget: Stunning Ideas That Save'
+description: Your bedroom should be a place where you feel comfortable and inspired,
+  but decorating it doesn’t have to drain your wallet. Imagine transforming your space
+  int
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-on-a-budget&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bedroom-on-a-budget&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where you feel comfortable and inspired, but decorating it doesn’t have to drain your wallet. Imagine transforming your space into a cozy, stylish retreat without spending a fortune.**

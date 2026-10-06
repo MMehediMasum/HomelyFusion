@@ -1,10 +1,13 @@
 ---
-title: "What Brand of Chair is in Monicas Living Room: Discover Now!"
-description: "Have you ever found yourself staring at Monica’s living room chair, wondering what brand it is? You’re not alone. That chair isn’t just a piece of furniture—it’"
+title: 'What Brand of Chair is in Monicas Living Room: Discover Now!'
+description: Have you ever found yourself staring at Monica’s living room chair, wondering
+  what brand it is? You’re not alone. That chair isn’t just a piece of furniture—it’
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-brand-of-chair-is-in-monicas-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-brand-of-chair-is-in-monicas-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever found yourself staring at Monica’s living room chair, wondering what brand it is? You’re not alone.**

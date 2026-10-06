@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Floating Candles from Ceiling Without Damage: Easy Tips"
-description: "Have you ever looked up and noticed floating candles stuck to your ceiling, wondering how to get them down without leaving marks or damage behind? Removing thes"
+title: 'How to Remove Floating Candles from Ceiling Without Damage: Easy Tips'
+description: Have you ever looked up and noticed floating candles stuck to your ceiling,
+  wondering how to get them down without leaving marks or damage behind? Removing
+  thes
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-floating-candles-from-ceiling-without-damage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-floating-candles-from-ceiling-without-damage&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked up and noticed floating candles stuck to your ceiling, wondering how to get them down without leaving marks or damage behind? Removing these decorations can feel tricky, especially when you want to keep your ceiling looking perfect.**

@@ -1,10 +1,14 @@
 ---
-title: "Will King Bedroom Set Fit in Pickup Bed? Ultimate Moving Guide!"
-description: "Are you wondering if your King bedroom set can fit in your pickup bed? Moving large furniture like a king-size bed can be tricky, especially when space is limit"
+title: Will King Bedroom Set Fit in Pickup Bed? Ultimate Moving Guide!
+description: Are you wondering if your King bedroom set can fit in your pickup bed?
+  Moving large furniture like a king-size bed can be tricky, especially when space
+  is limit
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-king-bedroom-set-fit-in-pickup-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=will-king-bedroom-set-fit-in-pickup-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if your King bedroom set can fit in your pickup bed? Moving large furniture like a king-size bed can be tricky, especially when space is limited.**

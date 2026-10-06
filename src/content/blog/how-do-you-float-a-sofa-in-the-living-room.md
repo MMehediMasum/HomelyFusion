@@ -1,10 +1,14 @@
 ---
-title: "How Do You Float a Sofa in the Living Room: Expert Tips Revealed"
-description: "Have you ever wondered how to make your living room feel more open and inviting? Floating a sofa away from the walls might be the simple trick you need. It can "
+title: 'How Do You Float a Sofa in the Living Room: Expert Tips Revealed'
+description: 'Have you ever wondered how to make your living room feel more open and
+  inviting? Floating a sofa away from the walls might be the simple trick you need.
+  It can '
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-float-a-sofa-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-float-a-sofa-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how to make your living room feel more open and inviting? Floating a sofa away from the walls might be the simple trick you need.**

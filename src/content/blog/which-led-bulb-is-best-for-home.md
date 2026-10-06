@@ -1,10 +1,14 @@
 ---
-title: "Which Led Bulb is Best for Home: Top Brightness & Energy Savers"
-description: "Choosing the right LED bulb for your home can feel overwhelming with so many options available. You want something that saves energy, lasts long, and gives the "
+title: 'Which Led Bulb is Best for Home: Top Brightness & Energy Savers'
+description: 'Choosing the right LED bulb for your home can feel overwhelming with
+  so many options available. You want something that saves energy, lasts long, and
+  gives the '
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-led-bulb-is-best-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=which-led-bulb-is-best-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right LED bulb for your home can feel overwhelming with so many options available. You want something that saves energy, lasts long, and gives the perfect light for every room.**

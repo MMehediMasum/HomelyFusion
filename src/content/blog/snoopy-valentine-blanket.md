@@ -1,10 +1,14 @@
 ---
-title: "Snoopy Valentine Blanket: Cozy Comfort with Charming Peanuts Designs"
-description: "Snoopy Valentine blankets make the perfect cozy gift for loved ones during the season of love. These blankets feature beloved Peanuts characters and offer warmt"
+title: 'Snoopy Valentine Blanket: Cozy Comfort with Charming Peanuts Designs'
+description: Snoopy Valentine blankets make the perfect cozy gift for loved ones during
+  the season of love. These blankets feature beloved Peanuts characters and offer
+  warmt
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-valentine-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-valentine-blanket&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Snoopy Valentine blankets make the perfect cozy gift for loved ones during the season of love. These blankets feature beloved Peanuts characters and offer warmth and comfort.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Centerpiece for Table: Stunning Ideas to Wow Guests"
-description: "Are you ready to make your Easter table truly unforgettable? An Easter Bunny centerpiece can bring charm, warmth, and a touch of magic to your celebration. Imag"
+title: 'Easter Bunny Centerpiece for Table: Stunning Ideas to Wow Guests'
+description: Are you ready to make your Easter table truly unforgettable? An Easter
+  Bunny centerpiece can bring charm, warmth, and a touch of magic to your celebration.
+  Imag
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-centerpiece-for-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-centerpiece-for-table&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Easter table truly unforgettable? An Easter Bunny centerpiece can bring charm, warmth, and a touch of magic to your celebration.**

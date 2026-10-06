@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "The Flooring Company: Top Interlocking and Peel Stick Floor Tiles Reviewed"
 description: "Choosing the right flooring can transform any space, bringing both function and style. Explore various options for different needs. Flooring options abound, eac"
 pubDate: 2026-07-02

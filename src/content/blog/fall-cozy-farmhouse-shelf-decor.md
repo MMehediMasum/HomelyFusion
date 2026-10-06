@@ -1,10 +1,14 @@
 ---
-title: "Fall Cozy Farmhouse Shelf Decor: Warm & Inviting Ideas"
-description: "Imagine stepping into your home and instantly feeling wrapped in warmth and comfort. That’s the magic of fall cozy farmhouse shelf decor. You don’t need to spen"
+title: 'Fall Cozy Farmhouse Shelf Decor: Warm & Inviting Ideas'
+description: Imagine stepping into your home and instantly feeling wrapped in warmth
+  and comfort. That’s the magic of fall cozy farmhouse shelf decor. You don’t need
+  to spen
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cozy-farmhouse-shelf-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-cozy-farmhouse-shelf-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine stepping into your home and instantly feeling wrapped in warmth and comfort. That’s the magic of fall cozy farmhouse shelf decor.**

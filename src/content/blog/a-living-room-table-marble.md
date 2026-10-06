@@ -1,10 +1,14 @@
 ---
-title: "A Living Room Table Marble: Elegant Designs to Transform Your Space"
-description: "Imagine walking into your living room and instantly feeling a sense of elegance and calm. Your living room table marble can do exactly that. It’s more than just"
+title: 'A Living Room Table Marble: Elegant Designs to Transform Your Space'
+description: Imagine walking into your living room and instantly feeling a sense of
+  elegance and calm. Your living room table marble can do exactly that. It’s more
+  than just
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-living-room-table-marble&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=a-living-room-table-marble&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and instantly feeling a sense of elegance and calm. Your living room table marble can do exactly that.**

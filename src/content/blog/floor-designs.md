@@ -1,10 +1,14 @@
 ---
-title: "Floor Designs: Creative Ideas to Transform Your Space with Style"
-description: "Floor designs shape the look and feel of any space. They combine style, function, and durability to enhance interiors and exteriors alike. Choosing the right fl"
+title: 'Floor Designs: Creative Ideas to Transform Your Space with Style'
+description: Floor designs shape the look and feel of any space. They combine style,
+  function, and durability to enhance interiors and exteriors alike. Choosing the
+  right fl
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-designs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-designs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor designs shape the look and feel of any space. They combine style, function, and durability to enhance interiors and exteriors alike.**

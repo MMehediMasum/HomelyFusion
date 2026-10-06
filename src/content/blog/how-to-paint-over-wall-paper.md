@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Over Wall Paper: Easy Steps for a Flawless Finish"
-description: "Are you staring at your old wallpaper and wondering if you can just paint over it instead of tearing it down? You’re not alone. Painting over wallpaper can save"
+title: 'How to Paint Over Wall Paper: Easy Steps for a Flawless Finish'
+description: Are you staring at your old wallpaper and wondering if you can just paint
+  over it instead of tearing it down? You’re not alone. Painting over wallpaper can
+  save
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-over-wall-paper&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-over-wall-paper&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at your old wallpaper and wondering if you can just paint over it instead of tearing it down? You’re not alone.**

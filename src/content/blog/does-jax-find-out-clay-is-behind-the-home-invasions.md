@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Does Jax Find Out Clay is behind the Home Invasions? Shocking Truth Revealed!"
 description: "Have you ever wondered what happens when the truth hits too close to home? If you’re following the twists and turns of this gripping story, you’re probably aski"
 pubDate: 2026-03-31

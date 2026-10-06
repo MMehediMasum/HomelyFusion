@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Leather Sofa: Stylish & Cozy Tips"
-description: "Are you wondering how to make your living room look stylish and inviting with a leather sofa? You’re in the right place. A leather sofa is more than just a piec"
+title: 'How to Decorate Living Room With Leather Sofa: Stylish & Cozy Tips'
+description: Are you wondering how to make your living room look stylish and inviting
+  with a leather sofa? You’re in the right place. A leather sofa is more than just
+  a piec
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room look stylish and inviting with a leather sofa? You’re in the right place.**

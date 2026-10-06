@@ -1,10 +1,14 @@
 ---
-title: "How to Stage Bedroom Nightstand: Transform Your Space Instantly"
-description: "Your bedroom nightstand is more than just a place to set your phone or a glass of water. It’s a small space that can add style, comfort, and personality to your"
+title: 'How to Stage Bedroom Nightstand: Transform Your Space Instantly'
+description: Your bedroom nightstand is more than just a place to set your phone or
+  a glass of water. It’s a small space that can add style, comfort, and personality
+  to your
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-stage-bedroom-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-stage-bedroom-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom nightstand is more than just a place to set your phone or a glass of water. It’s a small space that can add style, comfort, and personality to your entire room.**

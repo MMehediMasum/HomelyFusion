@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Lucky Bamboo Good for Home: Surprising Benefits Revealed"
 description: "Are you thinking about adding a touch of green to your home? Lucky bamboo might be just what you need. This simple plant is known for more than just its looks—i"
 pubDate: 2026-03-14

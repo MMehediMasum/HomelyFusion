@@ -1,10 +1,14 @@
 ---
-title: "Goodhome Furniture Customizable Sofas for Stylish and Flexible Living Spaces"
-description: "Goodhome Furniture offers versatile and stylish options to transform your living space. Explore customizable sofas and elegant furniture sets. Goodhome Furnitur"
+title: Goodhome Furniture Customizable Sofas for Stylish and Flexible Living Spaces
+description: Goodhome Furniture offers versatile and stylish options to transform
+  your living space. Explore customizable sofas and elegant furniture sets. Goodhome
+  Furnitur
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=goodhome-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=goodhome-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Goodhome Furniture offers versatile and stylish options to transform your living space. Explore customizable sofas and elegant furniture sets.**

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Graveyard Cake Decoration: Spooktacular Ideas to Impress"
-description: "Are you ready to make your Halloween party unforgettable? Imagine your guests’ eyes lighting up when they see a spooky, stunning graveyard cake right before the"
+title: 'Halloween Graveyard Cake Decoration: Spooktacular Ideas to Impress'
+description: Are you ready to make your Halloween party unforgettable? Imagine your
+  guests’ eyes lighting up when they see a spooky, stunning graveyard cake right before
+  the
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-graveyard-cake-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-graveyard-cake-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Halloween party unforgettable? Imagine your guests’ eyes lighting up when they see a spooky, stunning graveyard cake right before them.**

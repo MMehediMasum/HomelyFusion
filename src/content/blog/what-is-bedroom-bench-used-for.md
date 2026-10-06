@@ -1,10 +1,14 @@
 ---
-title: "What is Bedroom Bench Used for: Stylish Storage & Seating Ideas"
-description: "Have you ever wondered what a bedroom bench is really used for? It might seem like just an extra piece of furniture, but a bedroom bench can transform the way y"
+title: 'What is Bedroom Bench Used for: Stylish Storage & Seating Ideas'
+description: Have you ever wondered what a bedroom bench is really used for? It might
+  seem like just an extra piece of furniture, but a bedroom bench can transform the
+  way y
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-bedroom-bench-used-for&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=what-is-bedroom-bench-used-for&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered what a bedroom bench is really used for? It might seem like just an extra piece of furniture, but a bedroom bench can transform the way you use your space.**

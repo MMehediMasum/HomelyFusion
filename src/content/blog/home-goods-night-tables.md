@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Night Tables: Stylish Storage Solutions for Every Bedroom"
-description: "Night tables add both style and function to any bedroom. They keep essentials close and help organize your space. Choosing the right night table can change how "
+title: 'Home Goods Night Tables: Stylish Storage Solutions for Every Bedroom'
+description: 'Night tables add both style and function to any bedroom. They keep essentials
+  close and help organize your space. Choosing the right night table can change how '
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-night-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-night-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Night tables add both style and function to any bedroom. They keep essentials close and help organize your space.**

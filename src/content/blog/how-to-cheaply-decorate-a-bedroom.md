@@ -1,10 +1,14 @@
 ---
-title: "How to Cheaply Decorate a Bedroom: Stunning Ideas on a Budget"
-description: "Want to give your bedroom a fresh new look without spending a fortune? You’re in the right place. Decorating your bedroom cheaply doesn’t mean it has to look ch"
+title: 'How to Cheaply Decorate a Bedroom: Stunning Ideas on a Budget'
+description: Want to give your bedroom a fresh new look without spending a fortune?
+  You’re in the right place. Decorating your bedroom cheaply doesn’t mean it has to
+  look ch
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-cheaply-decorate-a-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-cheaply-decorate-a-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Want to give your bedroom a fresh new look without spending a fortune? You’re in the right place.**

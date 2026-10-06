@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Put Sofa in Living Room Feng Shui: Ultimate Placement Guide"
 description: "Where you place your sofa in the living room can change the entire energy of your space. If you want your home to feel welcoming, balanced, and full of positive"
 pubDate: 2026-03-28

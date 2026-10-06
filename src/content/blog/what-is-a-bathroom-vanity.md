@@ -1,10 +1,14 @@
 ---
-title: "What is a Bathroom Vanity: Ultimate Guide to Style & Function"
-description: "Have you ever wondered what makes your bathroom both functional and stylish? The answer often lies in one key piece: the bathroom vanity. But what exactly is a "
+title: 'What is a Bathroom Vanity: Ultimate Guide to Style & Function'
+description: 'Have you ever wondered what makes your bathroom both functional and
+  stylish? The answer often lies in one key piece: the bathroom vanity. But what exactly
+  is a '
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered what makes your bathroom both functional and stylish? The answer often lies in one key piece: the bathroom vanity.**

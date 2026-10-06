@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Cotton Saree at Home: Easy Steps for Perfect Care"
 description: "You’ve invested in a beautiful cotton saree, and now it’s time to keep it looking fresh and vibrant. But how do you wash it at home without damaging the fabric "
 pubDate: 2026-02-27

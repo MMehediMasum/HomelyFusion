@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Mirror Ideas: Stunning Designs to Transform Your Space"
-description: "Your bathroom mirror is more than just a reflection—it’s a key part of your space’s style and function. Choosing the right mirror can completely change how your"
+title: 'Bathroom Mirror Ideas: Stunning Designs to Transform Your Space'
+description: Your bathroom mirror is more than just a reflection—it’s a key part of
+  your space’s style and function. Choosing the right mirror can completely change
+  how your
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bathroom mirror is more than just a reflection—it’s a key part of your space’s style and function. Choosing the right mirror can completely change how your bathroom feels, making it brighter, bigger, and more inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Wardrobe in Small Bedroom: Smart Space-Saving Tips"
-description: "Struggling to find space for your wardrobe in a small bedroom? You’re not alone. When every inch counts, fitting in storage without making your room feel crampe"
+title: 'How to Fit Wardrobe in Small Bedroom: Smart Space-Saving Tips'
+description: Struggling to find space for your wardrobe in a small bedroom? You’re
+  not alone. When every inch counts, fitting in storage without making your room feel
+  crampe
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-wardrobe-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-wardrobe-in-small-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Struggling to find space for your wardrobe in a small bedroom? You’re not alone.**

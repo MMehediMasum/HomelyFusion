@@ -1,10 +1,14 @@
 ---
-title: "Tahari Pillows Home Goods: Stylish Comfort for Your Living Space"
-description: "Tahari pillows offer a blend of style and comfort for any home. Discover their diverse range of decorative options. Tahari Home Goods brings elegance and cozine"
+title: 'Tahari Pillows Home Goods: Stylish Comfort for Your Living Space'
+description: Tahari pillows offer a blend of style and comfort for any home. Discover
+  their diverse range of decorative options. Tahari Home Goods brings elegance and
+  cozine
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tahari-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tahari pillows offer a blend of style and comfort for any home. Discover their diverse range of decorative options.**

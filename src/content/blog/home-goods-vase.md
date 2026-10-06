@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vase: Elevate Your Space with Modern Bohemian Elegance"
-description: "A home goods vase adds charm and style to any room. It holds flowers or stands alone as a decorative piece. Choosing the right vase can brighten your living spa"
+title: 'Home Goods Vase: Elevate Your Space with Modern Bohemian Elegance'
+description: A home goods vase adds charm and style to any room. It holds flowers
+  or stands alone as a decorative piece. Choosing the right vase can brighten your
+  living spa
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vase&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vase&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A home goods vase adds charm and style to any room. It holds flowers or stands alone as a decorative piece.**

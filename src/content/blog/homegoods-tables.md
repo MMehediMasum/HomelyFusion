@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Tables: Stylish and Functional Desks for Every Home Office"
-description: "Homegoods tables offer versatile solutions for every space in your home or office. From compact desks to stylish coffee tables, there's something for everyone. "
+title: 'Homegoods Tables: Stylish and Functional Desks for Every Home Office'
+description: 'Homegoods tables offer versatile solutions for every space in your home
+  or office. From compact desks to stylish coffee tables, there''s something for everyone. '
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods tables offer versatile solutions for every space in your home or office. From compact desks to stylish coffee tables, there's something for everyone.**

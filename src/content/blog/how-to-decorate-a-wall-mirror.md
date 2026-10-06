@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall Mirror: Stunning Ideas to Transform Your Space"
-description: "Your wall mirror is more than just a reflective surface—it’s a chance to add personality and style to any room. But how do you make it stand out without overwhe"
+title: 'How to Decorate a Wall Mirror: Stunning Ideas to Transform Your Space'
+description: Your wall mirror is more than just a reflective surface—it’s a chance
+  to add personality and style to any room. But how do you make it stand out without
+  overwhe
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your wall mirror is more than just a reflective surface—it’s a chance to add personality and style to any room. But how do you make it stand out without overwhelming your space?**

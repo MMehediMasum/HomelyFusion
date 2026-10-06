@@ -1,10 +1,14 @@
 ---
-title: "Home Theater Wall Decor Ideas to Elevate Your Cinema Experience"
-description: "Creating the perfect home theater ambiance involves more than just a great sound system and screen. Wall decor plays a crucial role in setting the mood for your"
+title: Home Theater Wall Decor Ideas to Elevate Your Cinema Experience
+description: Creating the perfect home theater ambiance involves more than just a
+  great sound system and screen. Wall decor plays a crucial role in setting the mood
+  for your
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-theater-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-theater-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating the perfect home theater ambiance involves more than just a great sound system and screen. Wall decor plays a crucial role in setting the mood for your cinematic experience.**

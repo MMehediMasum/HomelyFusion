@@ -1,10 +1,14 @@
 ---
-title: "How to Buy Living Room Sofa: Expert Tips for Perfect Comfort"
-description: "Looking for the perfect living room sofa can feel overwhelming. You want a piece that fits your style, offers comfort, and lasts for years. But how do you choos"
+title: 'How to Buy Living Room Sofa: Expert Tips for Perfect Comfort'
+description: Looking for the perfect living room sofa can feel overwhelming. You want
+  a piece that fits your style, offers comfort, and lasts for years. But how do you
+  choos
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-buy-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-buy-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for the perfect living room sofa can feel overwhelming. You want a piece that fits your style, offers comfort, and lasts for years.**

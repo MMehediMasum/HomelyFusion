@@ -1,10 +1,14 @@
 ---
-title: "Decor Frames: Top Stylish Picks to Elevate Your Home Walls"
-description: "Decor frames add charm and personality to your living space. They highlight memories and art with style and elegance. Frames come in many designs, colors, and s"
+title: 'Decor Frames: Top Stylish Picks to Elevate Your Home Walls'
+description: Decor frames add charm and personality to your living space. They highlight
+  memories and art with style and elegance. Frames come in many designs, colors, and
+  s
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=decor-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decor frames add charm and personality to your living space. They highlight memories and art with style and elegance.**

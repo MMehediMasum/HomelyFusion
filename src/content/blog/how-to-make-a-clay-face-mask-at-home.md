@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Clay Face Mask at Home: Easy DIY Glow Boost"
 description: "Are you looking for a simple way to refresh your skin without spending a lot of money? Making a clay face mask at home is easier than you think, and it can work"
 pubDate: 2025-11-06

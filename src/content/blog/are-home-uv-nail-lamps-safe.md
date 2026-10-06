@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Uv Nail Lamps Safe: Expert Insights You Need Today"
 description: "Are you wondering if home UV nail lamps are really safe to use? You’re not alone. Many people love the convenience of doing gel nails at home, but worry about t"
 pubDate: 2026-04-25

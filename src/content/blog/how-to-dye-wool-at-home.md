@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye Wool at Home: Easy Steps for Vibrant Results"
 description: "Have you ever wanted to give your wool projects a fresh, vibrant look without spending a fortune? Dyeing wool at home is easier than you think, and it lets you "
 pubDate: 2026-03-30

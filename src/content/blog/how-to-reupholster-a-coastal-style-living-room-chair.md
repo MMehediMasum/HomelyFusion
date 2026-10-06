@@ -1,10 +1,14 @@
 ---
-title: "How to Reupholster a Coastal Style Living Room Chair: Easy DIY Guide"
-description: "Are you ready to give your living room chair a fresh, coastal makeover without breaking the bank? Reupholstering your chair can transform it into a stylish cent"
+title: 'How to Reupholster a Coastal Style Living Room Chair: Easy DIY Guide'
+description: Are you ready to give your living room chair a fresh, coastal makeover
+  without breaking the bank? Reupholstering your chair can transform it into a stylish
+  cent
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-coastal-style-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-coastal-style-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to give your living room chair a fresh, coastal makeover without breaking the bank? Reupholstering your chair can transform it into a stylish centerpiece that captures the calm, breezy vibe of the coast.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Create Fake Wall Panelling: Easy DIY Guide for Stunning Walls"
-description: "Looking to transform your room without spending a fortune? Creating fake wall panelling is an easy and affordable way to add style and depth to any space. You d"
+title: 'How to Create Fake Wall Panelling: Easy DIY Guide for Stunning Walls'
+description: Looking to transform your room without spending a fortune? Creating fake
+  wall panelling is an easy and affordable way to add style and depth to any space.
+  You d
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-fake-wall-panelling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-fake-wall-panelling&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to transform your room without spending a fortune? Creating fake wall panelling is an easy and affordable way to add style and depth to any space.**

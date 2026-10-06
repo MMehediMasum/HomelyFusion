@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home With Eraser: Easy DIY Craft Guide"
 description: "Have you ever wished you could make your own clay at home without buying expensive kits? What if you could create soft, moldable clay using something as simple "
 pubDate: 2026-02-20

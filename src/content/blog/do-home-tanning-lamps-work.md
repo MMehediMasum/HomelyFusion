@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Home Tanning Lamps Work: Truths You Need to Know Today"
 description: "Have you ever wondered if home tanning lamps really give you that sun-kissed glow without stepping outside? You’re not alone. Many people want a safe, quick way"
 pubDate: 2026-04-23

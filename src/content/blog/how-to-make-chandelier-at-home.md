@@ -1,10 +1,14 @@
 ---
-title: "How to Make Chandelier at Home: Stunning DIY Lighting Ideas"
-description: "Have you ever dreamed of adding a stunning chandelier to your home without spending a fortune? Imagine creating a beautiful light fixture that reflects your sty"
+title: 'How to Make Chandelier at Home: Stunning DIY Lighting Ideas'
+description: Have you ever dreamed of adding a stunning chandelier to your home without
+  spending a fortune? Imagine creating a beautiful light fixture that reflects your
+  sty
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-chandelier-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-chandelier-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever dreamed of adding a stunning chandelier to your home without spending a fortune? Imagine creating a beautiful light fixture that reflects your style and brightens up any room.**

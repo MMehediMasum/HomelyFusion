@@ -1,10 +1,14 @@
 ---
-title: "What Clay to Use for Pottery at Home: Expert Tips Revealed"
-description: "Are you ready to bring your pottery ideas to life right at home? Choosing the right clay is the first step to making your creations look and feel just right. Bu"
+title: 'What Clay to Use for Pottery at Home: Expert Tips Revealed'
+description: Are you ready to bring your pottery ideas to life right at home? Choosing
+  the right clay is the first step to making your creations look and feel just right.
+  Bu
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-clay-to-use-for-pottery-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=what-clay-to-use-for-pottery-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to bring your pottery ideas to life right at home? Choosing the right clay is the first step to making your creations look and feel just right.**

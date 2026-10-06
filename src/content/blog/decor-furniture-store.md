@@ -1,10 +1,14 @@
 ---
-title: "Decor Furniture Store: Top Handcrafted Wood Accent Tables & Shelves"
-description: "Discover unique and stylish furniture pieces at Decor Furniture Store. Elevate your space with our curated selection of high-quality items. From hand-carved woo"
+title: 'Decor Furniture Store: Top Handcrafted Wood Accent Tables & Shelves'
+description: Discover unique and stylish furniture pieces at Decor Furniture Store.
+  Elevate your space with our curated selection of high-quality items. From hand-carved
+  woo
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=decor-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover unique and stylish furniture pieces at Decor Furniture Store. Elevate your space with our curated selection of high-quality items.**

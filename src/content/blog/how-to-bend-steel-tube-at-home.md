@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Tube at Home: Easy Steps for Perfect Bends"
 description: "Bending steel tube at home might sound tricky, but it’s easier than you think. Whether you’re working on a DIY project or fixing something around the house, kno"
 pubDate: 2026-04-10

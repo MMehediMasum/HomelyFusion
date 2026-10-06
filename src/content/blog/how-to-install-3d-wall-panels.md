@@ -1,10 +1,13 @@
 ---
-title: "How to Install 3D Wall Panels: Easy Steps for Stunning Walls"
-description: "Are you ready to transform your walls into stunning works of art? Installing 3D wall panels is easier than you think, and the impact on your space can be incred"
+title: 'How to Install 3D Wall Panels: Easy Steps for Stunning Walls'
+description: Are you ready to transform your walls into stunning works of art? Installing
+  3D wall panels is easier than you think, and the impact on your space can be incred
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-3d-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-3d-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your walls into stunning works of art? Installing 3D wall panels is easier than you think, and the impact on your space can be incredible.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Should Wardrobe Be Placed in Bedroom: Expert Placement Tips"
-description: "Where should your wardrobe be placed in your bedroom? It’s a question that might seem simple but can make a big difference in how your space feels and functions"
+title: 'Where Should Wardrobe Be Placed in Bedroom: Expert Placement Tips'
+description: Where should your wardrobe be placed in your bedroom? It’s a question
+  that might seem simple but can make a big difference in how your space feels and
+  functions
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-wardrobe-be-placed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=where-should-wardrobe-be-placed-in-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Where should your wardrobe be placed in your bedroom? It’s a question that might seem simple but can make a big difference in how your space feels and functions.**

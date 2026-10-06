@@ -1,10 +1,14 @@
 ---
-title: "How to Make Lamp Shades at Home With Paper: Easy DIY Guide"
-description: "Are you looking for a simple and creative way to brighten up your home? Making lamp shades at home with paper is easier than you think. Imagine transforming pla"
+title: 'How to Make Lamp Shades at Home With Paper: Easy DIY Guide'
+description: Are you looking for a simple and creative way to brighten up your home?
+  Making lamp shades at home with paper is easier than you think. Imagine transforming
+  pla
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lamp-shades-at-home-with-paper&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lamp-shades-at-home-with-paper&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you looking for a simple and creative way to brighten up your home? Making lamp shades at home with paper is easier than you think.**

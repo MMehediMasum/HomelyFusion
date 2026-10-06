@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above Kitchen Cabinets: Stunning Ideas to Elevate Space"
-description: "Have you ever looked up at the space above your kitchen cabinets and wondered how to make it more than just empty space? That area is a hidden gem waiting to ad"
+title: 'How to Decorate above Kitchen Cabinets: Stunning Ideas to Elevate Space'
+description: Have you ever looked up at the space above your kitchen cabinets and
+  wondered how to make it more than just empty space? That area is a hidden gem waiting
+  to ad
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Have you ever looked up at the space above your kitchen cabinets and wondered how to make it more than just empty space? That area is a hidden gem waiting to add charm and personality to your kitchen.**

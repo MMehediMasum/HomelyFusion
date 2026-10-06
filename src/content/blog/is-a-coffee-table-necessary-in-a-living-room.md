@@ -1,10 +1,14 @@
 ---
-title: "Is a Coffee Table Necessary in a Living Room? Essential Insights"
-description: "Have you ever wondered if a coffee table is really necessary in your living room? You might think it’s just a piece of furniture, but it can change how your spa"
+title: Is a Coffee Table Necessary in a Living Room? Essential Insights
+description: Have you ever wondered if a coffee table is really necessary in your
+  living room? You might think it’s just a piece of furniture, but it can change how
+  your spa
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-coffee-table-necessary-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=is-a-coffee-table-necessary-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if a coffee table is really necessary in your living room? You might think it’s just a piece of furniture, but it can change how your space feels and works.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Console Table in Living Room: Expert Placement Tips"
-description: "Are you wondering where to put a console table in your living room? Choosing the right spot can completely change how your space feels and functions. Whether yo"
+title: 'Where to Put Console Table in Living Room: Expert Placement Tips'
+description: Are you wondering where to put a console table in your living room? Choosing
+  the right spot can completely change how your space feels and functions. Whether
+  yo
 pubDate: 2026-02-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-console-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-console-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to put a console table in your living room? Choosing the right spot can completely change how your space feels and functions.**

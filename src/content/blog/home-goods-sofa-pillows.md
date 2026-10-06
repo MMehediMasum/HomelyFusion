@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Sofa Pillows: Stylish Comfort for Every Living Space"
-description: "Sofa pillows add comfort and style to any living space. They brighten rooms and support relaxing moments. Choosing the right home goods sofa pillows can change "
+title: 'Home Goods Sofa Pillows: Stylish Comfort for Every Living Space'
+description: 'Sofa pillows add comfort and style to any living space. They brighten
+  rooms and support relaxing moments. Choosing the right home goods sofa pillows can
+  change '
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-sofa-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-sofa-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Sofa pillows add comfort and style to any living space. They brighten rooms and support relaxing moments.**

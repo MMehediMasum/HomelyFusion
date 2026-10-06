@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Engrave Stainless Steel at Home: Easy DIY Techniques"
 description: "Have you ever wanted to add a personal touch to your stainless steel items? Whether it’s a gift, a keepsake, or something for yourself, engraving can make ordin"
 pubDate: 2026-03-26

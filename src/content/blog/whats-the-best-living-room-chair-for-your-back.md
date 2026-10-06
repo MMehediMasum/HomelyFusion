@@ -1,10 +1,14 @@
 ---
-title: "What'S the Best Living Room Chair for Your Back: Top Picks Revealed"
-description: "Your living room chair should do more than just look good—it needs to support your back and keep you comfortable. If you often find yourself aching or stiff aft"
+title: 'What''S the Best Living Room Chair for Your Back: Top Picks Revealed'
+description: Your living room chair should do more than just look good—it needs to
+  support your back and keep you comfortable. If you often find yourself aching or
+  stiff aft
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=whats-the-best-living-room-chair-for-your-back&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=whats-the-best-living-room-chair-for-your-back&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room chair should do more than just look good—it needs to support your back and keep you comfortable. If you often find yourself aching or stiff after sitting, the problem might be your chair.**

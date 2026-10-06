@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Bath Rugs: Soft, Absorbent, and Stylish Bathroom Must-Haves"
-description: "Bath rugs add comfort and style to any bathroom. They offer softness and absorb moisture efficiently. Choosing the right bath rug enhances your bathroom’s look "
+title: 'Homegoods Bath Rugs: Soft, Absorbent, and Stylish Bathroom Must-Haves'
+description: 'Bath rugs add comfort and style to any bathroom. They offer softness
+  and absorb moisture efficiently. Choosing the right bath rug enhances your bathroom’s
+  look '
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bath-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bath-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Bath rugs add comfort and style to any bathroom. They offer softness and absorb moisture efficiently.**

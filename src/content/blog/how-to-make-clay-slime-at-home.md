@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Slime at Home: Easy Steps for Fun DIY Play"
-description: "Have you ever wanted to create something fun and squishy right at home? Making clay slime is a perfect way to enjoy a hands-on activity that’s both relaxing and"
+title: 'How to Make Clay Slime at Home: Easy Steps for Fun DIY Play'
+description: Have you ever wanted to create something fun and squishy right at home?
+  Making clay slime is a perfect way to enjoy a hands-on activity that’s both relaxing
+  and
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-slime-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-slime-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something fun and squishy right at home? Making clay slime is a perfect way to enjoy a hands-on activity that’s both relaxing and exciting.**

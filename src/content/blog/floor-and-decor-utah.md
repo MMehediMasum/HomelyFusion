@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Utah: Unique Home Accents and Stylish Lighting Ideas"
 description: "Discover unique home decor options at Floor and Decor Utah. Enhance your space with style and elegance. Utah-themed decor items are perfect for adding a touch o"
 pubDate: 2026-08-01

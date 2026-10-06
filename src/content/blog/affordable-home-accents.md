@@ -1,10 +1,14 @@
 ---
-title: "Affordable Home Accents: Stylish Picks to Transform Your Living Space"
-description: "Affordable home accents can quickly brighten any room without breaking the bank. Simple, stylish items add warmth and personality to your space. Small touches l"
+title: 'Affordable Home Accents: Stylish Picks to Transform Your Living Space'
+description: Affordable home accents can quickly brighten any room without breaking
+  the bank. Simple, stylish items add warmth and personality to your space. Small
+  touches l
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=affordable-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=affordable-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Affordable home accents can quickly brighten any room without breaking the bank. Simple, stylish items add warmth and personality to your space.**

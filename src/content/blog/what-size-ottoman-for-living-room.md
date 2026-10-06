@@ -1,10 +1,14 @@
 ---
-title: "What Size Ottoman for Living Room: Ultimate Guide to Perfect Fit"
-description: "Choosing the right ottoman size for your living room can change the entire feel of your space. You want it to fit perfectly—not too big to crowd the room, and n"
+title: 'What Size Ottoman for Living Room: Ultimate Guide to Perfect Fit'
+description: Choosing the right ottoman size for your living room can change the entire
+  feel of your space. You want it to fit perfectly—not too big to crowd the room,
+  and n
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-ottoman-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=what-size-ottoman-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right ottoman size for your living room can change the entire feel of your space. You want it to fit perfectly—not too big to crowd the room, and not too small to lose its purpose.**

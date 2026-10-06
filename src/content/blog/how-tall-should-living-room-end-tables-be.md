@@ -1,10 +1,13 @@
 ---
-title: "How Tall Should Living Room End Tables Be: Perfect Height Guide"
-description: "When you’re setting up your living room, every piece of furniture matters—especially your end tables. But have you ever wondered how tall your living room end t"
+title: 'How Tall Should Living Room End Tables Be: Perfect Height Guide'
+description: When you’re setting up your living room, every piece of furniture matters—especially
+  your end tables. But have you ever wondered how tall your living room end t
 pubDate: 2026-04-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-living-room-end-tables-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-living-room-end-tables-be&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **When you’re setting up your living room, every piece of furniture matters—especially your end tables. But have you ever wondered how tall your living room end tables should be?**

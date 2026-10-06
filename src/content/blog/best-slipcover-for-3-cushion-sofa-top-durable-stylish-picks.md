@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcover for 3 Cushion Sofa: Top Durable & Stylish Picks"
-description: "Choosing the best slipcover for a 3 cushion sofa can protect your furniture and refresh your living space. A good slipcover fits well, feels soft, and stays in "
+title: 'Best Slipcover for 3 Cushion Sofa: Top Durable & Stylish Picks'
+description: 'Choosing the best slipcover for a 3 cushion sofa can protect your furniture
+  and refresh your living space. A good slipcover fits well, feels soft, and stays
+  in '
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcover-for-3-cushion-sofa-top-durable-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcover-for-3-cushion-sofa-top-durable-stylish-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best slipcover for a 3 cushion sofa can protect your furniture and refresh your living space. A good slipcover fits well, feels soft, and stays in place.**

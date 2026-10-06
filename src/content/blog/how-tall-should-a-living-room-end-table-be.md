@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should a Living Room End Table Be: Perfect Height Guide"
-description: "Choosing the perfect end table for your living room isn’t just about style—it’s about comfort and function too. Have you ever reached for your drink or remote, "
+title: 'How Tall Should a Living Room End Table Be: Perfect Height Guide'
+description: 'Choosing the perfect end table for your living room isn’t just about
+  style—it’s about comfort and function too. Have you ever reached for your drink
+  or remote, '
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-end-table-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-end-table-be&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect end table for your living room isn’t just about style—it’s about comfort and function too. Have you ever reached for your drink or remote, only to find your table just a bit too low or too high?**

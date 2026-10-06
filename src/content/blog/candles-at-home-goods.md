@@ -1,10 +1,14 @@
 ---
-title: "Candles at Home Goods: Top Luxury Scented Candles for Cozy Ambiance"
-description: "Candles at Home Goods bring warmth and fragrance to your living space. They create a cozy, relaxing atmosphere with ease. A variety of scented candles at Home G"
+title: 'Candles at Home Goods: Top Luxury Scented Candles for Cozy Ambiance'
+description: Candles at Home Goods bring warmth and fragrance to your living space.
+  They create a cozy, relaxing atmosphere with ease. A variety of scented candles
+  at Home G
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=candles-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=candles-at-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Candles at Home Goods bring warmth and fragrance to your living space. They create a cozy, relaxing atmosphere with ease.**

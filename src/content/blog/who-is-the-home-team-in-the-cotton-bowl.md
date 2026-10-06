@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who is the Home Team in the Cotton Bowl: Ultimate Guide 2025"
 description: "Are you curious about who gets the home team advantage in the Cotton Bowl? Whether you’re a die-hard fan or just tuning in, knowing which team is the “home” sid"
 pubDate: 2026-02-05

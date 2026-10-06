@@ -1,10 +1,13 @@
 ---
-title: "How to Arrange Sofa Loveseat And Chair in Living Room: Ultimate Guide"
-description: "Are you struggling to find the perfect way to arrange your sofa, loveseat, and chair in your living room? The right layout can make your space feel cozy, inviti"
+title: 'How to Arrange Sofa Loveseat And Chair in Living Room: Ultimate Guide'
+description: Are you struggling to find the perfect way to arrange your sofa, loveseat,
+  and chair in your living room? The right layout can make your space feel cozy, inviti
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-loveseat-and-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-loveseat-and-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect way to arrange your sofa, loveseat, and chair in your living room? The right layout can make your space feel cozy, inviting, and balanced.**

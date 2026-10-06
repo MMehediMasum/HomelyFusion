@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Process Hemp at Home: Easy Steps for Beginners"
 description: "Are you curious about how to process hemp at home but don’t know where to start? You’re in the right place. Processing hemp can seem complicated, but with the r"
 pubDate: 2026-03-12

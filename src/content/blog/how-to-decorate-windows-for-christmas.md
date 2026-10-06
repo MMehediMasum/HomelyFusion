@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Windows for Christmas: Stunning Festive Ideas"
-description: "Your windows are the perfect spot to spread Christmas cheer both inside and outside your home. Imagine your neighbors’ smiles when they see your sparkling, fest"
+title: 'How to Decorate Windows for Christmas: Stunning Festive Ideas'
+description: Your windows are the perfect spot to spread Christmas cheer both inside
+  and outside your home. Imagine your neighbors’ smiles when they see your sparkling,
+  fest
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-windows-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-windows-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your windows are the perfect spot to spread Christmas cheer both inside and outside your home. Imagine your neighbors’ smiles when they see your sparkling, festive decorations glowing in the night.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Wash a Wool Coat at Home? Expert Tips Revealed!"
 description: "Have you ever wondered if you can wash your wool coat at home without ruining it? You’re not alone. Wool coats feel expensive and delicate, so the idea of clean"
 pubDate: 2026-02-09

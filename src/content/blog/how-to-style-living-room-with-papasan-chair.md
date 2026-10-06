@@ -1,10 +1,13 @@
 ---
-title: "How to Style Living Room With Papasan Chair: Cozy Chic Ideas"
-description: "Are you looking to add a cozy, stylish touch to your living room? A Papasan chair might be exactly what you need. This unique, round chair is not only comfortab"
+title: 'How to Style Living Room With Papasan Chair: Cozy Chic Ideas'
+description: Are you looking to add a cozy, stylish touch to your living room? A Papasan
+  chair might be exactly what you need. This unique, round chair is not only comfortab
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-living-room-with-papasan-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-living-room-with-papasan-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add a cozy, stylish touch to your living room? A Papasan chair might be exactly what you need.**

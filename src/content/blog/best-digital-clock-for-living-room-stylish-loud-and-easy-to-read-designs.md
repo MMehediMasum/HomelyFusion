@@ -1,10 +1,14 @@
 ---
-title: "Best Digital Clock for Living Room: Stylish, Loud, and Easy-to-Read Designs"
-description: "Choosing the best digital clock for your living room blends style and function perfectly. A good clock shows time clearly and adds to your room’s look. Digital "
+title: 'Best Digital Clock for Living Room: Stylish, Loud, and Easy-to-Read Designs'
+description: 'Choosing the best digital clock for your living room blends style and
+  function perfectly. A good clock shows time clearly and adds to your room’s look.
+  Digital '
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-digital-clock-for-living-room-stylish-loud-and-easy-to-read-designs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-digital-clock-for-living-room-stylish-loud-and-easy-to-read-designs&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best digital clock for your living room blends style and function perfectly. A good clock shows time clearly and adds to your room’s look.**

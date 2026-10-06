@@ -1,10 +1,14 @@
 ---
-title: "How to Hide Tv Wires: Easy Tricks for a Clean Setup"
-description: "Are you tired of seeing messy TV wires tangled and distracting from your beautiful living room? Those cables can ruin the sleek look you want for your space. Bu"
+title: 'How to Hide Tv Wires: Easy Tricks for a Clean Setup'
+description: Are you tired of seeing messy TV wires tangled and distracting from your
+  beautiful living room? Those cables can ruin the sleek look you want for your space.
+  Bu
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-tv-wires&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TV Wire Concealment
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-tv-wires&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of seeing messy TV wires tangled and distracting from your beautiful living room? Those cables can ruin the sleek look you want for your space.**

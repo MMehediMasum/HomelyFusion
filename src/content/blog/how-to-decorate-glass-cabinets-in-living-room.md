@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Glass Cabinets in Living Room: Stunning Ideas Revealed"
-description: "Your glass cabinets in the living room are more than just storage—they’re a chance to show off your style and personality. But figuring out how to decorate them"
+title: 'How to Decorate Glass Cabinets in Living Room: Stunning Ideas Revealed'
+description: Your glass cabinets in the living room are more than just storage—they’re
+  a chance to show off your style and personality. But figuring out how to decorate
+  them
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-glass-cabinets-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-glass-cabinets-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your glass cabinets in the living room are more than just storage—they’re a chance to show off your style and personality. But figuring out how to decorate them can feel tricky.**

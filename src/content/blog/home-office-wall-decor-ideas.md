@@ -1,10 +1,14 @@
 ---
-title: "Home Office Wall Decor Ideas: Rustic Shelves and Motivational Art Sets"
-description: "Creating an inspiring home office starts with the right wall decor. Simple additions can boost focus and brighten your workspace. Decorating your home office wa"
+title: 'Home Office Wall Decor Ideas: Rustic Shelves and Motivational Art Sets'
+description: Creating an inspiring home office starts with the right wall decor. Simple
+  additions can boost focus and brighten your workspace. Decorating your home office
+  wa
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-office-wall-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-office-wall-decor-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating an inspiring home office starts with the right wall decor. Simple additions can boost focus and brighten your workspace.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Nightstands in Bedroom: Stunning Ideas to Try Today"
-description: "Your nightstand is more than just a place to set your alarm clock. It’s a small but powerful piece that can transform the look and feel of your entire bedroom. "
+title: 'How to Decorate Nightstands in Bedroom: Stunning Ideas to Try Today'
+description: 'Your nightstand is more than just a place to set your alarm clock. It’s
+  a small but powerful piece that can transform the look and feel of your entire bedroom. '
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-nightstands-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-nightstands-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your nightstand is more than just a place to set your alarm clock. It’s a small but powerful piece that can transform the look and feel of your entire bedroom.**

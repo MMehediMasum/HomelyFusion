@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Couch With a Throw Blanket: Stylish Tips"
-description: "Your couch is more than just a place to sit—it’s the heart of your living room. But sometimes, it can look a bit plain or tired. That’s where a throw blanket co"
+title: 'How to Decorate a Couch With a Throw Blanket: Stylish Tips'
+description: Your couch is more than just a place to sit—it’s the heart of your living
+  room. But sometimes, it can look a bit plain or tired. That’s where a throw blanket
+  co
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-couch-with-a-throw-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-couch-with-a-throw-blanket&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your couch is more than just a place to sit—it’s the heart of your living room. But sometimes, it can look a bit plain or tired.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wood Panel Wall: Stunning Ideas to Transform Your Space"
-description: "Are you staring at your wood panel wall and wondering how to make it stand out? You’re not alone. Wood paneling can add warmth and character to any room, but de"
+title: 'How to Decorate a Wood Panel Wall: Stunning Ideas to Transform Your Space'
+description: Are you staring at your wood panel wall and wondering how to make it
+  stand out? You’re not alone. Wood paneling can add warmth and character to any room,
+  but de
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wood-panel-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wood-panel-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at your wood panel wall and wondering how to make it stand out? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Decor Accents to Transform Your Home with Stylish Modern Touches"
-description: "Decor accents add charm and personality to any room. They create interest without overwhelming the space. Small items like artificial plants, sculptures, and de"
+title: Decor Accents to Transform Your Home with Stylish Modern Touches
+description: Decor accents add charm and personality to any room. They create interest
+  without overwhelming the space. Small items like artificial plants, sculptures,
+  and de
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-accents&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor accents add charm and personality to any room. They create interest without overwhelming the space.**

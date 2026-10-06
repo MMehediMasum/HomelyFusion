@@ -1,10 +1,14 @@
 ---
-title: "How to Place Large Dresser in Bedroom: Expert Tips for Space Saving"
-description: "Struggling to fit a large dresser in your bedroom without making the space feel cramped? You’re not alone. Finding the perfect spot for bulky furniture can be t"
+title: 'How to Place Large Dresser in Bedroom: Expert Tips for Space Saving'
+description: Struggling to fit a large dresser in your bedroom without making the
+  space feel cramped? You’re not alone. Finding the perfect spot for bulky furniture
+  can be t
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-large-dresser-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-large-dresser-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit a large dresser in your bedroom without making the space feel cramped? You’re not alone.**

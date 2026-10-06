@@ -1,10 +1,13 @@
 ---
-title: "Home Decor Framed Wall Art: Stunning Pieces to Elevate Your Space"
-description: "Framed wall art adds charm and personality to any home space. It transforms plain walls into stylish focal points. Choosing the right framed wall art can bright"
+title: 'Home Decor Framed Wall Art: Stunning Pieces to Elevate Your Space'
+description: Framed wall art adds charm and personality to any home space. It transforms
+  plain walls into stylish focal points. Choosing the right framed wall art can bright
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-framed-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-framed-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Framed wall art adds charm and personality to any home space. It transforms plain walls into stylish focal points.**

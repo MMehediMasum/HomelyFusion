@@ -1,10 +1,14 @@
 ---
-title: "Room Accessories Store: Transform Your Space with Stylish LED Lights and Decor"
-description: "A room accessories store offers practical and stylish items to improve your living space. Find lighting, storage, decor, and comfort products for any room. This"
+title: 'Room Accessories Store: Transform Your Space with Stylish LED Lights and Decor'
+description: A room accessories store offers practical and stylish items to improve
+  your living space. Find lighting, storage, decor, and comfort products for any room.
+  This
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=room-accessories-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=room-accessories-store&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A room accessories store offers practical and stylish items to improve your living space. Find lighting, storage, decor, and comfort products for any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Accent Pieces to Transform Your Living Space Instantly"
-description: "Home decor accent pieces can transform your space with minimal effort. They add personality and style to any room. Accent pieces make a house feel like a home. "
+title: Home Decor Accent Pieces to Transform Your Living Space Instantly
+description: 'Home decor accent pieces can transform your space with minimal effort.
+  They add personality and style to any room. Accent pieces make a house feel like
+  a home. '
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-accent-pieces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-accent-pieces&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor accent pieces can transform your space with minimal effort. They add personality and style to any room.**

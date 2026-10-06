@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Make Cotton Candy Sugar at Home: Easy DIY Guide"
 description: "Have you ever wondered how to make cotton candy sugar right in your own kitchen? Imagine creating that sweet, fluffy treat anytime you want, without having to v"
 pubDate: 2026-03-03

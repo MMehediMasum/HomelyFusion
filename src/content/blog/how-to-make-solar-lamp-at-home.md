@@ -1,10 +1,14 @@
 ---
-title: "How to Make Solar Lamp at Home: Easy Steps for Bright Savings"
-description: "Have you ever wished for a simple, eco-friendly way to light up your home without increasing your electricity bill? Imagine having a solar lamp that you built y"
+title: 'How to Make Solar Lamp at Home: Easy Steps for Bright Savings'
+description: Have you ever wished for a simple, eco-friendly way to light up your
+  home without increasing your electricity bill? Imagine having a solar lamp that
+  you built y
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-solar-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-solar-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wished for a simple, eco-friendly way to light up your home without increasing your electricity bill? Imagine having a solar lamp that you built yourself—saving money, helping the environment, and adding a cool DIY project to your skills.**

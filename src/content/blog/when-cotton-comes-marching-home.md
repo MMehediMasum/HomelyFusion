@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "When Cotton Comes Marching Home: Transforming Textile Traditions"
 description: "Have you ever wondered what happens when cotton makes its way back to where it all began? “When Cotton Comes Marching Home” is more than just a phrase—it’s a st"
 pubDate: 2026-04-01

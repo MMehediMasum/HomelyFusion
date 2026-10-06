@@ -1,10 +1,14 @@
 ---
-title: "Furniture Homestore Essentials: Stylish Storage and Decor Solutions for Every Room"
-description: "Discover the perfect blend of style and functionality at Furniture Homestore. Elevate your home with our versatile, space-saving solutions. At Furniture Homesto"
+title: 'Furniture Homestore Essentials: Stylish Storage and Decor Solutions for Every
+  Room'
+description: Discover the perfect blend of style and functionality at Furniture Homestore.
+  Elevate your home with our versatile, space-saving solutions. At Furniture Homesto
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-homestore&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-homestore&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the perfect blend of style and functionality at Furniture Homestore. Elevate your home with our versatile, space-saving solutions.**

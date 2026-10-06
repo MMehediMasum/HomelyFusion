@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With White Bedding: Stunning Cozy Ideas"
-description: "Your bedroom should be your personal haven—a place where comfort meets style. If you’re wondering how to decorate your bedroom with white bedding, you’re about "
+title: 'How to Decorate Bedroom With White Bedding: Stunning Cozy Ideas'
+description: 'Your bedroom should be your personal haven—a place where comfort meets
+  style. If you’re wondering how to decorate your bedroom with white bedding, you’re
+  about '
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-white-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-white-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be your personal haven—a place where comfort meets style. If you’re wondering how to decorate your bedroom with white bedding, you’re about to discover a simple way to create a fresh, calming space that feels both cozy and elegant.**

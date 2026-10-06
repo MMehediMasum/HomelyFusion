@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Oriental Wool Rugs at Home: Easy & Effective Tips"
-description: "Your beautiful Oriental wool rug adds warmth and charm to any room. But when it gets dirty, cleaning it can feel overwhelming. You want to keep your rug looking"
+title: 'How to Clean Oriental Wool Rugs at Home: Easy & Effective Tips'
+description: Your beautiful Oriental wool rug adds warmth and charm to any room. But
+  when it gets dirty, cleaning it can feel overwhelming. You want to keep your rug
+  looking
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-oriental-wool-rugs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-oriental-wool-rugs-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your beautiful Oriental wool rug adds warmth and charm to any room. But when it gets dirty, cleaning it can feel overwhelming.**

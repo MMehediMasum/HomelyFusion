@@ -1,10 +1,14 @@
 ---
-title: "How to Remove a Bathroom Vanity: Easy Steps for a Quick Upgrade"
-description: "Thinking about removing your bathroom vanity but not sure where to start? You’re in the right place. Taking out a vanity can seem tricky, but with the right ste"
+title: 'How to Remove a Bathroom Vanity: Easy Steps for a Quick Upgrade'
+description: Thinking about removing your bathroom vanity but not sure where to start?
+  You’re in the right place. Taking out a vanity can seem tricky, but with the right
+  ste
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about removing your bathroom vanity but not sure where to start? You’re in the right place.**

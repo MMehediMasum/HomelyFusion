@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Vanity Color Ideas: Stunning Shades to Transform Your Space"
-description: "Choosing the right color for your bathroom vanity can completely change the feel of your space. You want a color that reflects your style, fits your mood, and m"
+title: 'Bathroom Vanity Color Ideas: Stunning Shades to Transform Your Space'
+description: Choosing the right color for your bathroom vanity can completely change
+  the feel of your space. You want a color that reflects your style, fits your mood,
+  and m
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-vanity-color-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-vanity-color-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right color for your bathroom vanity can completely change the feel of your space. You want a color that reflects your style, fits your mood, and makes your daily routine more enjoyable.**

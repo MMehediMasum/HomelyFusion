@@ -1,10 +1,14 @@
 ---
-title: "Nautica Furniture Homegoods: Stylish Coastal Oak Buffets and Storage Solutions"
-description: "Nautica Furniture Homegoods offers a stunning collection of versatile furniture for every room. From sideboards to accent chairs, this range has it all. Explore"
+title: 'Nautica Furniture Homegoods: Stylish Coastal Oak Buffets and Storage Solutions'
+description: Nautica Furniture Homegoods offers a stunning collection of versatile
+  furniture for every room. From sideboards to accent chairs, this range has it all.
+  Explore
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-furniture-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=nautica-furniture-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Nautica Furniture Homegoods offers a stunning collection of versatile furniture for every room. From sideboards to accent chairs, this range has it all.**

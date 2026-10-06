@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Goods Cocktail Tables: Stylish Foldable Options for Indoor Outdoor Use"
 description: "Cocktail tables add style and function to any home or event space. They fit perfectly in living rooms, patios, or party areas. Home goods cocktail tables come i"
 pubDate: 2026-08-08

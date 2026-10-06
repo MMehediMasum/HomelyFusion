@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Bowl Review: Durable, BPA-Free Serving Bowls for Every Occasion"
-description: "Kirkland Bowl offers a versatile selection of serving bowls perfect for any occasion. Discover durable, reusable, and disposable options. In the world of servin"
+title: 'Kirkland Bowl Review: Durable, BPA-Free Serving Bowls for Every Occasion'
+description: Kirkland Bowl offers a versatile selection of serving bowls perfect for
+  any occasion. Discover durable, reusable, and disposable options. In the world of
+  servin
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-bowl&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Kirkland Bowl offers a versatile selection of serving bowls perfect for any occasion. Discover durable, reusable, and disposable options.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods TV Stand Ideas: Stylish, Functional Entertainment Centers for Every Room"
-description: "Homegoods TV stands offer practical and stylish solutions for your television setup. They fit various TV sizes and add storage space to your room. Choosing the "
+title: 'Homegoods TV Stand Ideas: Stylish, Functional Entertainment Centers for Every
+  Room'
+description: 'Homegoods TV stands offer practical and stylish solutions for your television
+  setup. They fit various TV sizes and add storage space to your room. Choosing the '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-tv-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-tv-stand&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegoods TV stands offer practical and stylish solutions for your television setup. They fit various TV sizes and add storage space to your room.**

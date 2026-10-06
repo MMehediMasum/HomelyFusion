@@ -1,10 +1,14 @@
 ---
-title: "Oakhill Home Decorative Mirror: Elegant Vintage Style for Timeless Charm"
-description: "The Oakhill Home Decorative Mirror blends classic style with practical design. It enhances any room with its elegant look and quality build. This mirror suits m"
+title: 'Oakhill Home Decorative Mirror: Elegant Vintage Style for Timeless Charm'
+description: The Oakhill Home Decorative Mirror blends classic style with practical
+  design. It enhances any room with its elegant look and quality build. This mirror
+  suits m
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=oakhill-home-decorative-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=oakhill-home-decorative-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Oakhill Home Decorative Mirror blends classic style with practical design. It enhances any room with its elegant look and quality build.**

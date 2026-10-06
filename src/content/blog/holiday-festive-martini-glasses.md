@@ -1,10 +1,14 @@
 ---
-title: "Holiday Festive Martini Glasses: Sparkling Elegance for Celebrations"
-description: "Are you ready to add a splash of sparkle to your holiday celebrations? Holiday festive martini glasses are the perfect way to make your drinks stand out and bri"
+title: 'Holiday Festive Martini Glasses: Sparkling Elegance for Celebrations'
+description: Are you ready to add a splash of sparkle to your holiday celebrations?
+  Holiday festive martini glasses are the perfect way to make your drinks stand out
+  and bri
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-festive-martini-glasses&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-festive-martini-glasses&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a splash of sparkle to your holiday celebrations? Holiday festive martini glasses are the perfect way to make your drinks stand out and bring extra cheer to your gatherings.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bathroom Mirrors: Stylish Black Metal Vanity Mirror Ideas"
-description: "Choosing the right bathroom mirror can transform your space. Mirrors are more than just functional pieces; they enhance style and ambiance. In the world of home"
+title: 'Home Goods Bathroom Mirrors: Stylish Black Metal Vanity Mirror Ideas'
+description: Choosing the right bathroom mirror can transform your space. Mirrors
+  are more than just functional pieces; they enhance style and ambiance. In the world
+  of home
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right bathroom mirror can transform your space. Mirrors are more than just functional pieces; they enhance style and ambiance.**

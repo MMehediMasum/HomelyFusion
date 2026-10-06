@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Accessories Set: Elevate Your Space with Stylish Decor Essentials"
-description: "A bedroom accessories set adds style and function to your personal space. These carefully chosen items create a cozy, organized, and inviting atmosphere. Choosi"
+title: 'Bedroom Accessories Set: Elevate Your Space with Stylish Decor Essentials'
+description: A bedroom accessories set adds style and function to your personal space.
+  These carefully chosen items create a cozy, organized, and inviting atmosphere.
+  Choosi
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-accessories-set&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-accessories-set&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A bedroom accessories set adds style and function to your personal space. These carefully chosen items create a cozy, organized, and inviting atmosphere.**

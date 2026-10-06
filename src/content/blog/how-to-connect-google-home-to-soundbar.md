@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Google Home to Soundbar: Easy Steps for Perfect Sound"
 description: "Imagine turning your living room into a smart entertainment hub where your voice controls everything—from music to movies. Connecting your Google Home to a soun"
 pubDate: 2025-11-02

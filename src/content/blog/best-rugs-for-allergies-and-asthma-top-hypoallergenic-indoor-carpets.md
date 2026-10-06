@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Allergies And Asthma: Top Hypoallergenic Indoor Carpets"
-description: "Choosing the right rug can help reduce allergy and asthma symptoms at home. Some rugs trap less dust and are easier to clean. Rugs often collect dust, pet hair,"
+title: 'Best Rugs for Allergies And Asthma: Top Hypoallergenic Indoor Carpets'
+description: Choosing the right rug can help reduce allergy and asthma symptoms at
+  home. Some rugs trap less dust and are easier to clean. Rugs often collect dust,
+  pet hair,
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-allergies-and-asthma-top-hypoallergenic-indoor-carpets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-allergies-and-asthma-top-hypoallergenic-indoor-carpets&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug can help reduce allergy and asthma symptoms at home. Some rugs trap less dust and are easier to clean.**

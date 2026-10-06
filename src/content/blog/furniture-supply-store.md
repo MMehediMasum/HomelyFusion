@@ -1,10 +1,14 @@
 ---
-title: "Furniture Supply Store Essentials: Top Moving Covers and Repair Kits Reviewed"
-description: "Discover a world of essential furniture supplies at your fingertips. Whether you're moving, cleaning, or repairing, we have you covered. Our furniture supply st"
+title: 'Furniture Supply Store Essentials: Top Moving Covers and Repair Kits Reviewed'
+description: Discover a world of essential furniture supplies at your fingertips.
+  Whether you're moving, cleaning, or repairing, we have you covered. Our furniture
+  supply st
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-supply-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-supply-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover a world of essential furniture supplies at your fingertips. Whether you're moving, cleaning, or repairing, we have you covered.**

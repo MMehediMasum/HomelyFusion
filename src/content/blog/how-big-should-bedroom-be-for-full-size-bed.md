@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Bedroom Be for Full Size Bed: Ultimate Space Guide"
-description: "Are you wondering how much space you really need for a full size bed in your bedroom? It’s more than just fitting the bed itself—your room should feel comfortab"
+title: 'How Big Should Bedroom Be for Full Size Bed: Ultimate Space Guide'
+description: Are you wondering how much space you really need for a full size bed
+  in your bedroom? It’s more than just fitting the bed itself—your room should feel
+  comfortab
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-full-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-full-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how much space you really need for a full size bed in your bedroom? It’s more than just fitting the bed itself—your room should feel comfortable, not cramped.**

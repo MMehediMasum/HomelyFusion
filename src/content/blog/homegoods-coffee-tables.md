@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Coffee Tables: Stylish Lift Top Designs with Hidden Storage"
-description: "Homegoods coffee tables combine style, function, and storage for every living room. These tables fit small spaces and offer hidden compartments. Homegoods coffe"
+title: 'Homegoods Coffee Tables: Stylish Lift Top Designs with Hidden Storage'
+description: Homegoods coffee tables combine style, function, and storage for every
+  living room. These tables fit small spaces and offer hidden compartments. Homegoods
+  coffe
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-coffee-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-coffee-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods coffee tables combine style, function, and storage for every living room. These tables fit small spaces and offer hidden compartments.**

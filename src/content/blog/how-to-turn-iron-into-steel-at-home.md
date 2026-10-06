@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Turn Iron into Steel at Home: Easy DIY Guide Revealed"
 description: "Have you ever wondered how to turn iron into steel right in your own home? Imagine transforming a simple piece of iron into a strong, durable material that’s us"
 pubDate: 2026-02-06

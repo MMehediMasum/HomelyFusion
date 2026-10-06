@@ -1,10 +1,13 @@
 ---
-title: "Modern Contemporary Home Accessories to Elevate Your Living Space"
-description: "Modern contemporary home accessories add style and function to any living space. These pieces blend clean lines with artistic touches for a fresh look. Choosing"
+title: Modern Contemporary Home Accessories to Elevate Your Living Space
+description: Modern contemporary home accessories add style and function to any living
+  space. These pieces blend clean lines with artistic touches for a fresh look. Choosing
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-contemporary-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=modern-contemporary-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern contemporary home accessories add style and function to any living space. These pieces blend clean lines with artistic touches for a fresh look.**

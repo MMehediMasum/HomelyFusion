@@ -1,10 +1,14 @@
 ---
-title: "Best Color Rugs for Dark Wood Floors to Brighten Your Space"
-description: "Choosing the best color rugs for dark wood floors can brighten any room. The right rug adds warmth and style without clashing. Dark wood floors look elegant but"
+title: Best Color Rugs for Dark Wood Floors to Brighten Your Space
+description: Choosing the best color rugs for dark wood floors can brighten any room.
+  The right rug adds warmth and style without clashing. Dark wood floors look elegant
+  but
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-rugs-for-dark-wood-floors-to-brighten-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-color-rugs-for-dark-wood-floors-to-brighten-your-space&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color rugs for dark wood floors can brighten any room. The right rug adds warmth and style without clashing.**

@@ -1,10 +1,14 @@
 ---
-title: "Side Tables at Homegoods: Stylish Storage Solutions for Every Room"
-description: "Side tables add functionality and style to any room. Homegoods offers a diverse range of side tables for every space. Decorating your home with the right side t"
+title: 'Side Tables at Homegoods: Stylish Storage Solutions for Every Room'
+description: Side tables add functionality and style to any room. Homegoods offers
+  a diverse range of side tables for every space. Decorating your home with the right
+  side t
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=side-tables-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=side-tables-at-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Side tables add functionality and style to any room. Homegoods offers a diverse range of side tables for every space.**

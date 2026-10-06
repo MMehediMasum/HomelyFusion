@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Tree for Living Room: Top Realistic Faux Trees Reviewed"
-description: "Choosing the best artificial tree can brighten your living room without any fuss. These trees add green beauty and require zero maintenance. Artificial trees br"
+title: 'Best Artificial Tree for Living Room: Top Realistic Faux Trees Reviewed'
+description: Choosing the best artificial tree can brighten your living room without
+  any fuss. These trees add green beauty and require zero maintenance. Artificial
+  trees br
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-tree-for-living-room-top-realistic-faux-trees-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-tree-for-living-room-top-realistic-faux-trees-reviewed&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best artificial tree can brighten your living room without any fuss. These trees add green beauty and require zero maintenance.**

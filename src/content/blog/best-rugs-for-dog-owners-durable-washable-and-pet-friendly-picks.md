@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dog Owners: Durable, Washable, and Pet-Friendly Picks"
-description: "Finding the best rugs for dog owners means choosing durable, easy-to-clean, and pet-friendly options. These rugs protect floors from dirt, hair, and spills whil"
+title: 'Best Rugs for Dog Owners: Durable, Washable, and Pet-Friendly Picks'
+description: Finding the best rugs for dog owners means choosing durable, easy-to-clean,
+  and pet-friendly options. These rugs protect floors from dirt, hair, and spills
+  whil
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dog-owners-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dog-owners-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best rugs for dog owners means choosing durable, easy-to-clean, and pet-friendly options. These rugs protect floors from dirt, hair, and spills while adding comfort.**

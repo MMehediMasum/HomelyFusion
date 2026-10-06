@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A/C Vents for Home: Ultimate Guide to Comfort & Efficiency"
 description: "Are you tired of uneven cooling or heating in your home? Your A/C vents might be the key to fixing that. The right vents don’t just blow air—they control the fl"
 pubDate: 2025-09-01

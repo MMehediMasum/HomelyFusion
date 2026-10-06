@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Laminate Floors: Top Non-Slip Pads and Stylish Options"
-description: "Choosing the best rugs for laminate floors helps protect your flooring and adds style to any room. Rugs also prevent slipping and provide comfort underfoot. Lam"
+title: 'Best Rugs for Laminate Floors: Top Non-Slip Pads and Stylish Options'
+description: Choosing the best rugs for laminate floors helps protect your flooring
+  and adds style to any room. Rugs also prevent slipping and provide comfort underfoot.
+  Lam
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-laminate-floors-top-non-slip-pads-and-stylish-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-laminate-floors-top-non-slip-pads-and-stylish-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for laminate floors helps protect your flooring and adds style to any room. Rugs also prevent slipping and provide comfort underfoot.**

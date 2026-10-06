@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decorate Ideas: Stylish Lamps, Vases, and Unique Home Accents"
-description: "Furniture decor adds style and function to any room. Choosing the right pieces creates a cozy, inviting space. A well-decorated room balances beauty and utility"
+title: 'Furniture Decorate Ideas: Stylish Lamps, Vases, and Unique Home Accents'
+description: Furniture decor adds style and function to any room. Choosing the right
+  pieces creates a cozy, inviting space. A well-decorated room balances beauty and
+  utility
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decorate&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decorate&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture decor adds style and function to any room. Choosing the right pieces creates a cozy, inviting space.**

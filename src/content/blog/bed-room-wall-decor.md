@@ -1,10 +1,14 @@
 ---
-title: "Bed Room Wall Decor Ideas to Transform Your Space with Style"
-description: "Transform your bedroom into a personal sanctuary with carefully chosen wall decor. Small changes can make a big impact. Creating a cozy and inviting bedroom atm"
+title: Bed Room Wall Decor Ideas to Transform Your Space with Style
+description: Transform your bedroom into a personal sanctuary with carefully chosen
+  wall decor. Small changes can make a big impact. Creating a cozy and inviting bedroom
+  atm
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-room-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=bed-room-wall-decor&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transform your bedroom into a personal sanctuary with carefully chosen wall decor. Small changes can make a big impact.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 6X9: Stylish, Washable, and Non-Slip Area Rugs for Every Room"
-description: "Home Goods Rugs 6x9 offer versatile and stylish floor coverings for any room. These rugs combine comfort, durability, and easy care. Choosing the right 6x9 rug "
+title: 'Home Goods Rugs 6X9: Stylish, Washable, and Non-Slip Area Rugs for Every Room'
+description: 'Home Goods Rugs 6x9 offer versatile and stylish floor coverings for
+  any room. These rugs combine comfort, durability, and easy care. Choosing the right
+  6x9 rug '
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-6x9&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-6x9&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Goods Rugs 6x9 offer versatile and stylish floor coverings for any room. These rugs combine comfort, durability, and easy care.**

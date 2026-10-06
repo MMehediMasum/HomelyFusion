@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should Living Room Table Lamps Be: Perfect Height Guide"
-description: "Choosing the right height for your living room table lamps can change the entire feel of your space. Too tall, and the lamp might overwhelm your room; too short"
+title: 'How Tall Should Living Room Table Lamps Be: Perfect Height Guide'
+description: Choosing the right height for your living room table lamps can change
+  the entire feel of your space. Too tall, and the lamp might overwhelm your room;
+  too short
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-living-room-table-lamps-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-living-room-table-lamps-be&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right height for your living room table lamps can change the entire feel of your space. Too tall, and the lamp might overwhelm your room; too short, and it won’t provide enough light where you need it most.**

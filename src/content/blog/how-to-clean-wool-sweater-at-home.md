@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Sweater at Home: Easy Steps for Freshness"
 description: "Wool sweaters are cozy, stylish, and a must-have for chilly days. But cleaning them can feel tricky and scary—you don’t want to ruin your favorite piece. What i"
 pubDate: 2026-02-20

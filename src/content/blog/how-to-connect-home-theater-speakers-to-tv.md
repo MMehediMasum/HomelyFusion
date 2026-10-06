@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater Speakers to TV: Ultimate Step-by-Step Guide"
 description: "Are you ready to transform your TV watching experience with powerful, clear sound? Connecting your home theater speakers to your TV might seem tricky, but it do"
 pubDate: 2025-10-30

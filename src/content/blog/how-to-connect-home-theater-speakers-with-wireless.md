@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater Speakers With Wireless: Easy Setup Guide"
 description: "Are you ready to transform your living room into an immersive home theater experience without the hassle of tangled wires? Connecting your home theater speakers"
 pubDate: 2026-04-25

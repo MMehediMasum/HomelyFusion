@@ -1,10 +1,14 @@
 ---
-title: "Diy Christmas Stocking Holders: Creative Ideas to Elevate Your Decor"
-description: "Are you ready to add a personal touch to your holiday decorations? DIY Christmas stocking holders are the perfect way to make your mantel festive and unique. Im"
+title: 'Diy Christmas Stocking Holders: Creative Ideas to Elevate Your Decor'
+description: Are you ready to add a personal touch to your holiday decorations? DIY
+  Christmas stocking holders are the perfect way to make your mantel festive and unique.
+  Im
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-stocking-holders&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-stocking-holders&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your holiday decorations? DIY Christmas stocking holders are the perfect way to make your mantel festive and unique.**

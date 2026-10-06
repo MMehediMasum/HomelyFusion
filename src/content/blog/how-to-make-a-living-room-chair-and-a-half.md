@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Chair And a Half: Ultimate DIY Guide"
-description: "Are you looking to add a unique and cozy touch to your living room? Making your own chair and a half can be a rewarding project that transforms your space and s"
+title: 'How to Make a Living Room Chair And a Half: Ultimate DIY Guide'
+description: Are you looking to add a unique and cozy touch to your living room? Making
+  your own chair and a half can be a rewarding project that transforms your space
+  and s
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-and-a-half&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-and-a-half&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a unique and cozy touch to your living room? Making your own chair and a half can be a rewarding project that transforms your space and saves you money.**

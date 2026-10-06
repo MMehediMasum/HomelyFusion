@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Syrup at Home: Easy & Delicious Recipe"
 description: "Have you ever wondered how to bring the sweet, fluffy taste of cotton candy into your own kitchen? Making cotton candy syrup at home is easier than you think, a"
 pubDate: 2026-03-26

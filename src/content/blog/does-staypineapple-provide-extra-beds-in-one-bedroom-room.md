@@ -1,10 +1,14 @@
 ---
-title: "Does Staypineapple Provide Extra Beds in One Bedroom Room? Find Out!"
-description: "Are you planning a stay at Staypineapple and wondering if you can get an extra bed in a one-bedroom room? You want comfort and space for everyone traveling with"
+title: Does Staypineapple Provide Extra Beds in One Bedroom Room? Find Out!
+description: Are you planning a stay at Staypineapple and wondering if you can get
+  an extra bed in a one-bedroom room? You want comfort and space for everyone traveling
+  with
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-staypineapple-provide-extra-beds-in-one-bedroom-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=does-staypineapple-provide-extra-beds-in-one-bedroom-room&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning a stay at Staypineapple and wondering if you can get an extra bed in a one-bedroom room? You want comfort and space for everyone traveling with you, but the details can be confusing.**

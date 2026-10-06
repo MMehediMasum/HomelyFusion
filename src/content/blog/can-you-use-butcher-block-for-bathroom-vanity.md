@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Butcher Block for Bathroom Vanity: Stunning Ideas Revealed"
-description: "Are you wondering if butcher block can be a good choice for your bathroom vanity? You’re not alone. Many people love the warm, natural look of wood but worry ab"
+title: 'Can You Use Butcher Block for Bathroom Vanity: Stunning Ideas Revealed'
+description: Are you wondering if butcher block can be a good choice for your bathroom
+  vanity? You’re not alone. Many people love the warm, natural look of wood but worry
+  ab
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-butcher-block-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-butcher-block-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if butcher block can be a good choice for your bathroom vanity? You’re not alone.**

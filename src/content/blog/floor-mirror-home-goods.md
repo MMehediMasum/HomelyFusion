@@ -1,10 +1,14 @@
 ---
-title: "Floor Mirror Home Goods: Stylish Full-Length Mirrors for Modern Living"
-description: "Floor mirrors add elegance and functionality to any space. They provide a full view for dressing and enhance room aesthetics. Whether you're updating your bedro"
+title: 'Floor Mirror Home Goods: Stylish Full-Length Mirrors for Modern Living'
+description: Floor mirrors add elegance and functionality to any space. They provide
+  a full view for dressing and enhance room aesthetics. Whether you're updating your
+  bedro
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=floor-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Floor mirrors add elegance and functionality to any space. They provide a full view for dressing and enhance room aesthetics.**

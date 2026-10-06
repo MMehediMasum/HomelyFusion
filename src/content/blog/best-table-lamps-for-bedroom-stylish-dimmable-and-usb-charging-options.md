@@ -1,10 +1,14 @@
 ---
-title: "Best Table Lamps for Bedroom: Stylish, Dimmable, and USB Charging Options"
-description: "Choosing the best table lamp for your bedroom can brighten your space and improve comfort. A good lamp adds style, light, and useful features like USB ports or "
+title: 'Best Table Lamps for Bedroom: Stylish, Dimmable, and USB Charging Options'
+description: 'Choosing the best table lamp for your bedroom can brighten your space
+  and improve comfort. A good lamp adds style, light, and useful features like USB
+  ports or '
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-table-lamps-for-bedroom-stylish-dimmable-and-usb-charging-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-table-lamps-for-bedroom-stylish-dimmable-and-usb-charging-options&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best table lamp for your bedroom can brighten your space and improve comfort. A good lamp adds style, light, and useful features like USB ports or dimmers.**

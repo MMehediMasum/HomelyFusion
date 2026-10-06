@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Gray Walls: Top Picks for Style and Function"
-description: "Choosing the best curtains for gray walls can brighten and soften any room. Gray walls offer a calm, modern backdrop that pairs well with many curtain styles. G"
+title: 'Best Curtains for Gray Walls: Top Picks for Style and Function'
+description: Choosing the best curtains for gray walls can brighten and soften any
+  room. Gray walls offer a calm, modern backdrop that pairs well with many curtain
+  styles. G
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-gray-walls-top-picks-for-style-and-function&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-gray-walls-top-picks-for-style-and-function&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for gray walls can brighten and soften any room. Gray walls offer a calm, modern backdrop that pairs well with many curtain styles.**

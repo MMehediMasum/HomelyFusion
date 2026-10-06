@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Desk Lamps: Stylish, Functional Lighting for Every Workspace"
-description: "Finding the perfect desk lamp can transform your workspace. A well-chosen lamp enhances both functionality and style in any room. Desk lamps are essential for c"
+title: 'Home Goods Desk Lamps: Stylish, Functional Lighting for Every Workspace'
+description: Finding the perfect desk lamp can transform your workspace. A well-chosen
+  lamp enhances both functionality and style in any room. Desk lamps are essential
+  for c
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-desk-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-desk-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Finding the perfect desk lamp can transform your workspace. A well-chosen lamp enhances both functionality and style in any room.**

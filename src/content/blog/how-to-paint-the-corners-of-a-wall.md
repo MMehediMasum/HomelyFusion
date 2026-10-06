@@ -1,10 +1,14 @@
 ---
-title: "How to Paint the Corners of a Wall: Expert Tips for Perfect Edges"
-description: "Painting the corners of a wall can be tricky. You want clean lines, no drips, and a smooth finish. If you’ve ever struggled with messy edges or uneven paint in "
+title: 'How to Paint the Corners of a Wall: Expert Tips for Perfect Edges'
+description: 'Painting the corners of a wall can be tricky. You want clean lines,
+  no drips, and a smooth finish. If you’ve ever struggled with messy edges or uneven
+  paint in '
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-the-corners-of-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-the-corners-of-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Painting the corners of a wall can be tricky. You want clean lines, no drips, and a smooth finish.**

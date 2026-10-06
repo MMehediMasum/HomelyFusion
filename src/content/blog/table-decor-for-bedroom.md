@@ -1,10 +1,14 @@
 ---
-title: "Table Decor for Bedroom: Stylish Essentials to Elevate Your Space"
-description: "Creating a cozy and stylish bedroom involves more than just choosing the right furniture. Thoughtful table decor can transform your space into a personal haven."
+title: 'Table Decor for Bedroom: Stylish Essentials to Elevate Your Space'
+description: Creating a cozy and stylish bedroom involves more than just choosing
+  the right furniture. Thoughtful table decor can transform your space into a personal
+  haven.
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-decor-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=table-decor-for-bedroom&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a cozy and stylish bedroom involves more than just choosing the right furniture. Thoughtful table decor can transform your space into a personal haven.**

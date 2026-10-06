@@ -1,10 +1,14 @@
 ---
-title: "Diy Hot Chocolate Christmas Gifts: Cozy, Creative & Easy Ideas"
-description: "Looking for a gift that feels personal, warm, and delicious all at once? Your search ends here. DIY hot chocolate Christmas gifts are the perfect way to show yo"
+title: 'Diy Hot Chocolate Christmas Gifts: Cozy, Creative & Easy Ideas'
+description: Looking for a gift that feels personal, warm, and delicious all at once?
+  Your search ends here. DIY hot chocolate Christmas gifts are the perfect way to
+  show yo
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-hot-chocolate-christmas-gifts&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-hot-chocolate-christmas-gifts&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a gift that feels personal, warm, and delicious all at once? Your search ends here.**

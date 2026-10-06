@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Desk Ideas: Stylish and Functional Desks for Every Space"
-description: "Finding the perfect desk for your home office can transform your workspace. It should blend style with functionality. A good desk can enhance productivity while"
+title: 'Home Goods Desk Ideas: Stylish and Functional Desks for Every Space'
+description: Finding the perfect desk for your home office can transform your workspace.
+  It should blend style with functionality. A good desk can enhance productivity while
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect desk for your home office can transform your workspace. It should blend style with functionality.**

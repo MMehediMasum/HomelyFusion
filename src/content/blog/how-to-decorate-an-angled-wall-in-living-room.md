@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Angled Wall in Living Room: Stunning Ideas"
-description: "An angled wall in your living room can feel tricky to decorate. You might wonder how to make it look stylish without overpowering the space. But what if this un"
+title: 'How to Decorate an Angled Wall in Living Room: Stunning Ideas'
+description: An angled wall in your living room can feel tricky to decorate. You might
+  wonder how to make it look stylish without overpowering the space. But what if this
+  un
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-angled-wall-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-angled-wall-in-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **An angled wall in your living room can feel tricky to decorate. You might wonder how to make it look stylish without overpowering the space.**

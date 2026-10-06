@@ -1,10 +1,13 @@
 ---
-title: "Home Decor Lights Indoor: Stunning LED String Lights for Every Room"
-description: "Indoor home decor lights transform spaces into cozy and inviting sanctuaries. Perfect for any occasion or holiday. Decorative lighting elevates the ambiance of "
+title: 'Home Decor Lights Indoor: Stunning LED String Lights for Every Room'
+description: 'Indoor home decor lights transform spaces into cozy and inviting sanctuaries.
+  Perfect for any occasion or holiday. Decorative lighting elevates the ambiance of '
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-lights-indoor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-lights-indoor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Indoor home decor lights transform spaces into cozy and inviting sanctuaries. Perfect for any occasion or holiday.**

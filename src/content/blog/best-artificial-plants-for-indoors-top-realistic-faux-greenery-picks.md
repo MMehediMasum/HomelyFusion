@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Plants for Indoors: Top Realistic Faux Greenery Picks"
-description: "Artificial plants bring life to indoor spaces without the need for sunlight or watering. They offer a simple way to brighten any room and add natural beauty. Ch"
+title: 'Best Artificial Plants for Indoors: Top Realistic Faux Greenery Picks'
+description: Artificial plants bring life to indoor spaces without the need for sunlight
+  or watering. They offer a simple way to brighten any room and add natural beauty.
+  Ch
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-plants-for-indoors-top-realistic-faux-greenery-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-plants-for-indoors-top-realistic-faux-greenery-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial plants bring life to indoor spaces without the need for sunlight or watering. They offer a simple way to brighten any room and add natural beauty.**

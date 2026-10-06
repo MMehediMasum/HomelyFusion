@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Mantel With a Mirror: Stunning Tips & Tricks"
-description: "Your mantel is the perfect spot to showcase your style and personality. Adding a mirror can instantly brighten the room, create a sense of space, and become a s"
+title: 'How to Decorate a Mantel With a Mirror: Stunning Tips & Tricks'
+description: Your mantel is the perfect spot to showcase your style and personality.
+  Adding a mirror can instantly brighten the room, create a sense of space, and become
+  a s
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mantel-with-a-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mantel-with-a-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your mantel is the perfect spot to showcase your style and personality. Adding a mirror can instantly brighten the room, create a sense of space, and become a stunning focal point.**

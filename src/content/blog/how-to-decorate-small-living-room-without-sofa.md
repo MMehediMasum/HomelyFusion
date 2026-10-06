@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Living Room Without Sofa: Stylish Space Hacks"
-description: "Your small living room doesn’t have to feel cramped or dull just because you don’t have a sofa. In fact, skipping the sofa can open up exciting new ways to make"
+title: 'How to Decorate Small Living Room Without Sofa: Stylish Space Hacks'
+description: Your small living room doesn’t have to feel cramped or dull just because
+  you don’t have a sofa. In fact, skipping the sofa can open up exciting new ways
+  to make
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-without-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-without-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your small living room doesn’t have to feel cramped or dull just because you don’t have a sofa. In fact, skipping the sofa can open up exciting new ways to make your space look stylish and inviting.**

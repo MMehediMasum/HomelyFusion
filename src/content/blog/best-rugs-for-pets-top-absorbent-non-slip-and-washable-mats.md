@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Pets: Top Absorbent, Non-Slip, and Washable Mats"
-description: "Choosing the best rugs for pets helps keep your home clean and comfortable. Pet-friendly rugs protect floors from dirt, moisture, and accidents. Pets often brin"
+title: 'Best Rugs for Pets: Top Absorbent, Non-Slip, and Washable Mats'
+description: Choosing the best rugs for pets helps keep your home clean and comfortable.
+  Pet-friendly rugs protect floors from dirt, moisture, and accidents. Pets often
+  brin
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-pets-top-absorbent-non-slip-and-washable-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-pets-top-absorbent-non-slip-and-washable-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for pets helps keep your home clean and comfortable. Pet-friendly rugs protect floors from dirt, moisture, and accidents.**

@@ -1,10 +1,14 @@
 ---
-title: "Decor Accents for Home: Stylish Picks to Transform Any Room Instantly"
-description: "Decor accents add charm and personality to any home space. They make rooms cozy, stylish, and inviting. Small touches like artificial plants, throw pillows, and"
+title: 'Decor Accents for Home: Stylish Picks to Transform Any Room Instantly'
+description: Decor accents add charm and personality to any home space. They make
+  rooms cozy, stylish, and inviting. Small touches like artificial plants, throw pillows,
+  and
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-accents-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-accents-for-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor accents add charm and personality to any home space. They make rooms cozy, stylish, and inviting.**

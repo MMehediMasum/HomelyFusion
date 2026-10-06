@@ -1,10 +1,14 @@
 ---
-title: "Diy Halloween Wall Decor: Spooktacular Ideas to Transform Your Space"
-description: "Looking to transform your space into a spooky Halloween haven without spending a fortune? You’re in the right place. DIY Halloween wall decor is the perfect way"
+title: 'Diy Halloween Wall Decor: Spooktacular Ideas to Transform Your Space'
+description: Looking to transform your space into a spooky Halloween haven without
+  spending a fortune? You’re in the right place. DIY Halloween wall decor is the perfect
+  way
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-halloween-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=diy-halloween-wall-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to transform your space into a spooky Halloween haven without spending a fortune? You’re in the right place.**

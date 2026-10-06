@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Chalkboard Paint Wall: Easy Tips for a Sparkling Finish"
-description: "If you have a chalkboard paint wall, you know how fun and creative it can be. But keeping it clean can feel tricky. Dusty chalk marks and stubborn stains might "
+title: 'How to Clean a Chalkboard Paint Wall: Easy Tips for a Sparkling Finish'
+description: 'If you have a chalkboard paint wall, you know how fun and creative it
+  can be. But keeping it clean can feel tricky. Dusty chalk marks and stubborn stains
+  might '
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-chalkboard-paint-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-chalkboard-paint-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **If you have a chalkboard paint wall, you know how fun and creative it can be. But keeping it clean can feel tricky.**

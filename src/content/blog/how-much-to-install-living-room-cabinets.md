@@ -1,10 +1,14 @@
 ---
-title: "How Much to Install Living Room Cabinets: Ultimate Cost Guide 2025"
-description: "Thinking about adding living room cabinets but wondering how much it will really cost? You’re not alone. Installing cabinets can transform your space, adding st"
+title: 'How Much to Install Living Room Cabinets: Ultimate Cost Guide 2025'
+description: Thinking about adding living room cabinets but wondering how much it
+  will really cost? You’re not alone. Installing cabinets can transform your space,
+  adding st
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-install-living-room-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-install-living-room-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Thinking about adding living room cabinets but wondering how much it will really cost? You’re not alone.**

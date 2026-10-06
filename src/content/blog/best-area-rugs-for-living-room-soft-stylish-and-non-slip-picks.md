@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Living Room: Soft, Stylish, and Non-Slip Picks"
-description: "Choosing the best area rug can transform your living room’s look and feel. A good rug adds warmth, comfort, and style to any space. Area rugs come in many sizes"
+title: 'Best Area Rugs for Living Room: Soft, Stylish, and Non-Slip Picks'
+description: Choosing the best area rug can transform your living room’s look and
+  feel. A good rug adds warmth, comfort, and style to any space. Area rugs come in
+  many sizes
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-living-room-soft-stylish-and-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-living-room-soft-stylish-and-non-slip-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug can transform your living room’s look and feel. A good rug adds warmth, comfort, and style to any space.**

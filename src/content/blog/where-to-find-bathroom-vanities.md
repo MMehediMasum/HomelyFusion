@@ -1,10 +1,14 @@
 ---
-title: "Where to Find Bathroom Vanities: Top Spots for Stylish Choices"
-description: "Looking to upgrade your bathroom with the perfect vanity but not sure where to start? Finding the right bathroom vanity can feel overwhelming with so many style"
+title: 'Where to Find Bathroom Vanities: Top Spots for Stylish Choices'
+description: Looking to upgrade your bathroom with the perfect vanity but not sure
+  where to start? Finding the right bathroom vanity can feel overwhelming with so
+  many style
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-find-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-find-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom with the perfect vanity but not sure where to start? Finding the right bathroom vanity can feel overwhelming with so many styles, sizes, and prices out there.**

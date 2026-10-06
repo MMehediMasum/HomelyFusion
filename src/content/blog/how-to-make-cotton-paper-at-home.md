@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Paper at Home: Easy DIY Craft Guide"
 description: "Have you ever wanted to create your own beautiful, textured paper right at home? Making cotton paper is easier than you might think, and it adds a special touch"
 pubDate: 2026-04-01

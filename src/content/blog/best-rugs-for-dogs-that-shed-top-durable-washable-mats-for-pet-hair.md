@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dogs That Shed: Top Durable, Washable Mats for Pet Hair"
-description: "Dogs that shed can make rugs look messy and dirty quickly. Choosing the right rug helps keep your home cleaner and your dog comfortable. Shedding is a natural p"
+title: 'Best Rugs for Dogs That Shed: Top Durable, Washable Mats for Pet Hair'
+description: Dogs that shed can make rugs look messy and dirty quickly. Choosing the
+  right rug helps keep your home cleaner and your dog comfortable. Shedding is a natural
+  p
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dogs-that-shed-top-durable-washable-mats-for-pet-hair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dogs-that-shed-top-durable-washable-mats-for-pet-hair&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Dogs that shed can make rugs look messy and dirty quickly. Choosing the right rug helps keep your home cleaner and your dog comfortable.**

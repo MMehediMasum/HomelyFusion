@@ -1,10 +1,14 @@
 ---
-title: "How Much Long Sofa Will Fit in Living Room: Expert Space Guide"
-description: "Choosing the right sofa size can make or break the comfort and style of your living room. You might be wondering, “How much long sofa will fit in my living room"
+title: 'How Much Long Sofa Will Fit in Living Room: Expert Space Guide'
+description: Choosing the right sofa size can make or break the comfort and style
+  of your living room. You might be wondering, “How much long sofa will fit in my
+  living room
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-long-sofa-will-fit-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-much-long-sofa-will-fit-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa size can make or break the comfort and style of your living room. You might be wondering, “How much long sofa will fit in my living room?” This question is more important than you think.**

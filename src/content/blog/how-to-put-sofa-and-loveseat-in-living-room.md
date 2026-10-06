@@ -1,10 +1,14 @@
 ---
-title: "How to Put Sofa And Loveseat in Living Room: Expert Layout Tips"
-description: "Are you wondering how to arrange your sofa and loveseat in your living room to create the perfect balance of comfort and style? The way you place your furniture"
+title: 'How to Put Sofa And Loveseat in Living Room: Expert Layout Tips'
+description: Are you wondering how to arrange your sofa and loveseat in your living
+  room to create the perfect balance of comfort and style? The way you place your
+  furniture
 pubDate: 2026-03-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-sofa-and-loveseat-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-sofa-and-loveseat-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange your sofa and loveseat in your living room to create the perfect balance of comfort and style? The way you place your furniture can change the entire feel of your space—making it cozy for family time or inviting for guests.**

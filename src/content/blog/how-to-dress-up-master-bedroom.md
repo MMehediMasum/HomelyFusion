@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Master Bedroom: Stunning Ideas for a Luxe Makeover"
-description: "Your master bedroom is more than just a place to sleep—it’s your personal retreat. How you dress up this space can change the way you feel every day. Imagine wa"
+title: 'How to Dress Up Master Bedroom: Stunning Ideas for a Luxe Makeover'
+description: Your master bedroom is more than just a place to sleep—it’s your personal
+  retreat. How you dress up this space can change the way you feel every day. Imagine
+  wa
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-master-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-master-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your master bedroom is more than just a place to sleep—it’s your personal retreat. How you dress up this space can change the way you feel every day.**

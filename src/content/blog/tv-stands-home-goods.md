@@ -1,10 +1,15 @@
 ---
-title: "Tv Stands Home Goods: Stylish and Functional Entertainment Centers for Every Room"
-description: "Finding the perfect TV stand is crucial for enhancing your living room's functionality and style. Home Goods offers a variety of options to suit different needs"
+title: 'Tv Stands Home Goods: Stylish and Functional Entertainment Centers for Every
+  Room'
+description: Finding the perfect TV stand is crucial for enhancing your living room's
+  functionality and style. Home Goods offers a variety of options to suit different
+  needs
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tv-stands-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=tv-stands-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect TV stand is crucial for enhancing your living room's functionality and style. Home Goods offers a variety of options to suit different needs and preferences.**

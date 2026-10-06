@@ -1,10 +1,14 @@
 ---
-title: "How to Enforce Legs on Living Room Table: Easy DIY Fixes"
-description: "Is your living room table feeling a bit wobbly or weak? You’re not alone. A sturdy table can make a huge difference in how comfortable and functional your space"
+title: 'How to Enforce Legs on Living Room Table: Easy DIY Fixes'
+description: Is your living room table feeling a bit wobbly or weak? You’re not alone.
+  A sturdy table can make a huge difference in how comfortable and functional your
+  space
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-enforce-legs-on-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-enforce-legs-on-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room table feeling a bit wobbly or weak? You’re not alone.**

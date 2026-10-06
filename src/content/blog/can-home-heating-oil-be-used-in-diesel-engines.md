@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home Heating Oil Be Used in Diesel Engines? Expert Insights"
 description: "Have you ever wondered if the home heating oil in your tank could power your diesel engine? It sounds like a simple way to save money or make use of what you al"
 pubDate: 2026-04-12

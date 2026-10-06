@@ -1,10 +1,14 @@
 ---
-title: "H And M Blanket: Soft, Cozy, and Stylish Throw for Every Living Room"
-description: "H And M blankets offer warmth and comfort for your home. These soft, cozy throws suit sofas and living rooms perfectly. H And M blankets come in various styles "
+title: 'H And M Blanket: Soft, Cozy, and Stylish Throw for Every Living Room'
+description: 'H And M blankets offer warmth and comfort for your home. These soft,
+  cozy throws suit sofas and living rooms perfectly. H And M blankets come in various
+  styles '
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=h-and-m-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=h-and-m-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **H And M blankets offer warmth and comfort for your home. These soft, cozy throws suit sofas and living rooms perfectly.**

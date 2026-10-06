@@ -1,10 +1,14 @@
 ---
-title: "Table Lamps Home Goods: Stylish & Functional Lamps for Every Room"
-description: "Table lamps are an essential part of home decor and functionality. They provide light and add style to your living space. Choosing the right table lamp can tran"
+title: 'Table Lamps Home Goods: Stylish & Functional Lamps for Every Room'
+description: Table lamps are an essential part of home decor and functionality. They
+  provide light and add style to your living space. Choosing the right table lamp
+  can tran
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=table-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Table lamps are an essential part of home decor and functionality. They provide light and add style to your living space.**

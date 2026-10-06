@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Does Bedroom Need Wardrobe to Be Considered Bedroom Nz? Expert Insights"
 description: "Have you ever wondered what really makes a room a bedroom in New Zealand? Is it just the bed, or does a wardrobe have to be part of the space for it to count? I"
 pubDate: 2025-10-15

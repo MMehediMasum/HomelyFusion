@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Pillar Candles: Top Trusted Stores Revealed"
-description: "Are you looking to add a warm, cozy glow to your home or a special event? Pillar candles are the perfect choice, but finding the right place to buy them can be "
+title: 'Where to Buy Pillar Candles: Top Trusted Stores Revealed'
+description: 'Are you looking to add a warm, cozy glow to your home or a special event?
+  Pillar candles are the perfect choice, but finding the right place to buy them can
+  be '
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-pillar-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-pillar-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to add a warm, cozy glow to your home or a special event? Pillar candles are the perfect choice, but finding the right place to buy them can be tricky.**

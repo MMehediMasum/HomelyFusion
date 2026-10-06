@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Home Theater Ideas to Elevate Your Movie Room Style"
-description: "Wall decor can transform any home theater into a cozy, stylish space. Choosing the right art sets the mood and enhances your viewing experience. Home theaters b"
+title: Wall Decor Home Theater Ideas to Elevate Your Movie Room Style
+description: Wall decor can transform any home theater into a cozy, stylish space.
+  Choosing the right art sets the mood and enhances your viewing experience. Home
+  theaters b
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-home-theater&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-home-theater&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor can transform any home theater into a cozy, stylish space. Choosing the right art sets the mood and enhances your viewing experience.**

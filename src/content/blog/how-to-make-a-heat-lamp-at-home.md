@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Heat Lamp at Home: Easy DIY Guide for Warmth"
-description: "Are you looking for a simple way to keep your space warm without spending a lot? Making a heat lamp at home could be exactly what you need. Imagine having a coz"
+title: 'How to Make a Heat Lamp at Home: Easy DIY Guide for Warmth'
+description: Are you looking for a simple way to keep your space warm without spending
+  a lot? Making a heat lamp at home could be exactly what you need. Imagine having
+  a coz
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-heat-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-heat-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking for a simple way to keep your space warm without spending a lot? Making a heat lamp at home could be exactly what you need.**

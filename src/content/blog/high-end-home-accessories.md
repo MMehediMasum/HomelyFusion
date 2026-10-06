@@ -1,10 +1,14 @@
 ---
-title: "High End Home Accessories to Elevate Your Living Space Elegantly"
-description: "High end home accessories add style and comfort to any living space. These carefully chosen items blend luxury with everyday use. Quality candles like Craft & K"
+title: High End Home Accessories to Elevate Your Living Space Elegantly
+description: High end home accessories add style and comfort to any living space.
+  These carefully chosen items blend luxury with everyday use. Quality candles like
+  Craft & K
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=high-end-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=high-end-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **High end home accessories add style and comfort to any living space. These carefully chosen items blend luxury with everyday use.**

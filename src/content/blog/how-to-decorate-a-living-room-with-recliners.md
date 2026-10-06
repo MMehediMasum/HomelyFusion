@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Recliners: Stylish Comfort Tips"
-description: "Your living room should be your favorite place to relax and unwind. Imagine sinking into a cozy recliner after a long day, feeling completely at ease. But how d"
+title: 'How to Decorate a Living Room With Recliners: Stylish Comfort Tips'
+description: Your living room should be your favorite place to relax and unwind. Imagine
+  sinking into a cozy recliner after a long day, feeling completely at ease. But how
+  d
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-recliners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-recliners&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room should be your favorite place to relax and unwind. Imagine sinking into a cozy recliner after a long day, feeling completely at ease.**

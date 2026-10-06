@@ -1,10 +1,14 @@
 ---
-title: "Artificial Trees for Home Decor: Transform Your Space with Lifelike Greenery"
-description: "Artificial trees bring a touch of nature indoors without the hassle of maintenance. These lifelike plants offer style and elegance. Decorating your home with ar"
+title: 'Artificial Trees for Home Decor: Transform Your Space with Lifelike Greenery'
+description: Artificial trees bring a touch of nature indoors without the hassle of
+  maintenance. These lifelike plants offer style and elegance. Decorating your home
+  with ar
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=artificial-trees-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=artificial-trees-for-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial trees bring a touch of nature indoors without the hassle of maintenance. These lifelike plants offer style and elegance.**

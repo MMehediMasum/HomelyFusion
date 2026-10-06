@@ -1,10 +1,14 @@
 ---
-title: "Should Day Bed Be in Bedroom: Stylish Comfort Tips Revealed"
-description: "Have you ever wondered if a day bed belongs in your bedroom? Choosing the right furniture can change how your room feels and functions. A day bed isn’t just a p"
+title: 'Should Day Bed Be in Bedroom: Stylish Comfort Tips Revealed'
+description: Have you ever wondered if a day bed belongs in your bedroom? Choosing
+  the right furniture can change how your room feels and functions. A day bed isn’t
+  just a p
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-day-bed-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=should-day-bed-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if a day bed belongs in your bedroom? Choosing the right furniture can change how your room feels and functions.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Miami: Top Stylish Rugs, Lamps & Wall Art for Homes"
-description: "Floor Decor Miami offers stylish and functional pieces that brighten any space. From rugs to neon signs, each item reflects Miami’s vibrant culture. This collec"
+title: 'Floor Decor Miami: Top Stylish Rugs, Lamps & Wall Art for Homes'
+description: Floor Decor Miami offers stylish and functional pieces that brighten
+  any space. From rugs to neon signs, each item reflects Miami’s vibrant culture.
+  This collec
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-miami&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-miami&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor Miami offers stylish and functional pieces that brighten any space. From rugs to neon signs, each item reflects Miami’s vibrant culture.**

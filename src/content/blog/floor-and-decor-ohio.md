@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Ohio: Transform Your Space with Buckeye Pride Rugs"
 description: "Floor And Decor Ohio offers a variety of home decor items featuring Ohio-themed designs. These products help celebrate Ohio pride with style and function. This "
 pubDate: 2026-07-12

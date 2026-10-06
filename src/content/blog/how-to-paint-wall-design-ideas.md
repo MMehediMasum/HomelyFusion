@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Wall Design Ideas: Stunning Tips for a Stylish Home"
-description: "Looking to refresh your space without a full renovation? Painting your walls with creative designs can transform any room instantly. You don’t need to be an exp"
+title: 'How to Paint Wall Design Ideas: Stunning Tips for a Stylish Home'
+description: Looking to refresh your space without a full renovation? Painting your
+  walls with creative designs can transform any room instantly. You don’t need to
+  be an exp
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-wall-design-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-wall-design-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to refresh your space without a full renovation? Painting your walls with creative designs can transform any room instantly.**

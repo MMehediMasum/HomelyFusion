@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Living Room: Ultra Soft, Washable, and Non-Slip Picks"
-description: "Choosing the best rug for your living room can change the entire look and feel of the space. A good rug adds comfort, style, and warmth to your home. Rugs come "
+title: 'Best Rug for Living Room: Ultra Soft, Washable, and Non-Slip Picks'
+description: 'Choosing the best rug for your living room can change the entire look
+  and feel of the space. A good rug adds comfort, style, and warmth to your home.
+  Rugs come '
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-living-room-ultra-soft-washable-and-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-living-room-ultra-soft-washable-and-non-slip-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your living room can change the entire look and feel of the space. A good rug adds comfort, style, and warmth to your home.**

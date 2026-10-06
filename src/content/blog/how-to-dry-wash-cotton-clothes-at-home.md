@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Wash Cotton Clothes at Home: Easy & Effective Tips"
 description: "Are you worried about shrinking or damaging your favorite cotton clothes every time you wash them? What if you could keep them fresh and clean without using wat"
 pubDate: 2026-02-05

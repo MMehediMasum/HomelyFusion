@@ -1,10 +1,14 @@
 ---
-title: "Winter Holiday Charcuterie Board: Ultimate Festive Entertaining Guide"
-description: "Imagine your next winter holiday gathering filled with laughter, warmth, and a stunning charcuterie board that steals the show. You want your guests to feel wel"
+title: 'Winter Holiday Charcuterie Board: Ultimate Festive Entertaining Guide'
+description: Imagine your next winter holiday gathering filled with laughter, warmth,
+  and a stunning charcuterie board that steals the show. You want your guests to feel
+  wel
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=winter-holiday-charcuterie-board&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=winter-holiday-charcuterie-board&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine your next winter holiday gathering filled with laughter, warmth, and a stunning charcuterie board that steals the show. You want your guests to feel welcome and impressed without spending hours in the kitchen.**

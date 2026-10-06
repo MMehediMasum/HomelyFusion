@@ -1,10 +1,14 @@
 ---
-title: "What Direction Should Bed Face in Bedroom: Ultimate Guide for Perfect Sleep"
-description: "Have you ever wondered if the direction your bed faces could affect your sleep and well-being? The way your bed is positioned in your bedroom might seem simple,"
+title: 'What Direction Should Bed Face in Bedroom: Ultimate Guide for Perfect Sleep'
+description: Have you ever wondered if the direction your bed faces could affect your
+  sleep and well-being? The way your bed is positioned in your bedroom might seem
+  simple,
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-direction-should-bed-face-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-direction-should-bed-face-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if the direction your bed faces could affect your sleep and well-being? The way your bed is positioned in your bedroom might seem simple, but it can actually make a big difference in how rested and energized you feel.**

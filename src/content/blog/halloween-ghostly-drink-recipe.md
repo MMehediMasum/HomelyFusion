@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Ghostly Drink Recipe: Spooktacular & Easy to Make!"
 description: "Looking to add a spooky twist to your Halloween party? You’re in the right place. This Halloween ghostly drink recipe is easy to make, fun to serve, and sure to"
 pubDate: 2025-10-15

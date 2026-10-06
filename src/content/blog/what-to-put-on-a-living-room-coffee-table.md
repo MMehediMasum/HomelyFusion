@@ -1,10 +1,14 @@
 ---
-title: "What to Put on a Living Room Coffee Table: Stylish & Functional Ideas"
-description: "Your living room coffee table is more than just a spot to rest your cup of coffee. It’s the centerpiece of your space, a place that reflects your style and pers"
+title: 'What to Put on a Living Room Coffee Table: Stylish & Functional Ideas'
+description: Your living room coffee table is more than just a spot to rest your cup
+  of coffee. It’s the centerpiece of your space, a place that reflects your style
+  and pers
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-a-living-room-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-a-living-room-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room coffee table is more than just a spot to rest your cup of coffee. It’s the centerpiece of your space, a place that reflects your style and personality.**

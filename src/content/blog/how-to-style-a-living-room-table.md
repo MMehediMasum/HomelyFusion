@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Living Room Table: Stunning Tips for Instant Charm"
-description: "Your living room table is more than just a piece of furniture—it’s the heart of your space. Styling it the right way can transform the entire room, making it fe"
+title: 'How to Style a Living Room Table: Stunning Tips for Instant Charm'
+description: Your living room table is more than just a piece of furniture—it’s the
+  heart of your space. Styling it the right way can transform the entire room, making
+  it fe
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the heart of your space. Styling it the right way can transform the entire room, making it feel cozy, stylish, and inviting.**

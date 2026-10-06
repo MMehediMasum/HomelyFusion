@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Rectangular Living Room Tables: Stylish & Functional Tips"
-description: "Are you struggling to find the perfect way to arrange your rectangular living room table? You’re not alone. Getting the layout just right can transform your spa"
+title: 'How to Arrange Rectangular Living Room Tables: Stylish & Functional Tips'
+description: Are you struggling to find the perfect way to arrange your rectangular
+  living room table? You’re not alone. Getting the layout just right can transform
+  your spa
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-rectangular-living-room-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-rectangular-living-room-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect way to arrange your rectangular living room table? You’re not alone.**

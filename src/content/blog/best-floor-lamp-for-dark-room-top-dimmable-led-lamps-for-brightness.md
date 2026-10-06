@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamp for Dark Room: Top Dimmable LED Lamps for Brightness"
-description: "Dark rooms need bright, adjustable lighting to feel warm and inviting. The best floor lamps combine style, brightness, and ease of use. Choosing the right floor"
+title: 'Best Floor Lamp for Dark Room: Top Dimmable LED Lamps for Brightness'
+description: Dark rooms need bright, adjustable lighting to feel warm and inviting.
+  The best floor lamps combine style, brightness, and ease of use. Choosing the right
+  floor
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamp-for-dark-room-top-dimmable-led-lamps-for-brightness&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamp-for-dark-room-top-dimmable-led-lamps-for-brightness&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Dark rooms need bright, adjustable lighting to feel warm and inviting. The best floor lamps combine style, brightness, and ease of use.**

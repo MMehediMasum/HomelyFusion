@@ -1,10 +1,14 @@
 ---
-title: "What Do You Store in Living Room Cabinet: Smart & Stylish Ideas"
-description: "Have you ever wondered what to keep in your living room cabinet? It’s more than just a piece of furniture—it can hold your favorite things, keep your space tidy"
+title: 'What Do You Store in Living Room Cabinet: Smart & Stylish Ideas'
+description: Have you ever wondered what to keep in your living room cabinet? It’s
+  more than just a piece of furniture—it can hold your favorite things, keep your
+  space tidy
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-store-in-living-room-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-store-in-living-room-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered what to keep in your living room cabinet? It’s more than just a piece of furniture—it can hold your favorite things, keep your space tidy, and even add style to your home.**

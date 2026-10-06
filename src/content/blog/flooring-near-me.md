@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Near Me: Top Peel & Stick Vinyl Tiles for Easy DIY Upgrades"
 description: "Finding quality flooring near me can be simple and affordable. Many peel-and-stick options suit different rooms and styles. Peel-and-stick vinyl floor tiles off"
 pubDate: 2026-07-29

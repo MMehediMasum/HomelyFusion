@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Diesel Engine Run on Home Heating Oil? Surprising Facts Revealed"
 description: "Have you ever wondered if your diesel engine could run on home heating oil? It sounds like a smart way to save money or find fuel when diesel isn’t available. B"
 pubDate: 2025-10-15

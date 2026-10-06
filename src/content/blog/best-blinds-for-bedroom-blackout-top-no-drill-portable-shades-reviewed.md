@@ -1,10 +1,14 @@
 ---
-title: "Best Blinds for Bedroom Blackout: Top No-Drill & Portable Shades Reviewed"
-description: "Finding the best blinds for bedroom blackout helps create a dark, restful space. Blackout blinds block sunlight and improve sleep quality. Choosing the right bl"
+title: 'Best Blinds for Bedroom Blackout: Top No-Drill & Portable Shades Reviewed'
+description: Finding the best blinds for bedroom blackout helps create a dark, restful
+  space. Blackout blinds block sunlight and improve sleep quality. Choosing the right
+  bl
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blinds-for-bedroom-blackout-top-no-drill-portable-shades-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=best-blinds-for-bedroom-blackout-top-no-drill-portable-shades-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best blinds for bedroom blackout helps create a dark, restful space. Blackout blinds block sunlight and improve sleep quality.**

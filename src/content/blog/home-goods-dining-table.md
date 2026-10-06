@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Dining Table Ideas: Space-Saving, Stylish, and Functional Picks"
-description: "A dining table is more than just a piece of furniture. It’s the heart of your dining space. Finding the right table can transform everyday meals into special ga"
+title: 'Home Goods Dining Table Ideas: Space-Saving, Stylish, and Functional Picks'
+description: A dining table is more than just a piece of furniture. It’s the heart
+  of your dining space. Finding the right table can transform everyday meals into
+  special ga
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-dining-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A dining table is more than just a piece of furniture. It’s the heart of your dining space.**

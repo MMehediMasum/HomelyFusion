@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Rugs: Top Soft, Washable, and Stylish Indoor Options"
-description: "Floor and Decor rugs offer a variety of styles and sizes for every room. These rugs combine comfort, durability, and easy care. Choose from soft, machine-washab"
+title: 'Floor And Decor Rugs: Top Soft, Washable, and Stylish Indoor Options'
+description: Floor and Decor rugs offer a variety of styles and sizes for every room.
+  These rugs combine comfort, durability, and easy care. Choose from soft, machine-washab
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor rugs offer a variety of styles and sizes for every room. These rugs combine comfort, durability, and easy care.**

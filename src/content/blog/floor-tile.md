@@ -1,10 +1,14 @@
 ---
-title: "Floor Tile Peel and Stick Options for Easy DIY Home Flooring Upgrades"
-description: "Floor tiles offer a simple way to improve any room’s look and feel. They come in many styles, colors, and materials to fit different needs. Choosing the right f"
+title: Floor Tile Peel and Stick Options for Easy DIY Home Flooring Upgrades
+description: Floor tiles offer a simple way to improve any room’s look and feel. They
+  come in many styles, colors, and materials to fit different needs. Choosing the
+  right f
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor tiles offer a simple way to improve any room’s look and feel. They come in many styles, colors, and materials to fit different needs.**

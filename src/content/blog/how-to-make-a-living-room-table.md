@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Table: Easy DIY Ideas for Beginners"
-description: "Are you tired of searching for the perfect living room table that fits your style and budget? What if you could create one yourself—something unique, sturdy, an"
+title: 'How to Make a Living Room Table: Easy DIY Ideas for Beginners'
+description: Are you tired of searching for the perfect living room table that fits
+  your style and budget? What if you could create one yourself—something unique, sturdy,
+  an
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of searching for the perfect living room table that fits your style and budget? What if you could create one yourself—something unique, sturdy, and exactly how you want it?**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Laminate Flooring Retailers: Top Products for Easy DIY Installation and Protection"
 description: "Choosing the right laminate flooring retailer can be daunting. Many options offer quality products that suit various needs. Laminate flooring retailers provide "
 pubDate: 2026-08-08

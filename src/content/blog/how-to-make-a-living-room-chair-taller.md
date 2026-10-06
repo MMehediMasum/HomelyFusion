@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Chair Taller: Easy DIY Hacks"
-description: "Is your living room chair feeling a bit too low? Maybe you find yourself constantly adjusting to get comfortable or struggling to sit at the right height. What "
+title: 'How to Make a Living Room Chair Taller: Easy DIY Hacks'
+description: 'Is your living room chair feeling a bit too low? Maybe you find yourself
+  constantly adjusting to get comfortable or struggling to sit at the right height.
+  What '
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-taller&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-taller&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your living room chair feeling a bit too low? Maybe you find yourself constantly adjusting to get comfortable or struggling to sit at the right height.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Dress Triple Master Bedroom Window: Stylish & Easy Ideas"
-description: "Your triple master bedroom window is a stunning feature that can transform the entire look of your room. But dressing it can feel overwhelming—how do you balanc"
+title: 'How to Dress Triple Master Bedroom Window: Stylish & Easy Ideas'
+description: Your triple master bedroom window is a stunning feature that can transform
+  the entire look of your room. But dressing it can feel overwhelming—how do you balanc
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-triple-master-bedroom-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-triple-master-bedroom-window&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your triple master bedroom window is a stunning feature that can transform the entire look of your room. But dressing it can feel overwhelming—how do you balance style, privacy, and light control without making the space look cluttered or dull?**

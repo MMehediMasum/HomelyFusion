@@ -1,10 +1,14 @@
 ---
-title: "Coastal Collection Pillows Home Goods: Stylish Coastal Decor for Every Room"
-description: "Transform your living space into a coastal paradise with our Coastal Collection Pillows. These uniquely designed pillows bring ocean-inspired charm to any room."
+title: 'Coastal Collection Pillows Home Goods: Stylish Coastal Decor for Every Room'
+description: Transform your living space into a coastal paradise with our Coastal
+  Collection Pillows. These uniquely designed pillows bring ocean-inspired charm to
+  any room.
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coastal-collection-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=coastal-collection-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your living space into a coastal paradise with our Coastal Collection Pillows. These uniquely designed pillows bring ocean-inspired charm to any room.**

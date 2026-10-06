@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Plant Stands: Stylish Solutions to Showcase Your Indoor Garden"
-description: "Home goods plant stands offer a stylish way to display your indoor and outdoor plants. They help organize and showcase greenery while saving floor space. Plant "
+title: 'Home Goods Plant Stands: Stylish Solutions to Showcase Your Indoor Garden'
+description: 'Home goods plant stands offer a stylish way to display your indoor and
+  outdoor plants. They help organize and showcase greenery while saving floor space.
+  Plant '
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-plant-stands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-plant-stands&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods plant stands offer a stylish way to display your indoor and outdoor plants. They help organize and showcase greenery while saving floor space.**

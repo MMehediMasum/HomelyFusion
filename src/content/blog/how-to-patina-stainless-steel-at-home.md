@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Patina Stainless Steel at Home: Easy DIY Techniques Revealed"
 description: "Are you looking to give your stainless steel items a unique, aged look without spending a fortune? Patina can transform plain stainless steel into a piece full "
 pubDate: 2026-02-14

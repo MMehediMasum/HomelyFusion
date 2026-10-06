@@ -1,10 +1,14 @@
 ---
-title: "Will 12X15 Bedroom Fit King Size Bed: Ultimate Space Guide"
-description: "Are you wondering if your 12x15 bedroom can comfortably fit a king size bed? Choosing the right bed size is more than just a measurement—it's about creating a s"
+title: 'Will 12X15 Bedroom Fit King Size Bed: Ultimate Space Guide'
+description: Are you wondering if your 12x15 bedroom can comfortably fit a king size
+  bed? Choosing the right bed size is more than just a measurement—it's about creating
+  a s
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-12x15-bedroom-fit-king-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=will-12x15-bedroom-fit-king-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if your 12x15 bedroom can comfortably fit a king size bed? Choosing the right bed size is more than just a measurement—it's about creating a space where you can relax and sleep soundly.**

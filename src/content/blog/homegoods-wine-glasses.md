@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Wine Glasses: Elegant Sets for Parties, Gifts, and Daily Use"
-description: "Exploring the perfect wine glasses can elevate your drinking experience. Homegoods offers a diverse range of options for every occasion. Wine glasses are more t"
+title: 'Homegoods Wine Glasses: Elegant Sets for Parties, Gifts, and Daily Use'
+description: Exploring the perfect wine glasses can elevate your drinking experience.
+  Homegoods offers a diverse range of options for every occasion. Wine glasses are
+  more t
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-wine-glasses&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-wine-glasses&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Exploring the perfect wine glasses can elevate your drinking experience. Homegoods offers a diverse range of options for every occasion.**

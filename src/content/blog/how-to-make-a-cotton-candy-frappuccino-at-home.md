@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Cotton Candy Frappuccino at Home: Easy & Delicious!"
 description: "Imagine sipping on a sweet, creamy Cotton Candy Frappuccino without leaving your home. Sounds delicious, right? You don’t need to visit a coffee shop or spend a"
 pubDate: 2026-03-04

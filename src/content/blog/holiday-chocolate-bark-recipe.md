@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Chocolate Bark Recipe: Irresistible Festive Treats to Try"
 description: "Are you ready to create a delicious treat that will impress your friends and family this holiday season? This Holiday Chocolate Bark Recipe is easy, fun, and pe"
 pubDate: 2025-12-19

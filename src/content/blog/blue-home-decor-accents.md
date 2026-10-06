@@ -1,10 +1,14 @@
 ---
-title: "Blue Home Decor Accents to Elevate Your Living Space Elegantly"
-description: "Blue home decor accents bring a touch of serenity and style to any living space. They blend effortlessly into diverse themes, creating a calming atmosphere. Exp"
+title: Blue Home Decor Accents to Elevate Your Living Space Elegantly
+description: Blue home decor accents bring a touch of serenity and style to any living
+  space. They blend effortlessly into diverse themes, creating a calming atmosphere.
+  Exp
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=blue-home-decor-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=blue-home-decor-accents&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Blue home decor accents bring a touch of serenity and style to any living space. They blend effortlessly into diverse themes, creating a calming atmosphere.**

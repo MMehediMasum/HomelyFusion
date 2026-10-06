@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up One Bedroom Apartment: Stylish Tips to Transform Space"
-description: "Living in a one-bedroom apartment doesn’t mean you have to settle for plain or boring. You have the power to turn your space into a stylish, cozy haven that ref"
+title: 'How to Dress Up One Bedroom Apartment: Stylish Tips to Transform Space'
+description: Living in a one-bedroom apartment doesn’t mean you have to settle for
+  plain or boring. You have the power to turn your space into a stylish, cozy haven
+  that ref
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-one-bedroom-apartment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-one-bedroom-apartment&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Living in a one-bedroom apartment doesn’t mean you have to settle for plain or boring. You have the power to turn your space into a stylish, cozy haven that reflects your personality.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Anchor a Freestanding Sofa in Your Living Room: Expert Tips"
-description: "Are you struggling to make your freestanding sofa feel like a natural part of your living room? Placing a sofa in the middle of the room can be tricky, leaving "
+title: 'How to Anchor a Freestanding Sofa in Your Living Room: Expert Tips'
+description: 'Are you struggling to make your freestanding sofa feel like a natural
+  part of your living room? Placing a sofa in the middle of the room can be tricky,
+  leaving '
 pubDate: 2026-04-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-anchor-a-freestanding-sofa-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-anchor-a-freestanding-sofa-in-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to make your freestanding sofa feel like a natural part of your living room? Placing a sofa in the middle of the room can be tricky, leaving your space feeling disconnected or awkward.**

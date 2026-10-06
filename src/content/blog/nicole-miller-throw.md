@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Throw: Ultra-Soft Cozy Blankets for Stylish Home Comfort"
-description: "Nicole Miller throw blankets offer style and comfort for any space. These throws enhance your home with their unique designs. Each Nicole Miller throw blanket b"
+title: 'Nicole Miller Throw: Ultra-Soft Cozy Blankets for Stylish Home Comfort'
+description: Nicole Miller throw blankets offer style and comfort for any space. These
+  throws enhance your home with their unique designs. Each Nicole Miller throw blanket
+  b
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-throw&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-throw&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Nicole Miller throw blankets offer style and comfort for any space. These throws enhance your home with their unique designs.**

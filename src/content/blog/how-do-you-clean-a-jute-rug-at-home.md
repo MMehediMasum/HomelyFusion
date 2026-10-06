@@ -1,10 +1,13 @@
 ---
-title: "How Do You Clean a Jute Rug at Home: Easy Tips & Tricks"
-description: "You love your jute rug—it adds warmth and style to your home. But cleaning it? That can feel tricky. You might worry about damaging the fibers or making stains "
+title: 'How Do You Clean a Jute Rug at Home: Easy Tips & Tricks'
+description: 'You love your jute rug—it adds warmth and style to your home. But cleaning
+  it? That can feel tricky. You might worry about damaging the fibers or making stains '
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-clean-a-jute-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-clean-a-jute-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **You love your jute rug—it adds warmth and style to your home. But cleaning it?**

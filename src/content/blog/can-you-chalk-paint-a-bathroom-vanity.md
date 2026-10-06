@@ -1,10 +1,14 @@
 ---
-title: "Can You Chalk Paint a Bathroom Vanity: Easy DIY Transformation Tips"
-description: "Are you tired of your bathroom vanity looking dull and outdated? You might be wondering if chalk paint is the right solution to give it a fresh, stylish makeove"
+title: 'Can You Chalk Paint a Bathroom Vanity: Easy DIY Transformation Tips'
+description: Are you tired of your bathroom vanity looking dull and outdated? You
+  might be wondering if chalk paint is the right solution to give it a fresh, stylish
+  makeove
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-chalk-paint-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-chalk-paint-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your bathroom vanity looking dull and outdated? You might be wondering if chalk paint is the right solution to give it a fresh, stylish makeover.**

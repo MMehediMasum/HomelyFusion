@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay With Home Ingredients: Easy DIY Guide"
-description: "Have you ever wanted to create your own clay at home without buying expensive kits? Making clay with simple ingredients you already have can be fun, easy, and r"
+title: 'How to Make Clay With Home Ingredients: Easy DIY Guide'
+description: Have you ever wanted to create your own clay at home without buying expensive
+  kits? Making clay with simple ingredients you already have can be fun, easy, and
+  r
 pubDate: 2026-02-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-with-home-ingredients&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-with-home-ingredients&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay at home without buying expensive kits? Making clay with simple ingredients you already have can be fun, easy, and rewarding.**

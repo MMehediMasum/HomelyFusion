@@ -1,10 +1,13 @@
 ---
-title: "How Tall Should Living Room Side Tables Be: Perfect Height Guide"
-description: "When it comes to designing your living room, every detail matters—especially the side tables. You might not realize it, but the height of your living room side "
+title: 'How Tall Should Living Room Side Tables Be: Perfect Height Guide'
+description: 'When it comes to designing your living room, every detail matters—especially
+  the side tables. You might not realize it, but the height of your living room side '
 pubDate: 2026-04-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-sjould-living-room-side-tables-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-sjould-living-room-side-tables-be&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **When it comes to designing your living room, every detail matters—especially the side tables. You might not realize it, but the height of your living room side tables can make a big difference in comfort and style.**

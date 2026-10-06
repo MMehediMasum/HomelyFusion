@@ -1,10 +1,13 @@
 ---
-title: "Vinyl Plank Flooring Stores: Top Picks for Easy Peel & Stick Tiles"
-description: "Vinyl plank flooring stores offer many styles and easy installation options for home improvement. Find products like self-adhesive planks, peel-and-stick tiles,"
+title: 'Vinyl Plank Flooring Stores: Top Picks for Easy Peel & Stick Tiles'
+description: Vinyl plank flooring stores offer many styles and easy installation options
+  for home improvement. Find products like self-adhesive planks, peel-and-stick tiles,
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-plank-flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-plank-flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Vinyl plank flooring stores offer many styles and easy installation options for home improvement. Find products like self-adhesive planks, peel-and-stick tiles, and floor cleaners to suit every need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Decor Salt Lake City: Stunning Wall Art & Unique Cityscape Gifts"
 description: "Salt Lake City offers unique home decor that reflects its natural beauty and rich history. From mountain skylines to vintage city posters, these pieces add char"
 pubDate: 2026-06-25

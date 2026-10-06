@@ -1,10 +1,14 @@
 ---
-title: "What is Standard Bathroom Vanity Height: Ultimate Guide Revealed"
-description: "Are you planning to upgrade your bathroom but unsure about the right vanity height? Choosing the correct bathroom vanity height can make a big difference in com"
+title: 'What is Standard Bathroom Vanity Height: Ultimate Guide Revealed'
+description: Are you planning to upgrade your bathroom but unsure about the right
+  vanity height? Choosing the correct bathroom vanity height can make a big difference
+  in com
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-standard-bathroom-vanity-height&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-standard-bathroom-vanity-height&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom but unsure about the right vanity height? Choosing the correct bathroom vanity height can make a big difference in comfort, style, and usability every day.**

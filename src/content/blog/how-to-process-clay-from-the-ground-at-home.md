@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Process Clay from the Ground at Home: Easy Step-by-Step Guide"
 description: "Have you ever wanted to work with clay but didn’t want to buy it from the store? What if you could dig it up from your own backyard and turn it into something a"
 pubDate: 2026-03-28

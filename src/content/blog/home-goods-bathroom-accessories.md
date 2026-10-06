@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bathroom Accessories: Stylish Storage and Cleaning Solutions"
-description: "Transforming your bathroom into a functional, stylish space doesn't require a complete overhaul. Small accessories can make a big impact. Bathrooms are often ov"
+title: 'Home Goods Bathroom Accessories: Stylish Storage and Cleaning Solutions'
+description: Transforming your bathroom into a functional, stylish space doesn't require
+  a complete overhaul. Small accessories can make a big impact. Bathrooms are often
+  ov
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bathroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bathroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transforming your bathroom into a functional, stylish space doesn't require a complete overhaul. Small accessories can make a big impact.**

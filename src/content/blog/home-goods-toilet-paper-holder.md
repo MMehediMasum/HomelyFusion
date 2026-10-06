@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Toilet Paper Holder: Stylish and Durable Bathroom Essentials"
-description: "A good toilet paper holder keeps your bathroom neat and organized. Home goods toilet paper holders come in many styles and materials to fit any decor. Choosing "
+title: 'Home Goods Toilet Paper Holder: Stylish and Durable Bathroom Essentials'
+description: 'A good toilet paper holder keeps your bathroom neat and organized. Home
+  goods toilet paper holders come in many styles and materials to fit any decor. Choosing '
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-toilet-paper-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-toilet-paper-holder&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A good toilet paper holder keeps your bathroom neat and organized. Home goods toilet paper holders come in many styles and materials to fit any decor.**

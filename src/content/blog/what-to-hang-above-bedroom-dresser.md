@@ -1,10 +1,14 @@
 ---
-title: "What to Hang above Bedroom Dresser: Stunning Ideas to Elevate Style"
-description: "Looking for the perfect thing to hang above your bedroom dresser? You’re not alone. That empty space often feels like a missed opportunity to add style and pers"
+title: 'What to Hang above Bedroom Dresser: Stunning Ideas to Elevate Style'
+description: Looking for the perfect thing to hang above your bedroom dresser? You’re
+  not alone. That empty space often feels like a missed opportunity to add style and
+  pers
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-hang-above-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-to-hang-above-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for the perfect thing to hang above your bedroom dresser? You’re not alone.**

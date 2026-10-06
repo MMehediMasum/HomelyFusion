@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange L Shaped Sofa in Small Living Room: Expert Tips"
-description: "Struggling to fit your L shaped sofa into a small living room without making the space feel cramped? You’re not alone. Finding the perfect spot for this popular"
+title: 'How to Arrange L Shaped Sofa in Small Living Room: Expert Tips'
+description: Struggling to fit your L shaped sofa into a small living room without
+  making the space feel cramped? You’re not alone. Finding the perfect spot for this
+  popular
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-l-shaped-sofa-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-l-shaped-sofa-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit your L shaped sofa into a small living room without making the space feel cramped? You’re not alone.**

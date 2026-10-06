@@ -1,10 +1,13 @@
 ---
-title: "Farmhouse Bathroom Vanity Ideas: Stunning Designs for Cozy Charm"
-description: "Your bathroom deserves a touch of charm and warmth that only a farmhouse vanity can bring. Imagine stepping into a space that feels cozy, inviting, and beautifu"
+title: 'Farmhouse Bathroom Vanity Ideas: Stunning Designs for Cozy Charm'
+description: Your bathroom deserves a touch of charm and warmth that only a farmhouse
+  vanity can bring. Imagine stepping into a space that feels cozy, inviting, and beautifu
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=farmhouse-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=farmhouse-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom deserves a touch of charm and warmth that only a farmhouse vanity can bring. Imagine stepping into a space that feels cozy, inviting, and beautifully rustic every single day.**

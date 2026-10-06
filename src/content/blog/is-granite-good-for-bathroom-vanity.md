@@ -1,10 +1,14 @@
 ---
-title: "Is Granite Good for Bathroom Vanity: Ultimate Durability & Style Guide"
-description: "Are you thinking about updating your bathroom vanity and wondering if granite is the right choice? You want a surface that looks stunning, lasts long, and handl"
+title: 'Is Granite Good for Bathroom Vanity: Ultimate Durability & Style Guide'
+description: Are you thinking about updating your bathroom vanity and wondering if
+  granite is the right choice? You want a surface that looks stunning, lasts long,
+  and handl
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-granite-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-granite-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about updating your bathroom vanity and wondering if granite is the right choice? You want a surface that looks stunning, lasts long, and handles daily wear without losing its charm.**

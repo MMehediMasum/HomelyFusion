@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decorating Ideas: Stylish Lamps, Shelves, and Boho Home Accents"
-description: "Furniture decorating transforms plain spaces into cozy, stylish homes. Choosing the right items creates balance and warmth in any room. Decorating with furnitur"
+title: 'Furniture Decorating Ideas: Stylish Lamps, Shelves, and Boho Home Accents'
+description: Furniture decorating transforms plain spaces into cozy, stylish homes.
+  Choosing the right items creates balance and warmth in any room. Decorating with
+  furnitur
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decorating&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decorating&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture decorating transforms plain spaces into cozy, stylish homes. Choosing the right items creates balance and warmth in any room.**

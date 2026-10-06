@@ -1,10 +1,14 @@
 ---
-title: "Christmas Ornaments Home Goods: Unique Chicken and Holiday Decor Ideas"
-description: "Christmas ornaments add magic and charm to your home during the festive season. Selecting the perfect decorations can enhance your holiday spirit and create las"
+title: 'Christmas Ornaments Home Goods: Unique Chicken and Holiday Decor Ideas'
+description: Christmas ornaments add magic and charm to your home during the festive
+  season. Selecting the perfect decorations can enhance your holiday spirit and create
+  las
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-ornaments-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=christmas-ornaments-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas ornaments add magic and charm to your home during the festive season. Selecting the perfect decorations can enhance your holiday spirit and create lasting memories.**

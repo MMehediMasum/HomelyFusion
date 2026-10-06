@@ -1,10 +1,14 @@
 ---
-title: "How Much Does It Cost to Replace Bathroom Sink: Ultimate Guide 2025"
-description: "Thinking about replacing your bathroom sink but worried about the cost? You’re not alone. Many homeowners hesitate because they don’t know what to expect. How m"
+title: 'How Much Does It Cost to Replace Bathroom Sink: Ultimate Guide 2025'
+description: Thinking about replacing your bathroom sink but worried about the cost?
+  You’re not alone. Many homeowners hesitate because they don’t know what to expect.
+  How m
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-replace-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-replace-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about replacing your bathroom sink but worried about the cost? You’re not alone.**

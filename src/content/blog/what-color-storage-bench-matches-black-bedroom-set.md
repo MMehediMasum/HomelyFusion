@@ -1,10 +1,14 @@
 ---
-title: "What Color Storage Bench Matches Black Bedroom Set: Stylish Picks"
-description: "Choosing the perfect color storage bench to match your black bedroom set can feel tricky. You want something that not only fits your space but also adds style a"
+title: 'What Color Storage Bench Matches Black Bedroom Set: Stylish Picks'
+description: Choosing the perfect color storage bench to match your black bedroom
+  set can feel tricky. You want something that not only fits your space but also adds
+  style a
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-storage-bench-matches-black-bedroom-set&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=what-color-storage-bench-matches-black-bedroom-set&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect color storage bench to match your black bedroom set can feel tricky. You want something that not only fits your space but also adds style and function.**

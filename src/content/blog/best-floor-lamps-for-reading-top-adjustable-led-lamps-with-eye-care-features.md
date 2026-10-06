@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Reading: Top Adjustable LED Lamps with Eye-Care Features"
-description: "Choosing the best floor lamp for reading helps protect your eyes and creates a cozy space. Good lighting reduces eye strain and improves focus. A floor lamp wit"
+title: 'Best Floor Lamps for Reading: Top Adjustable LED Lamps with Eye-Care Features'
+description: Choosing the best floor lamp for reading helps protect your eyes and
+  creates a cozy space. Good lighting reduces eye strain and improves focus. A floor
+  lamp wit
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-reading-top-adjustable-led-lamps-with-eye-care-features&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-reading-top-adjustable-led-lamps-with-eye-care-features&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for reading helps protect your eyes and creates a cozy space. Good lighting reduces eye strain and improves focus.**

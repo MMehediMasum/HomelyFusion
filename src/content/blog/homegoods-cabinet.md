@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Cabinet: Stylish Storage Solutions for Every Room in Your Home"
-description: "Organizing your home can be a challenge, but the right cabinet makes it easier. Homegoods cabinets offer functionality and style. Cabinets are essential for kee"
+title: 'Homegoods Cabinet: Stylish Storage Solutions for Every Room in Your Home'
+description: Organizing your home can be a challenge, but the right cabinet makes
+  it easier. Homegoods cabinets offer functionality and style. Cabinets are essential
+  for kee
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Organizing your home can be a challenge, but the right cabinet makes it easier. Homegoods cabinets offer functionality and style.**

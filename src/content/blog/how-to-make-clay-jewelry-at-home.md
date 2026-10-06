@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Jewelry at Home: Easy Steps for Stunning Designs"
 description: "Have you ever wanted to create beautiful, unique jewelry without spending a lot of money? Making clay jewelry at home is easier than you think, and it lets you "
 pubDate: 2026-04-14

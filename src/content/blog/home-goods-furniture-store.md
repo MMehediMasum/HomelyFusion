@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Furniture Store: Top Stylish Storage Solutions for Every Room"
-description: "Transform your living space with versatile and stylish furniture from Home Goods Furniture Store. Our curated collection suits any room or decor style. Discover"
+title: 'Home Goods Furniture Store: Top Stylish Storage Solutions for Every Room'
+description: Transform your living space with versatile and stylish furniture from
+  Home Goods Furniture Store. Our curated collection suits any room or decor style.
+  Discover
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Transform your living space with versatile and stylish furniture from Home Goods Furniture Store. Our curated collection suits any room or decor style.**

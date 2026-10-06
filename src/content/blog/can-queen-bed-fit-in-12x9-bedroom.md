@@ -1,10 +1,14 @@
 ---
-title: "Can Queen Bed Fit in 12X9 Bedroom: Space-Saving Tips Revealed"
-description: "Are you wondering if a queen bed will fit comfortably in your 12x9 bedroom? It’s a common question that many face when trying to balance style, comfort, and spa"
+title: 'Can Queen Bed Fit in 12X9 Bedroom: Space-Saving Tips Revealed'
+description: Are you wondering if a queen bed will fit comfortably in your 12x9 bedroom?
+  It’s a common question that many face when trying to balance style, comfort, and
+  spa
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-queen-bed-fit-in-12x9-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=can-queen-bed-fit-in-12x9-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if a queen bed will fit comfortably in your 12x9 bedroom? It’s a common question that many face when trying to balance style, comfort, and space.**

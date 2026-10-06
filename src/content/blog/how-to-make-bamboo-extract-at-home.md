@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Extract at Home: Easy, Natural & Effective Guide"
 description: "Are you looking for a natural way to boost your health and skincare routine? Making bamboo extract at home might be the perfect solution for you. Bamboo extract"
 pubDate: 2026-02-07

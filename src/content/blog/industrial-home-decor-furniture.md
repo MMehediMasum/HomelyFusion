@@ -1,10 +1,14 @@
 ---
-title: "Industrial Home Decor Furniture: Rustic & Stylish Essentials for Every Room"
-description: "Industrial home decor furniture blends raw materials with simple designs for a stylish, modern look. This style adds character and function to any room. Industr"
+title: 'Industrial Home Decor Furniture: Rustic & Stylish Essentials for Every Room'
+description: Industrial home decor furniture blends raw materials with simple designs
+  for a stylish, modern look. This style adds character and function to any room.
+  Industr
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=industrial-home-decor-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=industrial-home-decor-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Industrial home decor furniture blends raw materials with simple designs for a stylish, modern look. This style adds character and function to any room.**

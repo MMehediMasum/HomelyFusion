@@ -1,10 +1,14 @@
 ---
-title: "Can You Wash Wool at Home: Easy Tips for Perfect Care"
-description: "Have you ever wondered if you can wash your wool clothes at home without ruining them? Wool is soft, cozy, and often expensive, so the idea of cleaning it yours"
+title: 'Can You Wash Wool at Home: Easy Tips for Perfect Care'
+description: Have you ever wondered if you can wash your wool clothes at home without
+  ruining them? Wool is soft, cozy, and often expensive, so the idea of cleaning it
+  yours
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-wash-wool-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=can-you-wash-wool-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if you can wash your wool clothes at home without ruining them? Wool is soft, cozy, and often expensive, so the idea of cleaning it yourself can feel risky.**

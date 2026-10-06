@@ -1,10 +1,14 @@
 ---
-title: "When Did Light Bulbs Become Common in Homes: A Bright History Revealed"
-description: "Have you ever stopped to wonder when your home first started to glow with electric light? The simple switch that brightens your room wasn’t always a given. Unde"
+title: 'When Did Light Bulbs Become Common in Homes: A Bright History Revealed'
+description: Have you ever stopped to wonder when your home first started to glow
+  with electric light? The simple switch that brightens your room wasn’t always a
+  given. Unde
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-did-light-bulbs-become-common-in-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=when-did-light-bulbs-become-common-in-homes&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever stopped to wonder when your home first started to glow with electric light? The simple switch that brightens your room wasn’t always a given.**

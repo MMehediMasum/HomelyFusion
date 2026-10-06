@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Accent Wall in Living Room: Stunning Step-by-Step Guide"
-description: "Are you ready to transform your living room without a full makeover? Painting an accent wall is one of the easiest and most effective ways to add personality an"
+title: 'How to Paint Accent Wall in Living Room: Stunning Step-by-Step Guide'
+description: Are you ready to transform your living room without a full makeover?
+  Painting an accent wall is one of the easiest and most effective ways to add personality
+  an
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-accent-wall-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-accent-wall-in-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your living room without a full makeover? Painting an accent wall is one of the easiest and most effective ways to add personality and style to your space.**

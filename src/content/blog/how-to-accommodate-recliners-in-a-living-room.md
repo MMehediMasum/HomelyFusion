@@ -1,10 +1,14 @@
 ---
-title: "How to Accommodate Recliners in a Living Room: Expert Space-Saving Tips"
-description: "You love your recliner—it’s where comfort meets relaxation after a long day. But fitting that cozy chair into your living room without making the space feel cra"
+title: 'How to Accommodate Recliners in a Living Room: Expert Space-Saving Tips'
+description: You love your recliner—it’s where comfort meets relaxation after a long
+  day. But fitting that cozy chair into your living room without making the space
+  feel cra
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-accommodate-recliners-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-accommodate-recliners-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **You love your recliner—it’s where comfort meets relaxation after a long day. But fitting that cozy chair into your living room without making the space feel cramped can be tricky.**

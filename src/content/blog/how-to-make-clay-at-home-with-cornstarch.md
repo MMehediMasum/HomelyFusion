@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home With Cornstarch: Easy DIY Recipe"
 description: "Are you looking for a fun and simple way to make your own clay at home? Imagine creating soft, moldable clay using just a few ingredients you probably already h"
 pubDate: 2026-02-18

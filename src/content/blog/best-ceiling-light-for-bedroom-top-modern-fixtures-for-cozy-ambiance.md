@@ -1,10 +1,14 @@
 ---
-title: "Best Ceiling Light for Bedroom: Top Modern Fixtures for Cozy Ambiance"
-description: "Choosing the best ceiling light for your bedroom improves comfort and style. The right light brightens your space and sets the perfect mood. A good bedroom ceil"
+title: 'Best Ceiling Light for Bedroom: Top Modern Fixtures for Cozy Ambiance'
+description: Choosing the best ceiling light for your bedroom improves comfort and
+  style. The right light brightens your space and sets the perfect mood. A good bedroom
+  ceil
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ceiling-light-for-bedroom-top-modern-fixtures-for-cozy-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-ceiling-light-for-bedroom-top-modern-fixtures-for-cozy-ambiance&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best ceiling light for your bedroom improves comfort and style. The right light brightens your space and sets the perfect mood.**

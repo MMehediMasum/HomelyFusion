@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Small Bedroom With Twin Bed: Smart Space Hacks"
-description: "Struggling to fit everything into your small bedroom without making it feel cramped? If you have a twin bed, arranging your space might seem like a puzzle. But "
+title: 'How to Arrange Small Bedroom With Twin Bed: Smart Space Hacks'
+description: 'Struggling to fit everything into your small bedroom without making
+  it feel cramped? If you have a twin bed, arranging your space might seem like a
+  puzzle. But '
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-twin-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-twin-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit everything into your small bedroom without making it feel cramped? If you have a twin bed, arranging your space might seem like a puzzle.**

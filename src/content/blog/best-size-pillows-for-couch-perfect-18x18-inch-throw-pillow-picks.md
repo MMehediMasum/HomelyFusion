@@ -1,10 +1,14 @@
 ---
-title: "Best Size Pillows for Couch: Perfect 18x18 Inch Throw Pillow Picks"
-description: "Choosing the best size pillows for your couch can enhance comfort and style. The right pillow size fits your couch perfectly and adds charm to your space. Pillo"
+title: 'Best Size Pillows for Couch: Perfect 18x18 Inch Throw Pillow Picks'
+description: Choosing the best size pillows for your couch can enhance comfort and
+  style. The right pillow size fits your couch perfectly and adds charm to your space.
+  Pillo
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-pillows-for-couch-perfect-18x18-inch-throw-pillow-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-size-pillows-for-couch-perfect-18x18-inch-throw-pillow-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best size pillows for your couch can enhance comfort and style. The right pillow size fits your couch perfectly and adds charm to your space.**

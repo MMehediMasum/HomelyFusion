@@ -1,10 +1,13 @@
 ---
-title: "Are Whole Home Humidifiers Worth It: Ultimate Guide to Benefits"
-description: "Are you tired of dry air making your home feel uncomfortable? Maybe you’ve noticed dry skin, irritated eyes, or even cracked wood furniture. A whole home humidi"
+title: 'Are Whole Home Humidifiers Worth It: Ultimate Guide to Benefits'
+description: Are you tired of dry air making your home feel uncomfortable? Maybe you’ve
+  noticed dry skin, irritated eyes, or even cracked wood furniture. A whole home humidi
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-worth-it&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-worth-it&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of dry air making your home feel uncomfortable? Maybe you’ve noticed dry skin, irritated eyes, or even cracked wood furniture.**

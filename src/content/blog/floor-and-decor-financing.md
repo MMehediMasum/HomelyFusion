@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Financing: Affordable Options for Stunning DIY Floor Tiles"
-description: "Floor And Decor offers financing options to help you buy flooring and home decor easily. These plans let you pay over time without large upfront costs. Buying n"
+title: 'Floor And Decor Financing: Affordable Options for Stunning DIY Floor Tiles'
+description: Floor And Decor offers financing options to help you buy flooring and
+  home decor easily. These plans let you pay over time without large upfront costs.
+  Buying n
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-financing&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-financing&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor offers financing options to help you buy flooring and home decor easily. These plans let you pay over time without large upfront costs.**

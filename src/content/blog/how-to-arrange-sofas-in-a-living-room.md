@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofas in a Living Room: Expert Tips for Perfect Layouts"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and create memories. But arranging sofas can feel tricky. How do you make the room i"
+title: 'How to Arrange Sofas in a Living Room: Expert Tips for Perfect Layouts'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and create memories. But arranging sofas can feel tricky. How do you make the room
+  i
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofas-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofas-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and create memories. But arranging sofas can feel tricky.**

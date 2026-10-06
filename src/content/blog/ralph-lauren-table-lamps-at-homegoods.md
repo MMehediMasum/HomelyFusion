@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Table Lamps at Homegoods: Elegant Lighting for Every Room"
-description: "Ralph Lauren table lamps bring style and function to any room. HomeGoods offers a variety of these elegant lamps at affordable prices. Ralph Lauren table lamps "
+title: 'Ralph Lauren Table Lamps at Homegoods: Elegant Lighting for Every Room'
+description: 'Ralph Lauren table lamps bring style and function to any room. HomeGoods
+  offers a variety of these elegant lamps at affordable prices. Ralph Lauren table
+  lamps '
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-table-lamps-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-table-lamps-at-homegoods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren table lamps bring style and function to any room. HomeGoods offers a variety of these elegant lamps at affordable prices.**

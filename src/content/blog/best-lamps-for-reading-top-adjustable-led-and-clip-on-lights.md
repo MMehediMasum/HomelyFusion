@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Reading: Top Adjustable LED and Clip-On Lights"
-description: "Choosing the best lamps for reading can improve comfort and reduce eye strain. Good lighting makes reading enjoyable and easier, day or night. A well-designed r"
+title: 'Best Lamps for Reading: Top Adjustable LED and Clip-On Lights'
+description: Choosing the best lamps for reading can improve comfort and reduce eye
+  strain. Good lighting makes reading enjoyable and easier, day or night. A well-designed
+  r
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-reading-top-adjustable-led-and-clip-on-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-reading-top-adjustable-led-and-clip-on-lights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for reading can improve comfort and reduce eye strain. Good lighting makes reading enjoyable and easier, day or night.**

@@ -1,10 +1,14 @@
 ---
-title: "Coffee Bar Home Decor Ideas to Elevate Your Kitchen Style"
-description: "Creating a stylish coffee bar at home can transform your space into a cozy, inviting retreat. With the right decor, you can enjoy a delightful coffee experience"
+title: Coffee Bar Home Decor Ideas to Elevate Your Kitchen Style
+description: Creating a stylish coffee bar at home can transform your space into a
+  cozy, inviting retreat. With the right decor, you can enjoy a delightful coffee
+  experience
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coffee-bar-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=coffee-bar-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Creating a stylish coffee bar at home can transform your space into a cozy, inviting retreat. With the right decor, you can enjoy a delightful coffee experience every day.**

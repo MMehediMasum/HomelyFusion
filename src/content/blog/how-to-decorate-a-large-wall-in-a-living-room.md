@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Large Wall in a Living Room: Stunning Ideas That Wow"
-description: "Is your living room feeling empty or plain because of a big, bare wall? You’re not alone. Decorating a large wall can feel overwhelming, but it’s also a huge op"
+title: 'How to Decorate a Large Wall in a Living Room: Stunning Ideas That Wow'
+description: Is your living room feeling empty or plain because of a big, bare wall?
+  You’re not alone. Decorating a large wall can feel overwhelming, but it’s also a
+  huge op
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-wall-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-wall-in-a-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your living room feeling empty or plain because of a big, bare wall? You’re not alone.**

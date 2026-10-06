@@ -1,10 +1,13 @@
 ---
-title: "Tahari Home Console Table: Stylish Storage and Charging Solutions Combined"
-description: "The Tahari Home Console Table offers a stylish and functional addition to any living space. Perfect for entryways, hallways, or behind the sofa. This versatile "
+title: 'Tahari Home Console Table: Stylish Storage and Charging Solutions Combined'
+description: 'The Tahari Home Console Table offers a stylish and functional addition
+  to any living space. Perfect for entryways, hallways, or behind the sofa. This versatile '
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **The Tahari Home Console Table offers a stylish and functional addition to any living space. Perfect for entryways, hallways, or behind the sofa.**

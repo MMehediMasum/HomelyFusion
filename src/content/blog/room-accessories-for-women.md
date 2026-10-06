@@ -1,10 +1,14 @@
 ---
-title: "Room Accessories for Women: Stylish Floating Shelves and Cute Decor Ideas"
-description: "Room accessories for women add charm and function to any space. They help keep rooms tidy while reflecting personal style. Small items like floating shelves and"
+title: 'Room Accessories for Women: Stylish Floating Shelves and Cute Decor Ideas'
+description: Room accessories for women add charm and function to any space. They
+  help keep rooms tidy while reflecting personal style. Small items like floating
+  shelves and
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=room-accessories-for-women&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=room-accessories-for-women&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Room accessories for women add charm and function to any space. They help keep rooms tidy while reflecting personal style.**

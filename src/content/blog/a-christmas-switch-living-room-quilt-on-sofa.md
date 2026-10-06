@@ -1,10 +1,13 @@
 ---
-title: "A Christmas Switch Living Room Quilt on Sofa: Cozy Holiday Charm"
-description: "Imagine sinking into your sofa after a long day, wrapped in a cozy Christmas Switch Living Room Quilt that instantly lifts your holiday spirit. This isn’t just "
+title: 'A Christmas Switch Living Room Quilt on Sofa: Cozy Holiday Charm'
+description: 'Imagine sinking into your sofa after a long day, wrapped in a cozy Christmas
+  Switch Living Room Quilt that instantly lifts your holiday spirit. This isn’t just '
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-christmas-switch-living-room-quilt-on-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=a-christmas-switch-living-room-quilt-on-sofa&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine sinking into your sofa after a long day, wrapped in a cozy Christmas Switch Living Room Quilt that instantly lifts your holiday spirit. This isn’t just any quilt—it’s your new go-to for warmth, comfort, and festive charm all in one.**

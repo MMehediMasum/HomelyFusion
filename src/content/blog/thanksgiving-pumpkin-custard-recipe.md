@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Custard Recipe: Irresistible & Easy Delight"
 description: "Are you looking for a simple, delicious dessert that will wow your family this Thanksgiving? Your search ends here with this Thanksgiving Pumpkin Custard Recipe"
 pubDate: 2026-01-10

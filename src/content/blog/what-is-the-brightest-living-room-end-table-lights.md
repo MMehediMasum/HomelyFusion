@@ -1,10 +1,14 @@
 ---
-title: "What is the Brightest Living Room End Table Lights: Ultimate Guide"
-description: "Are you looking to brighten up your living room with the perfect end table lights? Choosing the brightest lights can transform your space, making it feel warm, "
+title: 'What is the Brightest Living Room End Table Lights: Ultimate Guide'
+description: 'Are you looking to brighten up your living room with the perfect end
+  table lights? Choosing the brightest lights can transform your space, making it
+  feel warm, '
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-brightest-living-room-end-table-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-brightest-living-room-end-table-lights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to brighten up your living room with the perfect end table lights? Choosing the brightest lights can transform your space, making it feel warm, inviting, and stylish.**

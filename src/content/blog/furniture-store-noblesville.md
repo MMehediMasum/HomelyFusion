@@ -1,10 +1,14 @@
 ---
-title: "Furniture Store Noblesville: Unique Historical Decor for Your Home"
-description: "Furniture stores in Noblesville offer a wide variety of styles and prices to fit every home. Finding the right furniture can make your space more comfortable an"
+title: 'Furniture Store Noblesville: Unique Historical Decor for Your Home'
+description: Furniture stores in Noblesville offer a wide variety of styles and prices
+  to fit every home. Finding the right furniture can make your space more comfortable
+  an
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-store-noblesville&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-store-noblesville&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture stores in Noblesville offer a wide variety of styles and prices to fit every home. Finding the right furniture can make your space more comfortable and attractive.**

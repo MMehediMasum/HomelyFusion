@@ -1,10 +1,14 @@
 ---
-title: "Rifle Paper Co Rug Homegoods: Elegant Area Rugs to Elevate Your Space"
-description: "Rifle Paper Co's rugs bring style and charm to any home. Discover designs that captivate and enhance your space. Rifle Paper Co, renowned for its enchanting des"
+title: 'Rifle Paper Co Rug Homegoods: Elegant Area Rugs to Elevate Your Space'
+description: Rifle Paper Co's rugs bring style and charm to any home. Discover designs
+  that captivate and enhance your space. Rifle Paper Co, renowned for its enchanting
+  des
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rifle-paper-co-rug-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=rifle-paper-co-rug-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Rifle Paper Co's rugs bring style and charm to any home. Discover designs that captivate and enhance your space.**

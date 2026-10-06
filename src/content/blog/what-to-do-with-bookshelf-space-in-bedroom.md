@@ -1,10 +1,14 @@
 ---
-title: "What to Do With Bookshelf Space in Bedroom: Creative Storage Ideas"
-description: "Your bedroom bookshelf can be more than just a place to store books. Imagine turning that empty or cluttered space into something that reflects your style and m"
+title: 'What to Do With Bookshelf Space in Bedroom: Creative Storage Ideas'
+description: Your bedroom bookshelf can be more than just a place to store books.
+  Imagine turning that empty or cluttered space into something that reflects your
+  style and m
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-bookshelf-space-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-bookshelf-space-in-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your bedroom bookshelf can be more than just a place to store books. Imagine turning that empty or cluttered space into something that reflects your style and makes your room feel cozier and more organized.**

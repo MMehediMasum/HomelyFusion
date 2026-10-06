@@ -1,10 +1,14 @@
 ---
-title: "Interior Design Wall Decor Ideas: Transform Your Space with Stylish Accents"
-description: "Interior design wall decor adds personality and style to any room. It transforms plain walls into focal points with simple touches. Choosing the right wall deco"
+title: 'Interior Design Wall Decor Ideas: Transform Your Space with Stylish Accents'
+description: Interior design wall decor adds personality and style to any room. It
+  transforms plain walls into focal points with simple touches. Choosing the right
+  wall deco
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-design-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-design-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Interior design wall decor adds personality and style to any room. It transforms plain walls into focal points with simple touches.**

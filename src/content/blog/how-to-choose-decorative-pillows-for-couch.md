@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Decorative Pillows for Couch: Ultimate Style Guide"
-description: "Choosing the right decorative pillows for your couch can completely transform your living space. But with so many colors, shapes, and textures out there, how do"
+title: 'How to Choose Decorative Pillows for Couch: Ultimate Style Guide'
+description: Choosing the right decorative pillows for your couch can completely transform
+  your living space. But with so many colors, shapes, and textures out there, how
+  do
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-decorative-pillows-for-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-decorative-pillows-for-couch&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the right decorative pillows for your couch can completely transform your living space. But with so many colors, shapes, and textures out there, how do you pick the ones that truly match your style and comfort needs?**

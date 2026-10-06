@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Easy: Simple Steps for DIY Fun"
 description: "Have you ever wanted to create your own clay at home but thought it might be too hard or messy? What if I told you that making clay yourself is easier than you "
 pubDate: 2026-04-14

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Creepy Cupcake Toppers: Spook Up Your Party Treats"
 description: "Are you ready to take your Halloween treats from ordinary to unforgettable? Halloween creepy cupcake toppers are the secret ingredient to making your spooky des"
 pubDate: 2026-01-07

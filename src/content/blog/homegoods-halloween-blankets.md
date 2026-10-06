@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Halloween Blankets: Cozy, Spooky Throws for Ultimate Fall Comfort"
-description: "Halloween is around the corner, and it's time to cozy up with themed blankets. These Halloween blankets from Homegoods offer warmth and festive charm to any roo"
+title: 'Homegoods Halloween Blankets: Cozy, Spooky Throws for Ultimate Fall Comfort'
+description: Halloween is around the corner, and it's time to cozy up with themed
+  blankets. These Halloween blankets from Homegoods offer warmth and festive charm
+  to any roo
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-halloween-blankets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-halloween-blankets&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Halloween is around the corner, and it's time to cozy up with themed blankets. These Halloween blankets from Homegoods offer warmth and festive charm to any room.**

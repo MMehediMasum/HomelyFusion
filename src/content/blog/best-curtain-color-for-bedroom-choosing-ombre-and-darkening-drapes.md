@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Color for Bedroom: Choosing Ombre and Darkening Drapes"
-description: "Choosing the best curtain color for your bedroom sets the room’s mood and style. Curtains affect light, privacy, and comfort in your personal space. Bedroom cur"
+title: 'Best Curtain Color for Bedroom: Choosing Ombre and Darkening Drapes'
+description: Choosing the best curtain color for your bedroom sets the room’s mood
+  and style. Curtains affect light, privacy, and comfort in your personal space. Bedroom
+  cur
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-color-for-bedroom-choosing-ombre-and-darkening-drapes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-color-for-bedroom-choosing-ombre-and-darkening-drapes&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain color for your bedroom sets the room’s mood and style. Curtains affect light, privacy, and comfort in your personal space.**

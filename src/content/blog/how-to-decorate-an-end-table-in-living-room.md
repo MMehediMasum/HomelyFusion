@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an End Table in Living Room: Stunning Ideas Revealed"
-description: "Your living room’s end table might seem like a small piece of furniture, but it holds a big opportunity to boost your space’s style and feel. How you decorate i"
+title: 'How to Decorate an End Table in Living Room: Stunning Ideas Revealed'
+description: Your living room’s end table might seem like a small piece of furniture,
+  but it holds a big opportunity to boost your space’s style and feel. How you decorate
+  i
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-end-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-end-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s end table might seem like a small piece of furniture, but it holds a big opportunity to boost your space’s style and feel. How you decorate it can make your room look more inviting and reflect your personality.**

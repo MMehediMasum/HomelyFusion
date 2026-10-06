@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Living Room Chair: Easy Steps for Stylish Comfort"
-description: "Imagine sinking into a chair you built yourself—designed just the way you want it, perfectly fitting your living room. You don’t need to be a woodworking expert"
+title: 'How to Build a Living Room Chair: Easy Steps for Stylish Comfort'
+description: Imagine sinking into a chair you built yourself—designed just the way
+  you want it, perfectly fitting your living room. You don’t need to be a woodworking
+  expert
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine sinking into a chair you built yourself—designed just the way you want it, perfectly fitting your living room. You don’t need to be a woodworking expert to make this happen.**

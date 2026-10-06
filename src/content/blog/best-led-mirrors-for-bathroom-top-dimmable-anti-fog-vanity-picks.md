@@ -1,10 +1,14 @@
 ---
-title: "Best LED Mirrors for Bathroom: Top Dimmable, Anti-Fog Vanity Picks"
-description: "LED mirrors bring bright, clear light to any bathroom. They combine style, function, and safety in one sleek design. Choosing the best LED mirror can improve yo"
+title: 'Best LED Mirrors for Bathroom: Top Dimmable, Anti-Fog Vanity Picks'
+description: LED mirrors bring bright, clear light to any bathroom. They combine style,
+  function, and safety in one sleek design. Choosing the best LED mirror can improve
+  yo
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-led-mirrors-for-bathroom-top-dimmable-anti-fog-vanity-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-led-mirrors-for-bathroom-top-dimmable-anti-fog-vanity-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **LED mirrors bring bright, clear light to any bathroom. They combine style, function, and safety in one sleek design.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Kitchen Tile Ideas: Stylish Peel & Stick Options for DIY"
-description: "Floor and Decor kitchen tile offers stylish and easy-to-install options for any kitchen space. These tiles come in many colors, patterns, and materials to fit d"
+title: 'Floor And Decor Kitchen Tile Ideas: Stylish Peel & Stick Options for DIY'
+description: Floor and Decor kitchen tile offers stylish and easy-to-install options
+  for any kitchen space. These tiles come in many colors, patterns, and materials
+  to fit d
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-kitchen-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-kitchen-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor kitchen tile offers stylish and easy-to-install options for any kitchen space. These tiles come in many colors, patterns, and materials to fit different tastes and budgets.**

@@ -1,10 +1,14 @@
 ---
-title: "Floors USA: Top Floor Cleaners and Protectors for Sparkling Results"
-description: "Floors USA offers a wide range of cleaning products and accessories for all types of flooring. From hardwood to tile, they have solutions to keep your floors sp"
+title: 'Floors USA: Top Floor Cleaners and Protectors for Sparkling Results'
+description: Floors USA offers a wide range of cleaning products and accessories for
+  all types of flooring. From hardwood to tile, they have solutions to keep your floors
+  sp
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floors-usa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=floors-usa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Floors USA offers a wide range of cleaning products and accessories for all types of flooring. From hardwood to tile, they have solutions to keep your floors spotless.**

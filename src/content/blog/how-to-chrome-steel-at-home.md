@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Chrome Steel at Home: Easy Steps for a Shiny Finish"
 description: "Are you looking to give your steel a shiny, protective chrome finish without spending a fortune? Learning how to chrome steel at home can save you money and let"
 pubDate: 2026-03-14

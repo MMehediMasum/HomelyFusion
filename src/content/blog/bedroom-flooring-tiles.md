@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Flooring Tiles: Stylish Peel & Stick Options for Easy DIY Upgrades"
-description: "Choosing the right bedroom flooring tiles can transform your space into a cozy and stylish retreat. With various options available, finding the perfect match fo"
+title: 'Bedroom Flooring Tiles: Stylish Peel & Stick Options for Easy DIY Upgrades'
+description: Choosing the right bedroom flooring tiles can transform your space into
+  a cozy and stylish retreat. With various options available, finding the perfect
+  match fo
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-flooring-tiles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-flooring-tiles&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right bedroom flooring tiles can transform your space into a cozy and stylish retreat. With various options available, finding the perfect match for your needs is easier than ever.**

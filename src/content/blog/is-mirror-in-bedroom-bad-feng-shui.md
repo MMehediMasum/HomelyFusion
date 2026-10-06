@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Mirror in Bedroom Bad Feng Shui: Shocking Truths Revealed"
 description: "Have you ever wondered if having a mirror in your bedroom could be affecting your energy or sleep? Many people believe that mirrors in the bedroom bring bad Fen"
 pubDate: 2025-11-10

@@ -1,10 +1,14 @@
 ---
-title: "Dinner Table Decoration at Home: Rustic Boho Ideas with Elegant Accents"
-description: "Setting a beautiful dinner table at home creates a warm and inviting atmosphere. Simple decorations turn everyday meals into special moments. Using the right ta"
+title: 'Dinner Table Decoration at Home: Rustic Boho Ideas with Elegant Accents'
+description: Setting a beautiful dinner table at home creates a warm and inviting
+  atmosphere. Simple decorations turn everyday meals into special moments. Using the
+  right ta
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dinner-table-decoration-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=dinner-table-decoration-at-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Setting a beautiful dinner table at home creates a warm and inviting atmosphere. Simple decorations turn everyday meals into special moments.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Dining Table in Living Room: Stylish & Space-Saving Tips"
-description: "Are you struggling to find the perfect spot for your dining table in your living room? You’re not alone. Finding the right arrangement can transform your space "
+title: 'How to Arrange Dining Table in Living Room: Stylish & Space-Saving Tips'
+description: 'Are you struggling to find the perfect spot for your dining table in
+  your living room? You’re not alone. Finding the right arrangement can transform
+  your space '
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-dining-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you struggling to find the perfect spot for your dining table in your living room? You’re not alone.**

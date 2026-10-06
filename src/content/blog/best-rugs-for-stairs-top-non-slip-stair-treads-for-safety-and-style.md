@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Stairs: Top Non-Slip Stair Treads for Safety and Style"
-description: "Choosing the best rugs for stairs improves safety and adds style to your home. Stairs need special rugs that prevent slipping and fit well. Rugs for stairs prot"
+title: 'Best Rugs for Stairs: Top Non-Slip Stair Treads for Safety and Style'
+description: Choosing the best rugs for stairs improves safety and adds style to your
+  home. Stairs need special rugs that prevent slipping and fit well. Rugs for stairs
+  prot
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-stairs-top-non-slip-stair-treads-for-safety-and-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-stairs-top-non-slip-stair-treads-for-safety-and-style&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for stairs improves safety and adds style to your home. Stairs need special rugs that prevent slipping and fit well.**

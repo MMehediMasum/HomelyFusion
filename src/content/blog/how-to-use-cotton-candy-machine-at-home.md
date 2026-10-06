@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Cotton Candy Machine at Home: Easy Steps for Fun Treats"
 description: "Imagine creating fluffy, sweet cotton candy right in your own kitchen. Sounds fun, right? If you’ve ever wondered how to use a cotton candy machine at home, you"
 pubDate: 2026-03-19

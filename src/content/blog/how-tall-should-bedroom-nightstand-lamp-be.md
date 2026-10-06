@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should Bedroom Nightstand Lamp Be: Perfect Height Guide"
-description: "Choosing the right nightstand lamp can change how your bedroom feels and functions. But have you ever wondered how tall your lamp should be? Getting the height "
+title: 'How Tall Should Bedroom Nightstand Lamp Be: Perfect Height Guide'
+description: 'Choosing the right nightstand lamp can change how your bedroom feels
+  and functions. But have you ever wondered how tall your lamp should be? Getting
+  the height '
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-bedroom-nightstand-lamp-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-bedroom-nightstand-lamp-be&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right nightstand lamp can change how your bedroom feels and functions. But have you ever wondered how tall your lamp should be?**

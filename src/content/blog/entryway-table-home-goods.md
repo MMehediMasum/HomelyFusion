@@ -1,10 +1,14 @@
 ---
-title: "Entryway Table Home Goods: Stylish Storage Solutions for Every Hallway"
-description: "Entryway tables are essential for adding functionality and style to any home. They provide storage, display space, and a welcoming touch. Explore a variety of e"
+title: 'Entryway Table Home Goods: Stylish Storage Solutions for Every Hallway'
+description: Entryway tables are essential for adding functionality and style to any
+  home. They provide storage, display space, and a welcoming touch. Explore a variety
+  of e
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=entryway-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=entryway-table-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Entryway tables are essential for adding functionality and style to any home. They provide storage, display space, and a welcoming touch.**

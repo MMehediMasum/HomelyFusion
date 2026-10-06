@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Wood Slice Candle Holder: Cozy Charm for Your Home"
-description: "Imagine adding a warm, cozy glow to your home that instantly brings the beauty of fall inside. A Fall Rustic Wood Slice Candle Holder does just that. It’s simpl"
+title: 'Fall Rustic Wood Slice Candle Holder: Cozy Charm for Your Home'
+description: Imagine adding a warm, cozy glow to your home that instantly brings the
+  beauty of fall inside. A Fall Rustic Wood Slice Candle Holder does just that. It’s
+  simpl
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-wood-slice-candle-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-wood-slice-candle-holder&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine adding a warm, cozy glow to your home that instantly brings the beauty of fall inside. A Fall Rustic Wood Slice Candle Holder does just that.**

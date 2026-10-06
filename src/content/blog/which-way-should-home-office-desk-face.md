@@ -1,10 +1,14 @@
 ---
-title: "Which Way Should Home Office Desk Face: Boost Focus & Productivity"
-description: "Where your home office desk faces can change everything about how you work. It affects your focus, mood, and even your energy throughout the day. You might not "
+title: 'Which Way Should Home Office Desk Face: Boost Focus & Productivity'
+description: 'Where your home office desk faces can change everything about how you
+  work. It affects your focus, mood, and even your energy throughout the day. You
+  might not '
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-way-should-home-office-desk-face&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=which-way-should-home-office-desk-face&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Where your home office desk faces can change everything about how you work. It affects your focus, mood, and even your energy throughout the day.**

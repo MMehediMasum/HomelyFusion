@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Table for Christmas: Stunning Ideas"
-description: "Your living room table is the heart of holiday gatherings. Decorating it for Christmas can bring warmth and joy to your entire space. But how do you create a lo"
+title: 'How to Decorate a Living Room Table for Christmas: Stunning Ideas'
+description: Your living room table is the heart of holiday gatherings. Decorating
+  it for Christmas can bring warmth and joy to your entire space. But how do you create
+  a lo
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-table-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-table-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your living room table is the heart of holiday gatherings. Decorating it for Christmas can bring warmth and joy to your entire space.**

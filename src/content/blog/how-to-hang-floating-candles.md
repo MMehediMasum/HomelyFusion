@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Floating Candles: Easy Steps for Stunning Decor"
-description: "Are you looking to add a magical touch to your space with floating candles? Hanging floating candles can instantly create a warm, enchanting atmosphere for any "
+title: 'How to Hang Floating Candles: Easy Steps for Stunning Decor'
+description: 'Are you looking to add a magical touch to your space with floating candles?
+  Hanging floating candles can instantly create a warm, enchanting atmosphere for
+  any '
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-floating-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-floating-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to add a magical touch to your space with floating candles? Hanging floating candles can instantly create a warm, enchanting atmosphere for any occasion.**

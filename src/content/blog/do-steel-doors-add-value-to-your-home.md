@@ -1,10 +1,14 @@
 ---
-title: "Do Steel Doors Add Value to Your Home? Discover the Benefits!"
-description: "Are you thinking about upgrading your home? One question you might have is, do steel doors add value to your home? Choosing the right front door is more than ju"
+title: Do Steel Doors Add Value to Your Home? Discover the Benefits!
+description: Are you thinking about upgrading your home? One question you might have
+  is, do steel doors add value to your home? Choosing the right front door is more
+  than ju
 pubDate: 2026-02-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-steel-doors-add-value-to-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=do-steel-doors-add-value-to-your-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about upgrading your home? One question you might have is, do steel doors add value to your home?**

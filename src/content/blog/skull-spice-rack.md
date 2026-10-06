@@ -1,10 +1,14 @@
 ---
-title: "Skull Spice Rack: Gothic Kitchen Decor for Spooky Storage Solutions"
-description: "A Skull Spice Rack adds a bold, gothic touch to any kitchen. It combines spooky style with practical spice storage. This unique kitchen accessory features skull"
+title: 'Skull Spice Rack: Gothic Kitchen Decor for Spooky Storage Solutions'
+description: A Skull Spice Rack adds a bold, gothic touch to any kitchen. It combines
+  spooky style with practical spice storage. This unique kitchen accessory features
+  skull
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=skull-spice-rack&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=skull-spice-rack&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A Skull Spice Rack adds a bold, gothic touch to any kitchen. It combines spooky style with practical spice storage.**

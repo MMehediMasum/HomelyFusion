@@ -1,10 +1,13 @@
 ---
-title: "Where to Put Sofa And Tv in Living Room: Expert Layout Tips"
-description: "Are you struggling to find the perfect spot for your sofa and TV in your living room? You’re not alone. Where you place these key pieces can make a big differen"
+title: 'Where to Put Sofa And Tv in Living Room: Expert Layout Tips'
+description: Are you struggling to find the perfect spot for your sofa and TV in your
+  living room? You’re not alone. Where you place these key pieces can make a big differen
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-sofa-and-tv-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-sofa-and-tv-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your sofa and TV in your living room? You’re not alone.**

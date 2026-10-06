@@ -1,10 +1,14 @@
 ---
-title: "How to Waterproof Bathroom Vanity: Ultimate Step-by-Step Guide"
-description: "Your bathroom vanity faces constant exposure to water, steam, and spills. If it’s not properly waterproofed, damage can sneak in quietly—warping wood, peeling p"
+title: 'How to Waterproof Bathroom Vanity: Ultimate Step-by-Step Guide'
+description: Your bathroom vanity faces constant exposure to water, steam, and spills.
+  If it’s not properly waterproofed, damage can sneak in quietly—warping wood, peeling
+  p
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-waterproof-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-waterproof-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity faces constant exposure to water, steam, and spills. If it’s not properly waterproofed, damage can sneak in quietly—warping wood, peeling paint, and even mold growth.**

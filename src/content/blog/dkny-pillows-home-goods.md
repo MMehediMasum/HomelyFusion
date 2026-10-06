@@ -1,10 +1,14 @@
 ---
-title: "Dkny Pillows Home Goods: Stylish Decorative Pillows to Elevate Your Space"
-description: "DKNY Pillows bring style and comfort to any home space. Their designs fit well in living rooms, bedrooms, and cozy corners. DKNY offers a variety of pillows tha"
+title: 'Dkny Pillows Home Goods: Stylish Decorative Pillows to Elevate Your Space'
+description: DKNY Pillows bring style and comfort to any home space. Their designs
+  fit well in living rooms, bedrooms, and cozy corners. DKNY offers a variety of pillows
+  tha
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=dkny-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **DKNY Pillows bring style and comfort to any home space. Their designs fit well in living rooms, bedrooms, and cozy corners.**

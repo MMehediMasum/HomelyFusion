@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Day Candle Decoration Ideas: Romantic & Easy DIY Tips"
-description: "Are you ready to transform your space into a cozy, romantic haven this Valentine’s Day? Candle decorations are a simple yet powerful way to set the perfect mood"
+title: 'Valentine’S Day Candle Decoration Ideas: Romantic & Easy DIY Tips'
+description: Are you ready to transform your space into a cozy, romantic haven this
+  Valentine’s Day? Candle decorations are a simple yet powerful way to set the perfect
+  mood
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-day-candle-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=valentines-day-candle-decoration-ideas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to transform your space into a cozy, romantic haven this Valentine’s Day? Candle decorations are a simple yet powerful way to set the perfect mood for your celebration.**

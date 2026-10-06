@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Is your bathroom vanity looking worn out or not working like it used to? You don’t have to replace it just yet. Fixing your bathroom vanity can save you money a"
+title: 'How to Repair Bathroom Vanity: Easy Steps for Stunning Results'
+description: Is your bathroom vanity looking worn out or not working like it used
+  to? You don’t have to replace it just yet. Fixing your bathroom vanity can save
+  you money a
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity looking worn out or not working like it used to? You don’t have to replace it just yet.**

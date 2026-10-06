@@ -1,10 +1,14 @@
 ---
-title: "Shelf Decor Ideas: Transform Your Space with Stylish Vases and Sculptures"
-description: "Shelf decor adds charm and personality to any room. It creates a cozy and inviting atmosphere quickly and easily. Decorating shelves with simple items like vase"
+title: 'Shelf Decor Ideas: Transform Your Space with Stylish Vases and Sculptures'
+description: Shelf decor adds charm and personality to any room. It creates a cozy
+  and inviting atmosphere quickly and easily. Decorating shelves with simple items
+  like vase
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shelf-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=shelf-decor&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Shelf decor adds charm and personality to any room. It creates a cozy and inviting atmosphere quickly and easily.**

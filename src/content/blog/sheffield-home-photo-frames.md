@@ -1,10 +1,14 @@
 ---
-title: "Sheffield Home Photo Frames: Stunning Gallery Wall Sets for Every Room"
-description: "Sheffield Home photo frames offer diverse styles to beautifully showcase cherished memories. They combine design, quality, and functionality. Explore the charm "
+title: 'Sheffield Home Photo Frames: Stunning Gallery Wall Sets for Every Room'
+description: 'Sheffield Home photo frames offer diverse styles to beautifully showcase
+  cherished memories. They combine design, quality, and functionality. Explore the
+  charm '
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=sheffield-home-photo-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=sheffield-home-photo-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Sheffield Home photo frames offer diverse styles to beautifully showcase cherished memories. They combine design, quality, and functionality.**

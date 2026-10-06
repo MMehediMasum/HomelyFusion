@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Get Rid of Bed Bugs in Bedroom: Effective Tips That Work"
 description: "Are you waking up with mysterious itchy bites? Your bedroom might be hiding an unwanted guest—bed bugs. These tiny pests can cause big problems, making your nig"
 pubDate: 2026-05-11

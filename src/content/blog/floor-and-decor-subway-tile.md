@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Subway Tile Ideas for Stylish Kitchen Backsplash Updates"
-description: "Floor and Decor subway tiles offer a stylish solution for home improvement projects. These tiles come in various designs and colors. Subway tiles are a popular "
+title: Floor And Decor Subway Tile Ideas for Stylish Kitchen Backsplash Updates
+description: 'Floor and Decor subway tiles offer a stylish solution for home improvement
+  projects. These tiles come in various designs and colors. Subway tiles are a popular '
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-subway-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-subway-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor subway tiles offer a stylish solution for home improvement projects. These tiles come in various designs and colors.**

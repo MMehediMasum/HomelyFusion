@@ -1,10 +1,14 @@
 ---
-title: "Why is It Bad to Have Mirrors in Bedroom: Shocking Truths Revealed"
-description: "Have you ever thought twice about placing mirrors in your bedroom? It might seem harmless, even stylish, but mirrors in this personal space can actually affect "
+title: 'Why is It Bad to Have Mirrors in Bedroom: Shocking Truths Revealed'
+description: 'Have you ever thought twice about placing mirrors in your bedroom? It
+  might seem harmless, even stylish, but mirrors in this personal space can actually
+  affect '
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-it-bad-to-have-mirrors-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=why-is-it-bad-to-have-mirrors-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever thought twice about placing mirrors in your bedroom? It might seem harmless, even stylish, but mirrors in this personal space can actually affect your sleep, mood, and energy in ways you didn’t expect.**

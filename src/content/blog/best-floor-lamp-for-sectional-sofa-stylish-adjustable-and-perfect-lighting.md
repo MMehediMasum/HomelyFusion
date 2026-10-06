@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamp for Sectional Sofa: Stylish, Adjustable, and Perfect Lighting"
-description: "Choosing the best floor lamp for a sectional sofa enhances both comfort and style. Proper lighting creates a cozy space for reading, relaxing, or socializing. S"
+title: 'Best Floor Lamp for Sectional Sofa: Stylish, Adjustable, and Perfect Lighting'
+description: Choosing the best floor lamp for a sectional sofa enhances both comfort
+  and style. Proper lighting creates a cozy space for reading, relaxing, or socializing.
+  S
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamp-for-sectional-sofa-stylish-adjustable-and-perfect-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamp-for-sectional-sofa-stylish-adjustable-and-perfect-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for a sectional sofa enhances both comfort and style. Proper lighting creates a cozy space for reading, relaxing, or socializing.**

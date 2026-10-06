@@ -1,10 +1,13 @@
 ---
-title: "Snoopy Placemats: Fun and Functional Decor for Every Dining Table"
-description: "Snoopy placemats add charm to any dining table. These delightful accessories bring fun to meals for all ages. Snoopy placemats are a delightful choice for addin"
+title: 'Snoopy Placemats: Fun and Functional Decor for Every Dining Table'
+description: Snoopy placemats add charm to any dining table. These delightful accessories
+  bring fun to meals for all ages. Snoopy placemats are a delightful choice for addin
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Snoopy placemats add charm to any dining table. These delightful accessories bring fun to meals for all ages.**

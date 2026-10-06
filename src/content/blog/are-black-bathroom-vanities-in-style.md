@@ -1,10 +1,14 @@
 ---
-title: "Are Black Bathroom Vanities in Style: Stunning Trends Revealed"
-description: "Are you thinking about updating your bathroom but unsure if black bathroom vanities are the right choice? You’re not alone. Black vanities have been gaining att"
+title: 'Are Black Bathroom Vanities in Style: Stunning Trends Revealed'
+description: Are you thinking about updating your bathroom but unsure if black bathroom
+  vanities are the right choice? You’re not alone. Black vanities have been gaining
+  att
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-black-bathroom-vanities-in-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-black-bathroom-vanities-in-style&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about updating your bathroom but unsure if black bathroom vanities are the right choice? You’re not alone.**

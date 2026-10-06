@@ -1,10 +1,14 @@
 ---
-title: "What to Put on High Shelf in Bedroom: Smart Storage Ideas"
-description: "Have you ever wondered what to put on that high shelf in your bedroom? It’s easy to overlook this space, but with the right items, your high shelf can become bo"
+title: 'What to Put on High Shelf in Bedroom: Smart Storage Ideas'
+description: Have you ever wondered what to put on that high shelf in your bedroom?
+  It’s easy to overlook this space, but with the right items, your high shelf can
+  become bo
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-high-shelf-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-high-shelf-in-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered what to put on that high shelf in your bedroom? It’s easy to overlook this space, but with the right items, your high shelf can become both useful and stylish.**

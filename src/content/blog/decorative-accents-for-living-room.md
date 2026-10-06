@@ -1,10 +1,14 @@
 ---
-title: "Decorative Accents for Living Room: Stylish Figurines and Modern Ornaments"
-description: "Decorative accents add charm and personality to your living room. They create a cozy and stylish space without much effort. Small statues like gold bird figurin"
+title: 'Decorative Accents for Living Room: Stylish Figurines and Modern Ornaments'
+description: Decorative accents add charm and personality to your living room. They
+  create a cozy and stylish space without much effort. Small statues like gold bird
+  figurin
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-accents-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decorative-accents-for-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative accents add charm and personality to your living room. They create a cozy and stylish space without much effort.**

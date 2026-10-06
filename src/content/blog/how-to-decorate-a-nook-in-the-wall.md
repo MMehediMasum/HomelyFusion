@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Nook in the Wall: Creative Ideas to Inspire"
-description: "Have you ever noticed a small empty space or nook in your wall and wondered how to make it stand out? That little corner holds more potential than you might thi"
+title: 'How to Decorate a Nook in the Wall: Creative Ideas to Inspire'
+description: Have you ever noticed a small empty space or nook in your wall and wondered
+  how to make it stand out? That little corner holds more potential than you might
+  thi
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-nook-in-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-nook-in-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever noticed a small empty space or nook in your wall and wondered how to make it stand out? That little corner holds more potential than you might think.**

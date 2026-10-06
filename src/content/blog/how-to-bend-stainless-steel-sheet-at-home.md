@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Stainless Steel Sheet at Home: Easy DIY Techniques"
 description: "Have you ever needed to bend a stainless steel sheet but thought it was too difficult to do at home? You’re not alone. Bending stainless steel may seem like a j"
 pubDate: 2026-03-27

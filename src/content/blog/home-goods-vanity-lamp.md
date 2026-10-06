@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity Lamp Ideas for Stylish and Functional Lighting"
-description: "Illuminate your spaces with elegant vanity lamps. Whether it's a bathroom, hallway, or bedroom, finding the right lighting fixture can elevate the ambiance and "
+title: Home Goods Vanity Lamp Ideas for Stylish and Functional Lighting
+description: 'Illuminate your spaces with elegant vanity lamps. Whether it''s a bathroom,
+  hallway, or bedroom, finding the right lighting fixture can elevate the ambiance
+  and '
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Illuminate your spaces with elegant vanity lamps. Whether it's a bathroom, hallway, or bedroom, finding the right lighting fixture can elevate the ambiance and functionality of any room.**

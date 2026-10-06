@@ -1,10 +1,14 @@
 ---
-title: "Accent Chairs at Home Goods: Transform Your Space with Stylish Comfort"
-description: "Accent chairs at Home Goods add style and comfort to any room. They come in many designs and colors to fit your space perfectly. Accent chairs make a room feel "
+title: 'Accent Chairs at Home Goods: Transform Your Space with Stylish Comfort'
+description: 'Accent chairs at Home Goods add style and comfort to any room. They
+  come in many designs and colors to fit your space perfectly. Accent chairs make
+  a room feel '
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-chairs-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=accent-chairs-at-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Accent chairs at Home Goods add style and comfort to any room. They come in many designs and colors to fit your space perfectly.**

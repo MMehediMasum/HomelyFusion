@@ -1,10 +1,14 @@
 ---
-title: "At Home Furniture And Mattress Superstore: Top Hybrid Mattresses for Comfort"
-description: "At Home Furniture and Mattress Superstore offers diverse and comfortable mattress options. Quality sleep starts with the right mattress. Discover a variety of m"
+title: 'At Home Furniture And Mattress Superstore: Top Hybrid Mattresses for Comfort'
+description: At Home Furniture and Mattress Superstore offers diverse and comfortable
+  mattress options. Quality sleep starts with the right mattress. Discover a variety
+  of m
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-furniture-and-mattress-superstore&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=at-home-furniture-and-mattress-superstore&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **At Home Furniture and Mattress Superstore offers diverse and comfortable mattress options. Quality sleep starts with the right mattress.**

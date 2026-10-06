@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Full Length Mirror on Wall: Easy Steps for Perfect Placement"
-description: "Are you ready to transform your space with a full length mirror but unsure how to hang it safely and stylishly? You’re not alone. Hanging a large mirror might s"
+title: 'How to Hang a Full Length Mirror on Wall: Easy Steps for Perfect Placement'
+description: Are you ready to transform your space with a full length mirror but unsure
+  how to hang it safely and stylishly? You’re not alone. Hanging a large mirror might
+  s
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-full-length-mirror-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-full-length-mirror-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a full length mirror but unsure how to hang it safely and stylishly? You’re not alone.**

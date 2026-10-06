@@ -1,10 +1,14 @@
 ---
-title: "Tj Max Rugs: Stylish, Washable, and Non-Slip Area Rugs for Every Room"
-description: "T.J. Maxx offers an impressive range of rugs suitable for any room in your home. Their selection includes versatile designs and practical features. Rugs can tra"
+title: 'Tj Max Rugs: Stylish, Washable, and Non-Slip Area Rugs for Every Room'
+description: T.J. Maxx offers an impressive range of rugs suitable for any room in
+  your home. Their selection includes versatile designs and practical features. Rugs
+  can tra
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-max-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tj-max-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **T.J. Maxx offers an impressive range of rugs suitable for any room in your home. Their selection includes versatile designs and practical features.**

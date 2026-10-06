@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Blanket: Soft, Cozy, and Stylish Comfort for Every Room"
-description: "Tahari Home blankets offer a blend of style and comfort. These blankets enhance any room with their cozy elegance. Tahari Home blankets come in various styles a"
+title: 'Tahari Home Blanket: Soft, Cozy, and Stylish Comfort for Every Room'
+description: Tahari Home blankets offer a blend of style and comfort. These blankets
+  enhance any room with their cozy elegance. Tahari Home blankets come in various
+  styles a
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tahari Home blankets offer a blend of style and comfort. These blankets enhance any room with their cozy elegance.**

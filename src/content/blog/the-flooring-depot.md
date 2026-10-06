@@ -1,10 +1,13 @@
 ---
-title: "The Flooring Depot: Top Durable and Stylish Flooring Solutions for Every Room"
-description: "The Flooring Depot offers a wide variety of flooring solutions to transform any space. Discover versatile and stylish options for your home or office. Flooring "
+title: 'The Flooring Depot: Top Durable and Stylish Flooring Solutions for Every Room'
+description: 'The Flooring Depot offers a wide variety of flooring solutions to transform
+  any space. Discover versatile and stylish options for your home or office. Flooring '
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-flooring-depot&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=the-flooring-depot&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **The Flooring Depot offers a wide variety of flooring solutions to transform any space. Discover versatile and stylish options for your home or office.**

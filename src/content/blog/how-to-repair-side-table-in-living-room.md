@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Side Table in Living Room: Easy DIY Fixes"
-description: "Is your side table looking a bit worn or wobbly? You don’t have to replace it just yet. With a few simple steps, you can bring your living room side table back "
+title: 'How to Repair Side Table in Living Room: Easy DIY Fixes'
+description: 'Is your side table looking a bit worn or wobbly? You don’t have to replace
+  it just yet. With a few simple steps, you can bring your living room side table
+  back '
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-side-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your side table looking a bit worn or wobbly? You don’t have to replace it just yet.**

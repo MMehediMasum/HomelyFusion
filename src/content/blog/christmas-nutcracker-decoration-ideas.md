@@ -1,10 +1,14 @@
 ---
-title: "Christmas Nutcracker Decoration Ideas: Stunning Tips to Transform Your Home"
-description: "Are you ready to make your home sparkle this holiday season? Christmas Nutcracker decorations bring a timeless charm that instantly lifts your festive spirit. W"
+title: 'Christmas Nutcracker Decoration Ideas: Stunning Tips to Transform Your Home'
+description: Are you ready to make your home sparkle this holiday season? Christmas
+  Nutcracker decorations bring a timeless charm that instantly lifts your festive
+  spirit. W
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-nutcracker-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-nutcracker-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your home sparkle this holiday season? Christmas Nutcracker decorations bring a timeless charm that instantly lifts your festive spirit.**

@@ -1,10 +1,14 @@
 ---
-title: "What Colours Go With a Black Sofa Living Room: Stunning Palette Ideas"
-description: "Choosing the right colours to pair with your black sofa can completely transform your living room. You want a space that feels cozy, stylish, and inviting—not d"
+title: 'What Colours Go With a Black Sofa Living Room: Stunning Palette Ideas'
+description: Choosing the right colours to pair with your black sofa can completely
+  transform your living room. You want a space that feels cozy, stylish, and inviting—not
+  d
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colours-go-with-a-black-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colours-go-with-a-black-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right colours to pair with your black sofa can completely transform your living room. You want a space that feels cozy, stylish, and inviting—not dark or dull.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bath Towels: Soft, Absorbent, and Perfect for Every Bathroom"
-description: "Home goods bath towels bring comfort and style to your bathroom. Choose towels that dry quickly, feel soft, and absorb water well. Bath towels come in many size"
+title: 'Home Goods Bath Towels: Soft, Absorbent, and Perfect for Every Bathroom'
+description: Home goods bath towels bring comfort and style to your bathroom. Choose
+  towels that dry quickly, feel soft, and absorb water well. Bath towels come in many
+  size
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bath-towels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bath-towels&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods bath towels bring comfort and style to your bathroom. Choose towels that dry quickly, feel soft, and absorb water well.**

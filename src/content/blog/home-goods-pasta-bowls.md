@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pasta Bowls: Top Picks for Durable, Stylish Serving Sets"
-description: "Home goods pasta bowls combine style and function for everyday meals. They offer the perfect size and shape for pasta, salads, and soups. Choosing the right pas"
+title: 'Home Goods Pasta Bowls: Top Picks for Durable, Stylish Serving Sets'
+description: Home goods pasta bowls combine style and function for everyday meals.
+  They offer the perfect size and shape for pasta, salads, and soups. Choosing the
+  right pas
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pasta-bowls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pasta-bowls&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods pasta bowls combine style and function for everyday meals. They offer the perfect size and shape for pasta, salads, and soups.**

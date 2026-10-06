@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Bathroom Mirror: Easy Steps for Perfect Placement"
-description: "Hanging a bathroom mirror might seem simple, but getting it just right can transform your space instantly. If you’ve ever struggled with crooked mirrors or worr"
+title: 'How to Hang a Bathroom Mirror: Easy Steps for Perfect Placement'
+description: Hanging a bathroom mirror might seem simple, but getting it just right
+  can transform your space instantly. If you’ve ever struggled with crooked mirrors
+  or worr
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a bathroom mirror might seem simple, but getting it just right can transform your space instantly. If you’ve ever struggled with crooked mirrors or worried about damaging your walls, this guide is made for you.**

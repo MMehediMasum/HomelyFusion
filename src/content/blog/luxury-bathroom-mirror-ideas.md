@@ -1,10 +1,14 @@
 ---
-title: "Luxury Bathroom Mirror Ideas: Stunning Designs to Elevate Your Space"
-description: "Your bathroom mirror is more than just a reflection—it's a chance to add a touch of luxury and style to your space. Imagine stepping into a bathroom where your "
+title: 'Luxury Bathroom Mirror Ideas: Stunning Designs to Elevate Your Space'
+description: 'Your bathroom mirror is more than just a reflection—it''s a chance to
+  add a touch of luxury and style to your space. Imagine stepping into a bathroom
+  where your '
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=luxury-bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=luxury-bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bathroom mirror is more than just a reflection—it's a chance to add a touch of luxury and style to your space. Imagine stepping into a bathroom where your mirror not only brightens the room but also elevates the entire atmosphere.**

@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Romantic Room Lighting Ideas: Create an Intimate Ambiance"
-description: "Looking to create the perfect atmosphere for Valentine’s Day? Your room lighting can make all the difference. The right glow sets the mood, sparks romance, and "
+title: 'Valentine’S Romantic Room Lighting Ideas: Create an Intimate Ambiance'
+description: 'Looking to create the perfect atmosphere for Valentine’s Day? Your room
+  lighting can make all the difference. The right glow sets the mood, sparks romance,
+  and '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-romantic-room-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=valentines-romantic-room-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to create the perfect atmosphere for Valentine’s Day? Your room lighting can make all the difference.**

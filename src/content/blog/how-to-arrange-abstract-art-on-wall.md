@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Abstract Art on Wall: Stunning Tips for Impact"
-description: "Are you ready to transform your space with abstract art but not sure how to arrange it on your wall? The right placement can make your art pop and bring energy "
+title: 'How to Arrange Abstract Art on Wall: Stunning Tips for Impact'
+description: 'Are you ready to transform your space with abstract art but not sure
+  how to arrange it on your wall? The right placement can make your art pop and bring
+  energy '
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-abstract-art-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-abstract-art-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with abstract art but not sure how to arrange it on your wall? The right placement can make your art pop and bring energy to any room.**

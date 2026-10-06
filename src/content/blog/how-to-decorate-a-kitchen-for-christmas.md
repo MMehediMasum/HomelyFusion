@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen for Christmas: Festive Ideas That Wow"
-description: "Christmas is the perfect time to make your kitchen feel warm and festive. Imagine stepping into your kitchen and instantly feeling the holiday spirit. You don’t"
+title: 'How to Decorate a Kitchen for Christmas: Festive Ideas That Wow'
+description: Christmas is the perfect time to make your kitchen feel warm and festive.
+  Imagine stepping into your kitchen and instantly feeling the holiday spirit. You
+  don’t
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas is the perfect time to make your kitchen feel warm and festive. Imagine stepping into your kitchen and instantly feeling the holiday spirit.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Formal Dining Room Table: Stunning Ideas to Impress"
-description: "Your formal dining room table is more than just a place to eat—it’s the centerpiece of your gatherings and celebrations. But how do you turn it from plain to pe"
+title: 'How to Decorate a Formal Dining Room Table: Stunning Ideas to Impress'
+description: Your formal dining room table is more than just a place to eat—it’s the
+  centerpiece of your gatherings and celebrations. But how do you turn it from plain
+  to pe
 pubDate: 2025-10-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-formal-dining-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-formal-dining-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your formal dining room table is more than just a place to eat—it’s the centerpiece of your gatherings and celebrations. But how do you turn it from plain to perfect?**

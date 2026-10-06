@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Top of a Tall Cabinet: Stunning Ideas Revealed"
-description: "Have you ever looked at the top of your tall cabinet and felt it’s just empty space waiting to be transformed? That unused area holds so much potential to add s"
+title: 'How to Decorate the Top of a Tall Cabinet: Stunning Ideas Revealed'
+description: Have you ever looked at the top of your tall cabinet and felt it’s just
+  empty space waiting to be transformed? That unused area holds so much potential
+  to add s
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-a-tall-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-a-tall-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked at the top of your tall cabinet and felt it’s just empty space waiting to be transformed? That unused area holds so much potential to add style and personality to your room.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Baseboards Cleaning Tools: Ultimate Guide to Spotless Skirting"
-description: "Floor and Decor baseboards add a clean, polished look to any room. They protect walls and cover gaps between floors and walls. Baseboards come in many styles an"
+title: 'Floor And Decor Baseboards Cleaning Tools: Ultimate Guide to Spotless Skirting'
+description: Floor and Decor baseboards add a clean, polished look to any room. They
+  protect walls and cover gaps between floors and walls. Baseboards come in many styles
+  an
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-baseboards&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-baseboards&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor baseboards add a clean, polished look to any room. They protect walls and cover gaps between floors and walls.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Cabinets: Stylish Storage Solutions for Every Room"
-description: "Floor and Decor cabinets offer versatile storage solutions for any room in your home. These cabinets combine style and function to keep spaces neat and organize"
+title: 'Floor And Decor Cabinets: Stylish Storage Solutions for Every Room'
+description: Floor and Decor cabinets offer versatile storage solutions for any room
+  in your home. These cabinets combine style and function to keep spaces neat and
+  organize
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Floor and Decor cabinets offer versatile storage solutions for any room in your home. These cabinets combine style and function to keep spaces neat and organized.**

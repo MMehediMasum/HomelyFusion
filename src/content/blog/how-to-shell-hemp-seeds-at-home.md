@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Shell Hemp Seeds at Home: Easy Steps for Perfect Results"
 description: "If you’ve ever bought hemp seeds, you know how convenient and nutritious they are. But have you wondered how to shell hemp seeds at home and enjoy fresh, natura"
 pubDate: 2026-03-03

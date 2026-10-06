@@ -1,10 +1,14 @@
 ---
-title: "Rifle Paper Co Rugs Homegoods: Stylish Area Rugs to Elevate Your Space"
-description: "Rifle Paper Co rugs blend art and comfort for every home. These rugs feature colorful floral patterns and soft textures. Rifle Paper Co rugs bring beauty and wa"
+title: 'Rifle Paper Co Rugs Homegoods: Stylish Area Rugs to Elevate Your Space'
+description: Rifle Paper Co rugs blend art and comfort for every home. These rugs
+  feature colorful floral patterns and soft textures. Rifle Paper Co rugs bring beauty
+  and wa
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rifle-paper-co-rugs-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=rifle-paper-co-rugs-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Rifle Paper Co rugs blend art and comfort for every home. These rugs feature colorful floral patterns and soft textures.**

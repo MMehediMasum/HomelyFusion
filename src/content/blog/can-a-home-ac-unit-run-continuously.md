@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Home AC Unit Run Continuously: Essential Facts Revealed"
 description: "Have you ever wondered if your home AC unit can run all day without stopping? You might be curious because it feels like your air conditioner is always on, espe"
 pubDate: 2026-04-05

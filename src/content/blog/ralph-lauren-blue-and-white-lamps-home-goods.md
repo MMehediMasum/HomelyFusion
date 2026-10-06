@@ -1,10 +1,15 @@
 ---
-title: "Ralph Lauren Blue And White Lamps Home Goods: Elegant Lighting Ideas for Any Room"
-description: "Ralph Lauren blue and white lamps add timeless charm to any room. These lamps blend classic design with modern function. Blue and white lamps have a fresh, clea"
+title: 'Ralph Lauren Blue And White Lamps Home Goods: Elegant Lighting Ideas for Any
+  Room'
+description: Ralph Lauren blue and white lamps add timeless charm to any room. These
+  lamps blend classic design with modern function. Blue and white lamps have a fresh,
+  clea
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-blue-and-white-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-blue-and-white-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren blue and white lamps add timeless charm to any room. These lamps blend classic design with modern function.**

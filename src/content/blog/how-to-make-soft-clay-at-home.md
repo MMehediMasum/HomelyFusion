@@ -1,10 +1,14 @@
 ---
-title: "How to Make Soft Clay at Home: Easy DIY Recipe for Kids & Adults"
-description: "Have you ever wanted to create soft clay right at home without buying expensive kits? Imagine having a smooth, easy-to-mold clay that feels just right every tim"
+title: 'How to Make Soft Clay at Home: Easy DIY Recipe for Kids & Adults'
+description: Have you ever wanted to create soft clay right at home without buying
+  expensive kits? Imagine having a smooth, easy-to-mold clay that feels just right
+  every tim
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-soft-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-soft-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create soft clay right at home without buying expensive kits? Imagine having a smooth, easy-to-mold clay that feels just right every time you use it.**

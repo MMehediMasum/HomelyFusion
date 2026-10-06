@@ -1,10 +1,14 @@
 ---
-title: "How to Mount a Wall Sconce: Easy Steps for Stunning Lighting"
-description: "Are you looking to add style and extra light to your room without taking up floor space? Mounting a wall sconce is a simple way to brighten up your home and cre"
+title: 'How to Mount a Wall Sconce: Easy Steps for Stunning Lighting'
+description: Are you looking to add style and extra light to your room without taking
+  up floor space? Mounting a wall sconce is a simple way to brighten up your home
+  and cre
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-mount-a-wall-sconce&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-mount-a-wall-sconce&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to add style and extra light to your room without taking up floor space? Mounting a wall sconce is a simple way to brighten up your home and create a cozy atmosphere.**

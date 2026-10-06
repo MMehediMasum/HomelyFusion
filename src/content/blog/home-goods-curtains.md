@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Curtains: Top Blackout and Linen Drapes for Cozy Living"
-description: "Home goods curtains add style and function to any room. They control light, provide privacy, and enhance decor. Choosing the right curtains can change your home"
+title: 'Home Goods Curtains: Top Blackout and Linen Drapes for Cozy Living'
+description: Home goods curtains add style and function to any room. They control
+  light, provide privacy, and enhance decor. Choosing the right curtains can change
+  your home
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods curtains add style and function to any room. They control light, provide privacy, and enhance decor.**

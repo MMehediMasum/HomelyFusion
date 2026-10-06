@@ -1,10 +1,14 @@
 ---
-title: "Tjmaxx Gingerbread Pillow: Cozy Holiday Decor for Festive Living Spaces"
-description: "Tjmaxx Gingerbread Pillows add festive charm to any home during the holiday season. These cozy, soft pillows bring warmth and joy to your living space. Tjmaxx o"
+title: 'Tjmaxx Gingerbread Pillow: Cozy Holiday Decor for Festive Living Spaces'
+description: Tjmaxx Gingerbread Pillows add festive charm to any home during the holiday
+  season. These cozy, soft pillows bring warmth and joy to your living space. Tjmaxx
+  o
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tjmaxx-gingerbread-pillow&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tjmaxx-gingerbread-pillow&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tjmaxx Gingerbread Pillows add festive charm to any home during the holiday season. These cozy, soft pillows bring warmth and joy to your living space.**

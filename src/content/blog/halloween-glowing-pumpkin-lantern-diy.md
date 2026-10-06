@@ -1,10 +1,14 @@
 ---
-title: "Halloween Glowing Pumpkin Lantern Diy: Easy Steps for Spooky Glow"
-description: "Are you ready to make your Halloween decorations stand out this year? Imagine a glowing pumpkin lantern that lights up your porch and catches everyone’s eye. Cr"
+title: 'Halloween Glowing Pumpkin Lantern Diy: Easy Steps for Spooky Glow'
+description: Are you ready to make your Halloween decorations stand out this year?
+  Imagine a glowing pumpkin lantern that lights up your porch and catches everyone’s
+  eye. Cr
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-glowing-pumpkin-lantern-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-glowing-pumpkin-lantern-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Halloween decorations stand out this year? Imagine a glowing pumpkin lantern that lights up your porch and catches everyone’s eye.**

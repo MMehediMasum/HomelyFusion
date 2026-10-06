@@ -1,10 +1,14 @@
 ---
-title: "Best Window Treatments for Bedroom: Top Blackout Curtains and Drapes"
-description: "Choosing the best window treatments for your bedroom boosts comfort and style. Blackout curtains, thermal drapes, and sheer panels all serve different needs. Be"
+title: 'Best Window Treatments for Bedroom: Top Blackout Curtains and Drapes'
+description: Choosing the best window treatments for your bedroom boosts comfort and
+  style. Blackout curtains, thermal drapes, and sheer panels all serve different needs.
+  Be
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-window-treatments-for-bedroom-top-blackout-curtains-and-drapes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-window-treatments-for-bedroom-top-blackout-curtains-and-drapes&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best window treatments for your bedroom boosts comfort and style. Blackout curtains, thermal drapes, and sheer panels all serve different needs.**

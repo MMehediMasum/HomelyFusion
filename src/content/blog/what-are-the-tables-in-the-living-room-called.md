@@ -1,10 +1,14 @@
 ---
-title: "What are the Tables in the Living Room Called: Ultimate Guide"
-description: "Have you ever wondered what those different tables in your living room are actually called? You probably use them every day but might not know their real names "
+title: 'What are the Tables in the Living Room Called: Ultimate Guide'
+description: 'Have you ever wondered what those different tables in your living room
+  are actually called? You probably use them every day but might not know their real
+  names '
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-tables-in-the-living-room-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-tables-in-the-living-room-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what those different tables in your living room are actually called? You probably use them every day but might not know their real names or the best way to use them.**

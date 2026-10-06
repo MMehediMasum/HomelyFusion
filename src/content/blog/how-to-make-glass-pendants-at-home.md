@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Glass Pendants at Home: Easy Steps for Stunning Designs"
 description: "Have you ever wanted to create your own beautiful glass pendants right at home? Imagine turning simple materials into stunning pieces of art that you can wear o"
 pubDate: 2026-04-20

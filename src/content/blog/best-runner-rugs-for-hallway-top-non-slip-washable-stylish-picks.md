@@ -1,10 +1,14 @@
 ---
-title: "Best Runner Rugs for Hallway: Top Non-Slip, Washable, Stylish Picks"
-description: "Choosing the best runner rug for your hallway can transform your space instantly. Runner rugs add comfort, style, and protect your floors from wear. Hallways of"
+title: 'Best Runner Rugs for Hallway: Top Non-Slip, Washable, Stylish Picks'
+description: Choosing the best runner rug for your hallway can transform your space
+  instantly. Runner rugs add comfort, style, and protect your floors from wear. Hallways
+  of
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-runner-rugs-for-hallway-top-non-slip-washable-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-runner-rugs-for-hallway-top-non-slip-washable-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best runner rug for your hallway can transform your space instantly. Runner rugs add comfort, style, and protect your floors from wear.**

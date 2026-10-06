@@ -1,10 +1,13 @@
 ---
-title: "How to Accessorize a Grey Sectional Living Room Chair: Stylish Tips"
-description: "Your grey sectional living room chair is more than just a place to sit—it’s the centerpiece of your space. But how do you make it stand out without overwhelming"
+title: 'How to Accessorize a Grey Sectional Living Room Chair: Stylish Tips'
+description: Your grey sectional living room chair is more than just a place to sit—it’s
+  the centerpiece of your space. But how do you make it stand out without overwhelming
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-accessorize-a-grey-sectional-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-accessorize-a-grey-sectional-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your grey sectional living room chair is more than just a place to sit—it’s the centerpiece of your space. But how do you make it stand out without overwhelming the room?**

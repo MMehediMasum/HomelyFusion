@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Bed Bugs Live Outside Bedroom? Shocking Truth Revealed!"
 description: "Have you ever wondered if bed bugs stay only in your bedroom or if they can live outside it too? If you’re dealing with these tiny pests, knowing where they hid"
 pubDate: 2026-05-22

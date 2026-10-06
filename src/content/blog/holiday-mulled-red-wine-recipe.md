@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Mulled Red Wine Recipe: Cozy & Festive Warmth in a Glass"
 description: "Imagine cozying up by the fire with a warm cup of spiced red wine in your hand. This holiday mulled red wine recipe is exactly what you need to bring that comfo"
 pubDate: 2025-12-23

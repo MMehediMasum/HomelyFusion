@@ -1,10 +1,13 @@
 ---
-title: "How to Hang Christmas Stockings: Easy Tips for Festive Charm"
-description: "Hanging Christmas stockings might seem simple, but getting it just right can bring a warm, festive touch to your home. Imagine the joy of seeing your stockings "
+title: 'How to Hang Christmas Stockings: Easy Tips for Festive Charm'
+description: 'Hanging Christmas stockings might seem simple, but getting it just right
+  can bring a warm, festive touch to your home. Imagine the joy of seeing your stockings '
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-christmas-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stockings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-christmas-stockings&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Hanging Christmas stockings might seem simple, but getting it just right can bring a warm, festive touch to your home. Imagine the joy of seeing your stockings perfectly displayed, ready to be filled with surprises on Christmas morning.**

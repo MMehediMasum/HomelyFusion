@@ -1,10 +1,13 @@
 ---
-title: "How to Organise Bedroom Wardrobe: Ultimate Tips for Clutter-Free Style"
-description: "Is your bedroom wardrobe a cluttered mess that makes finding your favorite outfit a daily struggle? Imagine opening your wardrobe and instantly spotting exactly"
+title: 'How to Organise Bedroom Wardrobe: Ultimate Tips for Clutter-Free Style'
+description: Is your bedroom wardrobe a cluttered mess that makes finding your favorite
+  outfit a daily struggle? Imagine opening your wardrobe and instantly spotting exactly
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organise-bedroom-wardrobe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organise-bedroom-wardrobe&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Is your bedroom wardrobe a cluttered mess that makes finding your favorite outfit a daily struggle? Imagine opening your wardrobe and instantly spotting exactly what you need, saving time and stress every morning.**

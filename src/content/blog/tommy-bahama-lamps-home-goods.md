@@ -1,10 +1,14 @@
 ---
-title: "Tommy Bahama Lamps Home Goods: Stylish Coastal Table Lamps with USB Ports"
-description: "Tommy Bahama lamps bring a touch of coastal elegance into your home. Discover versatile lighting options for every room. These lamps effortlessly blend style an"
+title: 'Tommy Bahama Lamps Home Goods: Stylish Coastal Table Lamps with USB Ports'
+description: Tommy Bahama lamps bring a touch of coastal elegance into your home.
+  Discover versatile lighting options for every room. These lamps effortlessly blend
+  style an
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-bahama-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=tommy-bahama-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tommy Bahama lamps bring a touch of coastal elegance into your home. Discover versatile lighting options for every room.**

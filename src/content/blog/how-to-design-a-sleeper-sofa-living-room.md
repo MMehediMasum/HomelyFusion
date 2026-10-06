@@ -1,10 +1,13 @@
 ---
-title: "How to Design a Sleeper Sofa Living Room: Stylish & Space-Savvy Tips"
-description: "Are you looking to make the most out of your living room without sacrificing style or comfort? Designing a sleeper sofa living room might be the perfect solutio"
+title: 'How to Design a Sleeper Sofa Living Room: Stylish & Space-Savvy Tips'
+description: Are you looking to make the most out of your living room without sacrificing
+  style or comfort? Designing a sleeper sofa living room might be the perfect solutio
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-a-sleeper-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-a-sleeper-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to make the most out of your living room without sacrificing style or comfort? Designing a sleeper sofa living room might be the perfect solution for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Indoor Pictures: Top Softbox Kits for Perfect Shots"
-description: "Choosing the best lighting for indoor pictures is key to capturing clear, vibrant photos. Proper lighting enhances details and sets the perfect mood. Indoor pho"
+title: 'Best Lighting for Indoor Pictures: Top Softbox Kits for Perfect Shots'
+description: Choosing the best lighting for indoor pictures is key to capturing clear,
+  vibrant photos. Proper lighting enhances details and sets the perfect mood. Indoor
+  pho
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-indoor-pictures-top-softbox-kits-for-perfect-shots&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-indoor-pictures-top-softbox-kits-for-perfect-shots&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for indoor pictures is key to capturing clear, vibrant photos. Proper lighting enhances details and sets the perfect mood.**

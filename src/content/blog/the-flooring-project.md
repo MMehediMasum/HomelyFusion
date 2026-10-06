@@ -1,10 +1,14 @@
 ---
-title: "The Flooring Project: Essential Tools and Tips for Perfect Installation"
-description: "The Flooring Project covers essential tools, techniques, and tips for various flooring jobs. It helps you plan, install, and protect floors effectively. Floorin"
+title: 'The Flooring Project: Essential Tools and Tips for Perfect Installation'
+description: The Flooring Project covers essential tools, techniques, and tips for
+  various flooring jobs. It helps you plan, install, and protect floors effectively.
+  Floorin
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-flooring-project&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=the-flooring-project&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **The Flooring Project covers essential tools, techniques, and tips for various flooring jobs. It helps you plan, install, and protect floors effectively.**

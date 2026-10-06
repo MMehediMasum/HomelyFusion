@@ -1,10 +1,14 @@
 ---
-title: "Christmas Candy Cane Decoration Ideas: Festive & Easy DIY Inspirations"
-description: "Are you looking for simple and fun ways to brighten up your home this holiday season? Christmas candy cane decorations are a perfect choice! They bring a classi"
+title: 'Christmas Candy Cane Decoration Ideas: Festive & Easy DIY Inspirations'
+description: Are you looking for simple and fun ways to brighten up your home this
+  holiday season? Christmas candy cane decorations are a perfect choice! They bring
+  a classi
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-candy-cane-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-candy-cane-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for simple and fun ways to brighten up your home this holiday season? Christmas candy cane decorations are a perfect choice!**

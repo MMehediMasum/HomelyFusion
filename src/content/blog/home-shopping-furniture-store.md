@@ -1,10 +1,14 @@
 ---
-title: "Home Shopping Furniture Store: Top Stylish Storage Solutions for Every Room"
-description: "Finding the right furniture for your home can be challenging. Home Shopping Furniture Store offers practical and stylish solutions. Our curated selection of fur"
+title: 'Home Shopping Furniture Store: Top Stylish Storage Solutions for Every Room'
+description: Finding the right furniture for your home can be challenging. Home Shopping
+  Furniture Store offers practical and stylish solutions. Our curated selection of
+  fur
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-shopping-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-shopping-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the right furniture for your home can be challenging. Home Shopping Furniture Store offers practical and stylish solutions.**

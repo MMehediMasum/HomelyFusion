@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Mold in Bedroom: Easy Steps for a Healthy Home"
-description: "Mold in your bedroom isn’t just ugly—it can affect your health and make your space feel uncomfortable. If you’ve spotted those dark spots or noticed a musty sme"
+title: 'How to Clean Mold in Bedroom: Easy Steps for a Healthy Home'
+description: Mold in your bedroom isn’t just ugly—it can affect your health and make
+  your space feel uncomfortable. If you’ve spotted those dark spots or noticed a musty
+  sme
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-mold-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-mold-in-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Mold in your bedroom isn’t just ugly—it can affect your health and make your space feel uncomfortable. If you’ve spotted those dark spots or noticed a musty smell, it’s important to act quickly.**

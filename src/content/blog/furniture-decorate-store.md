@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decorate Store: Stylish Modern Lamps and Rustic Home Accents"
-description: "Discover how to breathe new life into your living spaces with the right furniture and decor. Elevate your home's ambiance effortlessly. Decorating your home can"
+title: 'Furniture Decorate Store: Stylish Modern Lamps and Rustic Home Accents'
+description: Discover how to breathe new life into your living spaces with the right
+  furniture and decor. Elevate your home's ambiance effortlessly. Decorating your
+  home can
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decorate-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decorate-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover how to breathe new life into your living spaces with the right furniture and decor. Elevate your home's ambiance effortlessly.**

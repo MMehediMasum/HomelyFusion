@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bed Pillows: Ultimate Comfort with Memory Foam & Cooling Gel"
-description: "Home Goods bed pillows offer comfort and support for a restful night’s sleep. These pillows suit different sleep styles and preferences. Choosing the right pill"
+title: 'Home Goods Bed Pillows: Ultimate Comfort with Memory Foam & Cooling Gel'
+description: Home Goods bed pillows offer comfort and support for a restful night’s
+  sleep. These pillows suit different sleep styles and preferences. Choosing the right
+  pill
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bed-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bed-pillows&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Home Goods bed pillows offer comfort and support for a restful night’s sleep. These pillows suit different sleep styles and preferences.**

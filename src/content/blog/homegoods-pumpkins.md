@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Pumpkins: Perfect Fall Decor for Cozy Harvest Homes"
-description: "Homegoods pumpkins bring cozy autumn vibes to any space. These decorative pumpkins fit perfectly with fall and Thanksgiving themes. Pumpkin decor adds warmth an"
+title: 'Homegoods Pumpkins: Perfect Fall Decor for Cozy Harvest Homes'
+description: Homegoods pumpkins bring cozy autumn vibes to any space. These decorative
+  pumpkins fit perfectly with fall and Thanksgiving themes. Pumpkin decor adds warmth
+  an
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-pumpkins&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-pumpkins&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegoods pumpkins bring cozy autumn vibes to any space. These decorative pumpkins fit perfectly with fall and Thanksgiving themes.**

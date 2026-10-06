@@ -1,10 +1,14 @@
 ---
-title: "Max Studio Home Blanket: Ultimate Softness and Cozy Warmth for Any Room"
-description: "The Max Studio Home Blanket offers warmth and comfort for any room. It combines softness with stylish design to enhance your space. This blanket suits all seaso"
+title: 'Max Studio Home Blanket: Ultimate Softness and Cozy Warmth for Any Room'
+description: The Max Studio Home Blanket offers warmth and comfort for any room. It
+  combines softness with stylish design to enhance your space. This blanket suits
+  all seaso
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=max-studio-home-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=max-studio-home-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Max Studio Home Blanket offers warmth and comfort for any room. It combines softness with stylish design to enhance your space.**

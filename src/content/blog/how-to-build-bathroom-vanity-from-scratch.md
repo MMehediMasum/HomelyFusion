@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bathroom Vanity from Scratch: Easy DIY Guide"
-description: "Are you ready to transform your bathroom with a beautiful, custom vanity that fits your style and space perfectly? Building a bathroom vanity from scratch might"
+title: 'How to Build Bathroom Vanity from Scratch: Easy DIY Guide'
+description: Are you ready to transform your bathroom with a beautiful, custom vanity
+  that fits your style and space perfectly? Building a bathroom vanity from scratch
+  might
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bathroom-vanity-from-scratch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bathroom-vanity-from-scratch&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom with a beautiful, custom vanity that fits your style and space perfectly? Building a bathroom vanity from scratch might sound challenging, but with the right steps, you can create a stunning piece that saves you money and adds real value to your home.**

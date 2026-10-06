@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Office: Stylish, Washable, and Non-Slip Comfort Options"
-description: "Choosing the best rugs for office spaces can improve comfort and style. A good rug adds warmth, reduces noise, and protects your floor. Rugs in offices create a"
+title: 'Best Rugs for Office: Stylish, Washable, and Non-Slip Comfort Options'
+description: Choosing the best rugs for office spaces can improve comfort and style.
+  A good rug adds warmth, reduces noise, and protects your floor. Rugs in offices
+  create a
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-office-stylish-washable-and-non-slip-comfort-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-office-stylish-washable-and-non-slip-comfort-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for office spaces can improve comfort and style. A good rug adds warmth, reduces noise, and protects your floor.**

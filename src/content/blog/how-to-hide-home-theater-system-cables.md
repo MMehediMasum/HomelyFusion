@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Home Theater System Cables: Easy & Effective Tips"
 description: "Are tangled cables ruining the sleek look of your home theater? You’re not alone. Those messy wires can distract from the amazing experience your system offers."
 pubDate: 2026-04-26

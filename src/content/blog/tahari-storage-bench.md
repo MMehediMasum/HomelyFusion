@@ -1,10 +1,14 @@
 ---
-title: "Tahari Storage Bench: Stylish Seating with Ample Hidden Storage Space"
-description: "The Tahari Storage Bench blends practicality and style. Perfect for living rooms, bedrooms, or entryways, it offers versatile storage and seating. Finding the r"
+title: 'Tahari Storage Bench: Stylish Seating with Ample Hidden Storage Space'
+description: The Tahari Storage Bench blends practicality and style. Perfect for living
+  rooms, bedrooms, or entryways, it offers versatile storage and seating. Finding
+  the r
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-storage-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=tahari-storage-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **The Tahari Storage Bench blends practicality and style. Perfect for living rooms, bedrooms, or entryways, it offers versatile storage and seating.**

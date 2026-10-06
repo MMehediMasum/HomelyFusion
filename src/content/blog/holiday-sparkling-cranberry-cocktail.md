@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Sparkling Cranberry Cocktail: Festive, Refreshing & Easy"
 description: "Looking for a festive drink that instantly lifts your holiday spirit? Your search ends here with the Holiday Sparkling Cranberry Cocktail. This refreshing and v"
 pubDate: 2025-10-15

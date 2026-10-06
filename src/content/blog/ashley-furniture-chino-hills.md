@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Chino Hills: Stylish French Country & Coastal Home Essentials"
-description: "Ashley Furniture in Chino Hills offers elegant and stylish pieces for your home. Discover beautifully crafted items in various designs. Ashley Furniture in Chin"
+title: 'Ashley Furniture Chino Hills: Stylish French Country & Coastal Home Essentials'
+description: Ashley Furniture in Chino Hills offers elegant and stylish pieces for
+  your home. Discover beautifully crafted items in various designs. Ashley Furniture
+  in Chin
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-chino-hills&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-chino-hills&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ashley Furniture in Chino Hills offers elegant and stylish pieces for your home. Discover beautifully crafted items in various designs.**

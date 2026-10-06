@@ -1,10 +1,14 @@
 ---
-title: "What Color Bathroom Vanity is Timeless: Classic Shades That Last"
-description: "Choosing the right color for your bathroom vanity can feel overwhelming. You want something that looks great now but won’t feel outdated in a few years. What if"
+title: 'What Color Bathroom Vanity is Timeless: Classic Shades That Last'
+description: Choosing the right color for your bathroom vanity can feel overwhelming.
+  You want something that looks great now but won’t feel outdated in a few years.
+  What if
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-bathroom-vanity-is-timeless&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-color-bathroom-vanity-is-timeless&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right color for your bathroom vanity can feel overwhelming. You want something that looks great now but won’t feel outdated in a few years.**

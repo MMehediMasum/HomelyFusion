@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Stainless Steel Rod at Home: Easy & Safe Techniques"
 description: "Cutting stainless steel rod at home might sound tricky, but it doesn’t have to be. Whether you’re working on a DIY project or fixing something around the house,"
 pubDate: 2026-04-10

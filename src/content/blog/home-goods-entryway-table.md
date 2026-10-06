@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Entryway Table Ideas to Elevate Your Foyer Storage Space"
-description: "Entryway tables combine style and function in your home's first impression. They offer storage, organization, and a welcoming touch. A home goods entryway table"
+title: Home Goods Entryway Table Ideas to Elevate Your Foyer Storage Space
+description: Entryway tables combine style and function in your home's first impression.
+  They offer storage, organization, and a welcoming touch. A home goods entryway table
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-entryway-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-entryway-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Entryway tables combine style and function in your home's first impression. They offer storage, organization, and a welcoming touch.**

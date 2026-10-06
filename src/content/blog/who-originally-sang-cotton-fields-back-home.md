@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Originally Sang Cotton Fields Back Home: Uncover the Legend"
 description: "Have you ever wondered who originally sang \"Cotton Fields Back Home\"? This song has touched many hearts over the years, but its roots run deep and rich with his"
 pubDate: 2026-02-16

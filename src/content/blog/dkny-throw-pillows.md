@@ -1,10 +1,14 @@
 ---
-title: "Dkny Throw Pillows: Stylish Luxury Accents for Cozy Home Decor"
-description: "DKNY throw pillows blend style and comfort for any home space. Their designs suit couches, beds, and chairs with ease. These pillows come in various textures an"
+title: 'Dkny Throw Pillows: Stylish Luxury Accents for Cozy Home Decor'
+description: DKNY throw pillows blend style and comfort for any home space. Their
+  designs suit couches, beds, and chairs with ease. These pillows come in various
+  textures an
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-throw-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=dkny-throw-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **DKNY throw pillows blend style and comfort for any home space. Their designs suit couches, beds, and chairs with ease.**

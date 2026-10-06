@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Michigan: Top Picks for Stylish Home and Fan Gear"
 description: "Discover unique floor and decor items that celebrate Michigan's rich culture and style. From area rugs to wall art, Michigan-themed decor offers something for e"
 pubDate: 2026-07-18

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Sofa: Stunning Ideas for Cozy Style"
-description: "Your living room sofa is more than just a place to sit—it’s the heart of your home. How you decorate it can change the entire feel of the room. Imagine walking "
+title: 'How to Decorate Living Room Sofa: Stunning Ideas for Cozy Style'
+description: 'Your living room sofa is more than just a place to sit—it’s the heart
+  of your home. How you decorate it can change the entire feel of the room. Imagine
+  walking '
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room sofa is more than just a place to sit—it’s the heart of your home. How you decorate it can change the entire feel of the room.**

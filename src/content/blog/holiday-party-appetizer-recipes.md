@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Party Appetizer Recipes: Irresistible Bites to Impress Guests"
 description: "Are you ready to impress your guests with delicious holiday party appetizer recipes? Whether you’re hosting a big celebration or a cozy get-together, having the"
 pubDate: 2025-10-20

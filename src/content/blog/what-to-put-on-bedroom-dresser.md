@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Bedroom Dresser: Stylish Ideas to Transform Your Space"
-description: "Your bedroom dresser is more than just a piece of furniture—it’s a chance to express your style and keep your daily essentials within reach. But what should you"
+title: 'What to Put on Bedroom Dresser: Stylish Ideas to Transform Your Space'
+description: Your bedroom dresser is more than just a piece of furniture—it’s a chance
+  to express your style and keep your daily essentials within reach. But what should
+  you
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser is more than just a piece of furniture—it’s a chance to express your style and keep your daily essentials within reach. But what should you put on your dresser to make it both beautiful and practical?**

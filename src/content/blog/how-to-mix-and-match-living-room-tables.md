@@ -1,10 +1,14 @@
 ---
-title: "How to Mix And Match Living Room Tables: Stylish Tips for Harmony"
-description: "Looking to give your living room a fresh, stylish look without buying all new furniture? Mixing and matching living room tables is the secret to creating a spac"
+title: 'How to Mix And Match Living Room Tables: Stylish Tips for Harmony'
+description: Looking to give your living room a fresh, stylish look without buying
+  all new furniture? Mixing and matching living room tables is the secret to creating
+  a spac
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-mix-and-match-living-room-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-mix-and-match-living-room-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to give your living room a fresh, stylish look without buying all new furniture? Mixing and matching living room tables is the secret to creating a space that feels both unique and inviting.**

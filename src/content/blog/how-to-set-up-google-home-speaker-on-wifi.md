@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home Speaker on Wifi: Easy Step-by-Step Guide"
 description: "Setting up your Google Home speaker on WiFi might seem tricky at first, but it’s easier than you think. Imagine having your favorite music, news, and smart home"
 pubDate: 2025-11-19

@@ -1,10 +1,15 @@
 ---
-title: "Furniture & Decor Ideas: Stylish Storage, Lighting, and Accent Pieces for Home"
-description: "Furniture and decor bring warmth and personality to any living space. They serve both functional and aesthetic purposes. Creating a comfortable and stylish home"
+title: 'Furniture & Decor Ideas: Stylish Storage, Lighting, and Accent Pieces for
+  Home'
+description: Furniture and decor bring warmth and personality to any living space.
+  They serve both functional and aesthetic purposes. Creating a comfortable and stylish
+  home
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture and decor bring warmth and personality to any living space. They serve both functional and aesthetic purposes.**

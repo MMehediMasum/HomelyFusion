@@ -1,10 +1,14 @@
 ---
-title: "How to Make Air Drying Clay at Home: Easy DIY Recipe Guide"
-description: "Have you ever wanted to create your own air drying clay at home but didn’t know where to start? Making clay yourself is easier than you think, and it gives you "
+title: 'How to Make Air Drying Clay at Home: Easy DIY Recipe Guide'
+description: 'Have you ever wanted to create your own air drying clay at home but
+  didn’t know where to start? Making clay yourself is easier than you think, and it
+  gives you '
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-drying-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-drying-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own air drying clay at home but didn’t know where to start? Making clay yourself is easier than you think, and it gives you full control over the materials you use.**

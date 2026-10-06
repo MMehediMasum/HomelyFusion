@@ -1,10 +1,14 @@
 ---
-title: "China Cabinet Home Goods: Stylish Storage Solutions for Every Room"
-description: "China cabinets add style and storage to any home. They offer a smart way to keep your dishes and decor organized. China cabinet home goods come in many designs "
+title: 'China Cabinet Home Goods: Stylish Storage Solutions for Every Room'
+description: 'China cabinets add style and storage to any home. They offer a smart
+  way to keep your dishes and decor organized. China cabinet home goods come in many
+  designs '
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=china-cabinet-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=china-cabinet-home-goods&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **China cabinets add style and storage to any home. They offer a smart way to keep your dishes and decor organized.**

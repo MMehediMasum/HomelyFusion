@@ -1,10 +1,14 @@
 ---
-title: "Silver Vase Home Decor: Elegant Centerpieces to Transform Any Room"
-description: "Silver vases add a sleek, elegant touch to any home decor. They fit well in living rooms, bedrooms, and office spaces. Silver vase home decor blends style and s"
+title: 'Silver Vase Home Decor: Elegant Centerpieces to Transform Any Room'
+description: Silver vases add a sleek, elegant touch to any home decor. They fit well
+  in living rooms, bedrooms, and office spaces. Silver vase home decor blends style
+  and s
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=silver-vase-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=silver-vase-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Silver vases add a sleek, elegant touch to any home decor. They fit well in living rooms, bedrooms, and office spaces.**

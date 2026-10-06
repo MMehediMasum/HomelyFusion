@@ -1,10 +1,14 @@
 ---
-title: "Flooring Design Center: Top Picks for Stylish and Functional Home Floors"
-description: "A Flooring Design Center offers a variety of floor-related products for homes and offices. It helps you find the right items to improve your space’s look and fu"
+title: 'Flooring Design Center: Top Picks for Stylish and Functional Home Floors'
+description: A Flooring Design Center offers a variety of floor-related products for
+  homes and offices. It helps you find the right items to improve your space’s look
+  and fu
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-design-center&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=flooring-design-center&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A Flooring Design Center offers a variety of floor-related products for homes and offices. It helps you find the right items to improve your space’s look and function.**

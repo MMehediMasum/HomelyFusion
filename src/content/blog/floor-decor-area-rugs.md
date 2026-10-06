@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Area Rugs: Plush, Non-Slip Soft Rugs for Stylish Living Spaces"
-description: "Floor Decor area rugs add comfort and style to any room. They protect floors while creating a cozy atmosphere. Area rugs come in many designs and sizes to fit y"
+title: 'Floor Decor Area Rugs: Plush, Non-Slip Soft Rugs for Stylish Living Spaces'
+description: Floor Decor area rugs add comfort and style to any room. They protect
+  floors while creating a cozy atmosphere. Area rugs come in many designs and sizes
+  to fit y
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-area-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-area-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor area rugs add comfort and style to any room. They protect floors while creating a cozy atmosphere.**

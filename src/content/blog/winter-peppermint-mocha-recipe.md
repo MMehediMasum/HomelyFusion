@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Winter Peppermint Mocha Recipe: Cozy, Delicious & Easy to Make"
 description: "Are you craving a cozy drink that instantly warms you up on chilly days? Your search ends here with this easy Winter Peppermint Mocha Recipe. Imagine the rich t"
 pubDate: 2026-01-13

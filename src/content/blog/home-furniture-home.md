@@ -1,10 +1,13 @@
 ---
-title: "Home Furniture Home Essentials: Stylish Storage and Decor Solutions"
-description: "Transform your living space with versatile home furniture that combines style with functionality. Discover pieces that maximize your space without compromising "
+title: 'Home Furniture Home Essentials: Stylish Storage and Decor Solutions'
+description: 'Transform your living space with versatile home furniture that combines
+  style with functionality. Discover pieces that maximize your space without compromising '
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Transform your living space with versatile home furniture that combines style with functionality. Discover pieces that maximize your space without compromising on aesthetics.**

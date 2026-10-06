@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Wall Art Ideas to Transform Your Bathroom and Living Room"
-description: "Homegoods wall art offers stylish and affordable options to decorate any room. Their diverse collection suits many tastes and spaces. Choosing the right wall ar"
+title: Homegoods Wall Art Ideas to Transform Your Bathroom and Living Room
+description: Homegoods wall art offers stylish and affordable options to decorate
+  any room. Their diverse collection suits many tastes and spaces. Choosing the right
+  wall ar
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Homegoods wall art offers stylish and affordable options to decorate any room. Their diverse collection suits many tastes and spaces.**

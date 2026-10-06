@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Red Sofa Living Room: Stunning Style Tips"
-description: "A red sofa is bold, beautiful, and full of personality. But decorating a living room around such a strong piece can feel tricky. You might wonder how to balance"
+title: 'How to Decorate a Red Sofa Living Room: Stunning Style Tips'
+description: A red sofa is bold, beautiful, and full of personality. But decorating
+  a living room around such a strong piece can feel tricky. You might wonder how to
+  balance
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-red-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-red-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A red sofa is bold, beautiful, and full of personality. But decorating a living room around such a strong piece can feel tricky.**

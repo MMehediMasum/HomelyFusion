@@ -1,10 +1,13 @@
 ---
-title: "Can Bedroom Mirror Be Repaired: Easy Fixes to Restore Shine"
-description: "Have you ever noticed a crack or chip in your bedroom mirror and wondered if it’s worth fixing? You might be asking yourself, “Can my bedroom mirror be repaired"
+title: 'Can Bedroom Mirror Be Repaired: Easy Fixes to Restore Shine'
+description: Have you ever noticed a crack or chip in your bedroom mirror and wondered
+  if it’s worth fixing? You might be asking yourself, “Can my bedroom mirror be repaired
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bedroom-mirror-be-repaired&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=can-bedroom-mirror-be-repaired&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever noticed a crack or chip in your bedroom mirror and wondered if it’s worth fixing? You might be asking yourself, “Can my bedroom mirror be repaired, or do I need to replace it entirely?” The answer isn’t always simple, but it could save you time, money, and hassle.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor Long Island: Stunning Art and Rugs to Elevate Your Space"
 description: "Discover the charm of floor decor on Long Island. Explore unique items to enhance your home's ambiance. Long Island offers a diverse range of floor decor option"
 pubDate: 2026-07-01

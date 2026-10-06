@@ -1,10 +1,14 @@
 ---
-title: "Wicker Pumpkin Cat Bed: Cozy, Stylish Haven for Your Indoor Cat"
-description: "Wicker pumpkin cat beds offer cozy spots for indoor cats to rest and relax. These beds combine comfort with a charming pumpkin design. This unique cat bed looks"
+title: 'Wicker Pumpkin Cat Bed: Cozy, Stylish Haven for Your Indoor Cat'
+description: Wicker pumpkin cat beds offer cozy spots for indoor cats to rest and
+  relax. These beds combine comfort with a charming pumpkin design. This unique cat
+  bed looks
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wicker-pumpkin-cat-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=wicker-pumpkin-cat-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Wicker pumpkin cat beds offer cozy spots for indoor cats to rest and relax. These beds combine comfort with a charming pumpkin design.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Reed Diffusers for Home: Top Long-Lasting Fragrance Sets Reviewed"
-description: "Reed diffusers create a calm, inviting scent in any room without flames or electricity. They offer a simple way to keep your home smelling fresh all day. Choosi"
+title: 'Best Reed Diffusers for Home: Top Long-Lasting Fragrance Sets Reviewed'
+description: Reed diffusers create a calm, inviting scent in any room without flames
+  or electricity. They offer a simple way to keep your home smelling fresh all day.
+  Choosi
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-reed-diffusers-for-home-top-long-lasting-fragrance-sets-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-reed-diffusers-for-home-top-long-lasting-fragrance-sets-reviewed&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Reed diffusers create a calm, inviting scent in any room without flames or electricity. They offer a simple way to keep your home smelling fresh all day.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Decor Salt Lake City Utah: Stylish Wall Art and Unique Souvenirs"
 description: "Salt Lake City, Utah offers unique home decor inspired by its stunning landscapes and cityscapes. From wall art to handcrafted ornaments, these pieces bring loc"
 pubDate: 2026-06-24

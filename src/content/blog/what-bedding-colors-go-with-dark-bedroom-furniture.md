@@ -1,10 +1,14 @@
 ---
-title: "What Bedding Colors Go With Dark Bedroom Furniture: Stunning Ideas"
-description: "Choosing the right bedding colors to match your dark bedroom furniture can transform your space from dull to dazzling. If you’ve ever stared at your bed, unsure"
+title: 'What Bedding Colors Go With Dark Bedroom Furniture: Stunning Ideas'
+description: Choosing the right bedding colors to match your dark bedroom furniture
+  can transform your space from dull to dazzling. If you’ve ever stared at your bed,
+  unsure
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-bedding-colors-go-with-dark-bedroom-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-bedding-colors-go-with-dark-bedroom-furniture&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedding colors to match your dark bedroom furniture can transform your space from dull to dazzling. If you’ve ever stared at your bed, unsure which colors will make your room feel cozy and balanced, you’re not alone.**

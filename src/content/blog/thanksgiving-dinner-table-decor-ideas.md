@@ -1,10 +1,14 @@
 ---
-title: "Thanksgiving Dinner Table Decor Ideas: Stunning Styles to Impress Guests"
-description: "Thanksgiving is just around the corner, and your dinner table deserves to shine as much as the delicious food you’ll serve. Imagine your guests’ eyes lighting u"
+title: 'Thanksgiving Dinner Table Decor Ideas: Stunning Styles to Impress Guests'
+description: Thanksgiving is just around the corner, and your dinner table deserves
+  to shine as much as the delicious food you’ll serve. Imagine your guests’ eyes lighting
+  u
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thanksgiving-dinner-table-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=thanksgiving-dinner-table-decor-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Thanksgiving is just around the corner, and your dinner table deserves to shine as much as the delicious food you’ll serve. Imagine your guests’ eyes lighting up the moment they see your stunning table setup.**

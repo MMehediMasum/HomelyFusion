@@ -1,10 +1,14 @@
 ---
-title: "Where to Keep Lucky Bamboo in Home: Ultimate Placement Tips for Prosperity"
-description: "Are you wondering where to keep your lucky bamboo to bring the best energy into your home? The right spot can boost positivity, luck, and even your well-being. "
+title: 'Where to Keep Lucky Bamboo in Home: Ultimate Placement Tips for Prosperity'
+description: 'Are you wondering where to keep your lucky bamboo to bring the best
+  energy into your home? The right spot can boost positivity, luck, and even your
+  well-being. '
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-keep-lucky-bamboo-in-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bamboo Plant Care
+heroImage: https://tse1.mm.bing.net/th?q=where-to-keep-lucky-bamboo-in-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering where to keep your lucky bamboo to bring the best energy into your home? The right spot can boost positivity, luck, and even your well-being.**

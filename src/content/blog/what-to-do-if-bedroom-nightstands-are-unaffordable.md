@@ -1,10 +1,14 @@
 ---
-title: "What to Do If Bedroom Nightstands are Unaffordable: Creative Budget Hacks"
-description: "Are you dreaming of the perfect bedroom nightstands but find them way out of your budget? You’re not alone, and the good news is, you don’t have to empty your w"
+title: 'What to Do If Bedroom Nightstands are Unaffordable: Creative Budget Hacks'
+description: Are you dreaming of the perfect bedroom nightstands but find them way
+  out of your budget? You’re not alone, and the good news is, you don’t have to empty
+  your w
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-bedroom-nightstands-are-unaffordable&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-bedroom-nightstands-are-unaffordable&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of the perfect bedroom nightstands but find them way out of your budget? You’re not alone, and the good news is, you don’t have to empty your wallet to create a cozy, stylish space.**

@@ -1,10 +1,14 @@
 ---
-title: "Furniture And Decor Stores: Top Stylish Storage and Home Accessories Ideas"
-description: "Furniture and decor stores offer a wide variety of items to enhance your living space. From cabinets to lamps and cozy pillows, these stores have something for "
+title: 'Furniture And Decor Stores: Top Stylish Storage and Home Accessories Ideas'
+description: 'Furniture and decor stores offer a wide variety of items to enhance
+  your living space. From cabinets to lamps and cozy pillows, these stores have something
+  for '
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-decor-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-decor-stores&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture and decor stores offer a wide variety of items to enhance your living space. From cabinets to lamps and cozy pillows, these stores have something for every room.**

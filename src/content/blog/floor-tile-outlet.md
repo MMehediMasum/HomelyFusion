@@ -1,10 +1,14 @@
 ---
-title: "Floor Tile Outlet: Best Peel & Stick Tiles for Easy Home Upgrades"
-description: "Finding the perfect floor tile can transform your space. With numerous options available, making the right choice is essential. Floor tile outlets offer a varie"
+title: 'Floor Tile Outlet: Best Peel & Stick Tiles for Easy Home Upgrades'
+description: Finding the perfect floor tile can transform your space. With numerous
+  options available, making the right choice is essential. Floor tile outlets offer
+  a varie
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-tile-outlet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-tile-outlet&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the perfect floor tile can transform your space. With numerous options available, making the right choice is essential.**

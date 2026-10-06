@@ -1,10 +1,14 @@
 ---
-title: "Will My Chair Fit in Living Room: Essential Tips for Perfect Placement"
-description: "Are you wondering if your new chair will fit perfectly in your living room? You’re not alone. Choosing the right furniture isn’t just about style—it’s about com"
+title: 'Will My Chair Fit in Living Room: Essential Tips for Perfect Placement'
+description: Are you wondering if your new chair will fit perfectly in your living
+  room? You’re not alone. Choosing the right furniture isn’t just about style—it’s
+  about com
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-my-chair-fit-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=will-my-chair-fit-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if your new chair will fit perfectly in your living room? You’re not alone.**

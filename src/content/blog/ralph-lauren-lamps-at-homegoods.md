@@ -1,10 +1,13 @@
 ---
-title: "Ralph Lauren Lamps at Homegoods: Elegant Blue and White Ceramic Styles"
-description: "Ralph Lauren lamps at Homegoods offer a blend of elegance and functionality for any space. These lamps add style to bedrooms, living rooms, or offices. Homegood"
+title: 'Ralph Lauren Lamps at Homegoods: Elegant Blue and White Ceramic Styles'
+description: Ralph Lauren lamps at Homegoods offer a blend of elegance and functionality
+  for any space. These lamps add style to bedrooms, living rooms, or offices. Homegood
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-lamps-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-lamps-at-homegoods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren lamps at Homegoods offer a blend of elegance and functionality for any space. These lamps add style to bedrooms, living rooms, or offices.**

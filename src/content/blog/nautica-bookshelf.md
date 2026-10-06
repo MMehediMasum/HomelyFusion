@@ -1,10 +1,14 @@
 ---
-title: "Nautica Bookshelf: Stylish Nautical Storage for Coastal Home Decor"
-description: "Exploring the perfect bookshelf can transform any room into a captivating space. Discover a variety of nautical and rustic designs. From beach-themed boat shelv"
+title: 'Nautica Bookshelf: Stylish Nautical Storage for Coastal Home Decor'
+description: Exploring the perfect bookshelf can transform any room into a captivating
+  space. Discover a variety of nautical and rustic designs. From beach-themed boat
+  shelv
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-bookshelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=nautica-bookshelf&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Exploring the perfect bookshelf can transform any room into a captivating space. Discover a variety of nautical and rustic designs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Formal Living Room: Elegant Tips for Style"
-description: "Your formal living room is more than just a space—it’s where you make lasting impressions. But decorating it can feel overwhelming. How do you blend elegance wi"
+title: 'How to Decorate a Formal Living Room: Elegant Tips for Style'
+description: Your formal living room is more than just a space—it’s where you make
+  lasting impressions. But decorating it can feel overwhelming. How do you blend elegance
+  wi
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-formal-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-formal-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your formal living room is more than just a space—it’s where you make lasting impressions. But decorating it can feel overwhelming.**

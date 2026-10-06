@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Bathroom Counter: Stylish Tips for a Fresh Look"
-description: "Your bathroom counter is more than just a place to keep your toothbrush. It’s a chance to bring style and calm into your daily routine. But how do you decorate "
+title: 'How to Decorate a Bathroom Counter: Stylish Tips for a Fresh Look'
+description: 'Your bathroom counter is more than just a place to keep your toothbrush.
+  It’s a chance to bring style and calm into your daily routine. But how do you decorate '
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-counter&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-counter&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom counter is more than just a place to keep your toothbrush. It’s a chance to bring style and calm into your daily routine.**

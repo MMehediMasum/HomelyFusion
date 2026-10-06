@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Checkerboard Wall: Easy Steps for Stunning Results"
-description: "Want to transform your room with a bold and stylish look? Painting a checkerboard wall is a fun and creative way to make your space stand out. You might think i"
+title: 'How to Paint a Checkerboard Wall: Easy Steps for Stunning Results'
+description: Want to transform your room with a bold and stylish look? Painting a
+  checkerboard wall is a fun and creative way to make your space stand out. You might
+  think i
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-checkerboard-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-checkerboard-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to transform your room with a bold and stylish look? Painting a checkerboard wall is a fun and creative way to make your space stand out.**

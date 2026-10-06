@@ -1,10 +1,14 @@
 ---
-title: "How to Clay at Home: Easy Steps for Creative Fun"
-description: "Have you ever wanted to create something unique with your own hands? Clay is a simple, fun material that lets you do just that—right at home. Whether you’re a c"
+title: 'How to Clay at Home: Easy Steps for Creative Fun'
+description: Have you ever wanted to create something unique with your own hands?
+  Clay is a simple, fun material that lets you do just that—right at home. Whether
+  you’re a c
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands? Clay is a simple, fun material that lets you do just that—right at home.**

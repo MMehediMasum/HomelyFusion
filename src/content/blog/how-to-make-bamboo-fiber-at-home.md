@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Fiber at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wondered how to create your own bamboo fiber right at home? Imagine turning a simple, natural material into something soft, strong, and eco-friend"
 pubDate: 2026-03-30

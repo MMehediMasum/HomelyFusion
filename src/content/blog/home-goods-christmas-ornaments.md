@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Christmas Ornaments: Unique Decorations for Festive Charm"
-description: "Christmas ornaments bring festive cheer to homes, adding a unique touch to holiday decorations. From chickens to Harry Potter themes, these ornaments cater to d"
+title: 'Home Goods Christmas Ornaments: Unique Decorations for Festive Charm'
+description: Christmas ornaments bring festive cheer to homes, adding a unique touch
+  to holiday decorations. From chickens to Harry Potter themes, these ornaments cater
+  to d
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas ornaments bring festive cheer to homes, adding a unique touch to holiday decorations. From chickens to Harry Potter themes, these ornaments cater to diverse tastes.**

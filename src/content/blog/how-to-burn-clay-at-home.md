@@ -1,10 +1,14 @@
 ---
-title: "How to Burn Clay at Home: Easy DIY Techniques for Perfect Results"
-description: "Are you ready to bring your clay creations to life without leaving your home? Burning clay at home might sound tricky, but with the right steps, you can do it s"
+title: 'How to Burn Clay at Home: Easy DIY Techniques for Perfect Results'
+description: Are you ready to bring your clay creations to life without leaving your
+  home? Burning clay at home might sound tricky, but with the right steps, you can
+  do it s
 pubDate: 2026-02-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-burn-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-burn-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to bring your clay creations to life without leaving your home? Burning clay at home might sound tricky, but with the right steps, you can do it safely and easily.**

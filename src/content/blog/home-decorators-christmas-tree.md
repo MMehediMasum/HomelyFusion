@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Christmas Tree: Stunning Pre-Lit Artificial Trees for Holidays"
-description: "The holiday season brings joy and magic, and a beautiful Christmas tree is central to it. Choosing the right tree elevates your festive décor. Artificial Christ"
+title: 'Home Decorators Christmas Tree: Stunning Pre-Lit Artificial Trees for Holidays'
+description: The holiday season brings joy and magic, and a beautiful Christmas tree
+  is central to it. Choosing the right tree elevates your festive décor. Artificial
+  Christ
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The holiday season brings joy and magic, and a beautiful Christmas tree is central to it. Choosing the right tree elevates your festive décor.**

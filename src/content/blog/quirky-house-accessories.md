@@ -1,10 +1,14 @@
 ---
-title: "Quirky House Accessories That Transform Your Home Into a Unique Haven"
-description: "Quirky house accessories can transform your living space with personality and charm. They add a unique touch to any room. From spooky to whimsical, quirky acces"
+title: Quirky House Accessories That Transform Your Home Into a Unique Haven
+description: Quirky house accessories can transform your living space with personality
+  and charm. They add a unique touch to any room. From spooky to whimsical, quirky
+  acces
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=quirky-house-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- House Accessories
+heroImage: https://tse1.mm.bing.net/th?q=quirky-house-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Quirky house accessories can transform your living space with personality and charm. They add a unique touch to any room.**

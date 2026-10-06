@@ -1,10 +1,14 @@
 ---
-title: "How to Make Jute Basket at Home: Easy Steps for Stylish Decor"
-description: "Are you looking for a fun, creative project that adds charm to your home and helps you stay eco-friendly? Making a jute basket at home is easier than you think."
+title: 'How to Make Jute Basket at Home: Easy Steps for Stylish Decor'
+description: Are you looking for a fun, creative project that adds charm to your home
+  and helps you stay eco-friendly? Making a jute basket at home is easier than you
+  think.
 pubDate: 2025-10-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-jute-basket-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-jute-basket-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun, creative project that adds charm to your home and helps you stay eco-friendly? Making a jute basket at home is easier than you think.**

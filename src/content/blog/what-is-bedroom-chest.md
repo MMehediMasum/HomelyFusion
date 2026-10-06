@@ -1,10 +1,14 @@
 ---
-title: "What is Bedroom Chest: Ultimate Guide to Stylish Storage Solutions"
-description: "Have you ever felt like your bedroom needs a little extra space to keep things tidy and organized? That’s where a bedroom chest can make a big difference. But w"
+title: 'What is Bedroom Chest: Ultimate Guide to Stylish Storage Solutions'
+description: Have you ever felt like your bedroom needs a little extra space to keep
+  things tidy and organized? That’s where a bedroom chest can make a big difference.
+  But w
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-bedroom-chest&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-is-bedroom-chest&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever felt like your bedroom needs a little extra space to keep things tidy and organized? That’s where a bedroom chest can make a big difference.**

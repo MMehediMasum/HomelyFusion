@@ -1,10 +1,14 @@
 ---
-title: "How to Connect My Geeni Light Bulb to Google Home: Easy Steps"
-description: "Are you ready to control your Geeni light bulb with just your voice? Connecting your Geeni bulb to Google Home is easier than you think. Imagine turning your li"
+title: 'How to Connect My Geeni Light Bulb to Google Home: Easy Steps'
+description: Are you ready to control your Geeni light bulb with just your voice?
+  Connecting your Geeni bulb to Google Home is easier than you think. Imagine turning
+  your li
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-my-geeni-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-my-geeni-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to control your Geeni light bulb with just your voice? Connecting your Geeni bulb to Google Home is easier than you think.**

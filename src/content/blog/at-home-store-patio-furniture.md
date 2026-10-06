@@ -1,10 +1,13 @@
 ---
-title: "At Home Store Patio Furniture: Stylish Sets for Cozy Outdoor Living"
-description: "Transform your outdoor space with stylish and comfortable patio furniture from At Home Store. Discover a variety of options for every taste and budget. Whether "
+title: 'At Home Store Patio Furniture: Stylish Sets for Cozy Outdoor Living'
+description: 'Transform your outdoor space with stylish and comfortable patio furniture
+  from At Home Store. Discover a variety of options for every taste and budget. Whether '
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-store-patio-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-store-patio-furniture&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Transform your outdoor space with stylish and comfortable patio furniture from At Home Store. Discover a variety of options for every taste and budget.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Find a Sofa to Fit Your Living Room: Ultimate Space-Saving Tips"
-description: "Finding the perfect sofa for your living room can feel overwhelming. You want something that fits your space, matches your style, and feels comfortable every ti"
+title: 'How to Find a Sofa to Fit Your Living Room: Ultimate Space-Saving Tips'
+description: Finding the perfect sofa for your living room can feel overwhelming.
+  You want something that fits your space, matches your style, and feels comfortable
+  every ti
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-find-a-sofa-to-fit-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-find-a-sofa-to-fit-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect sofa for your living room can feel overwhelming. You want something that fits your space, matches your style, and feels comfortable every time you sit down.**

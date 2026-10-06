@@ -1,10 +1,14 @@
 ---
-title: "Fall Maple Leaf Craft Ideas: Easy DIY Projects for Cozy Decor"
-description: "Are you looking for fun and creative ways to celebrate the beauty of fall? Your search ends here! Fall maple leaf craft ideas are perfect for bringing the warm "
+title: 'Fall Maple Leaf Craft Ideas: Easy DIY Projects for Cozy Decor'
+description: 'Are you looking for fun and creative ways to celebrate the beauty of
+  fall? Your search ends here! Fall maple leaf craft ideas are perfect for bringing
+  the warm '
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-maple-leaf-craft-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-maple-leaf-craft-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for fun and creative ways to celebrate the beauty of fall? Your search ends here!**

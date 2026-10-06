@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Jute Bags at Home: Easy DIY Guide for Beginners"
 description: "Are you looking for a simple, eco-friendly way to create your own stylish bags? Making jute bags at home is easier than you think, and it lets you add a persona"
 pubDate: 2026-03-16

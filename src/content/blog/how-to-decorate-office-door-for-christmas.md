@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Office Door for Christmas: Creative Festive Ideas"
-description: "Your office door is the first thing people see when they visit your workspace. Decorating it for Christmas isn’t just about spreading holiday cheer—it’s a simpl"
+title: 'How to Decorate Office Door for Christmas: Creative Festive Ideas'
+description: Your office door is the first thing people see when they visit your workspace.
+  Decorating it for Christmas isn’t just about spreading holiday cheer—it’s a simpl
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-office-door-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-office-door-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your office door is the first thing people see when they visit your workspace. Decorating it for Christmas isn’t just about spreading holiday cheer—it’s a simple way to boost your mood and create a warm, inviting atmosphere.**

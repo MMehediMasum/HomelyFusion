@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Wall in Dining Room: Stunning Ideas to Transform"
-description: "Is your dining room feeling a bit plain because of that long, empty wall? You’re not alone. Decorating a long wall can be tricky, but it’s also a chance to make"
+title: 'How to Decorate a Long Wall in Dining Room: Stunning Ideas to Transform'
+description: Is your dining room feeling a bit plain because of that long, empty wall?
+  You’re not alone. Decorating a long wall can be tricky, but it’s also a chance to
+  make
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-wall-in-dining-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-wall-in-dining-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your dining room feeling a bit plain because of that long, empty wall? You’re not alone.**

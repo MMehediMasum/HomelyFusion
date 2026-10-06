@@ -1,10 +1,14 @@
 ---
-title: "How Do Smart Bulbs Work With Google Home: Ultimate Guide 2025"
-description: "Imagine controlling your home lighting with just your voice. No more fumbling for switches or getting up from the couch. If you’ve ever wondered how smart bulbs"
+title: 'How Do Smart Bulbs Work With Google Home: Ultimate Guide 2025'
+description: Imagine controlling your home lighting with just your voice. No more
+  fumbling for switches or getting up from the couch. If you’ve ever wondered how
+  smart bulbs
 pubDate: 2025-08-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-smart-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=how-do-smart-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home lighting with just your voice. No more fumbling for switches or getting up from the couch.**

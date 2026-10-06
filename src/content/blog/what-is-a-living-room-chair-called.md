@@ -1,10 +1,14 @@
 ---
-title: "What is a Living Room Chair Called: Ultimate Guide to Seating Styles"
-description: "Have you ever walked into your living room and wondered what to call that comfy chair you love to relax in? Whether you’re redecorating, shopping for new furnit"
+title: 'What is a Living Room Chair Called: Ultimate Guide to Seating Styles'
+description: Have you ever walked into your living room and wondered what to call
+  that comfy chair you love to relax in? Whether you’re redecorating, shopping for
+  new furnit
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-living-room-chair-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-living-room-chair-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into your living room and wondered what to call that comfy chair you love to relax in? Whether you’re redecorating, shopping for new furniture, or just curious, knowing the right name can make all the difference.**

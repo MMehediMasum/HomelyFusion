@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home As an Amplifier: Boost Your Sound Instantly"
 description: "Have you ever wished your Google Home could do more than just play music or answer questions? What if it could boost your sound, acting like an amplifier for yo"
 pubDate: 2025-10-15

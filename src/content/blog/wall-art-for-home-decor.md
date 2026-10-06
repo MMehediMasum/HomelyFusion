@@ -1,10 +1,14 @@
 ---
-title: "Wall Art for Home Decor: Stunning Modern Pieces to Transform Spaces"
-description: "Wall art adds personality and warmth to any home. It transforms plain walls into eye-catching features quickly. Choosing the right wall art can enhance your liv"
+title: 'Wall Art for Home Decor: Stunning Modern Pieces to Transform Spaces'
+description: Wall art adds personality and warmth to any home. It transforms plain
+  walls into eye-catching features quickly. Choosing the right wall art can enhance
+  your liv
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-for-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art adds personality and warmth to any home. It transforms plain walls into eye-catching features quickly.**

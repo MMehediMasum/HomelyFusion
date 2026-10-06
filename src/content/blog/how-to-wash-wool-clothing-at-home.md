@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Wool Clothing at Home: Easy Tips for Lasting Softness"
 description: "Wool clothing feels soft and warm, but washing it can be tricky. You might worry about shrinking, stretching, or ruining your favorite wool sweater. What if you"
 pubDate: 2026-02-08

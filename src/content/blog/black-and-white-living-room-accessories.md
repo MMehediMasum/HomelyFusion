@@ -1,10 +1,14 @@
 ---
-title: "Black And White Living Room Accessories to Elevate Your Home Decor"
-description: "Black and white living room accessories add timeless elegance to any space. They create a sophisticated and modern ambiance. Choosing the right accessories for "
+title: Black And White Living Room Accessories to Elevate Your Home Decor
+description: 'Black and white living room accessories add timeless elegance to any
+  space. They create a sophisticated and modern ambiance. Choosing the right accessories
+  for '
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-and-white-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=black-and-white-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Black and white living room accessories add timeless elegance to any space. They create a sophisticated and modern ambiance.**

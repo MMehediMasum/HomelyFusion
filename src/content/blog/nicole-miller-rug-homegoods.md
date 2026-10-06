@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Rug Homegoods: Stylish Indoor Outdoor Rugs for Every Space"
-description: "Nicole Miller rugs at Homegoods blend style and durability for indoor and outdoor spaces. These rugs feature modern patterns and quality materials that fit many"
+title: 'Nicole Miller Rug Homegoods: Stylish Indoor Outdoor Rugs for Every Space'
+description: Nicole Miller rugs at Homegoods blend style and durability for indoor
+  and outdoor spaces. These rugs feature modern patterns and quality materials that
+  fit many
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-rug-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-rug-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nicole Miller rugs at Homegoods blend style and durability for indoor and outdoor spaces. These rugs feature modern patterns and quality materials that fit many décor styles.**

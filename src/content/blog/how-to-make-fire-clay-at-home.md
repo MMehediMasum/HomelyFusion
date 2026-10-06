@@ -1,10 +1,13 @@
 ---
-title: "How to Make Fire Clay at Home: Easy DIY Guide for Beginners"
-description: "Are you ready to create your own fire clay right at home? Whether you’re a DIY enthusiast or simply curious about crafting materials, making fire clay yourself "
+title: 'How to Make Fire Clay at Home: Easy DIY Guide for Beginners'
+description: 'Are you ready to create your own fire clay right at home? Whether you’re
+  a DIY enthusiast or simply curious about crafting materials, making fire clay yourself '
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-fire-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-fire-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create your own fire clay right at home? Whether you’re a DIY enthusiast or simply curious about crafting materials, making fire clay yourself is easier than you might think.**

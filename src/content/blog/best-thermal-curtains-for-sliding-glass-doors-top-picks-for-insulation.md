@@ -1,10 +1,14 @@
 ---
-title: "Best Thermal Curtains for Sliding Glass Doors: Top Picks for Insulation"
-description: "Sliding glass doors can cause heat loss and let in unwanted light. Best thermal curtains help block cold air and keep rooms cozy. Thermal curtains designed for "
+title: 'Best Thermal Curtains for Sliding Glass Doors: Top Picks for Insulation'
+description: 'Sliding glass doors can cause heat loss and let in unwanted light. Best
+  thermal curtains help block cold air and keep rooms cozy. Thermal curtains designed
+  for '
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-thermal-curtains-for-sliding-glass-doors-top-picks-for-insulation&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-thermal-curtains-for-sliding-glass-doors-top-picks-for-insulation&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Sliding glass doors can cause heat loss and let in unwanted light. Best thermal curtains help block cold air and keep rooms cozy.**

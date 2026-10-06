@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Throw Rugs: Stylish, Soft, and Non-Slip Rugs for Every Room"
-description: "Home goods throw rugs add warmth and style to any room. These small, soft rugs offer comfort and protect your floors easily. Throw rugs come in many sizes, colo"
+title: 'Home Goods Throw Rugs: Stylish, Soft, and Non-Slip Rugs for Every Room'
+description: Home goods throw rugs add warmth and style to any room. These small,
+  soft rugs offer comfort and protect your floors easily. Throw rugs come in many
+  sizes, colo
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-throw-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-throw-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods throw rugs add warmth and style to any room. These small, soft rugs offer comfort and protect your floors easily.**

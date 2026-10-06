@@ -1,10 +1,14 @@
 ---
-title: "How to Remodel Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Your bathroom vanity is more than just a place to wash up—it’s a key part of your daily routine and the look of your space. If you’ve been thinking about giving"
+title: 'How to Remodel Bathroom Vanity: Easy Steps for Stunning Results'
+description: Your bathroom vanity is more than just a place to wash up—it’s a key
+  part of your daily routine and the look of your space. If you’ve been thinking about
+  giving
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remodel-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remodel-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to wash up—it’s a key part of your daily routine and the look of your space. If you’ve been thinking about giving it a fresh, new feel, remodeling your bathroom vanity is a smart move.**

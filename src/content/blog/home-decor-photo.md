@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Photo Frames: Stunning Collage Sets for Every Room Display"
-description: "Home decor photos add a personal touch to any living space. Choosing the right picture frames creates a warm, inviting atmosphere. Picture frames come in many s"
+title: 'Home Decor Photo Frames: Stunning Collage Sets for Every Room Display'
+description: Home decor photos add a personal touch to any living space. Choosing
+  the right picture frames creates a warm, inviting atmosphere. Picture frames come
+  in many s
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-photo&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-photo&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor photos add a personal touch to any living space. Choosing the right picture frames creates a warm, inviting atmosphere.**

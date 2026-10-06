@@ -1,10 +1,14 @@
 ---
-title: "Best Table Pads for Dining Table: Ultimate Protection and Stylish Comfort"
-description: "Protect your dining table with the best table pads designed for durability and comfort. These pads guard against spills, heat, and scratches, keeping your table"
+title: 'Best Table Pads for Dining Table: Ultimate Protection and Stylish Comfort'
+description: Protect your dining table with the best table pads designed for durability
+  and comfort. These pads guard against spills, heat, and scratches, keeping your
+  table
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-table-pads-for-dining-table-ultimate-protection-and-stylish-comfort&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-table-pads-for-dining-table-ultimate-protection-and-stylish-comfort&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Protect your dining table with the best table pads designed for durability and comfort. These pads guard against spills, heat, and scratches, keeping your table looking new.**

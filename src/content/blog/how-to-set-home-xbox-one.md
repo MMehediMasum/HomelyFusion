@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Xbox One: Easy Steps for Ultimate Gaming Setup"
 description: "Setting your Xbox One as your home console can unlock amazing benefits you don’t want to miss. Imagine sharing your games and subscriptions with family or frien"
 pubDate: 2025-11-20

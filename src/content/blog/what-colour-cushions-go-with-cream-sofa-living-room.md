@@ -1,10 +1,13 @@
 ---
-title: "What Colour Cushions Go With Cream Sofa Living Room: Stylish Ideas"
-description: "Choosing the right cushions for your cream sofa can transform your living room from plain to perfect. You want colors that not only match but also bring warmth "
+title: 'What Colour Cushions Go With Cream Sofa Living Room: Stylish Ideas'
+description: 'Choosing the right cushions for your cream sofa can transform your living
+  room from plain to perfect. You want colors that not only match but also bring warmth '
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-cushions-go-with-cream-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-cushions-go-with-cream-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right cushions for your cream sofa can transform your living room from plain to perfect. You want colors that not only match but also bring warmth and style to your space.**

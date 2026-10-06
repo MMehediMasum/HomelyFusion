@@ -1,10 +1,14 @@
 ---
-title: "Luxury Bathroom Vanity Ideas: Stunning Designs for Ultimate Elegance"
-description: "Your bathroom is more than just a place to get ready – it’s a space where comfort meets style. If you want to transform your bathroom into a luxurious retreat, "
+title: 'Luxury Bathroom Vanity Ideas: Stunning Designs for Ultimate Elegance'
+description: 'Your bathroom is more than just a place to get ready – it’s a space
+  where comfort meets style. If you want to transform your bathroom into a luxurious
+  retreat, '
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=luxury-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=luxury-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom is more than just a place to get ready – it’s a space where comfort meets style. If you want to transform your bathroom into a luxurious retreat, the right vanity can make all the difference.**

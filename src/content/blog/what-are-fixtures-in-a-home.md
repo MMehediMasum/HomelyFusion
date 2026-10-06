@@ -1,10 +1,14 @@
 ---
-title: "What are Fixtures in a Home: Essential Guide to Smart Choices"
-description: "When you think about your home, what comes to mind? The cozy walls, the furniture, or maybe the lights that brighten your space? But have you ever stopped to wo"
+title: 'What are Fixtures in a Home: Essential Guide to Smart Choices'
+description: When you think about your home, what comes to mind? The cozy walls, the
+  furniture, or maybe the lights that brighten your space? But have you ever stopped
+  to wo
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-fixtures-in-a-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-are-fixtures-in-a-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **When you think about your home, what comes to mind? The cozy walls, the furniture, or maybe the lights that brighten your space?**

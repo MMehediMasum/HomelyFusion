@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Office Cubicle: Creative Ideas for a Cozy Space"
-description: "Your office cubicle is more than just a workspace—it’s a place where you spend hours every day. Decorating it to reflect your style can boost your mood, increas"
+title: 'How to Decorate Your Office Cubicle: Creative Ideas for a Cozy Space'
+description: Your office cubicle is more than just a workspace—it’s a place where
+  you spend hours every day. Decorating it to reflect your style can boost your mood,
+  increas
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-office-cubicle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-office-cubicle&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office cubicle is more than just a workspace—it’s a place where you spend hours every day. Decorating it to reflect your style can boost your mood, increase your focus, and make work feel less like a chore.**

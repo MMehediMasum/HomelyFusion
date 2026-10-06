@@ -1,10 +1,14 @@
 ---
-title: "Runner Rugs Home Goods: Stylish Non-Slip Runners for Every Room"
-description: "Runner rugs add style and comfort to your home’s narrow spaces. They protect floors and brighten hallways, kitchens, and entryways. These rugs come in many desi"
+title: 'Runner Rugs Home Goods: Stylish Non-Slip Runners for Every Room'
+description: Runner rugs add style and comfort to your home’s narrow spaces. They
+  protect floors and brighten hallways, kitchens, and entryways. These rugs come in
+  many desi
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=runner-rugs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=runner-rugs-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Runner rugs add style and comfort to your home’s narrow spaces. They protect floors and brighten hallways, kitchens, and entryways.**

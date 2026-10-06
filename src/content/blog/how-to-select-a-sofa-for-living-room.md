@@ -1,10 +1,14 @@
 ---
-title: "How to Select a Sofa for Living Room: Ultimate Guide for Comfort"
-description: "Choosing the perfect sofa for your living room might feel overwhelming. You want something comfortable, stylish, and just right for your space. But how do you m"
+title: 'How to Select a Sofa for Living Room: Ultimate Guide for Comfort'
+description: Choosing the perfect sofa for your living room might feel overwhelming.
+  You want something comfortable, stylish, and just right for your space. But how
+  do you m
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-select-a-sofa-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-select-a-sofa-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa for your living room might feel overwhelming. You want something comfortable, stylish, and just right for your space.**

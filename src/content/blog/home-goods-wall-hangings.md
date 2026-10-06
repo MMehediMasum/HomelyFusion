@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Hangings: Stylish Decor Ideas for Every Room"
-description: "Wall hangings can transform any space, adding charm and personality to your home. Explore diverse options for unique wall décor. Wall hangings offer a simple ye"
+title: 'Home Goods Wall Hangings: Stylish Decor Ideas for Every Room'
+description: Wall hangings can transform any space, adding charm and personality to
+  your home. Explore diverse options for unique wall décor. Wall hangings offer a
+  simple ye
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-hangings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-hangings&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall hangings can transform any space, adding charm and personality to your home. Explore diverse options for unique wall décor.**

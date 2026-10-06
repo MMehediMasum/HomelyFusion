@@ -1,10 +1,14 @@
 ---
-title: "Brooks Brothers Scalloped Rug: Stylish, Washable, Non-Slip Area Rugs Guide"
-description: "Explore the elegance of the Brooks Brothers Scalloped Rug. Ideal for every room, this rug blends style and function. The Brooks Brothers Scalloped Rug collectio"
+title: 'Brooks Brothers Scalloped Rug: Stylish, Washable, Non-Slip Area Rugs Guide'
+description: Explore the elegance of the Brooks Brothers Scalloped Rug. Ideal for
+  every room, this rug blends style and function. The Brooks Brothers Scalloped Rug
+  collectio
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brooks-brothers-scalloped-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=brooks-brothers-scalloped-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Explore the elegance of the Brooks Brothers Scalloped Rug. Ideal for every room, this rug blends style and function.**

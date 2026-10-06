@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate around a Clock: Stunning Ideas to Transform Walls"
-description: "Have you ever stared at a clock on your wall and wondered how to make it look more than just functional? Your clock can be the centerpiece of your room, but onl"
+title: 'How to Decorate around a Clock: Stunning Ideas to Transform Walls'
+description: Have you ever stared at a clock on your wall and wondered how to make
+  it look more than just functional? Your clock can be the centerpiece of your room,
+  but onl
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-clock&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-clock&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever stared at a clock on your wall and wondered how to make it look more than just functional? Your clock can be the centerpiece of your room, but only if you know how to decorate around it.**

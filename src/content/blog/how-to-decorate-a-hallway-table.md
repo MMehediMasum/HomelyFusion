@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Hallway Table: Stunning Ideas to Elevate Style"
-description: "Your hallway table is more than just a spot to drop your keys—it’s the first thing guests see when they enter your home. How you decorate it can set the entire "
+title: 'How to Decorate a Hallway Table: Stunning Ideas to Elevate Style'
+description: 'Your hallway table is more than just a spot to drop your keys—it’s the
+  first thing guests see when they enter your home. How you decorate it can set the
+  entire '
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-hallway-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-hallway-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your hallway table is more than just a spot to drop your keys—it’s the first thing guests see when they enter your home. How you decorate it can set the entire mood for your space.**

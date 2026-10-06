@@ -1,10 +1,15 @@
 ---
-title: "Monroe Furniture Center: Stylish and Functional Home Essentials for Every Room"
-description: "Monroe Furniture Center offers a wide range of stylish and practical home furnishings. Their collection includes beds, desks, tables, ottomans, and curtains tha"
+title: 'Monroe Furniture Center: Stylish and Functional Home Essentials for Every
+  Room'
+description: Monroe Furniture Center offers a wide range of stylish and practical
+  home furnishings. Their collection includes beds, desks, tables, ottomans, and curtains
+  tha
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=monroe-furniture-center&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=monroe-furniture-center&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Monroe Furniture Center offers a wide range of stylish and practical home furnishings. Their collection includes beds, desks, tables, ottomans, and curtains that fit many room styles.**

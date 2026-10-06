@@ -1,10 +1,13 @@
 ---
-title: "How to Install Wall Paneling: Easy Steps for Stunning Walls"
-description: "Are you looking to transform your space quickly and affordably? Installing wall paneling might be the perfect solution for you. It’s a simple way to add style, "
+title: 'How to Install Wall Paneling: Easy Steps for Stunning Walls'
+description: 'Are you looking to transform your space quickly and affordably? Installing
+  wall paneling might be the perfect solution for you. It’s a simple way to add style, '
 pubDate: 2025-08-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-paneling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-paneling&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space quickly and affordably? Installing wall paneling might be the perfect solution for you.**

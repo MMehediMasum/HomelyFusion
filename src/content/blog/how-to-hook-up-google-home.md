@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Google Home: Easy Steps for Instant Setup"
 description: "Are you ready to make your life easier with Google Home? Setting up your device might seem tricky at first, but you’re just a few simple steps away from unlocki"
 pubDate: 2025-10-16

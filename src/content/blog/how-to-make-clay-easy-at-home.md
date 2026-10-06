@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Easy at Home: Simple Steps for Perfect DIY Clay"
-description: "Have you ever wanted to create your own clay at home but thought it was too hard or messy? What if I told you that making clay can be simple, fun, and done with"
+title: 'How to Make Clay Easy at Home: Simple Steps for Perfect DIY Clay'
+description: Have you ever wanted to create your own clay at home but thought it was
+  too hard or messy? What if I told you that making clay can be simple, fun, and done
+  with
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-easy-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-easy-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay at home but thought it was too hard or messy? What if I told you that making clay can be simple, fun, and done with ingredients you probably already have?**

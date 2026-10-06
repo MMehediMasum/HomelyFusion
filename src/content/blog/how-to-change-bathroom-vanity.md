@@ -1,10 +1,14 @@
 ---
-title: "How to Change Bathroom Vanity: Easy Steps for a Stunning Upgrade"
-description: "Thinking about giving your bathroom a fresh new look? Changing your bathroom vanity is one of the quickest and most effective ways to transform the space. But w"
+title: 'How to Change Bathroom Vanity: Easy Steps for a Stunning Upgrade'
+description: Thinking about giving your bathroom a fresh new look? Changing your bathroom
+  vanity is one of the quickest and most effective ways to transform the space. But
+  w
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about giving your bathroom a fresh new look? Changing your bathroom vanity is one of the quickest and most effective ways to transform the space.**

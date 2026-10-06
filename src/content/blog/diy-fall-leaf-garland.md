@@ -1,10 +1,14 @@
 ---
-title: "Diy Fall Leaf Garland: Easy Steps for Stunning Autumn Decor"
-description: "Are you looking to add a warm, cozy touch to your home this fall? A DIY Fall Leaf Garland is the perfect way to bring the beauty of autumn right into your space"
+title: 'Diy Fall Leaf Garland: Easy Steps for Stunning Autumn Decor'
+description: Are you looking to add a warm, cozy touch to your home this fall? A DIY
+  Fall Leaf Garland is the perfect way to bring the beauty of autumn right into your
+  space
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-fall-leaf-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=diy-fall-leaf-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a warm, cozy touch to your home this fall? A DIY Fall Leaf Garland is the perfect way to bring the beauty of autumn right into your space.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Polish Steel at Home: Easy Steps for a Mirror Shine"
 description: "Want to make your steel shine like new without spending a fortune? You’re in the right place. Polishing steel at home is easier than you think—and the results c"
 pubDate: 2026-02-12

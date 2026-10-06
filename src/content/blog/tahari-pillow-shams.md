@@ -1,10 +1,14 @@
 ---
-title: "Tahari Pillow Shams: Soft, Breathable, and Stylish Bedding Essentials"
-description: "Tahari pillow shams offer a blend of style and comfort for your bedroom. These shams enhance your bed's aesthetic while providing a cozy touch. Tahari pillow sh"
+title: 'Tahari Pillow Shams: Soft, Breathable, and Stylish Bedding Essentials'
+description: Tahari pillow shams offer a blend of style and comfort for your bedroom.
+  These shams enhance your bed's aesthetic while providing a cozy touch. Tahari pillow
+  sh
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-pillow-shams&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tahari-pillow-shams&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tahari pillow shams offer a blend of style and comfort for your bedroom. These shams enhance your bed's aesthetic while providing a cozy touch.**

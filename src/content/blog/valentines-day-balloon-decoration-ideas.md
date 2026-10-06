@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Day Balloon Decoration Ideas: Stunning & Romantic Inspirations"
-description: "Looking to make your Valentine’s Day celebration unforgettable? Balloon decorations are a simple and stunning way to add a touch of magic to your space. Whether"
+title: 'Valentine’S Day Balloon Decoration Ideas: Stunning & Romantic Inspirations'
+description: Looking to make your Valentine’s Day celebration unforgettable? Balloon
+  decorations are a simple and stunning way to add a touch of magic to your space.
+  Whether
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-day-balloon-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=valentines-day-balloon-decoration-ideas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to make your Valentine’s Day celebration unforgettable? Balloon decorations are a simple and stunning way to add a touch of magic to your space.**

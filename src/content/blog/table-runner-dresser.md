@@ -1,10 +1,14 @@
 ---
-title: "Table Runner Dresser Ideas: Rustic Boho Styles to Elevate Your Decor"
-description: "Table runners aren't just for tables; they can enhance any dresser too. They add style and texture to your space. A well-chosen table runner can transform a dre"
+title: 'Table Runner Dresser Ideas: Rustic Boho Styles to Elevate Your Decor'
+description: Table runners aren't just for tables; they can enhance any dresser too.
+  They add style and texture to your space. A well-chosen table runner can transform
+  a dre
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-runner-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=table-runner-dresser&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Table runners aren't just for tables; they can enhance any dresser too. They add style and texture to your space.**

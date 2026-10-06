@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Terrazzo Tile: Stylish Peel and Stick Flooring Ideas"
-description: "Terrazzo tiles from Floor and Decor offer a stylish and versatile flooring solution. These tiles bring elegance to any space. Floor and Decor terrazzo tiles are"
+title: 'Floor And Decor Terrazzo Tile: Stylish Peel and Stick Flooring Ideas'
+description: Terrazzo tiles from Floor and Decor offer a stylish and versatile flooring
+  solution. These tiles bring elegance to any space. Floor and Decor terrazzo tiles
+  are
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-terrazzo-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-terrazzo-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Terrazzo tiles from Floor and Decor offer a stylish and versatile flooring solution. These tiles bring elegance to any space.**

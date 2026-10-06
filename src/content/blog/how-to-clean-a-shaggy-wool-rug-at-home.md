@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Shaggy Wool Rug at Home: Easy & Effective Tips"
-description: "Your shaggy wool rug adds warmth and style to any room, but keeping it clean can feel like a big challenge. If you’ve ever worried about ruining those soft fibe"
+title: 'How to Clean a Shaggy Wool Rug at Home: Easy & Effective Tips'
+description: Your shaggy wool rug adds warmth and style to any room, but keeping it
+  clean can feel like a big challenge. If you’ve ever worried about ruining those
+  soft fibe
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-shaggy-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-shaggy-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your shaggy wool rug adds warmth and style to any room, but keeping it clean can feel like a big challenge. If you’ve ever worried about ruining those soft fibers or making a big mess, you’re not alone.**

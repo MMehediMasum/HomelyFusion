@@ -1,10 +1,14 @@
 ---
-title: "Hobby Lobby Wall Art 50 Off: Stunning DIY Decor Deals You Can’t Miss"
-description: "Hobby Lobby offers an exciting opportunity for art enthusiasts with its 50% off wall art sale. Discover a wide range of DIY and craft materials to enhance your "
+title: 'Hobby Lobby Wall Art 50 Off: Stunning DIY Decor Deals You Can’t Miss'
+description: 'Hobby Lobby offers an exciting opportunity for art enthusiasts with
+  its 50% off wall art sale. Discover a wide range of DIY and craft materials to enhance
+  your '
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-wall-art-50-off&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-wall-art-50-off&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hobby Lobby offers an exciting opportunity for art enthusiasts with its 50% off wall art sale. Discover a wide range of DIY and craft materials to enhance your creative projects.**

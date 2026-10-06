@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bookends: Stylish and Sturdy Solutions for Every Bookshelf"
-description: "Home goods bookends keep your books tidy and add style to any room. These sturdy holders support books and decorate shelves with ease. Bookends come in many des"
+title: 'Home Goods Bookends: Stylish and Sturdy Solutions for Every Bookshelf'
+description: Home goods bookends keep your books tidy and add style to any room. These
+  sturdy holders support books and decorate shelves with ease. Bookends come in many
+  des
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bookends&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bookends&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods bookends keep your books tidy and add style to any room. These sturdy holders support books and decorate shelves with ease.**

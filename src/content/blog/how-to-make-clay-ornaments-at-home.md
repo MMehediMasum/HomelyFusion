@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Ornaments at Home: Easy, Fun DIY Guide"
-description: "Are you looking for a fun and creative way to add a personal touch to your home or gifts? Making clay ornaments at home is easier than you think, and it lets yo"
+title: 'How to Make Clay Ornaments at Home: Easy, Fun DIY Guide'
+description: Are you looking for a fun and creative way to add a personal touch to
+  your home or gifts? Making clay ornaments at home is easier than you think, and
+  it lets yo
 pubDate: 2026-02-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-ornaments-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-ornaments-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your home or gifts? Making clay ornaments at home is easier than you think, and it lets you bring your unique ideas to life.**

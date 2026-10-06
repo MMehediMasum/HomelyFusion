@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Painted Wall: Stunning Ideas for Instant Impact"
-description: "You’ve just painted your wall, and now you’re wondering how to make it truly stand out. Decorating a painted wall isn’t just about adding things—it’s about crea"
+title: 'How to Decorate a Painted Wall: Stunning Ideas for Instant Impact'
+description: You’ve just painted your wall, and now you’re wondering how to make it
+  truly stand out. Decorating a painted wall isn’t just about adding things—it’s about
+  crea
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-painted-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-painted-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **You’ve just painted your wall, and now you’re wondering how to make it truly stand out. Decorating a painted wall isn’t just about adding things—it’s about creating a space that feels like you.**

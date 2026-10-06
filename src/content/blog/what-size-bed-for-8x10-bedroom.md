@@ -1,10 +1,13 @@
 ---
-title: "What Size Bed for 8X10 Bedroom: Perfect Fit Guide Revealed"
-description: "Choosing the right bed size for your 8x10 bedroom can make all the difference between a cramped space and a cozy retreat. You want a bed that fits perfectly—big"
+title: 'What Size Bed for 8X10 Bedroom: Perfect Fit Guide Revealed'
+description: Choosing the right bed size for your 8x10 bedroom can make all the difference
+  between a cramped space and a cozy retreat. You want a bed that fits perfectly—big
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-for-8x10-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-for-8x10-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bed size for your 8x10 bedroom can make all the difference between a cramped space and a cozy retreat. You want a bed that fits perfectly—big enough for comfort but small enough to leave room for movement.**

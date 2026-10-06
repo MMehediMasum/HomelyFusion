@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor Locations: Top Stylish Ideas for Modern Home Accents"
 description: "Floor Decor offers a diverse range of stylish home accessories. Discover how these pieces can enhance your living space. Floor Decor showcases a variety of mode"
 pubDate: 2026-06-25

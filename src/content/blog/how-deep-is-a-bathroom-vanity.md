@@ -1,10 +1,14 @@
 ---
-title: "How Deep is a Bathroom Vanity: Ultimate Guide to Perfect Fit"
-description: "When you’re planning your bathroom, choosing the right vanity can feel tricky. One question that often comes up is, “How deep is a bathroom vanity?” This might "
+title: 'How Deep is a Bathroom Vanity: Ultimate Guide to Perfect Fit'
+description: 'When you’re planning your bathroom, choosing the right vanity can feel
+  tricky. One question that often comes up is, “How deep is a bathroom vanity?” This
+  might '
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-deep-is-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-deep-is-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When you’re planning your bathroom, choosing the right vanity can feel tricky. One question that often comes up is, “How deep is a bathroom vanity?” This might seem like a small detail, but it can make a big difference in how your space looks and feels.**

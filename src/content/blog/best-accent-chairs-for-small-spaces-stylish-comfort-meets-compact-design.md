@@ -1,10 +1,14 @@
 ---
-title: "Best Accent Chairs for Small Spaces: Stylish Comfort Meets Compact Design"
-description: "Choosing the best accent chairs for small spaces can make a big difference in your home. These chairs combine style, comfort, and size perfectly. Small rooms ne"
+title: 'Best Accent Chairs for Small Spaces: Stylish Comfort Meets Compact Design'
+description: Choosing the best accent chairs for small spaces can make a big difference
+  in your home. These chairs combine style, comfort, and size perfectly. Small rooms
+  ne
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-accent-chairs-for-small-spaces-stylish-comfort-meets-compact-design&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-accent-chairs-for-small-spaces-stylish-comfort-meets-compact-design&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the best accent chairs for small spaces can make a big difference in your home. These chairs combine style, comfort, and size perfectly.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Rugs for Allergy Sufferers: Top Washable, Low Pile Options"
-description: "Choosing the best rugs for allergy sufferers helps reduce dust, pet dander, and allergens in your home. These rugs are easy to clean and made with hypoallergeni"
+title: 'Best Rugs for Allergy Sufferers: Top Washable, Low Pile Options'
+description: Choosing the best rugs for allergy sufferers helps reduce dust, pet dander,
+  and allergens in your home. These rugs are easy to clean and made with hypoallergeni
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-allergy-sufferers-top-washable-low-pile-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-allergy-sufferers-top-washable-low-pile-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for allergy sufferers helps reduce dust, pet dander, and allergens in your home. These rugs are easy to clean and made with hypoallergenic materials.**

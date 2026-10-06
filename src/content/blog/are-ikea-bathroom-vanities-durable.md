@@ -1,10 +1,14 @@
 ---
-title: "Are Ikea Bathroom Vanities Durable: Unveiling Truth & Value"
-description: "Are you thinking about upgrading your bathroom with a new vanity but worried about how long it will last? Ikea bathroom vanities are popular for their stylish d"
+title: 'Are Ikea Bathroom Vanities Durable: Unveiling Truth & Value'
+description: Are you thinking about upgrading your bathroom with a new vanity but
+  worried about how long it will last? Ikea bathroom vanities are popular for their
+  stylish d
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-ikea-bathroom-vanities-durable&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-ikea-bathroom-vanities-durable&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom with a new vanity but worried about how long it will last? Ikea bathroom vanities are popular for their stylish designs and affordable prices, but you might be asking yourself, “Are Ikea bathroom vanities durable enough for my home?” You want a vanity that not only looks great but can handle daily use without falling apart.**

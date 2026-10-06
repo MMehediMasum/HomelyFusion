@@ -1,10 +1,14 @@
 ---
-title: "How to Make Table Lamp Shades at Home: Easy DIY Guide"
-description: "Are you tired of searching for the perfect table lamp shade that fits your style and budget? What if you could create one yourself, tailored exactly to your tas"
+title: 'How to Make Table Lamp Shades at Home: Easy DIY Guide'
+description: Are you tired of searching for the perfect table lamp shade that fits
+  your style and budget? What if you could create one yourself, tailored exactly to
+  your tas
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-table-lamp-shades-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-table-lamp-shades-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you tired of searching for the perfect table lamp shade that fits your style and budget? What if you could create one yourself, tailored exactly to your taste?**

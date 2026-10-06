@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Wall Shelves With Frames: Stunning Design Tips"
-description: "Are you looking to transform your walls into a stunning display that reflects your style? Arranging wall shelves with frames is a simple yet powerful way to add"
+title: 'How to Arrange Wall Shelves With Frames: Stunning Design Tips'
+description: Are you looking to transform your walls into a stunning display that
+  reflects your style? Arranging wall shelves with frames is a simple yet powerful
+  way to add
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-wall-shelves-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-wall-shelves-with-frames&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to transform your walls into a stunning display that reflects your style? Arranging wall shelves with frames is a simple yet powerful way to add personality and charm to any room.**

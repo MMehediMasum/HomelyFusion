@@ -1,10 +1,14 @@
 ---
-title: "Are Whole Home Dehumidifiers Worth It: Ultimate Guide to Benefits"
-description: "Are you tired of battling sticky air and constant moisture in your home? You might be wondering if a whole home dehumidifier is the solution you need. Imagine w"
+title: 'Are Whole Home Dehumidifiers Worth It: Ultimate Guide to Benefits'
+description: Are you tired of battling sticky air and constant moisture in your home?
+  You might be wondering if a whole home dehumidifier is the solution you need. Imagine
+  w
 pubDate: 2026-04-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-whole-home-dehumidifiers-worth-it&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=are-whole-home-dehumidifiers-worth-it&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you tired of battling sticky air and constant moisture in your home? You might be wondering if a whole home dehumidifier is the solution you need.**

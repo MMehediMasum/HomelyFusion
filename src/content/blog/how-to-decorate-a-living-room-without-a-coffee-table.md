@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Without a Coffee Table: Stylish Ideas"
-description: "Your living room is the heart of your home, but what if you don’t have a coffee table? You might think your space feels incomplete or awkward. The truth is, you"
+title: 'How to Decorate a Living Room Without a Coffee Table: Stylish Ideas'
+description: Your living room is the heart of your home, but what if you don’t have
+  a coffee table? You might think your space feels incomplete or awkward. The truth
+  is, you
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, but what if you don’t have a coffee table? You might think your space feels incomplete or awkward.**

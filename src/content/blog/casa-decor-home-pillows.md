@@ -1,10 +1,14 @@
 ---
-title: "Casa Decor Home Pillows: Stylish Throw Covers for Cozy Living Spaces"
-description: "Discover the perfect touch of elegance with Casa Decor Home Pillows. Transform your living space effortlessly with these stylish throw pillows. Casa Decor offer"
+title: 'Casa Decor Home Pillows: Stylish Throw Covers for Cozy Living Spaces'
+description: Discover the perfect touch of elegance with Casa Decor Home Pillows.
+  Transform your living space effortlessly with these stylish throw pillows. Casa
+  Decor offer
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=casa-decor-home-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=casa-decor-home-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the perfect touch of elegance with Casa Decor Home Pillows. Transform your living space effortlessly with these stylish throw pillows.**

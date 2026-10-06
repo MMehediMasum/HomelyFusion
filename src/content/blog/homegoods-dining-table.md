@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Dining Table Ideas: Stylish, Space-Saving Options for Every Kitchen"
-description: "Choosing the right dining table can transform your dining space, making it both functional and stylish. Homegoods offers a range of options perfect for any home"
+title: 'Homegoods Dining Table Ideas: Stylish, Space-Saving Options for Every Kitchen'
+description: Choosing the right dining table can transform your dining space, making
+  it both functional and stylish. Homegoods offers a range of options perfect for
+  any home
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-dining-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right dining table can transform your dining space, making it both functional and stylish. Homegoods offers a range of options perfect for any home.**

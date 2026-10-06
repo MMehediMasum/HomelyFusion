@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Window Over Bed: Stunning Ideas"
-description: "Your bedroom is your sanctuary, and the way you decorate it can make a big difference in how you feel every day. If you have a window right over your bed, you m"
+title: 'How to Decorate Bedroom With Window Over Bed: Stunning Ideas'
+description: Your bedroom is your sanctuary, and the way you decorate it can make
+  a big difference in how you feel every day. If you have a window right over your
+  bed, you m
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-window-over-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-window-over-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom is your sanctuary, and the way you decorate it can make a big difference in how you feel every day. If you have a window right over your bed, you might wonder how to make the most of this unique feature.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Accessorize a Bathroom Vanity: Stunning Ideas for Style"
-description: "Your bathroom vanity is more than just a place to wash up—it’s a key spot that sets the tone for your entire bathroom. But how do you make it stand out without "
+title: 'How to Accessorize a Bathroom Vanity: Stunning Ideas for Style'
+description: 'Your bathroom vanity is more than just a place to wash up—it’s a key
+  spot that sets the tone for your entire bathroom. But how do you make it stand out
+  without '
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-accessorize-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-accessorize-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to wash up—it’s a key spot that sets the tone for your entire bathroom. But how do you make it stand out without cluttering it?**

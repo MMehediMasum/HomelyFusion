@@ -1,10 +1,14 @@
 ---
-title: "Glass Pumpkins Home Goods: Stunning Fall Decor for Thanksgiving Tables"
-description: "Glass pumpkins bring a unique charm to home decor. They beautifully capture the essence of fall and festive occasions. Whether you’re decorating for Halloween, "
+title: 'Glass Pumpkins Home Goods: Stunning Fall Decor for Thanksgiving Tables'
+description: 'Glass pumpkins bring a unique charm to home decor. They beautifully
+  capture the essence of fall and festive occasions. Whether you’re decorating for
+  Halloween, '
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=glass-pumpkins-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=glass-pumpkins-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Glass pumpkins bring a unique charm to home decor. They beautifully capture the essence of fall and festive occasions.**

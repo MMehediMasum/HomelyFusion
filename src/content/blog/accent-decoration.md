@@ -1,10 +1,14 @@
 ---
-title: "Accent Decoration Ideas: Transform Your Home with Stylish Blue Ceramic Vases"
-description: "Accent decoration adds personality and warmth to your home. Small details make a big impact on any space. Creating a welcoming environment involves choosing the"
+title: 'Accent Decoration Ideas: Transform Your Home with Stylish Blue Ceramic Vases'
+description: Accent decoration adds personality and warmth to your home. Small details
+  make a big impact on any space. Creating a welcoming environment involves choosing
+  the
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-decoration&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent decoration adds personality and warmth to your home. Small details make a big impact on any space.**

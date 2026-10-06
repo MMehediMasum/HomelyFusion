@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a High Shelf in Living Room: Stylish Tips & Tricks"
-description: "Are you struggling to make that high shelf in your living room look stylish instead of just gathering dust? Decorating a high shelf can feel tricky because it’s"
+title: 'How to Decorate a High Shelf in Living Room: Stylish Tips & Tricks'
+description: Are you struggling to make that high shelf in your living room look stylish
+  instead of just gathering dust? Decorating a high shelf can feel tricky because
+  it’s
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-high-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-high-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you struggling to make that high shelf in your living room look stylish instead of just gathering dust? Decorating a high shelf can feel tricky because it’s out of easy reach and often overlooked.**

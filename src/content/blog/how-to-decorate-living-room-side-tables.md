@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Side Tables: Stylish Tips & Tricks"
-description: "Your living room side tables are more than just places to set down a cup of coffee—they’re powerful spots to showcase your style and personality. But figuring o"
+title: 'How to Decorate Living Room Side Tables: Stylish Tips & Tricks'
+description: Your living room side tables are more than just places to set down a
+  cup of coffee—they’re powerful spots to showcase your style and personality. But
+  figuring o
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room side tables are more than just places to set down a cup of coffee—they’re powerful spots to showcase your style and personality. But figuring out how to decorate them can feel tricky.**

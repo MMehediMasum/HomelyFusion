@@ -1,10 +1,14 @@
 ---
-title: "How to Place Sofa in a Long Living Room: Expert Layout Tips"
-description: "Is your long living room feeling empty or awkward? Placing a sofa in a narrow, stretched-out space can be tricky, but it doesn’t have to be. You want your sofa "
+title: 'How to Place Sofa in a Long Living Room: Expert Layout Tips'
+description: 'Is your long living room feeling empty or awkward? Placing a sofa in
+  a narrow, stretched-out space can be tricky, but it doesn’t have to be. You want
+  your sofa '
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-sofa-in-a-long-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-sofa-in-a-long-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your long living room feeling empty or awkward? Placing a sofa in a narrow, stretched-out space can be tricky, but it doesn’t have to be.**

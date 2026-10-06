@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcovers for Sleeper Sofas: Ultimate Comfort and Style Guide"
-description: "Sleeper sofas need slipcovers that fit well and protect from wear. The right slipcover keeps your sofa fresh and comfortable. Choosing slipcovers for sleeper so"
+title: 'Best Slipcovers for Sleeper Sofas: Ultimate Comfort and Style Guide'
+description: Sleeper sofas need slipcovers that fit well and protect from wear. The
+  right slipcover keeps your sofa fresh and comfortable. Choosing slipcovers for sleeper
+  so
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-sleeper-sofas-ultimate-comfort-and-style-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-sleeper-sofas-ultimate-comfort-and-style-guide&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Sleeper sofas need slipcovers that fit well and protect from wear. The right slipcover keeps your sofa fresh and comfortable.**

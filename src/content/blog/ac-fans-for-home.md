@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A/C Fans for Home: Ultimate Cooling Solutions for Every Room"
 description: "Are you tired of feeling sticky and uncomfortable inside your own home? Your A/C might be working hard, but sometimes it’s not enough to keep every corner cool "
 pubDate: 2026-04-06

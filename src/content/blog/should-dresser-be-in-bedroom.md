@@ -1,10 +1,14 @@
 ---
-title: "Should Dresser Be in Bedroom: Expert Tips for Stylish Storage"
-description: "Have you ever wondered if your dresser really belongs in your bedroom? You might be surprised at how much this simple piece of furniture can impact your space, "
+title: 'Should Dresser Be in Bedroom: Expert Tips for Stylish Storage'
+description: 'Have you ever wondered if your dresser really belongs in your bedroom?
+  You might be surprised at how much this simple piece of furniture can impact your
+  space, '
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-dresser-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=should-dresser-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your dresser really belongs in your bedroom? You might be surprised at how much this simple piece of furniture can impact your space, your daily routine, and even your mood.**

@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Center Table Living Room: Stylish & Functional Ideas"
-description: "Your living room’s center table is more than just a piece of furniture—it’s a focal point that sets the mood for the entire space. But deciding what to put on i"
+title: 'What to Put on Center Table Living Room: Stylish & Functional Ideas'
+description: Your living room’s center table is more than just a piece of furniture—it’s
+  a focal point that sets the mood for the entire space. But deciding what to put
+  on i
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-center-table-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-center-table-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s center table is more than just a piece of furniture—it’s a focal point that sets the mood for the entire space. But deciding what to put on it can be tricky.**

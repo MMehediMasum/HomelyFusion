@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Sofa Colour for Living Room: Expert Tips & Trends"
-description: "Choosing the perfect sofa colour for your living room can feel overwhelming. You want a shade that matches your style, complements your space, and stands the te"
+title: 'How to Choose Sofa Colour for Living Room: Expert Tips & Trends'
+description: Choosing the perfect sofa colour for your living room can feel overwhelming.
+  You want a shade that matches your style, complements your space, and stands the
+  te
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-sofa-colour-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-sofa-colour-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa colour for your living room can feel overwhelming. You want a shade that matches your style, complements your space, and stands the test of time.**

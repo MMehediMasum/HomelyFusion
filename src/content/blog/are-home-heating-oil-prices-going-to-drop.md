@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Going to Drop: Expert Forecasts Revealed"
 description: "Are you worried about your next home heating oil bill? You’re not alone. Many homeowners keep asking the same question: Are home heating oil prices going to dro"
 pubDate: 2025-10-15

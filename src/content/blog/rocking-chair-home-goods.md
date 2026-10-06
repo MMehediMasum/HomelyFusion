@@ -1,10 +1,14 @@
 ---
-title: "Rocking Chair Home Goods: Ultimate Comfort and Style for Every Room"
-description: "Rocking chairs add comfort and style to any home space. They offer gentle motion, perfect for relaxation or nursing. This post explores popular rocking chair ho"
+title: 'Rocking Chair Home Goods: Ultimate Comfort and Style for Every Room'
+description: Rocking chairs add comfort and style to any home space. They offer gentle
+  motion, perfect for relaxation or nursing. This post explores popular rocking chair
+  ho
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rocking-chair-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=rocking-chair-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Rocking chairs add comfort and style to any home space. They offer gentle motion, perfect for relaxation or nursing.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Dorm Rooms: Top Smart Lamps and LED Strips Reviewed"
-description: "Choosing the best lighting for dorm rooms can improve study focus and create a cozy atmosphere. Good lighting fits small spaces and matches various needs. Dorm "
+title: 'Best Lighting for Dorm Rooms: Top Smart Lamps and LED Strips Reviewed'
+description: 'Choosing the best lighting for dorm rooms can improve study focus and
+  create a cozy atmosphere. Good lighting fits small spaces and matches various needs.
+  Dorm '
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-dorm-rooms-top-smart-lamps-and-led-strips-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-dorm-rooms-top-smart-lamps-and-led-strips-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for dorm rooms can improve study focus and create a cozy atmosphere. Good lighting fits small spaces and matches various needs.**

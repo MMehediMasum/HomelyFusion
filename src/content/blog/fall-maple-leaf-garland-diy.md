@@ -1,10 +1,14 @@
 ---
-title: "Fall Maple Leaf Garland DIY: Stunning Autumn Decor Ideas"
-description: "Are you ready to bring the warm, cozy feeling of fall right into your home? Creating your own Fall Maple Leaf Garland DIY is easier than you think, and it’s a f"
+title: 'Fall Maple Leaf Garland DIY: Stunning Autumn Decor Ideas'
+description: Are you ready to bring the warm, cozy feeling of fall right into your
+  home? Creating your own Fall Maple Leaf Garland DIY is easier than you think, and
+  it’s a f
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-maple-leaf-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-maple-leaf-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring the warm, cozy feeling of fall right into your home? Creating your own Fall Maple Leaf Garland DIY is easier than you think, and it’s a fun way to add a personal touch to your autumn decor.**

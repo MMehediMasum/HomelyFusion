@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Vanities: Stylish Makeup Desks with LED Lights and Storage"
-description: "Floor and Decor vanities offer a blend of style and functionality. These vanities enhance any bedroom or dressing room. Choosing the right vanity can transform "
+title: 'Floor And Decor Vanities: Stylish Makeup Desks with LED Lights and Storage'
+description: 'Floor and Decor vanities offer a blend of style and functionality. These
+  vanities enhance any bedroom or dressing room. Choosing the right vanity can transform '
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-vanities&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor vanities offer a blend of style and functionality. These vanities enhance any bedroom or dressing room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room With Dining Table: Smart Space Hacks"
-description: "Are you struggling to fit both a living room and a dining table into the same space without making it look crowded? You’re not alone. Finding the perfect balanc"
+title: 'How to Arrange Living Room With Dining Table: Smart Space Hacks'
+description: Are you struggling to fit both a living room and a dining table into
+  the same space without making it look crowded? You’re not alone. Finding the perfect
+  balanc
 pubDate: 2026-04-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-dining-table&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you struggling to fit both a living room and a dining table into the same space without making it look crowded? You’re not alone.**

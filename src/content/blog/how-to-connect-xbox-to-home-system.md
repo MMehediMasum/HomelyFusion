@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Xbox to Home System: Easy Steps for Ultimate Setup"
 description: "Are you ready to take your gaming experience to the next level? Connecting your Xbox to your home system can transform how you play, watch, and enjoy entertainm"
 pubDate: 2025-09-11

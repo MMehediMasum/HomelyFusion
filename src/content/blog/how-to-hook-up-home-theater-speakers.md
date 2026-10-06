@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Home Theater Speakers: Easy Steps for Perfect Sound"
 description: "Setting up your home theater speakers might seem tricky, but it doesn’t have to be. Imagine watching your favorite movie with sound that surrounds you, making e"
 pubDate: 2025-11-10

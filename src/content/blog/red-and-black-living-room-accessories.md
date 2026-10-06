@@ -1,10 +1,14 @@
 ---
-title: "Red And Black Living Room Accessories to Elevate Your Home Decor"
-description: "Red and black living room accessories add a bold and stylish touch to any space. These colors create a striking contrast, enhancing the room's ambiance. Transfo"
+title: Red And Black Living Room Accessories to Elevate Your Home Decor
+description: Red and black living room accessories add a bold and stylish touch to
+  any space. These colors create a striking contrast, enhancing the room's ambiance.
+  Transfo
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=red-and-black-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=red-and-black-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Red and black living room accessories add a bold and stylish touch to any space. These colors create a striking contrast, enhancing the room's ambiance.**

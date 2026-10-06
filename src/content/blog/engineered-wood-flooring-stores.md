@@ -1,10 +1,14 @@
 ---
-title: "Engineered Wood Flooring Stores: Top Peel & Stick Vinyl Tiles for DIY Floors"
-description: "Engineered wood flooring stores offer a wide selection of durable and stylish flooring options. These stores provide materials and tools for easy installation a"
+title: 'Engineered Wood Flooring Stores: Top Peel & Stick Vinyl Tiles for DIY Floors'
+description: Engineered wood flooring stores offer a wide selection of durable and
+  stylish flooring options. These stores provide materials and tools for easy installation
+  a
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=engineered-wood-flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=engineered-wood-flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Engineered wood flooring stores offer a wide selection of durable and stylish flooring options. These stores provide materials and tools for easy installation and maintenance.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Home Theater Speakers for TV: Ultimate Step-by-Step Guide"
 description: "Are you ready to transform your TV watching experience into something truly immersive? Installing home theater speakers can make a huge difference, but it might"
 pubDate: 2025-11-15

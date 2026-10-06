@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Cupcake Decoration Ideas: Spooky, Easy & Creative Tips"
 description: "Are you ready to make your Halloween party unforgettable? Your cupcakes can be the star of the show with spooky, fun decorations that everyone will love. Imagin"
 pubDate: 2025-10-18

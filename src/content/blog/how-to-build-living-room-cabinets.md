@@ -1,10 +1,14 @@
 ---
-title: "How to Build Living Room Cabinets: Easy Steps for Stunning Storage"
-description: "Are you ready to transform your living room with beautiful, custom cabinets that fit your style and needs? Building your own living room cabinets might sound tr"
+title: 'How to Build Living Room Cabinets: Easy Steps for Stunning Storage'
+description: Are you ready to transform your living room with beautiful, custom cabinets
+  that fit your style and needs? Building your own living room cabinets might sound
+  tr
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-living-room-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-living-room-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to transform your living room with beautiful, custom cabinets that fit your style and needs? Building your own living room cabinets might sound tricky, but with the right steps, you can create stunning storage that makes your space look organized and inviting.**

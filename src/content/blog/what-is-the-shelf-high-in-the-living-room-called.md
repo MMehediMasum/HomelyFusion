@@ -1,10 +1,14 @@
 ---
-title: "What is the Shelf High in the Living Room Called: Ultimate Guide"
-description: "Have you ever looked at the tall shelf in your living room and wondered what it’s actually called? That high-standing piece isn’t just a random furniture item—i"
+title: 'What is the Shelf High in the Living Room Called: Ultimate Guide'
+description: Have you ever looked at the tall shelf in your living room and wondered
+  what it’s actually called? That high-standing piece isn’t just a random furniture
+  item—i
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-shelf-high-in-the-living-room-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-shelf-high-in-the-living-room-called&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked at the tall shelf in your living room and wondered what it’s actually called? That high-standing piece isn’t just a random furniture item—it has a specific name and purpose that can change how you organize your space.**

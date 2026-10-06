@@ -1,10 +1,14 @@
 ---
-title: "Halloween Pillows Home Goods: Cozy Ghost and Pumpkin Decor for Your Sofa"
-description: "Halloween pillows add a cozy touch to your seasonal decor. These unique designs bring spooky charm to any space. Halloween is a time for fun and creativity in h"
+title: 'Halloween Pillows Home Goods: Cozy Ghost and Pumpkin Decor for Your Sofa'
+description: Halloween pillows add a cozy touch to your seasonal decor. These unique
+  designs bring spooky charm to any space. Halloween is a time for fun and creativity
+  in h
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-pillows-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Halloween pillows add a cozy touch to your seasonal decor. These unique designs bring spooky charm to any space.**

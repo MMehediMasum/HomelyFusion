@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Living Room With Sofa Chair: Stylish Tips"
-description: "Struggling to make your small living room feel cozy and stylish? Adding a sofa chair might be the perfect solution. With the right choices, you can create a spa"
+title: 'How to Decorate Small Living Room With Sofa Chair: Stylish Tips'
+description: Struggling to make your small living room feel cozy and stylish? Adding
+  a sofa chair might be the perfect solution. With the right choices, you can create
+  a spa
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-sofa-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-sofa-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to make your small living room feel cozy and stylish? Adding a sofa chair might be the perfect solution.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Chargers Ac Or Dc: Ultimate Guide to Choosing Right"
 description: "Are you curious about how your home charger really works? When you plug in your device, is it using AC or DC power? Understanding this simple fact can save you "
 pubDate: 2026-04-07

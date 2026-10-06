@@ -1,10 +1,13 @@
 ---
-title: "Home Decorators Collection Lighting: Stylish Fixtures to Brighten Every Room"
-description: "Home Decorators Collection Lighting offers a variety of stylish and practical fixtures for every room. These lights combine modern design with energy-efficient "
+title: 'Home Decorators Collection Lighting: Stylish Fixtures to Brighten Every Room'
+description: 'Home Decorators Collection Lighting offers a variety of stylish and
+  practical fixtures for every room. These lights combine modern design with energy-efficient '
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Home Decorators Collection Lighting offers a variety of stylish and practical fixtures for every room. These lights combine modern design with energy-efficient LED technology.**

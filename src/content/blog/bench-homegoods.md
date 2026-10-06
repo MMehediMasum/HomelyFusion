@@ -1,10 +1,14 @@
 ---
-title: "Bench Homegoods: Stylish Upholstered Benches for Every Room and Entryway"
-description: "Bench Homegoods offer practical and stylish seating solutions for every room. These benches combine comfort, storage, and design effortlessly. Benches add extra"
+title: 'Bench Homegoods: Stylish Upholstered Benches for Every Room and Entryway'
+description: Bench Homegoods offer practical and stylish seating solutions for every
+  room. These benches combine comfort, storage, and design effortlessly. Benches add
+  extra
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bench-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=bench-homegoods&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Bench Homegoods offer practical and stylish seating solutions for every room. These benches combine comfort, storage, and design effortlessly.**

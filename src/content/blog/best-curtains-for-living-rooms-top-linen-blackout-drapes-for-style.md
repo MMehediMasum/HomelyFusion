@@ -1,10 +1,13 @@
 ---
-title: "Best Curtains for Living Rooms: Top Linen Blackout Drapes for Style"
-description: "Choosing the best curtains for living rooms can enhance style and comfort. Curtains control light, add privacy, and improve energy efficiency. A perfect curtain"
+title: 'Best Curtains for Living Rooms: Top Linen Blackout Drapes for Style'
+description: Choosing the best curtains for living rooms can enhance style and comfort.
+  Curtains control light, add privacy, and improve energy efficiency. A perfect curtain
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-living-rooms-top-linen-blackout-drapes-for-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-living-rooms-top-linen-blackout-drapes-for-style&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for living rooms can enhance style and comfort. Curtains control light, add privacy, and improve energy efficiency.**

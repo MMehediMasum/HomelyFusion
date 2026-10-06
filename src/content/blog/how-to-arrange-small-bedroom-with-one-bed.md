@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Small Bedroom With One Bed: Smart Space Hacks"
-description: "Struggling to make the most of your small bedroom with just one bed? You’re not alone. When space is tight, it can feel like every inch counts—and arranging you"
+title: 'How to Arrange Small Bedroom With One Bed: Smart Space Hacks'
+description: Struggling to make the most of your small bedroom with just one bed?
+  You’re not alone. When space is tight, it can feel like every inch counts—and arranging
+  you
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-one-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-one-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to make the most of your small bedroom with just one bed? You’re not alone.**

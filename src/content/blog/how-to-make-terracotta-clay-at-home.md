@@ -1,10 +1,14 @@
 ---
-title: "How to Make Terracotta Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create your own terracotta clay right at home? Imagine the satisfaction of shaping beautiful pots, sculptures, or decorations made with "
+title: 'How to Make Terracotta Clay at Home: Easy DIY Craft Guide'
+description: 'Have you ever wanted to create your own terracotta clay right at home?
+  Imagine the satisfaction of shaping beautiful pots, sculptures, or decorations made
+  with '
 pubDate: 2025-10-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-terracotta-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-terracotta-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own terracotta clay right at home? Imagine the satisfaction of shaping beautiful pots, sculptures, or decorations made with your very own natural clay.**

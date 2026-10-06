@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Ornament: Elegant Holiday Decor for Timeless Christmas Charm"
-description: "Ralph Lauren ornaments add classic charm to your holiday décor. These pieces blend timeless style with festive spirit. Ralph Lauren ornaments capture the magic "
+title: 'Ralph Lauren Ornament: Elegant Holiday Decor for Timeless Christmas Charm'
+description: 'Ralph Lauren ornaments add classic charm to your holiday décor. These
+  pieces blend timeless style with festive spirit. Ralph Lauren ornaments capture
+  the magic '
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-ornament&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-ornament&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Ralph Lauren ornaments add classic charm to your holiday décor. These pieces blend timeless style with festive spirit.**

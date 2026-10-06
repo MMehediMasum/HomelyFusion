@@ -1,10 +1,14 @@
 ---
-title: "Home Good Frames: Stylish Multi-Size Sets for Perfect Wall Galleries"
-description: "Home good frames add charm and personality to any living space. They showcase memories and decorate walls with style and warmth. Picture frames come in many siz"
+title: 'Home Good Frames: Stylish Multi-Size Sets for Perfect Wall Galleries'
+description: Home good frames add charm and personality to any living space. They
+  showcase memories and decorate walls with style and warmth. Picture frames come
+  in many siz
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-good-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home good frames add charm and personality to any living space. They showcase memories and decorate walls with style and warmth.**

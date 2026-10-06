@@ -1,10 +1,14 @@
 ---
-title: "Ross Furniture And Home Decor: Stylish Storage and Decorative Essentials"
-description: "Ross Furniture and Home Decor offers stylish and practical pieces for every room in your home. Their collection includes shelves, trays, doormats, and tables th"
+title: 'Ross Furniture And Home Decor: Stylish Storage and Decorative Essentials'
+description: Ross Furniture and Home Decor offers stylish and practical pieces for
+  every room in your home. Their collection includes shelves, trays, doormats, and
+  tables th
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ross-furniture-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=ross-furniture-and-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ross Furniture and Home Decor offers stylish and practical pieces for every room in your home. Their collection includes shelves, trays, doormats, and tables that blend function and design.**

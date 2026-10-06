@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a Bathroom Vanity: Ultimate Guide to Perfect Height"
-description: "Are you wondering how tall a bathroom vanity should be for your space? Choosing the right height is more important than you might think. It affects your comfort"
+title: 'How Tall is a Bathroom Vanity: Ultimate Guide to Perfect Height'
+description: Are you wondering how tall a bathroom vanity should be for your space?
+  Choosing the right height is more important than you might think. It affects your
+  comfort
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how tall a bathroom vanity should be for your space? Choosing the right height is more important than you might think.**

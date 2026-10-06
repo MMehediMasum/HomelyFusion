@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room Sofa Chair Coffee Table: Expert Tips"
-description: "Your living room is the heart of your home, and arranging your sofa, chairs, and coffee table just right can make all the difference. But where do you start? Ho"
+title: 'How to Arrange Living Room Sofa Chair Coffee Table: Expert Tips'
+description: Your living room is the heart of your home, and arranging your sofa,
+  chairs, and coffee table just right can make all the difference. But where do you
+  start? Ho
 pubDate: 2026-04-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-sofa-chair-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-sofa-chair-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and arranging your sofa, chairs, and coffee table just right can make all the difference. But where do you start?**

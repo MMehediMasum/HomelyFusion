@@ -1,10 +1,14 @@
 ---
-title: "How to Measure Bathroom Vanity: Easy Steps for Perfect Fit"
-description: "Measuring your bathroom vanity might seem simple, but getting it right can save you from costly mistakes and frustration. Whether you’re upgrading your space or"
+title: 'How to Measure Bathroom Vanity: Easy Steps for Perfect Fit'
+description: Measuring your bathroom vanity might seem simple, but getting it right
+  can save you from costly mistakes and frustration. Whether you’re upgrading your
+  space or
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-measure-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-measure-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Measuring your bathroom vanity might seem simple, but getting it right can save you from costly mistakes and frustration. Whether you’re upgrading your space or fitting a new vanity, knowing exactly how to measure ensures a perfect fit and a stylish look.**

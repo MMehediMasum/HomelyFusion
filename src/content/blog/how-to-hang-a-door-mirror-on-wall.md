@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Door Mirror on Wall: Easy Steps for Perfect Placement"
-description: "Have you ever wanted to add a stylish door mirror to your wall but weren’t sure where to start? Hanging a door mirror can instantly brighten your space and make"
+title: 'How to Hang a Door Mirror on Wall: Easy Steps for Perfect Placement'
+description: Have you ever wanted to add a stylish door mirror to your wall but weren’t
+  sure where to start? Hanging a door mirror can instantly brighten your space and
+  make
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-door-mirror-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-door-mirror-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to add a stylish door mirror to your wall but weren’t sure where to start? Hanging a door mirror can instantly brighten your space and make your room feel bigger.**

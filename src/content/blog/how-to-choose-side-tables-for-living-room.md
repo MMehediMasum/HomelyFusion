@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Side Tables for Living Room: Ultimate Style Guide"
-description: "Choosing the perfect side tables for your living room can transform the entire space. You want something that not only looks great but also fits your needs and "
+title: 'How to Choose Side Tables for Living Room: Ultimate Style Guide'
+description: 'Choosing the perfect side tables for your living room can transform
+  the entire space. You want something that not only looks great but also fits your
+  needs and '
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-side-tables-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-side-tables-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect side tables for your living room can transform the entire space. You want something that not only looks great but also fits your needs and lifestyle.**

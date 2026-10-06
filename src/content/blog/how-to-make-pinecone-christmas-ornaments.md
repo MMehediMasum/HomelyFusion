@@ -1,10 +1,14 @@
 ---
-title: "How to Make Pinecone Christmas Ornaments: Easy DIY Festive Ideas"
-description: "Are you looking for a simple and charming way to add a personal touch to your Christmas decorations? Making pinecone Christmas ornaments is a fun and easy craft"
+title: 'How to Make Pinecone Christmas Ornaments: Easy DIY Festive Ideas'
+description: Are you looking for a simple and charming way to add a personal touch
+  to your Christmas decorations? Making pinecone Christmas ornaments is a fun and
+  easy craft
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-pinecone-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-pinecone-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple and charming way to add a personal touch to your Christmas decorations? Making pinecone Christmas ornaments is a fun and easy craft that anyone can do.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Google Home to Home Speakers: Easy Step-by-Step Guide"
 description: "Do you want your Google Home to fill your entire room with rich, powerful sound? Connecting your Google Home to your existing home speakers can take your audio "
 pubDate: 2026-04-27

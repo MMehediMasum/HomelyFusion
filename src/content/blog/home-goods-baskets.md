@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Baskets: Stylish Storage Solutions for Every Room Organizer"
-description: "Home goods baskets help keep your home tidy and stylish. They come in many sizes and materials for different storage needs. These baskets organize clothes, toys"
+title: 'Home Goods Baskets: Stylish Storage Solutions for Every Room Organizer'
+description: Home goods baskets help keep your home tidy and stylish. They come in
+  many sizes and materials for different storage needs. These baskets organize clothes,
+  toys
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-baskets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-baskets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Home goods baskets help keep your home tidy and stylish. They come in many sizes and materials for different storage needs.**

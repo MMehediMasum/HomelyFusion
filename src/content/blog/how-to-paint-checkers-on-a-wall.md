@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Checkers on a Wall: Easy Steps for Stunning Results"
-description: "Are you ready to transform your plain wall into a stunning checkerboard masterpiece? Painting checkers on a wall might seem tricky, but with the right steps, yo"
+title: 'How to Paint Checkers on a Wall: Easy Steps for Stunning Results'
+description: Are you ready to transform your plain wall into a stunning checkerboard
+  masterpiece? Painting checkers on a wall might seem tricky, but with the right steps,
+  yo
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-checkers-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-checkers-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a stunning checkerboard masterpiece? Painting checkers on a wall might seem tricky, but with the right steps, you can achieve a clean, eye-catching design that adds personality to any room.**

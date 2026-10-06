@@ -1,10 +1,13 @@
 ---
-title: "How Much Space Living Room Chair Needs: Ultimate Guide 2025"
-description: "Are you wondering how much space a living room chair really needs? Choosing the right chair isn’t just about style—it’s about comfort and making sure your room "
+title: 'How Much Space Living Room Chair Needs: Ultimate Guide 2025'
+description: 'Are you wondering how much space a living room chair really needs? Choosing
+  the right chair isn’t just about style—it’s about comfort and making sure your room '
 pubDate: 2025-08-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-space-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-much-space-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how much space a living room chair really needs? Choosing the right chair isn’t just about style—it’s about comfort and making sure your room feels open and inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Wool Rug at Home: Easy Steps for Spotless Care"
-description: "Your wool rug adds warmth and style to your home, but keeping it clean can feel tricky. You might worry about damaging its soft fibers or making stains worse. W"
+title: 'How to Clean a Wool Rug at Home: Easy Steps for Spotless Care'
+description: Your wool rug adds warmth and style to your home, but keeping it clean
+  can feel tricky. You might worry about damaging its soft fibers or making stains
+  worse. W
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool rug adds warmth and style to your home, but keeping it clean can feel tricky. You might worry about damaging its soft fibers or making stains worse.**

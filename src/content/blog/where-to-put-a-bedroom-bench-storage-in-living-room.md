@@ -1,10 +1,14 @@
 ---
-title: "Where to Put a Bedroom Bench Storage in Living Room: Smart Spots Revealed"
-description: "Looking for a smart way to add both style and extra storage to your living room? A bedroom bench with storage might be exactly what you need. But where should y"
+title: 'Where to Put a Bedroom Bench Storage in Living Room: Smart Spots Revealed'
+description: Looking for a smart way to add both style and extra storage to your living
+  room? A bedroom bench with storage might be exactly what you need. But where should
+  y
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-a-bedroom-bench-storage-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-a-bedroom-bench-storage-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for a smart way to add both style and extra storage to your living room? A bedroom bench with storage might be exactly what you need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Roof Tiles at Home: Easy DIY Guide for Beginners"
 description: "Are you looking to add a personal touch to your home with unique roofing? Making clay roof tiles at home is easier than you might think. Imagine creating durabl"
 pubDate: 2026-02-28

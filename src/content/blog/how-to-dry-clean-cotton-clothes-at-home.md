@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean Cotton Clothes at Home: Easy & Effective Tips"
 description: "Are you tired of spending a fortune on dry cleaning your favorite cotton clothes? What if you could get the same fresh, professional look right at home without "
 pubDate: 2026-02-15

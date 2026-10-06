@@ -1,10 +1,14 @@
 ---
-title: "Diy Halloween Lantern Ideas: Spooktacular Designs to Try Tonight"
-description: "Looking to add a spooky touch to your Halloween decorations? You’re in the right place! DIY Halloween lanterns are a fun and creative way to light up your home "
+title: 'Diy Halloween Lantern Ideas: Spooktacular Designs to Try Tonight'
+description: 'Looking to add a spooky touch to your Halloween decorations? You’re
+  in the right place! DIY Halloween lanterns are a fun and creative way to light up
+  your home '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-halloween-lantern-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=diy-halloween-lantern-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a spooky touch to your Halloween decorations? You’re in the right place!**

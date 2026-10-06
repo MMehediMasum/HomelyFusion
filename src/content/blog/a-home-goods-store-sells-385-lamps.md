@@ -1,10 +1,14 @@
 ---
-title: "A Home Goods Store Sells 385 Lamps: Stunning Deals You Can’t Miss"
-description: "Imagine walking into your favorite home goods store and seeing a stunning collection of lamps—385 of them, to be exact. Whether you’re looking to brighten up yo"
+title: 'A Home Goods Store Sells 385 Lamps: Stunning Deals You Can’t Miss'
+description: Imagine walking into your favorite home goods store and seeing a stunning
+  collection of lamps—385 of them, to be exact. Whether you’re looking to brighten
+  up yo
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-home-goods-store-sells-385-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=a-home-goods-store-sells-385-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine walking into your favorite home goods store and seeing a stunning collection of lamps—385 of them, to be exact. Whether you’re looking to brighten up your living room, create a cozy reading nook, or add a touch of style to your bedroom, the right lamp can make all the difference.**

@@ -1,10 +1,14 @@
 ---
-title: "Corgi Bookends: Adorable Decorative Wood Book Stoppers for Home"
-description: "Corgi bookends add charm and function to any shelf or desk. These cute dog-themed holders keep books, magazines, and DVDs neat. Corgi bookends come in many styl"
+title: 'Corgi Bookends: Adorable Decorative Wood Book Stoppers for Home'
+description: Corgi bookends add charm and function to any shelf or desk. These cute
+  dog-themed holders keep books, magazines, and DVDs neat. Corgi bookends come in
+  many styl
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=corgi-bookends&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Bookends
+heroImage: https://tse1.mm.bing.net/th?q=corgi-bookends&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Corgi bookends add charm and function to any shelf or desk. These cute dog-themed holders keep books, magazines, and DVDs neat.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Chalkboard Wall: Easy Steps for a Stunning Finish"
-description: "Want to add a fun and creative touch to your space? Painting a chalkboard wall is easier than you think, and it can transform any room into a playful, useful ar"
+title: 'How to Paint a Chalkboard Wall: Easy Steps for a Stunning Finish'
+description: Want to add a fun and creative touch to your space? Painting a chalkboard
+  wall is easier than you think, and it can transform any room into a playful, useful
+  ar
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-chalkboard-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-chalkboard-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to add a fun and creative touch to your space? Painting a chalkboard wall is easier than you think, and it can transform any room into a playful, useful area.**

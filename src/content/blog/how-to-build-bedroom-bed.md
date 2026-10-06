@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bedroom Bed: Easy Steps for a Stylish DIY Masterpiece"
-description: "Are you ready to create the perfect centerpiece for your bedroom? Building your own bed might sound challenging, but with the right steps, you can craft a sturd"
+title: 'How to Build Bedroom Bed: Easy Steps for a Stylish DIY Masterpiece'
+description: Are you ready to create the perfect centerpiece for your bedroom? Building
+  your own bed might sound challenging, but with the right steps, you can craft a
+  sturd
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to create the perfect centerpiece for your bedroom? Building your own bed might sound challenging, but with the right steps, you can craft a sturdy, stylish bed that fits your space and style perfectly.**

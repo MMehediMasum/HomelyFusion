@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Pants at Home: Easy Steps for Perfect Care"
 description: "Wool pants are a stylish and comfortable addition to your wardrobe, but cleaning them at home can feel tricky. You might worry about shrinking, stretching, or r"
 pubDate: 2026-02-08

@@ -1,10 +1,14 @@
 ---
-title: "Lighting Home Decor Ideas: Transform Your Space with Stylish LED Solutions"
-description: "Lighting plays a crucial role in home decor. It sets the mood and enhances the aesthetic appeal of your space. Incorporating the right lighting elements can tra"
+title: 'Lighting Home Decor Ideas: Transform Your Space with Stylish LED Solutions'
+description: Lighting plays a crucial role in home decor. It sets the mood and enhances
+  the aesthetic appeal of your space. Incorporating the right lighting elements can
+  tra
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lighting-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=lighting-home-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lighting plays a crucial role in home decor. It sets the mood and enhances the aesthetic appeal of your space.**

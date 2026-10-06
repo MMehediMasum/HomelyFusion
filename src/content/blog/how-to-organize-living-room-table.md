@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Living Room Table: Easy Tips for a Clutter-Free Space"
-description: "Is your living room table cluttered and chaotic? You’re not alone. A messy table can make your whole space feel stressful, even when everything else is tidy. Bu"
+title: 'How to Organize Living Room Table: Easy Tips for a Clutter-Free Space'
+description: Is your living room table cluttered and chaotic? You’re not alone. A
+  messy table can make your whole space feel stressful, even when everything else
+  is tidy. Bu
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room table cluttered and chaotic? You’re not alone.**

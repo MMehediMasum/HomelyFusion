@@ -1,10 +1,14 @@
 ---
-title: "How to Update Bathroom Cabinet: Easy Tips for a Stunning Makeover"
-description: "Your bathroom cabinet can change the entire look of your space, but updating it doesn’t have to be hard or expensive. Imagine opening your cabinet and feeling a"
+title: 'How to Update Bathroom Cabinet: Easy Tips for a Stunning Makeover'
+description: Your bathroom cabinet can change the entire look of your space, but updating
+  it doesn’t have to be hard or expensive. Imagine opening your cabinet and feeling
+  a
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-update-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-update-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bathroom cabinet can change the entire look of your space, but updating it doesn’t have to be hard or expensive. Imagine opening your cabinet and feeling a fresh, clean vibe every time.**

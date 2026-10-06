@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Glasses in Cabinets in Living Room: Stylish Tips"
-description: "Are your glasses cluttered or hard to find in your living room cabinets? Imagine opening your cabinet and instantly spotting the perfect glass without any hassl"
+title: 'How to Arrange Glasses in Cabinets in Living Room: Stylish Tips'
+description: Are your glasses cluttered or hard to find in your living room cabinets?
+  Imagine opening your cabinet and instantly spotting the perfect glass without any
+  hassl
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-glasses-in-cabinets-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-glasses-in-cabinets-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your glasses cluttered or hard to find in your living room cabinets? Imagine opening your cabinet and instantly spotting the perfect glass without any hassle.**

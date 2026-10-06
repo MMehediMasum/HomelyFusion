@@ -1,10 +1,14 @@
 ---
-title: "Best Chair Leg Pads for Hardwood Floors: Ultimate Protection and Comfort"
-description: "Protect hardwood floors from scratches and dents with the right chair leg pads. These pads reduce noise and prevent damage effectively. Hardwood floors add beau"
+title: 'Best Chair Leg Pads for Hardwood Floors: Ultimate Protection and Comfort'
+description: Protect hardwood floors from scratches and dents with the right chair
+  leg pads. These pads reduce noise and prevent damage effectively. Hardwood floors
+  add beau
 pubDate: 2025-12-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-chair-leg-pads-for-hardwood-floors-ultimate-protection-and-comfort&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-chair-leg-pads-for-hardwood-floors-ultimate-protection-and-comfort&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Protect hardwood floors from scratches and dents with the right chair leg pads. These pads reduce noise and prevent damage effectively.**

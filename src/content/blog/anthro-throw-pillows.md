@@ -1,10 +1,14 @@
 ---
-title: "Anthro Throw Pillows: Stylish Cotton Covers for Cozy Living Spaces"
-description: "Anthro throw pillows add a cozy and stylish touch to any space. They come in various designs and colors to suit your decor. Explore the world of Anthro throw pi"
+title: 'Anthro Throw Pillows: Stylish Cotton Covers for Cozy Living Spaces'
+description: Anthro throw pillows add a cozy and stylish touch to any space. They
+  come in various designs and colors to suit your decor. Explore the world of Anthro
+  throw pi
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=anthro-throw-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=anthro-throw-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Anthro throw pillows add a cozy and stylish touch to any space. They come in various designs and colors to suit your decor.**

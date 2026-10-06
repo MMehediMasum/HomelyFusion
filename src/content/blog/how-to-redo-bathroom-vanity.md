@@ -1,10 +1,14 @@
 ---
-title: "How to Redo Bathroom Vanity: Easy Steps for a Stunning Makeover"
-description: "Are you tired of your old bathroom vanity but worried that replacing it will be expensive and time-consuming? What if you could give your vanity a fresh, stylis"
+title: 'How to Redo Bathroom Vanity: Easy Steps for a Stunning Makeover'
+description: Are you tired of your old bathroom vanity but worried that replacing
+  it will be expensive and time-consuming? What if you could give your vanity a fresh,
+  stylis
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-redo-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-redo-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your old bathroom vanity but worried that replacing it will be expensive and time-consuming? What if you could give your vanity a fresh, stylish look without breaking the bank or calling in a professional?**

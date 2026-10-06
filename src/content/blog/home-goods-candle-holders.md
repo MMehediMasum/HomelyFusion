@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Candle Holders: Elegant Gold and Vintage Styles for Every Decor"
-description: "Home goods candle holders add charm and warmth to any room. They come in various styles, sizes, and materials to suit your decor. Candle holders create a cozy a"
+title: 'Home Goods Candle Holders: Elegant Gold and Vintage Styles for Every Decor'
+description: Home goods candle holders add charm and warmth to any room. They come
+  in various styles, sizes, and materials to suit your decor. Candle holders create
+  a cozy a
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-candle-holders&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-candle-holders&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods candle holders add charm and warmth to any room. They come in various styles, sizes, and materials to suit your decor.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Santa Wine Bottle Holder: Festive Holiday Decor for Parties"
-description: "The Home Goods Santa Wine Bottle Holder adds festive charm to holiday gatherings. It's a perfect blend of decoration and utility. This delightful wine bottle ho"
+title: 'Home Goods Santa Wine Bottle Holder: Festive Holiday Decor for Parties'
+description: The Home Goods Santa Wine Bottle Holder adds festive charm to holiday
+  gatherings. It's a perfect blend of decoration and utility. This delightful wine
+  bottle ho
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-santa-wine-bottle-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-santa-wine-bottle-holder&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Home Goods Santa Wine Bottle Holder adds festive charm to holiday gatherings. It's a perfect blend of decoration and utility.**

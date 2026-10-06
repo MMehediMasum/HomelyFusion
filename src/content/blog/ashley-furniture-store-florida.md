@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ashley Furniture Store Florida: Top Stylish Recliners and Classic Furniture Picks"
 description: "Ashley Furniture Store Florida offers a wide range of stylish and functional home furniture. Find sofas, tables, dressers, and more to fit every room and style."
 pubDate: 2026-08-20

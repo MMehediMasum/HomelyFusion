@@ -1,10 +1,13 @@
 ---
-title: "Snoopy Halloween Blanket Tj Maxx: Cozy Up with Festive Peanuts Plush Throws"
-description: "Find the perfect Snoopy Halloween blanket at TJ Maxx this season. Snuggle up in style with Peanuts-themed throws. Halloween brings a special charm with Peanuts-"
+title: 'Snoopy Halloween Blanket Tj Maxx: Cozy Up with Festive Peanuts Plush Throws'
+description: Find the perfect Snoopy Halloween blanket at TJ Maxx this season. Snuggle
+  up in style with Peanuts-themed throws. Halloween brings a special charm with Peanuts-
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-halloween-blanket-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-halloween-blanket-tj-maxx&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Find the perfect Snoopy Halloween blanket at TJ Maxx this season. Snuggle up in style with Peanuts-themed throws.**

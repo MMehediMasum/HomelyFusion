@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a File Cabinet: Creative Ideas to Transform Your Space"
-description: "Your file cabinet doesn’t have to be just a boring piece of office furniture. Imagine turning it into something that reflects your style and brightens up your w"
+title: 'How to Decorate a File Cabinet: Creative Ideas to Transform Your Space'
+description: Your file cabinet doesn’t have to be just a boring piece of office furniture.
+  Imagine turning it into something that reflects your style and brightens up your
+  w
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-file-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-file-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your file cabinet doesn’t have to be just a boring piece of office furniture. Imagine turning it into something that reflects your style and brightens up your workspace.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Store Candles: Expert Tips for Long-Lasting Scent"
-description: "Do you love lighting candles to create a cozy atmosphere? Then you know how disappointing it is when your favorite candles lose their scent or shape. How you st"
+title: 'How to Store Candles: Expert Tips for Long-Lasting Scent'
+description: Do you love lighting candles to create a cozy atmosphere? Then you know
+  how disappointing it is when your favorite candles lose their scent or shape. How
+  you st
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-store-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-store-candles&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Do you love lighting candles to create a cozy atmosphere? Then you know how disappointing it is when your favorite candles lose their scent or shape.**

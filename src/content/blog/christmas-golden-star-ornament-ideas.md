@@ -1,10 +1,14 @@
 ---
-title: "Christmas Golden Star Ornament Ideas: Stunning DIY Decor Tips"
-description: "Are you ready to make your Christmas tree shine like never before? A golden star ornament is the perfect way to add that magical sparkle to your holiday decor. "
+title: 'Christmas Golden Star Ornament Ideas: Stunning DIY Decor Tips'
+description: 'Are you ready to make your Christmas tree shine like never before? A
+  golden star ornament is the perfect way to add that magical sparkle to your holiday
+  decor. '
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-golden-star-ornament-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-golden-star-ornament-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas tree shine like never before? A golden star ornament is the perfect way to add that magical sparkle to your holiday decor.**

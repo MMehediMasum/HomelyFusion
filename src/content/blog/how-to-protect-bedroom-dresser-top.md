@@ -1,10 +1,14 @@
 ---
-title: "How to Protect Bedroom Dresser Top: Easy Tips for Lasting Beauty"
-description: "Your bedroom dresser top is more than just a flat surface—it’s where you keep your favorite items, display cherished memories, and sometimes even start your day"
+title: 'How to Protect Bedroom Dresser Top: Easy Tips for Lasting Beauty'
+description: Your bedroom dresser top is more than just a flat surface—it’s where
+  you keep your favorite items, display cherished memories, and sometimes even start
+  your day
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-protect-bedroom-dresser-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-protect-bedroom-dresser-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser top is more than just a flat surface—it’s where you keep your favorite items, display cherished memories, and sometimes even start your day. But have you ever noticed those annoying scratches, stains, or water rings that suddenly appear?**

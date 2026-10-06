@@ -1,10 +1,13 @@
 ---
-title: "How to Make Lamp Oil at Home: Easy DIY Guide for Clean Burning"
-description: "Are you looking for a simple way to make your own lamp oil at home? Imagine having a reliable, cost-effective source of light that you control completely. Makin"
+title: 'How to Make Lamp Oil at Home: Easy DIY Guide for Clean Burning'
+description: Are you looking for a simple way to make your own lamp oil at home? Imagine
+  having a reliable, cost-effective source of light that you control completely. Makin
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lamp-oil-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lamp-oil-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking for a simple way to make your own lamp oil at home? Imagine having a reliable, cost-effective source of light that you control completely.**

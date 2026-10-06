@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Floor Mirror Ideas to Elevate Your Bedroom Decor Instantly"
-description: "Elevate your home decor with a stylish floor mirror. These versatile pieces bring elegance and functionality to any space. Floor mirrors are more than just prac"
+title: Homegoods Floor Mirror Ideas to Elevate Your Bedroom Decor Instantly
+description: Elevate your home decor with a stylish floor mirror. These versatile
+  pieces bring elegance and functionality to any space. Floor mirrors are more than
+  just prac
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-floor-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-floor-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Elevate your home decor with a stylish floor mirror. These versatile pieces bring elegance and functionality to any space.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor for Home Office: Stylish Ideas to Boost Productivity and Style"
-description: "Decorating a home office can transform it into a more inspiring and productive space. Wall decor plays a crucial role in creating an environment that balances c"
+title: 'Wall Decor for Home Office: Stylish Ideas to Boost Productivity and Style'
+description: Decorating a home office can transform it into a more inspiring and productive
+  space. Wall decor plays a crucial role in creating an environment that balances
+  c
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-for-home-office&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating a home office can transform it into a more inspiring and productive space. Wall decor plays a crucial role in creating an environment that balances comfort and motivation.**

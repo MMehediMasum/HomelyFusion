@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Bread Recipe: Irresistible & Easy to Bake"
 description: "Imagine the warm, cozy aroma of pumpkin and spices filling your kitchen. This Thanksgiving Pumpkin Bread recipe is just what you need to make your holiday extra"
 pubDate: 2026-01-08

@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room Wall Decor: Stunning Tips for Style"
-description: "Your living room walls are a blank canvas waiting to come alive. How you arrange your wall decor can transform the entire space, making it feel cozy, stylish, a"
+title: 'How to Arrange Living Room Wall Decor: Stunning Tips for Style'
+description: Your living room walls are a blank canvas waiting to come alive. How
+  you arrange your wall decor can transform the entire space, making it feel cozy,
+  stylish, a
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your living room walls are a blank canvas waiting to come alive. How you arrange your wall decor can transform the entire space, making it feel cozy, stylish, and truly yours.**

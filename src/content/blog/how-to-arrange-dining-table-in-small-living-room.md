@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Dining Table in Small Living Room: Smart Space Hacks"
-description: "Struggling to fit a dining table in your small living room? You’re not alone. Making the most of limited space can feel tricky, but with the right approach, you"
+title: 'How to Arrange Dining Table in Small Living Room: Smart Space Hacks'
+description: Struggling to fit a dining table in your small living room? You’re not
+  alone. Making the most of limited space can feel tricky, but with the right approach,
+  you
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-dining-table-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-dining-table-in-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to fit a dining table in your small living room? You’re not alone.**

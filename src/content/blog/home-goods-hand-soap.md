@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Hand Soap: Top Moisturizing and Antibacterial Picks"
-description: "Discover the best hand soaps for your home. Our selection offers quality, variety, and affordability for everyday use. Hand soap is more than just a cleaning ag"
+title: 'Home Goods Hand Soap: Top Moisturizing and Antibacterial Picks'
+description: Discover the best hand soaps for your home. Our selection offers quality,
+  variety, and affordability for everyday use. Hand soap is more than just a cleaning
+  ag
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-hand-soap&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-hand-soap&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the best hand soaps for your home. Our selection offers quality, variety, and affordability for everyday use.**

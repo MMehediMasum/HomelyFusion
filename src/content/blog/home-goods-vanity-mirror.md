@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity Mirror: Top Lighted and Magnifying Mirrors Reviewed"
-description: "A home goods vanity mirror adds style and function to your daily routine. It helps with makeup, grooming, and room decor. Vanity mirrors come in many styles and"
+title: 'Home Goods Vanity Mirror: Top Lighted and Magnifying Mirrors Reviewed'
+description: A home goods vanity mirror adds style and function to your daily routine.
+  It helps with makeup, grooming, and room decor. Vanity mirrors come in many styles
+  and
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A home goods vanity mirror adds style and function to your daily routine. It helps with makeup, grooming, and room decor.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Glaze Polymer Clay at Home: Easy Tips for a Perfect Shine"
-description: "If you’ve ever made something beautiful with polymer clay, you know how important that perfect shine can be. Glazing your creations at home isn’t as hard as you"
+title: 'How to Glaze Polymer Clay at Home: Easy Tips for a Perfect Shine'
+description: If you’ve ever made something beautiful with polymer clay, you know how
+  important that perfect shine can be. Glazing your creations at home isn’t as hard
+  as you
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-glaze-polymer-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-glaze-polymer-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **If you’ve ever made something beautiful with polymer clay, you know how important that perfect shine can be. Glazing your creations at home isn’t as hard as you might think.**

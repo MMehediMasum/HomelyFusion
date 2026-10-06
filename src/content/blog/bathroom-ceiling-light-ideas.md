@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Ceiling Light Ideas: Brighten Your Space with Style"
-description: "Your bathroom ceiling light can completely change the way your space feels. Imagine stepping into a bathroom that’s bright, inviting, and perfectly lit for ever"
+title: 'Bathroom Ceiling Light Ideas: Brighten Your Space with Style'
+description: Your bathroom ceiling light can completely change the way your space
+  feels. Imagine stepping into a bathroom that’s bright, inviting, and perfectly lit
+  for ever
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-ceiling-light-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-ceiling-light-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your bathroom ceiling light can completely change the way your space feels. Imagine stepping into a bathroom that’s bright, inviting, and perfectly lit for every moment—whether it’s a quick morning routine or a relaxing evening soak.**

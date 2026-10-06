@@ -1,10 +1,13 @@
 ---
-title: "W & a Home Decor Candle Warmer: Stylish, Adjustable, and Perfect Gift Idea"
-description: "The W & A Home Decor Candle Warmer offers a safe way to enjoy candle scents without a flame. It melts wax evenly using gentle heat, creating a cozy atmosphere. "
+title: 'W & a Home Decor Candle Warmer: Stylish, Adjustable, and Perfect Gift Idea'
+description: 'The W & A Home Decor Candle Warmer offers a safe way to enjoy candle
+  scents without a flame. It melts wax evenly using gentle heat, creating a cozy atmosphere. '
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=w-a-home-decor-candle-warmer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=w-a-home-decor-candle-warmer&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The W & A Home Decor Candle Warmer offers a safe way to enjoy candle scents without a flame. It melts wax evenly using gentle heat, creating a cozy atmosphere.**

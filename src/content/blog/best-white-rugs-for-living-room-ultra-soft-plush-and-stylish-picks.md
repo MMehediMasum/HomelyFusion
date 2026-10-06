@@ -1,10 +1,14 @@
 ---
-title: "Best White Rugs for Living Room: Ultra Soft, Plush, and Stylish Picks"
-description: "White rugs add brightness and style to any living room. They create a fresh, clean look while making the space feel cozy and inviting. Choosing the best white r"
+title: 'Best White Rugs for Living Room: Ultra Soft, Plush, and Stylish Picks'
+description: White rugs add brightness and style to any living room. They create a
+  fresh, clean look while making the space feel cozy and inviting. Choosing the best
+  white r
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-white-rugs-for-living-room-ultra-soft-plush-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-white-rugs-for-living-room-ultra-soft-plush-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **White rugs add brightness and style to any living room. They create a fresh, clean look while making the space feel cozy and inviting.**

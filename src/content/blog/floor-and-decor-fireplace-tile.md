@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Fireplace Tile Ideas to Transform Your Hearth Space"
-description: "Fireplace tile offers a stylish and functional way to enhance your living space. Floor and Decor provides a wide range of peel and stick options. Transforming y"
+title: Floor And Decor Fireplace Tile Ideas to Transform Your Hearth Space
+description: Fireplace tile offers a stylish and functional way to enhance your living
+  space. Floor and Decor provides a wide range of peel and stick options. Transforming
+  y
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-fireplace-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-fireplace-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Fireplace tile offers a stylish and functional way to enhance your living space. Floor and Decor provides a wide range of peel and stick options.**

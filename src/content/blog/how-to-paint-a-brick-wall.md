@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Brick Wall: Easy Steps for a Stunning Finish"
-description: "Are you looking to give your brick wall a fresh, new look? Painting a brick wall can transform a dull space into something vibrant and inviting. But it’s not as"
+title: 'How to Paint a Brick Wall: Easy Steps for a Stunning Finish'
+description: Are you looking to give your brick wall a fresh, new look? Painting a
+  brick wall can transform a dull space into something vibrant and inviting. But it’s
+  not as
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your brick wall a fresh, new look? Painting a brick wall can transform a dull space into something vibrant and inviting.**

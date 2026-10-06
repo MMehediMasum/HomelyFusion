@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Artwork: Top Rechargeable Picture Lights with Remote"
-description: "Choosing the best lighting for artwork enhances colors and details, making your art stand out. Proper lights protect your pieces and create a perfect display. G"
+title: 'Best Lighting for Artwork: Top Rechargeable Picture Lights with Remote'
+description: Choosing the best lighting for artwork enhances colors and details, making
+  your art stand out. Proper lights protect your pieces and create a perfect display.
+  G
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-artwork-top-rechargeable-picture-lights-with-remote&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-artwork-top-rechargeable-picture-lights-with-remote&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for artwork enhances colors and details, making your art stand out. Proper lights protect your pieces and create a perfect display.**

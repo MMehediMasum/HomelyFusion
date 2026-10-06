@@ -1,10 +1,14 @@
 ---
-title: "Side Table Home Goods: Stylish Wooden Designs for Modern Living Spaces"
-description: "Side tables add style and function to any room. Home goods offer many designs to fit your space and needs. Choosing the right side table can improve your living"
+title: 'Side Table Home Goods: Stylish Wooden Designs for Modern Living Spaces'
+description: Side tables add style and function to any room. Home goods offer many
+  designs to fit your space and needs. Choosing the right side table can improve your
+  living
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=side-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=side-table-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Side tables add style and function to any room. Home goods offer many designs to fit your space and needs.**

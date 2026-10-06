@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Rods for Living Room: Top Adjustable and Heavy Duty Picks"
-description: "Choosing the best curtain rods for your living room can change its look instantly. The right rod holds your curtains well and adds style to your space. Curtain "
+title: 'Best Curtain Rods for Living Room: Top Adjustable and Heavy Duty Picks'
+description: 'Choosing the best curtain rods for your living room can change its look
+  instantly. The right rod holds your curtains well and adds style to your space.
+  Curtain '
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-rods-for-living-room-top-adjustable-and-heavy-duty-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-rods-for-living-room-top-adjustable-and-heavy-duty-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain rods for your living room can change its look instantly. The right rod holds your curtains well and adds style to your space.**

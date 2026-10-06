@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Rainbow Cookie Ornament: Vibrant Glass Holiday Decor for Festive Trees"
 description: "Rainbow cookie ornaments bring festive charm to any Christmas tree. These colorful decorations mimic the look of the classic Italian treat. Crafted with care, r"
 pubDate: 2026-08-18

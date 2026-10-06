@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Tiles Showroom: Discover Stylish Vinyl & Peel-and-Stick Options"
 description: "A floor tiles showroom offers a wide variety of tile options for every space and style. It helps you find the perfect floor covering quickly and easily. Choosin"
 pubDate: 2026-07-30

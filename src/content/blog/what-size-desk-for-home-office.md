@@ -1,10 +1,14 @@
 ---
-title: "What Size Desk for Home Office: Ultimate Guide to Perfect Fit"
-description: "Choosing the right desk size for your home office can make a huge difference in how comfortable and productive you feel every day. You want a desk that fits you"
+title: 'What Size Desk for Home Office: Ultimate Guide to Perfect Fit'
+description: Choosing the right desk size for your home office can make a huge difference
+  in how comfortable and productive you feel every day. You want a desk that fits
+  you
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-desk-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=what-size-desk-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right desk size for your home office can make a huge difference in how comfortable and productive you feel every day. You want a desk that fits your space perfectly without feeling cramped or empty.**

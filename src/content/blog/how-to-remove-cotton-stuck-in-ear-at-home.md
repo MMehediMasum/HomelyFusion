@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Remove Cotton Stuck in Ear at Home: Safe & Easy Methods"
 description: "Have you ever felt that annoying, uncomfortable sensation of cotton stuck in your ear? It can be frustrating and even a little scary when you can’t get it out r"
 pubDate: 2025-11-04

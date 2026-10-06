@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Smart Bulbs With Google Home: Easy Step-by-Step Guide"
-description: "Are you ready to make your home smarter and lighting easier to control? Setting up smart bulbs with Google Home is simpler than you might think. Imagine turning"
+title: 'How to Set Up Smart Bulbs With Google Home: Easy Step-by-Step Guide'
+description: Are you ready to make your home smarter and lighting easier to control?
+  Setting up smart bulbs with Google Home is simpler than you might think. Imagine
+  turning
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-smart-bulbs-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-smart-bulbs-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and lighting easier to control? Setting up smart bulbs with Google Home is simpler than you might think.**

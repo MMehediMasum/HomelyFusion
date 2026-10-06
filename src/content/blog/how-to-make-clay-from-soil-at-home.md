@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay from Soil at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to create your own clay right at home? Making clay from soil is easier than you might think, and it opens up a world of creativity for you."
+title: 'How to Make Clay from Soil at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted to create your own clay right at home? Making clay
+  from soil is easier than you might think, and it opens up a world of creativity
+  for you.
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-from-soil-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-from-soil-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay right at home? Making clay from soil is easier than you might think, and it opens up a world of creativity for you.**

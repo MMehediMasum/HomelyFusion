@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat Mild Steel at Home: Simple & Effective Guide"
 description: "Are you looking to improve the strength and durability of your mild steel projects without spending a fortune? Heating and treating mild steel at home can trans"
 pubDate: 2025-09-15

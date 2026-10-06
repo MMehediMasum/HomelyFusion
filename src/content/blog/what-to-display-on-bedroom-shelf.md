@@ -1,10 +1,14 @@
 ---
-title: "What to Display on Bedroom Shelf: Stunning Ideas to Inspire You"
-description: "Your bedroom shelf can do more than just hold things—it can transform your space and reflect who you are. But what should you display to make it feel cozy, styl"
+title: 'What to Display on Bedroom Shelf: Stunning Ideas to Inspire You'
+description: Your bedroom shelf can do more than just hold things—it can transform
+  your space and reflect who you are. But what should you display to make it feel
+  cozy, styl
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-display-on-bedroom-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-display-on-bedroom-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bedroom shelf can do more than just hold things—it can transform your space and reflect who you are. But what should you display to make it feel cozy, stylish, and uniquely yours?**

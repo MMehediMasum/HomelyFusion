@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Recliner in Living Room: Chic & Cozy Ideas"
-description: "Your recliner is more than just a cozy spot to relax—it can be the star of your living room. But styling it the right way can be tricky. You want your space to "
+title: 'How to Style a Recliner in Living Room: Chic & Cozy Ideas'
+description: 'Your recliner is more than just a cozy spot to relax—it can be the star
+  of your living room. But styling it the right way can be tricky. You want your space
+  to '
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-recliner-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-recliner-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your recliner is more than just a cozy spot to relax—it can be the star of your living room. But styling it the right way can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Hallway: Stunning Ideas to Transform Your Space"
-description: "Your hallway is more than just a passage—it’s the first glimpse guests get of your home. But how do you make this often overlooked space both welcoming and styl"
+title: 'How to Decorate a Hallway: Stunning Ideas to Transform Your Space'
+description: Your hallway is more than just a passage—it’s the first glimpse guests
+  get of your home. But how do you make this often overlooked space both welcoming
+  and styl
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-hallway&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-hallway&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your hallway is more than just a passage—it’s the first glimpse guests get of your home. But how do you make this often overlooked space both welcoming and stylish?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Mirrors for Bedroom: Top Stylish Full-Length Picks"
-description: "A floor mirror adds style and function to any bedroom. It helps you check your outfit and makes the room look bigger and brighter. Choosing the best floor mirro"
+title: 'Best Floor Mirrors for Bedroom: Top Stylish Full-Length Picks'
+description: A floor mirror adds style and function to any bedroom. It helps you check
+  your outfit and makes the room look bigger and brighter. Choosing the best floor
+  mirro
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-mirrors-for-bedroom-top-stylish-full-length-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-mirrors-for-bedroom-top-stylish-full-length-picks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A floor mirror adds style and function to any bedroom. It helps you check your outfit and makes the room look bigger and brighter.**

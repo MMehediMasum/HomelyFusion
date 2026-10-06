@@ -1,10 +1,14 @@
 ---
-title: "Nautica Home Rugs: Stylish, Durable, and Perfect for Every Room"
-description: "Nautica Home Rugs offer stylish and practical options for every room in your house. These rugs combine comfort, durability, and easy care in one package. Nautic"
+title: 'Nautica Home Rugs: Stylish, Durable, and Perfect for Every Room'
+description: Nautica Home Rugs offer stylish and practical options for every room
+  in your house. These rugs combine comfort, durability, and easy care in one package.
+  Nautic
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-home-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=nautica-home-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nautica Home Rugs offer stylish and practical options for every room in your house. These rugs combine comfort, durability, and easy care in one package.**

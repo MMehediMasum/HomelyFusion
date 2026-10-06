@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Your Living Room Coffee Table: Stunning Ideas Made Easy"
-description: "Your living room coffee table is more than just a spot to set your drink. It’s a chance to showcase your style and make your space feel inviting. But decorating"
+title: 'How to Decorate Your Living Room Coffee Table: Stunning Ideas Made Easy'
+description: Your living room coffee table is more than just a spot to set your drink.
+  It’s a chance to showcase your style and make your space feel inviting. But decorating
 pubDate: 2026-02-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room coffee table is more than just a spot to set your drink. It’s a chance to showcase your style and make your space feel inviting.**

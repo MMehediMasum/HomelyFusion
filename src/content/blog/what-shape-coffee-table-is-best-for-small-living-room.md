@@ -1,10 +1,14 @@
 ---
-title: "What Shape Coffee Table is Best for Small Living Room: Top Picks"
-description: "Choosing the right coffee table can change the entire feel of your small living room. You want something that fits perfectly without crowding the space, but als"
+title: 'What Shape Coffee Table is Best for Small Living Room: Top Picks'
+description: Choosing the right coffee table can change the entire feel of your small
+  living room. You want something that fits perfectly without crowding the space,
+  but als
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-shape-coffee-table-is-best-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-shape-coffee-table-is-best-for-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right coffee table can change the entire feel of your small living room. You want something that fits perfectly without crowding the space, but also looks great and serves your needs.**

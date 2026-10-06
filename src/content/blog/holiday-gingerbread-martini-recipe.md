@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Gingerbread Martini Recipe: Irresistible Festive Delight"
 description: "Looking for a festive drink that will wow your guests and bring cozy holiday vibes to your gatherings? Your search ends here with this Holiday Gingerbread Marti"
 pubDate: 2026-01-20

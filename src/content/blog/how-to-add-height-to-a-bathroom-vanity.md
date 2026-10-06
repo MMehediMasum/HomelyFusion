@@ -1,10 +1,14 @@
 ---
-title: "How to Add Height to a Bathroom Vanity: Easy DIY Tips"
-description: "Are you tired of bending over awkwardly every time you use your bathroom vanity? Adding height to your vanity can make a huge difference in comfort and style. W"
+title: 'How to Add Height to a Bathroom Vanity: Easy DIY Tips'
+description: Are you tired of bending over awkwardly every time you use your bathroom
+  vanity? Adding height to your vanity can make a huge difference in comfort and style.
+  W
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-height-to-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-height-to-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of bending over awkwardly every time you use your bathroom vanity? Adding height to your vanity can make a huge difference in comfort and style.**

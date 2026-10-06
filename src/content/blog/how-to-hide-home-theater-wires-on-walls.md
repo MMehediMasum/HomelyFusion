@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Home Theater Wires on Walls: Easy & Clean Solutions"
 description: "Are tangled home theater wires ruining the sleek look of your living room? You’re not alone. Wires can be a real eyesore, distracting from your amazing sound an"
 pubDate: 2025-11-05

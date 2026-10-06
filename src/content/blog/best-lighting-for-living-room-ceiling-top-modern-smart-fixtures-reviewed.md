@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Living Room Ceiling: Top Modern & Smart Fixtures Reviewed"
-description: "Choosing the best lighting for your living room ceiling sets the room’s mood and style. Proper lighting brightens the space and highlights your décor. Living ro"
+title: 'Best Lighting for Living Room Ceiling: Top Modern & Smart Fixtures Reviewed'
+description: Choosing the best lighting for your living room ceiling sets the room’s
+  mood and style. Proper lighting brightens the space and highlights your décor. Living
+  ro
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-living-room-ceiling-top-modern-smart-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-living-room-ceiling-top-modern-smart-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your living room ceiling sets the room’s mood and style. Proper lighting brightens the space and highlights your décor.**

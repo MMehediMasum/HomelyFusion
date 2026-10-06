@@ -1,10 +1,14 @@
 ---
-title: "Tahari Table Lamps: Stylish, Functional Lighting for Every Room"
-description: "Tahari table lamps offer a blend of style and functionality for any room. These lamps cater to diverse design preferences. Tahari's table lamps are perfect for "
+title: 'Tahari Table Lamps: Stylish, Functional Lighting for Every Room'
+description: 'Tahari table lamps offer a blend of style and functionality for any
+  room. These lamps cater to diverse design preferences. Tahari''s table lamps are
+  perfect for '
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-table-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=tahari-table-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tahari table lamps offer a blend of style and functionality for any room. These lamps cater to diverse design preferences.**

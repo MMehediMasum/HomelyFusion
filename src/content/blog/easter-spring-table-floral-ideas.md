@@ -1,10 +1,13 @@
 ---
-title: "Easter Spring Table Floral Ideas: Stunning Blooms to Brighten Your Decor"
-description: "Are you ready to transform your Easter table into a fresh, blooming masterpiece? Imagine your guests’ delight as they gather around a vibrant, floral centerpiec"
+title: 'Easter Spring Table Floral Ideas: Stunning Blooms to Brighten Your Decor'
+description: Are you ready to transform your Easter table into a fresh, blooming masterpiece?
+  Imagine your guests’ delight as they gather around a vibrant, floral centerpiec
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-spring-table-floral-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-spring-table-floral-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Easter table into a fresh, blooming masterpiece? Imagine your guests’ delight as they gather around a vibrant, floral centerpiece that brings spring’s beauty right to your home.**

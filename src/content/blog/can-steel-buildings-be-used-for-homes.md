@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Steel Buildings Be Used for Homes: Innovative & Durable Solutions"
 description: "Are you thinking about building a home but unsure if steel buildings are a good option? You might be surprised to learn how steel structures can offer strength,"
 pubDate: 2026-02-09

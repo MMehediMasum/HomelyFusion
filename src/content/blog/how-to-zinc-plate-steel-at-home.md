@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Zinc Plate Steel at Home: Easy DIY Guide for Beginners"
 description: "If you want to protect your steel from rust and give it a shiny, durable finish, zinc plating is a great solution. But did you know you can do it right at home "
 pubDate: 2026-02-23

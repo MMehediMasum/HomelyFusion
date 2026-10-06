@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Wrote Old Cotton Fields Back Home: Uncover the Legend"
 description: "Have you ever found yourself humming the tune of \"Old Cotton Fields Back Home\" and wondered about the story behind it? You’re not alone. This song carries a dee"
 pubDate: 2026-03-12

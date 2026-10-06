@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Shower Curtains: Stylish, Durable, and Spa-Inspired Picks"
-description: "Bed Bath and Beyond offers a wide range of shower curtains to fit every bathroom style. From heavy-duty fabrics to clear liners, they have options for all needs"
+title: 'Bed Bath And Beyond Shower Curtains: Stylish, Durable, and Spa-Inspired Picks'
+description: Bed Bath and Beyond offers a wide range of shower curtains to fit every
+  bathroom style. From heavy-duty fabrics to clear liners, they have options for all
+  needs
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-shower-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-shower-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Bed Bath and Beyond offers a wide range of shower curtains to fit every bathroom style. From heavy-duty fabrics to clear liners, they have options for all needs.**

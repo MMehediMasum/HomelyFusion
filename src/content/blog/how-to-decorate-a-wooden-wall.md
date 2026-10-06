@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wooden Wall: Stunning Ideas to Transform Your Space"
-description: "Are you staring at your wooden wall and wondering how to turn it from plain to stunning? Decorating a wooden wall can completely transform the feel of your spac"
+title: 'How to Decorate a Wooden Wall: Stunning Ideas to Transform Your Space'
+description: Are you staring at your wooden wall and wondering how to turn it from
+  plain to stunning? Decorating a wooden wall can completely transform the feel of
+  your spac
 pubDate: 2025-10-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wooden-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wooden-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at your wooden wall and wondering how to turn it from plain to stunning? Decorating a wooden wall can completely transform the feel of your space, making it warm, inviting, and full of character.**

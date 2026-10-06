@@ -1,10 +1,14 @@
 ---
-title: "Christmas Santa Stocking Decoration Ideas: Creative & Festive Tips"
-description: "Are you ready to make your Christmas extra special this year? Your Santa stocking is more than just a holiday tradition—it’s a chance to add magic and warmth to"
+title: 'Christmas Santa Stocking Decoration Ideas: Creative & Festive Tips'
+description: Are you ready to make your Christmas extra special this year? Your Santa
+  stocking is more than just a holiday tradition—it’s a chance to add magic and warmth
+  to
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-santa-stocking-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-santa-stocking-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas extra special this year? Your Santa stocking is more than just a holiday tradition—it’s a chance to add magic and warmth to your home.**

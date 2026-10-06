@@ -1,10 +1,14 @@
 ---
-title: "Can Mirror Be Placed in Front of Bedroom Door? Expert Insights"
-description: "Have you ever wondered if placing a mirror right in front of your bedroom door is a good idea? You might think it’s just about decoration, but there’s more to i"
+title: Can Mirror Be Placed in Front of Bedroom Door? Expert Insights
+description: Have you ever wondered if placing a mirror right in front of your bedroom
+  door is a good idea? You might think it’s just about decoration, but there’s more
+  to i
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-mirror-be-placed-in-front-of-bedroom-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-mirror-be-placed-in-front-of-bedroom-door&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if placing a mirror right in front of your bedroom door is a good idea? You might think it’s just about decoration, but there’s more to it than meets the eye.**

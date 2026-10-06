@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Rug 8X10: Soft, Stylish, and Washable Area Rug for Any Room"
-description: "Discover the perfect touch for your home with the Magaschoni Rug 8x10. Versatile, stylish, and practical, it elevates any space. This rug is an ideal choice for"
+title: 'Magaschoni Rug 8X10: Soft, Stylish, and Washable Area Rug for Any Room'
+description: Discover the perfect touch for your home with the Magaschoni Rug 8x10.
+  Versatile, stylish, and practical, it elevates any space. This rug is an ideal choice
+  for
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-rug-8x10&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-rug-8x10&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the perfect touch for your home with the Magaschoni Rug 8x10. Versatile, stylish, and practical, it elevates any space.**

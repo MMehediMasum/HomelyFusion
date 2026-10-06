@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Scary Cookie Decoration: Spooktacular Ideas to Try Today"
 description: "Are you ready to take your Halloween treats to the next level? Imagine biting into a cookie that looks so spooky, it sends a chill down your spine—but tastes so"
 pubDate: 2025-11-13

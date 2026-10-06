@@ -1,10 +1,14 @@
 ---
-title: "Diy Pinecone Holiday Wreath: Easy Steps for Festive Charm"
-description: "Are you looking for a simple and beautiful way to bring holiday cheer into your home? A DIY pinecone holiday wreath is the perfect project for you. It’s easy to"
+title: 'Diy Pinecone Holiday Wreath: Easy Steps for Festive Charm'
+description: Are you looking for a simple and beautiful way to bring holiday cheer
+  into your home? A DIY pinecone holiday wreath is the perfect project for you. It’s
+  easy to
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-pinecone-holiday-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=diy-pinecone-holiday-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple and beautiful way to bring holiday cheer into your home? A DIY pinecone holiday wreath is the perfect project for you.**

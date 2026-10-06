@@ -1,10 +1,14 @@
 ---
-title: "How to Cover a Mirror Wall: Creative Ideas for Stylish Privacy"
-description: "Are you staring at a mirror wall and wondering how to cover it without making your room feel smaller or cluttered? You’re not alone. Mirror walls can be tricky—"
+title: 'How to Cover a Mirror Wall: Creative Ideas for Stylish Privacy'
+description: Are you staring at a mirror wall and wondering how to cover it without
+  making your room feel smaller or cluttered? You’re not alone. Mirror walls can be
+  tricky—
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-cover-a-mirror-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-cover-a-mirror-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a mirror wall and wondering how to cover it without making your room feel smaller or cluttered? You’re not alone.**

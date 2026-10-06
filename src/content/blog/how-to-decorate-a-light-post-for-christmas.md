@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Light Post for Christmas: Stunning Ideas Made Easy"
-description: "Are you ready to make your home shine this Christmas? Decorating a light post is one of the easiest and most stunning ways to spread holiday cheer right outside"
+title: 'How to Decorate a Light Post for Christmas: Stunning Ideas Made Easy'
+description: Are you ready to make your home shine this Christmas? Decorating a light
+  post is one of the easiest and most stunning ways to spread holiday cheer right
+  outside
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-light-post-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-light-post-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your home shine this Christmas? Decorating a light post is one of the easiest and most stunning ways to spread holiday cheer right outside your door.**

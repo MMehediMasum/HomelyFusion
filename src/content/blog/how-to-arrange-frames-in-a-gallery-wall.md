@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Frames in a Gallery Wall: Stunning Tips & Tricks"
-description: "Are you looking to turn your blank wall into a stunning gallery that tells your story? Arranging frames in a gallery wall might seem tricky, but with the right "
+title: 'How to Arrange Frames in a Gallery Wall: Stunning Tips & Tricks'
+description: 'Are you looking to turn your blank wall into a stunning gallery that
+  tells your story? Arranging frames in a gallery wall might seem tricky, but with
+  the right '
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-frames-in-a-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-frames-in-a-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to turn your blank wall into a stunning gallery that tells your story? Arranging frames in a gallery wall might seem tricky, but with the right approach, you can create a beautiful display that catches every eye.**

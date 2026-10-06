@@ -1,10 +1,14 @@
 ---
-title: "Decorative Accents for the Home: Stylish Picks to Elevate Your Space"
-description: "Decorative accents transform a house into a home, adding personality and charm to every corner. From faux books to elegant trays, these items elevate your decor"
+title: 'Decorative Accents for the Home: Stylish Picks to Elevate Your Space'
+description: Decorative accents transform a house into a home, adding personality
+  and charm to every corner. From faux books to elegant trays, these items elevate
+  your decor
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-accents-for-the-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decorative-accents-for-the-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative accents transform a house into a home, adding personality and charm to every corner. From faux books to elegant trays, these items elevate your decor effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Size Rug for Full Bed: Perfect Dimensions for Cozy Bedroom Style"
-description: "Choosing the best size rug for a full bed enhances your bedroom’s look and comfort. A properly sized rug frames the bed and adds warmth underfoot. A full bed ty"
+title: 'Best Size Rug for Full Bed: Perfect Dimensions for Cozy Bedroom Style'
+description: Choosing the best size rug for a full bed enhances your bedroom’s look
+  and comfort. A properly sized rug frames the bed and adds warmth underfoot. A full
+  bed ty
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-full-bed-perfect-dimensions-for-cozy-bedroom-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-full-bed-perfect-dimensions-for-cozy-bedroom-style&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for a full bed enhances your bedroom’s look and comfort. A properly sized rug frames the bed and adds warmth underfoot.**

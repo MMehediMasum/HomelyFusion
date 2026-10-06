@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Flooring Reviews: Top Picks for Stylish, Easy DIY Floors"
-description: "Home Decorators offers a wide range of flooring and decor products to enhance any room. This review covers popular items like vinyl floor tiles, rugs, and artif"
+title: 'Home Decorators Flooring Reviews: Top Picks for Stylish, Easy DIY Floors'
+description: Home Decorators offers a wide range of flooring and decor products to
+  enhance any room. This review covers popular items like vinyl floor tiles, rugs,
+  and artif
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-flooring-reviews&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-flooring-reviews&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators offers a wide range of flooring and decor products to enhance any room. This review covers popular items like vinyl floor tiles, rugs, and artificial plants.**

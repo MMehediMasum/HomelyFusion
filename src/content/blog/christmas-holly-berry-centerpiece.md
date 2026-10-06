@@ -1,10 +1,14 @@
 ---
-title: "Christmas Holly Berry Centerpiece: Stunning Ideas to Brighten Your Holiday"
-description: "Are you ready to make your holiday table truly shine? A Christmas Holly Berry Centerpiece can bring that perfect touch of festive charm to your home. Imagine th"
+title: 'Christmas Holly Berry Centerpiece: Stunning Ideas to Brighten Your Holiday'
+description: Are you ready to make your holiday table truly shine? A Christmas Holly
+  Berry Centerpiece can bring that perfect touch of festive charm to your home. Imagine
+  th
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-holly-berry-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-holly-berry-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your holiday table truly shine? A Christmas Holly Berry Centerpiece can bring that perfect touch of festive charm to your home.**

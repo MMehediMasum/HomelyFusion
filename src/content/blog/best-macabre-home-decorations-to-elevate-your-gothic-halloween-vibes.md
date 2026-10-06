@@ -1,10 +1,14 @@
 ---
-title: "Best Macabre Home Decorations to Elevate Your Gothic Halloween Vibes"
-description: "Macabre home decorations add eerie charm to any space. These dark, gothic pieces create a spooky yet stylish atmosphere. This collection of macabre decor offers"
+title: Best Macabre Home Decorations to Elevate Your Gothic Halloween Vibes
+description: Macabre home decorations add eerie charm to any space. These dark, gothic
+  pieces create a spooky yet stylish atmosphere. This collection of macabre decor
+  offers
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-macabre-home-decorations-to-elevate-your-gothic-halloween-vibes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-macabre-home-decorations-to-elevate-your-gothic-halloween-vibes&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Macabre home decorations add eerie charm to any space. These dark, gothic pieces create a spooky yet stylish atmosphere.**

@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Grand Duchess Balsam Fir Artificial Christmas Tree Review"
-description: "The Home Decorators Collection Grand Duchess Balsam Fir Artificial Christmas Tree offers a classic holiday look. It features realistic snow-flocked branches and"
+title: Home Decorators Collection Grand Duchess Balsam Fir Artificial Christmas Tree
+  Review
+description: The Home Decorators Collection Grand Duchess Balsam Fir Artificial Christmas
+  Tree offers a classic holiday look. It features realistic snow-flocked branches
+  and
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-grand-duchess-balsam-fir-artificial-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-grand-duchess-balsam-fir-artificial-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Home Decorators Collection Grand Duchess Balsam Fir Artificial Christmas Tree offers a classic holiday look. It features realistic snow-flocked branches and a slim design, perfect for any room.**

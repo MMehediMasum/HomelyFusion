@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Bookcases in Living Room: Stylish Tips for Impact"
-description: "Are you struggling to find the perfect spot for your bookcases in your living room? How you arrange them can change the whole feel of the space—making it cozier"
+title: 'How to Arrange Bookcases in Living Room: Stylish Tips for Impact'
+description: Are you struggling to find the perfect spot for your bookcases in your
+  living room? How you arrange them can change the whole feel of the space—making
+  it cozier
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-bookcases-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-bookcases-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you struggling to find the perfect spot for your bookcases in your living room? How you arrange them can change the whole feel of the space—making it cozier, more organized, and even more stylish.**

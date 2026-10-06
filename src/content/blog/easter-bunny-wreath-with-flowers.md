@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Wreath With Flowers: Stunning DIY Spring Decor Ideas"
-description: "Looking for a fresh way to welcome spring into your home? An Easter Bunny wreath with flowers is the perfect touch to brighten your door and spread holiday chee"
+title: 'Easter Bunny Wreath With Flowers: Stunning DIY Spring Decor Ideas'
+description: Looking for a fresh way to welcome spring into your home? An Easter Bunny
+  wreath with flowers is the perfect touch to brighten your door and spread holiday
+  chee
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-wreath-with-flowers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-wreath-with-flowers&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fresh way to welcome spring into your home? An Easter Bunny wreath with flowers is the perfect touch to brighten your door and spread holiday cheer.**

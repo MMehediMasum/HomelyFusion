@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Smart Bulb With Google Home: Easy Step-by-Step Guide"
-description: "Imagine controlling your home’s lighting with just your voice. Sounds convenient, right? If you have a smart bulb and a Google Home device, you’re just a few si"
+title: 'How to Connect Smart Bulb With Google Home: Easy Step-by-Step Guide'
+description: Imagine controlling your home’s lighting with just your voice. Sounds
+  convenient, right? If you have a smart bulb and a Google Home device, you’re just
+  a few si
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-smart-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-smart-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home’s lighting with just your voice. Sounds convenient, right?**

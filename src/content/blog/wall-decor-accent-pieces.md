@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Accent Pieces to Elevate Your Living Room Style"
-description: "Wall decor accent pieces add style and personality to any space. They create focal points and enhance room ambiance easily. Choosing the right wall accents can "
+title: Wall Decor Accent Pieces to Elevate Your Living Room Style
+description: 'Wall decor accent pieces add style and personality to any space. They
+  create focal points and enhance room ambiance easily. Choosing the right wall accents
+  can '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-accent-pieces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-accent-pieces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor accent pieces add style and personality to any space. They create focal points and enhance room ambiance easily.**

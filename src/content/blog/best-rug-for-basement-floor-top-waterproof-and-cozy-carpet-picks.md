@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Basement Floor: Top Waterproof and Cozy Carpet Picks"
-description: "Choosing the best rug for a basement floor helps make the space warmer and more comfortable. A good rug also protects the floor from moisture and damage. Baseme"
+title: 'Best Rug for Basement Floor: Top Waterproof and Cozy Carpet Picks'
+description: Choosing the best rug for a basement floor helps make the space warmer
+  and more comfortable. A good rug also protects the floor from moisture and damage.
+  Baseme
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-basement-floor-top-waterproof-and-cozy-carpet-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-basement-floor-top-waterproof-and-cozy-carpet-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for a basement floor helps make the space warmer and more comfortable. A good rug also protects the floor from moisture and damage.**

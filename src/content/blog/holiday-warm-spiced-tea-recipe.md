@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Warm Spiced Tea Recipe: Cozy, Delicious & Easy to Make"
 description: "Are you ready to cozy up this holiday season with a drink that warms your soul? Imagine a cup filled with rich, comforting spices that instantly lift your spiri"
 pubDate: 2025-12-31

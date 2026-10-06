@@ -1,10 +1,14 @@
 ---
-title: "What are Living Room Tables Called: Ultimate Guide to Stylish Names"
-description: "Have you ever paused to think about the name of that central piece in your living room—the table where you place your coffee, books, or snacks? You might know i"
+title: 'What are Living Room Tables Called: Ultimate Guide to Stylish Names'
+description: Have you ever paused to think about the name of that central piece in
+  your living room—the table where you place your coffee, books, or snacks? You might
+  know i
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-living-room-tables-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-are-living-room-tables-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever paused to think about the name of that central piece in your living room—the table where you place your coffee, books, or snacks? You might know it simply as a "coffee table," but did you know there are several names and styles that living room tables go by?**

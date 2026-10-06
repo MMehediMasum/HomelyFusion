@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Wall Clocks: Stylish, Silent Timepieces for Every Room"
-description: "Homegoods wall clocks offer stylish and functional timepieces for any room. They combine quiet operation with clear, easy-to-read designs. These clocks suit man"
+title: 'Homegoods Wall Clocks: Stylish, Silent Timepieces for Every Room'
+description: Homegoods wall clocks offer stylish and functional timepieces for any
+  room. They combine quiet operation with clear, easy-to-read designs. These clocks
+  suit man
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-wall-clocks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-wall-clocks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Homegoods wall clocks offer stylish and functional timepieces for any room. They combine quiet operation with clear, easy-to-read designs.**

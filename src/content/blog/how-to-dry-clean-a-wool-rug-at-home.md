@@ -1,10 +1,14 @@
 ---
-title: "How to Dry Clean a Wool Rug at Home: Easy, Safe Steps"
-description: "Your wool rug adds warmth and style to any room, but cleaning it can feel like a big challenge. You might worry about damaging the fibers or losing its soft tex"
+title: 'How to Dry Clean a Wool Rug at Home: Easy, Safe Steps'
+description: Your wool rug adds warmth and style to any room, but cleaning it can
+  feel like a big challenge. You might worry about damaging the fibers or losing its
+  soft tex
 pubDate: 2026-02-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dry-clean-a-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dry-clean-a-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool rug adds warmth and style to any room, but cleaning it can feel like a big challenge. You might worry about damaging the fibers or losing its soft texture.**

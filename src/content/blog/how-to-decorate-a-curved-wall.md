@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Curved Wall: Creative Ideas for Stunning Spaces"
-description: "Decorating a curved wall can feel tricky, but it doesn’t have to be. You might wonder how to make your space look stylish without fighting the unique shape. The"
+title: 'How to Decorate a Curved Wall: Creative Ideas for Stunning Spaces'
+description: Decorating a curved wall can feel tricky, but it doesn’t have to be.
+  You might wonder how to make your space look stylish without fighting the unique
+  shape. The
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-curved-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-curved-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating a curved wall can feel tricky, but it doesn’t have to be. You might wonder how to make your space look stylish without fighting the unique shape.**

@@ -1,10 +1,14 @@
 ---
-title: "Blankets at Home Goods: Cozy Throws Perfect for Every Room and Gift"
-description: "Blankets at Home Goods offer warmth and comfort for every season and style. Choose from soft fleece, plush sherpa, and cozy microfiber options. Home Goods provi"
+title: 'Blankets at Home Goods: Cozy Throws Perfect for Every Room and Gift'
+description: Blankets at Home Goods offer warmth and comfort for every season and
+  style. Choose from soft fleece, plush sherpa, and cozy microfiber options. Home
+  Goods provi
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=blankets-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=blankets-at-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Blankets at Home Goods offer warmth and comfort for every season and style. Choose from soft fleece, plush sherpa, and cozy microfiber options.**

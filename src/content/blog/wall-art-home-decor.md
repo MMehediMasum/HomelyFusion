@@ -1,10 +1,14 @@
 ---
-title: "Wall Art Home Decor: Rustic Farmhouse Pieces to Elevate Your Space"
-description: "Wall art brings charm and personality to any space. It transforms bare walls into captivating focal points. Decorating your home with wall art can be a delightf"
+title: 'Wall Art Home Decor: Rustic Farmhouse Pieces to Elevate Your Space'
+description: Wall art brings charm and personality to any space. It transforms bare
+  walls into captivating focal points. Decorating your home with wall art can be a
+  delightf
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art brings charm and personality to any space. It transforms bare walls into captivating focal points.**

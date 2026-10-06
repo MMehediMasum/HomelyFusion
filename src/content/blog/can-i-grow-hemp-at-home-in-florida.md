@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Grow Hemp at Home in Florida: Essential Legal Guide 2025"
 description: "Are you curious about growing hemp at home in Florida? You’re not alone. Many people wonder if they can start their own hemp garden right in their backyard. Gro"
 pubDate: 2026-04-09

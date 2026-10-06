@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System With Hdmi: Easy Step-by-Step Guide"
 description: "Are you ready to transform your living room into a cinematic experience? Connecting your home theater system with HDMI is the key to enjoying crystal-clear soun"
 pubDate: 2026-04-21

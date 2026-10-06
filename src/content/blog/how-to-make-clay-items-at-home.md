@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Items at Home: Easy Steps for Stunning Creations"
-description: "Have you ever wanted to create something beautiful with your own hands? Making clay items at home is easier than you think, and it’s a fun way to bring your ide"
+title: 'How to Make Clay Items at Home: Easy Steps for Stunning Creations'
+description: Have you ever wanted to create something beautiful with your own hands?
+  Making clay items at home is easier than you think, and it’s a fun way to bring
+  your ide
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-items-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-items-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Making clay items at home is easier than you think, and it’s a fun way to bring your ideas to life.**

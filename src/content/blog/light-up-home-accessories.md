@@ -1,10 +1,14 @@
 ---
-title: "Light Up Home Accessories: Top LED Neon Signs to Brighten Your Space"
-description: "Light up home accessories add charm and brightness to any space. These glowing decorations create a warm, inviting atmosphere instantly. From USB LED desk light"
+title: 'Light Up Home Accessories: Top LED Neon Signs to Brighten Your Space'
+description: Light up home accessories add charm and brightness to any space. These
+  glowing decorations create a warm, inviting atmosphere instantly. From USB LED desk
+  light
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=light-up-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=light-up-home-accessories&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Light up home accessories add charm and brightness to any space. These glowing decorations create a warm, inviting atmosphere instantly.**

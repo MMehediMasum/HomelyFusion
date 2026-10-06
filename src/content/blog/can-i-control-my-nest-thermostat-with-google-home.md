@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Control My Nest Thermostat With Google Home: Ultimate Guide"
 description: "Are you wondering if you can control your Nest Thermostat with Google Home? Imagine adjusting your home's temperature without lifting a finger—just by speaking "
 pubDate: 2025-08-31

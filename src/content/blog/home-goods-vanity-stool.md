@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity Stool: Stylish, Functional Seats for Every Room"
-description: "A home goods vanity stool adds comfort and style to any room. It serves as a practical seat for makeup, dressing, or relaxing. Vanity stools come in many design"
+title: 'Home Goods Vanity Stool: Stylish, Functional Seats for Every Room'
+description: A home goods vanity stool adds comfort and style to any room. It serves
+  as a practical seat for makeup, dressing, or relaxing. Vanity stools come in many
+  design
 pubDate: 2025-09-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity-stool&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity-stool&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A home goods vanity stool adds comfort and style to any room. It serves as a practical seat for makeup, dressing, or relaxing.**

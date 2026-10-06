@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Patio Umbrellas: Stylish, Durable Shades for Your Outdoor Space"
-description: "Homegoods patio umbrellas offer stylish shade for your outdoor space. They come in various sizes, colors, and easy-to-use designs. These umbrellas provide relia"
+title: 'Homegoods Patio Umbrellas: Stylish, Durable Shades for Your Outdoor Space'
+description: Homegoods patio umbrellas offer stylish shade for your outdoor space.
+  They come in various sizes, colors, and easy-to-use designs. These umbrellas provide
+  relia
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-patio-umbrellas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-patio-umbrellas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Homegoods patio umbrellas offer stylish shade for your outdoor space. They come in various sizes, colors, and easy-to-use designs.**

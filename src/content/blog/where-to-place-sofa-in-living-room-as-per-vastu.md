@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Place Sofa in Living Room As Per Vastu: Ultimate Guide"
 description: "Are you wondering where to place your sofa in the living room to bring harmony and positive energy into your home? The right spot can make a big difference in h"
 pubDate: 2025-08-31

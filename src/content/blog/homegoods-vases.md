@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Vases: Stylish Ceramic Sets for Modern Boho Home Decor"
-description: "Homegoods vases offer a diverse range of styles to elevate any space. From modern to rustic, there’s something for every decor. These vases cater to various tas"
+title: 'Homegoods Vases: Stylish Ceramic Sets for Modern Boho Home Decor'
+description: Homegoods vases offer a diverse range of styles to elevate any space.
+  From modern to rustic, there’s something for every decor. These vases cater to various
+  tas
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegoods vases offer a diverse range of styles to elevate any space. From modern to rustic, there’s something for every decor.**

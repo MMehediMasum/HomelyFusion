@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Store: Stylish Décor Ideas for Cozy and Modern Living Spaces"
-description: "A home accents store offers stylish items to brighten and personalize any space. These pieces add charm and comfort to your home instantly. Explore a variety of"
+title: 'Home Accents Store: Stylish Décor Ideas for Cozy and Modern Living Spaces'
+description: A home accents store offers stylish items to brighten and personalize
+  any space. These pieces add charm and comfort to your home instantly. Explore a
+  variety of
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-store&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A home accents store offers stylish items to brighten and personalize any space. These pieces add charm and comfort to your home instantly.**

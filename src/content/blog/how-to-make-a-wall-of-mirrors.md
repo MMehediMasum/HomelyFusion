@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wall of Mirrors: Stunning DIY Decor Ideas"
-description: "Imagine transforming your room with a simple trick that instantly adds light, depth, and style. Creating a wall of mirrors can do just that—making your space fe"
+title: 'How to Make a Wall of Mirrors: Stunning DIY Decor Ideas'
+description: Imagine transforming your room with a simple trick that instantly adds
+  light, depth, and style. Creating a wall of mirrors can do just that—making your
+  space fe
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wall-of-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wall-of-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine transforming your room with a simple trick that instantly adds light, depth, and style. Creating a wall of mirrors can do just that—making your space feel bigger and brighter without spending a fortune.**

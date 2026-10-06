@@ -1,10 +1,14 @@
 ---
-title: "What are Considered Fixtures in a Home: Essential Guide Revealed"
-description: "Are you planning to buy or sell a home? Understanding what counts as fixtures can save you from surprises during the process. Fixtures are items that are attach"
+title: 'What are Considered Fixtures in a Home: Essential Guide Revealed'
+description: Are you planning to buy or sell a home? Understanding what counts as
+  fixtures can save you from surprises during the process. Fixtures are items that
+  are attach
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-considered-fixtures-in-a-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-are-considered-fixtures-in-a-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you planning to buy or sell a home? Understanding what counts as fixtures can save you from surprises during the process.**

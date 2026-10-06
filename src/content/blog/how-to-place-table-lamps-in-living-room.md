@@ -1,10 +1,13 @@
 ---
-title: "How to Place Table Lamps in Living Room: Expert Tips for Style"
-description: "Are you struggling to find the perfect spot for your table lamps in the living room? Where you place your lamps can change the entire feel of your space—making "
+title: 'How to Place Table Lamps in Living Room: Expert Tips for Style'
+description: 'Are you struggling to find the perfect spot for your table lamps in
+  the living room? Where you place your lamps can change the entire feel of your space—making '
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-table-lamps-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-table-lamps-in-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you struggling to find the perfect spot for your table lamps in the living room? Where you place your lamps can change the entire feel of your space—making it cozy, stylish, and inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "Accent Home Furniture: Stylish Mid-Century Modern Chairs and Tables Guide"
-description: "Accent home furniture adds style and personality to any space. From chairs to tables, each piece offers unique design elements. Creating a cozy and stylish home"
+title: 'Accent Home Furniture: Stylish Mid-Century Modern Chairs and Tables Guide'
+description: Accent home furniture adds style and personality to any space. From chairs
+  to tables, each piece offers unique design elements. Creating a cozy and stylish
+  home
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=accent-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Accent home furniture adds style and personality to any space. From chairs to tables, each piece offers unique design elements.**

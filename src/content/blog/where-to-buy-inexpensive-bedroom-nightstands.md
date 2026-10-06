@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Inexpensive Bedroom Nightstands: Top Affordable Picks"
-description: "Looking for the perfect nightstand without breaking the bank? You’re in the right place. Your bedroom deserves furniture that’s both stylish and affordable, and"
+title: 'Where to Buy Inexpensive Bedroom Nightstands: Top Affordable Picks'
+description: Looking for the perfect nightstand without breaking the bank? You’re
+  in the right place. Your bedroom deserves furniture that’s both stylish and affordable,
+  and
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-inexpensive-bedroom-nightstands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-inexpensive-bedroom-nightstands&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for the perfect nightstand without breaking the bank? You’re in the right place.**

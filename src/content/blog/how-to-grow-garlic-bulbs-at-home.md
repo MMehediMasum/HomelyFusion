@@ -1,10 +1,14 @@
 ---
-title: "How to Grow Garlic Bulbs at Home: Easy Steps for Lush Harvests"
-description: "Are you ready to enjoy fresh, flavorful garlic straight from your own garden? Growing garlic bulbs at home is easier than you might think, and it can add a spec"
+title: 'How to Grow Garlic Bulbs at Home: Easy Steps for Lush Harvests'
+description: Are you ready to enjoy fresh, flavorful garlic straight from your own
+  garden? Growing garlic bulbs at home is easier than you might think, and it can
+  add a spec
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-grow-garlic-bulbs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-grow-garlic-bulbs-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to enjoy fresh, flavorful garlic straight from your own garden? Growing garlic bulbs at home is easier than you might think, and it can add a special touch to your cooking.**

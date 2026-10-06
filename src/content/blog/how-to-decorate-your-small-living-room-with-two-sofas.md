@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Small Living Room With Two Sofas: Stylish Tips"
-description: "Struggling to fit two sofas into your small living room without making it feel cramped? You’re not alone. Finding the right balance between comfort and style in"
+title: 'How to Decorate Your Small Living Room With Two Sofas: Stylish Tips'
+description: Struggling to fit two sofas into your small living room without making
+  it feel cramped? You’re not alone. Finding the right balance between comfort and
+  style in
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-small-living-room-with-two-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-small-living-room-with-two-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit two sofas into your small living room without making it feel cramped? You’re not alone.**

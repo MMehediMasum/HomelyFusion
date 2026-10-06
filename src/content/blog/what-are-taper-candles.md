@@ -1,10 +1,13 @@
 ---
-title: "What are Taper Candles: Stunning Elegance for Every Occasion"
-description: "Have you ever noticed those tall, slim candles that add a touch of elegance to dinner tables or special events? Those are taper candles, and they might be more "
+title: 'What are Taper Candles: Stunning Elegance for Every Occasion'
+description: 'Have you ever noticed those tall, slim candles that add a touch of elegance
+  to dinner tables or special events? Those are taper candles, and they might be more '
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-taper-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=what-are-taper-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever noticed those tall, slim candles that add a touch of elegance to dinner tables or special events? Those are taper candles, and they might be more interesting than you think.**

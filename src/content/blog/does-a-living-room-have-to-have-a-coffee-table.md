@@ -1,10 +1,14 @@
 ---
-title: "Does a Living Room Have to Have a Coffee Table? Stylish Alternatives!"
-description: "Have you ever wondered if your living room truly needs a coffee table? It’s a common piece of furniture, but does it really have to be there? Maybe you’ve felt "
+title: Does a Living Room Have to Have a Coffee Table? Stylish Alternatives!
+description: 'Have you ever wondered if your living room truly needs a coffee table?
+  It’s a common piece of furniture, but does it really have to be there? Maybe you’ve
+  felt '
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-living-room-have-to-have-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=does-a-living-room-have-to-have-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room truly needs a coffee table? It’s a common piece of furniture, but does it really have to be there?**

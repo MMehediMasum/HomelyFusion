@@ -1,10 +1,13 @@
 ---
-title: "Home Letters Wall Decor Ideas to Elevate Your Rustic Living Space"
-description: "Home letters wall decor adds charm and warmth to any room. These decorative pieces blend style with a cozy, inviting feel. Wooden signs with artificial eucalypt"
+title: Home Letters Wall Decor Ideas to Elevate Your Rustic Living Space
+description: Home letters wall decor adds charm and warmth to any room. These decorative
+  pieces blend style with a cozy, inviting feel. Wooden signs with artificial eucalypt
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-letters-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-letters-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home letters wall decor adds charm and warmth to any room. These decorative pieces blend style with a cozy, inviting feel.**

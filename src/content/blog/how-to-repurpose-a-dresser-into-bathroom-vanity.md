@@ -1,10 +1,14 @@
 ---
-title: "How to Repurpose a Dresser into Bathroom Vanity: Stunning DIY Ideas"
-description: "Looking to give your bathroom a fresh new look without spending a fortune? You might already have the perfect piece waiting for a makeover—a dresser. Imagine tu"
+title: 'How to Repurpose a Dresser into Bathroom Vanity: Stunning DIY Ideas'
+description: Looking to give your bathroom a fresh new look without spending a fortune?
+  You might already have the perfect piece waiting for a makeover—a dresser. Imagine
+  tu
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repurpose-a-dresser-into-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repurpose-a-dresser-into-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to give your bathroom a fresh new look without spending a fortune? You might already have the perfect piece waiting for a makeover—a dresser.**

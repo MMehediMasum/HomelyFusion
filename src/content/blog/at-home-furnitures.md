@@ -1,10 +1,14 @@
 ---
-title: "At Home Furnitures: Stylish Storage Solutions for Every Room Organizer"
-description: "Discover the perfect blend of functionality and style with our curated selection of home furniture. From sleek end tables to spacious shoe racks, elevate every "
+title: 'At Home Furnitures: Stylish Storage Solutions for Every Room Organizer'
+description: 'Discover the perfect blend of functionality and style with our curated
+  selection of home furniture. From sleek end tables to spacious shoe racks, elevate
+  every '
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-furnitures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=at-home-furnitures&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the perfect blend of functionality and style with our curated selection of home furniture. From sleek end tables to spacious shoe racks, elevate every room in your home with versatile pieces.**

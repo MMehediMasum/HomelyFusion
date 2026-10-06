@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Skeleton Cookie Recipe: Easy, Spooky, and Delicious!"
 description: "Are you ready to make your Halloween celebration extra fun and spooky? Imagine biting into a cookie that looks just like a creepy skeleton—perfect for sharing w"
 pubDate: 2026-01-17

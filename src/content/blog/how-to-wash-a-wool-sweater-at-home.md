@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash a Wool Sweater at Home: Easy Steps for Perfect Care"
 description: "Wool sweaters are cozy, warm, and perfect for chilly days. But when it comes to washing them, you might worry about shrinking, stretching, or ruining your favor"
 pubDate: 2026-02-11

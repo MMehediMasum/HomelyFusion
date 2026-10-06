@@ -1,10 +1,14 @@
 ---
-title: "What Type of Bed Frame for Smaller Bedroom: Space-Saving Solutions"
-description: "Finding the right bed frame for your smaller bedroom can feel like a puzzle. You want something that fits perfectly, looks great, and makes the room feel cozy—n"
+title: 'What Type of Bed Frame for Smaller Bedroom: Space-Saving Solutions'
+description: Finding the right bed frame for your smaller bedroom can feel like a
+  puzzle. You want something that fits perfectly, looks great, and makes the room
+  feel cozy—n
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-type-of-bed-frame-for-smaller-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=what-type-of-bed-frame-for-smaller-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Finding the right bed frame for your smaller bedroom can feel like a puzzle. You want something that fits perfectly, looks great, and makes the room feel cozy—not cramped.**

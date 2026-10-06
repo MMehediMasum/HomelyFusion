@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Gallery Wall: Expert Tips for Stunning Displays"
-description: "Are you ready to transform your blank wall into a stunning gallery that shows off your style? Hanging a gallery wall might seem tricky, but with the right steps"
+title: 'How to Hang a Gallery Wall: Expert Tips for Stunning Displays'
+description: Are you ready to transform your blank wall into a stunning gallery that
+  shows off your style? Hanging a gallery wall might seem tricky, but with the right
+  steps
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your blank wall into a stunning gallery that shows off your style? Hanging a gallery wall might seem tricky, but with the right steps, you can create a beautiful display that draws attention and makes your space feel truly yours.**

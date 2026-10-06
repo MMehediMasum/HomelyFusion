@@ -1,10 +1,14 @@
 ---
-title: "Best Vases for Wedding Centerpieces to Elevate Your Special Day Decor"
-description: "Choosing the best vases for wedding centerpieces sets the tone for your special day. Clear, vintage, and gold vases add charm to any table setting. Wedding cent"
+title: Best Vases for Wedding Centerpieces to Elevate Your Special Day Decor
+description: Choosing the best vases for wedding centerpieces sets the tone for your
+  special day. Clear, vintage, and gold vases add charm to any table setting. Wedding
+  cent
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-vases-for-wedding-centerpieces-to-elevate-your-special-day-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-vases-for-wedding-centerpieces-to-elevate-your-special-day-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best vases for wedding centerpieces sets the tone for your special day. Clear, vintage, and gold vases add charm to any table setting.**

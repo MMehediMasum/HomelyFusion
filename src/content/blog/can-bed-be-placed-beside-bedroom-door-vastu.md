@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Bed Be Placed beside Bedroom Door Vastu: Essential Tips Revealed"
 description: "Have you ever wondered if placing your bed right beside the bedroom door affects your sleep or energy? You might think it’s just a simple choice, but according "
 pubDate: 2026-05-19

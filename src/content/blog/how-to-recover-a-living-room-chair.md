@@ -1,10 +1,14 @@
 ---
-title: "How to Recover a Living Room Chair: Easy Steps for Stunning Results"
-description: "Is your living room chair looking tired, worn, or outdated? You don’t need to buy a new one to give your space a fresh look. Recovering your chair can be easier"
+title: 'How to Recover a Living Room Chair: Easy Steps for Stunning Results'
+description: Is your living room chair looking tired, worn, or outdated? You don’t
+  need to buy a new one to give your space a fresh look. Recovering your chair can
+  be easier
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recover-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recover-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room chair looking tired, worn, or outdated? You don’t need to buy a new one to give your space a fresh look.**

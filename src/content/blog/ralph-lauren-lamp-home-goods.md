@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Lamp Home Goods: Elegant Lighting for Stylish Living Spaces"
-description: "Ralph Lauren lamps add elegance and style to your home. Discover a curated selection of these timeless lighting pieces. Lighting plays a crucial role in home de"
+title: 'Ralph Lauren Lamp Home Goods: Elegant Lighting for Stylish Living Spaces'
+description: Ralph Lauren lamps add elegance and style to your home. Discover a curated
+  selection of these timeless lighting pieces. Lighting plays a crucial role in home
+  de
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-lamp-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-lamp-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren lamps add elegance and style to your home. Discover a curated selection of these timeless lighting pieces.**

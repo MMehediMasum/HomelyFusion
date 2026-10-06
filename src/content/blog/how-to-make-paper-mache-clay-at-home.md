@@ -1,10 +1,14 @@
 ---
-title: "How to Make Paper Mache Clay at Home: Easy DIY Craft Guide"
-description: "Are you looking for a fun and affordable way to get creative at home? Making your own paper mache clay is easier than you think, and it’s perfect for all kinds "
+title: 'How to Make Paper Mache Clay at Home: Easy DIY Craft Guide'
+description: 'Are you looking for a fun and affordable way to get creative at home?
+  Making your own paper mache clay is easier than you think, and it’s perfect for
+  all kinds '
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-paper-mache-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-paper-mache-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun and affordable way to get creative at home? Making your own paper mache clay is easier than you think, and it’s perfect for all kinds of art projects.**

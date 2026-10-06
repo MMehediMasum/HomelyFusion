@@ -1,10 +1,14 @@
 ---
-title: "How to Frame a Wall Mirror: Easy Steps for Stunning Results"
-description: "Want to give your plain wall mirror a fresh, stylish look without spending a fortune? Framing a wall mirror is an easy and rewarding way to add personality and "
+title: 'How to Frame a Wall Mirror: Easy Steps for Stunning Results'
+description: 'Want to give your plain wall mirror a fresh, stylish look without spending
+  a fortune? Framing a wall mirror is an easy and rewarding way to add personality
+  and '
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to give your plain wall mirror a fresh, stylish look without spending a fortune? Framing a wall mirror is an easy and rewarding way to add personality and charm to any room.**

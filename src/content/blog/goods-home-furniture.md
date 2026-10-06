@@ -1,10 +1,14 @@
 ---
-title: "Goods Home Furniture: Top Space-Saving Organizers for Stylish Living Rooms"
-description: "Goods Home Furniture offers practical and stylish pieces for every room. These items combine function and design to improve your living space. From bathroom org"
+title: 'Goods Home Furniture: Top Space-Saving Organizers for Stylish Living Rooms'
+description: Goods Home Furniture offers practical and stylish pieces for every room.
+  These items combine function and design to improve your living space. From bathroom
+  org
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=goods-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=goods-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Goods Home Furniture offers practical and stylish pieces for every room. These items combine function and design to improve your living space.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Burlap Pumpkin Craft: Easy DIY Ideas to Brighten Your Autumn"
-description: "Are you looking for a simple and charming way to bring the cozy feeling of fall into your home? A Fall Burlap Pumpkin Craft is the perfect project for you. It’s"
+title: 'Fall Burlap Pumpkin Craft: Easy DIY Ideas to Brighten Your Autumn'
+description: Are you looking for a simple and charming way to bring the cozy feeling
+  of fall into your home? A Fall Burlap Pumpkin Craft is the perfect project for you.
+  It’s
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-burlap-pumpkin-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-burlap-pumpkin-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple and charming way to bring the cozy feeling of fall into your home? A Fall Burlap Pumpkin Craft is the perfect project for you.**

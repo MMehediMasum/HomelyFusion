@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bedroom Nightstands: Top Stylish Picks for Every Budget"
-description: "Looking to find the perfect nightstand for your bedroom? You know how a simple piece of furniture can change the entire look and feel of your space. But with so"
+title: 'Where to Buy Bedroom Nightstands: Top Stylish Picks for Every Budget'
+description: Looking to find the perfect nightstand for your bedroom? You know how
+  a simple piece of furniture can change the entire look and feel of your space. But
+  with so
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bedroom-nightstands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bedroom-nightstands&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to find the perfect nightstand for your bedroom? You know how a simple piece of furniture can change the entire look and feel of your space.**

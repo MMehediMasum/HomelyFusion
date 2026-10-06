@@ -1,10 +1,14 @@
 ---
-title: "How to Refinish Bedroom Dresser: Easy Steps for a Stunning Makeover"
-description: "Is your bedroom dresser looking worn out or outdated? Imagine transforming it into a stunning piece that fits perfectly with your style—all without spending a f"
+title: 'How to Refinish Bedroom Dresser: Easy Steps for a Stunning Makeover'
+description: Is your bedroom dresser looking worn out or outdated? Imagine transforming
+  it into a stunning piece that fits perfectly with your style—all without spending
+  a f
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refinish-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refinish-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bedroom dresser looking worn out or outdated? Imagine transforming it into a stunning piece that fits perfectly with your style—all without spending a fortune on a new one.**

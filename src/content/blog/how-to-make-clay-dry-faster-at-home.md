@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Dry Faster at Home: Quick & Easy Tips"
-description: "Are you tired of waiting forever for your clay projects to dry? Whether you’re working on a last-minute craft or eager to see your creation come to life, the sl"
+title: 'How to Make Clay Dry Faster at Home: Quick & Easy Tips'
+description: Are you tired of waiting forever for your clay projects to dry? Whether
+  you’re working on a last-minute craft or eager to see your creation come to life,
+  the sl
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-dry-faster-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-dry-faster-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of waiting forever for your clay projects to dry? Whether you’re working on a last-minute craft or eager to see your creation come to life, the slow drying process can be frustrating.**

@@ -1,10 +1,13 @@
 ---
-title: "Pink China Cabinet Ideas: Stylish Storage Solutions for Every Room"
-description: "The allure of a pink china cabinet lies in its charming blend of functionality and style. These cabinets enhance any space with a delightful pop of color and am"
+title: 'Pink China Cabinet Ideas: Stylish Storage Solutions for Every Room'
+description: The allure of a pink china cabinet lies in its charming blend of functionality
+  and style. These cabinets enhance any space with a delightful pop of color and am
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pink-china-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=pink-china-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **The allure of a pink china cabinet lies in its charming blend of functionality and style. These cabinets enhance any space with a delightful pop of color and ample storage.**

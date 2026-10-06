@@ -1,10 +1,15 @@
 ---
-title: "Inspired Home Furniture: Stylish Velvet Sofas and Modular Kids Play Couch Ideas"
-description: "Discover the charm of inspired home furniture with pieces that blend style and function seamlessly. Create inviting spaces with unique designs. Transforming you"
+title: 'Inspired Home Furniture: Stylish Velvet Sofas and Modular Kids Play Couch
+  Ideas'
+description: Discover the charm of inspired home furniture with pieces that blend
+  style and function seamlessly. Create inviting spaces with unique designs. Transforming
+  you
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=inspired-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=inspired-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the charm of inspired home furniture with pieces that blend style and function seamlessly. Create inviting spaces with unique designs.**

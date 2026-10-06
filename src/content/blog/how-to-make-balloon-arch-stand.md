@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch Stand: Easy Steps for Stunning Decor"
-description: "Are you ready to create an eye-catching balloon arch that steals the show at your next event? Making a balloon arch stand might seem tricky, but with the right "
+title: 'How to Make Balloon Arch Stand: Easy Steps for Stunning Decor'
+description: 'Are you ready to create an eye-catching balloon arch that steals the
+  show at your next event? Making a balloon arch stand might seem tricky, but with
+  the right '
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-stand&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create an eye-catching balloon arch that steals the show at your next event? Making a balloon arch stand might seem tricky, but with the right steps, you can build a sturdy and stunning frame all by yourself.**

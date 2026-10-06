@@ -1,10 +1,14 @@
 ---
-title: "Which Type of Sofa is Best for Small Living Room: Top Space-Saving Picks"
-description: "Choosing the right sofa for your small living room can feel like a puzzle. You want something that fits perfectly without making the space look crowded. You als"
+title: 'Which Type of Sofa is Best for Small Living Room: Top Space-Saving Picks'
+description: Choosing the right sofa for your small living room can feel like a puzzle.
+  You want something that fits perfectly without making the space look crowded. You
+  als
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-type-of-sofa-is-best-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-type-of-sofa-is-best-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa for your small living room can feel like a puzzle. You want something that fits perfectly without making the space look crowded.**

@@ -1,10 +1,14 @@
 ---
-title: "Benches at Homegoods: Top Rustic and Modern Seating for Every Room"
-description: "Benches at HomeGoods offer a versatile blend of style and functionality for every home. Discover a variety of designs that suit any space. Benches have become a"
+title: 'Benches at Homegoods: Top Rustic and Modern Seating for Every Room'
+description: Benches at HomeGoods offer a versatile blend of style and functionality
+  for every home. Discover a variety of designs that suit any space. Benches have
+  become a
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=benches-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=benches-at-homegoods&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Benches at HomeGoods offer a versatile blend of style and functionality for every home. Discover a variety of designs that suit any space.**

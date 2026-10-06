@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Salt Co Clothing Irvine: Vintage Athletic Tee for Classic California Style"
 description: "Salt Co Clothing Irvine offers casual t-shirts inspired by Irvine’s unique style and spirit. Their designs mix vintage looks with local pride for everyday wear."
 pubDate: 2026-06-23

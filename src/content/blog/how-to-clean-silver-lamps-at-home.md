@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Silver Lamps at Home: Easy & Effective Tips"
-description: "Are your silver lamps looking dull and losing their shine? You don’t have to spend a fortune or hire a professional to bring back their sparkle. With a few simp"
+title: 'How to Clean Silver Lamps at Home: Easy & Effective Tips'
+description: Are your silver lamps looking dull and losing their shine? You don’t
+  have to spend a fortune or hire a professional to bring back their sparkle. With
+  a few simp
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-silver-lamps-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-silver-lamps-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are your silver lamps looking dull and losing their shine? You don’t have to spend a fortune or hire a professional to bring back their sparkle.**

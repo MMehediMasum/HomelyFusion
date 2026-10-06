@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Melt Steel at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wondered how to melt steel right at home? It might sound like a task only experts can handle, but with the right tools and simple steps, you can d"
 pubDate: 2026-03-22

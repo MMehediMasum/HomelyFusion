@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Furniture Near Here: Discover Stylish Sectional Sofas for Small Spaces"
 description: "Finding quality furniture near here makes furnishing your space simple and convenient. Local stores offer a wide range of sofas, sectionals, and lounge chairs f"
 pubDate: 2026-06-29

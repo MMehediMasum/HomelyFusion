@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Plant Pots at Home: Easy DIY Guide"
-description: "Are you looking for a fun and creative way to add a personal touch to your garden or indoor plants? Making clay plant pots at home is easier than you think—and "
+title: 'How to Make Clay Plant Pots at Home: Easy DIY Guide'
+description: 'Are you looking for a fun and creative way to add a personal touch to
+  your garden or indoor plants? Making clay plant pots at home is easier than you
+  think—and '
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-plant-pots-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-plant-pots-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your garden or indoor plants? Making clay plant pots at home is easier than you think—and it lets you design pots that perfectly match your style.**

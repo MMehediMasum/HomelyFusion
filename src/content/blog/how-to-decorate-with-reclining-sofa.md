@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate With Reclining Sofa: Stylish Tips for Cozy Living"
-description: "Are you wondering how to make your reclining sofa the star of your living room? Decorating with a reclining sofa can be tricky, but it doesn’t have to be. You w"
+title: 'How to Decorate With Reclining Sofa: Stylish Tips for Cozy Living'
+description: Are you wondering how to make your reclining sofa the star of your living
+  room? Decorating with a reclining sofa can be tricky, but it doesn’t have to be.
+  You w
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-reclining-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-reclining-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your reclining sofa the star of your living room? Decorating with a reclining sofa can be tricky, but it doesn’t have to be.**

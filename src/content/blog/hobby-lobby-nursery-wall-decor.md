@@ -1,10 +1,14 @@
 ---
-title: "Hobby Lobby Nursery Wall Decor Ideas to Organize and Beautify Spaces"
-description: "Decorating a nursery can be an exciting yet challenging task. Hobby Lobby offers a range of wall decor options to make it easier. Creating a warm, inviting spac"
+title: Hobby Lobby Nursery Wall Decor Ideas to Organize and Beautify Spaces
+description: Decorating a nursery can be an exciting yet challenging task. Hobby Lobby
+  offers a range of wall decor options to make it easier. Creating a warm, inviting
+  spac
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-nursery-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-nursery-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating a nursery can be an exciting yet challenging task. Hobby Lobby offers a range of wall decor options to make it easier.**

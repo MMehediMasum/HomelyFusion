@@ -1,10 +1,14 @@
 ---
-title: "How to Make Swing Bed for Bedroom: Easy DIY Guide to Relaxation"
-description: "Imagine turning your bedroom into a cozy retreat where you can relax and unwind in style. What if you could add a unique piece of furniture that combines comfor"
+title: 'How to Make Swing Bed for Bedroom: Easy DIY Guide to Relaxation'
+description: Imagine turning your bedroom into a cozy retreat where you can relax
+  and unwind in style. What if you could add a unique piece of furniture that combines
+  comfor
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-swing-bed-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-swing-bed-for-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Imagine turning your bedroom into a cozy retreat where you can relax and unwind in style. What if you could add a unique piece of furniture that combines comfort and charm—a swing bed?**

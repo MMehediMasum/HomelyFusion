@@ -1,10 +1,14 @@
 ---
-title: "Diy Advent Wreath for Christmas: Easy & Stunning Holiday Decor Ideas"
-description: "Are you ready to add a personal touch to your Christmas celebrations? Creating your own DIY Advent wreath is a simple and meaningful way to welcome the holiday "
+title: 'Diy Advent Wreath for Christmas: Easy & Stunning Holiday Decor Ideas'
+description: 'Are you ready to add a personal touch to your Christmas celebrations?
+  Creating your own DIY Advent wreath is a simple and meaningful way to welcome the
+  holiday '
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-advent-wreath-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-advent-wreath-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your Christmas celebrations? Creating your own DIY Advent wreath is a simple and meaningful way to welcome the holiday season.**

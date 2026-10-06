@@ -1,10 +1,14 @@
 ---
-title: "Floors And Tile: Top Peel & Stick Tiles for Easy Home Upgrades"
-description: "Floors and tiles shape the look and feel of any space. They provide both functionality and aesthetic appeal. From vinyl tiles to foam mats, each type offers uni"
+title: 'Floors And Tile: Top Peel & Stick Tiles for Easy Home Upgrades'
+description: Floors and tiles shape the look and feel of any space. They provide both
+  functionality and aesthetic appeal. From vinyl tiles to foam mats, each type offers
+  uni
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floors-and-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floors-and-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floors and tiles shape the look and feel of any space. They provide both functionality and aesthetic appeal.**

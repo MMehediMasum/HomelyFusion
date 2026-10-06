@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Chandelier at Home: Easy Steps for Sparkling Shine"
-description: "Your chandelier is one of the most stunning features in your home, but cleaning it can feel like a big challenge. You might worry about breaking delicate crysta"
+title: 'How to Clean Chandelier at Home: Easy Steps for Sparkling Shine'
+description: Your chandelier is one of the most stunning features in your home, but
+  cleaning it can feel like a big challenge. You might worry about breaking delicate
+  crysta
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-chandelier-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-chandelier-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your chandelier is one of the most stunning features in your home, but cleaning it can feel like a big challenge. You might worry about breaking delicate crystals or missing spots that dull its sparkle.**

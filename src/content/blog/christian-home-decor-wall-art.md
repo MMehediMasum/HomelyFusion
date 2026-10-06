@@ -1,10 +1,14 @@
 ---
-title: "Christian Home Decor Wall Art: Inspiring Scripture Signs for Every Room"
-description: "Christian home decor wall art brings inspiration and faith into your living space. Transform your home with meaningful pieces. Decorating your home with Christi"
+title: 'Christian Home Decor Wall Art: Inspiring Scripture Signs for Every Room'
+description: Christian home decor wall art brings inspiration and faith into your
+  living space. Transform your home with meaningful pieces. Decorating your home with
+  Christi
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christian-home-decor-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=christian-home-decor-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Christian home decor wall art brings inspiration and faith into your living space. Transform your home with meaningful pieces.**

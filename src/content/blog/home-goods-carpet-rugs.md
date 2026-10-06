@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Carpet Rugs: Soft, Stylish, and Non-Slip Area Rugs for Every Room"
-description: "Home goods carpet rugs add warmth and style to any room. They create a cozy, comfortable space for family and guests. Carpet rugs come in many sizes, colors, an"
+title: 'Home Goods Carpet Rugs: Soft, Stylish, and Non-Slip Area Rugs for Every Room'
+description: Home goods carpet rugs add warmth and style to any room. They create
+  a cozy, comfortable space for family and guests. Carpet rugs come in many sizes,
+  colors, an
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-carpet-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-carpet-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods carpet rugs add warmth and style to any room. They create a cozy, comfortable space for family and guests.**

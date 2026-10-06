@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Rustic Wood Art on Wall: Easy Steps for Stunning Decor"
-description: "Are you ready to bring a warm, cozy touch to your space with rustic wood art? Hanging it the right way can completely change the look and feel of your room. But"
+title: 'How to Hang Rustic Wood Art on Wall: Easy Steps for Stunning Decor'
+description: Are you ready to bring a warm, cozy touch to your space with rustic wood
+  art? Hanging it the right way can completely change the look and feel of your room.
+  But
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-rustic-wood-art-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-rustic-wood-art-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to bring a warm, cozy touch to your space with rustic wood art? Hanging it the right way can completely change the look and feel of your room.**

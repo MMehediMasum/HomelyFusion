@@ -1,10 +1,14 @@
 ---
-title: "How Much to Pay on Living Room Sofa Set: Ultimate Buying Guide"
-description: "Are you wondering how much you should pay for a living room sofa set without breaking the bank? Choosing the right sofa set is more than just picking a style yo"
+title: 'How Much to Pay on Living Room Sofa Set: Ultimate Buying Guide'
+description: Are you wondering how much you should pay for a living room sofa set
+  without breaking the bank? Choosing the right sofa set is more than just picking
+  a style yo
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-pay-on-living-room-sofa-set&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-pay-on-living-room-sofa-set&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how much you should pay for a living room sofa set without breaking the bank? Choosing the right sofa set is more than just picking a style you like—it’s about finding the perfect balance between comfort, quality, and price.**

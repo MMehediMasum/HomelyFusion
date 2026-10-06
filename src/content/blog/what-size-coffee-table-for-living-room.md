@@ -1,10 +1,14 @@
 ---
-title: "What Size Coffee Table for Living Room: Ultimate Guide for Perfect Fit"
-description: "Choosing the right coffee table size for your living room can completely change how your space feels and functions. You want a table that fits perfectly—big eno"
+title: 'What Size Coffee Table for Living Room: Ultimate Guide for Perfect Fit'
+description: Choosing the right coffee table size for your living room can completely
+  change how your space feels and functions. You want a table that fits perfectly—big
+  eno
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-coffee-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-size-coffee-table-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right coffee table size for your living room can completely change how your space feels and functions. You want a table that fits perfectly—big enough to be useful, but not so large that it crowds your seating area.**

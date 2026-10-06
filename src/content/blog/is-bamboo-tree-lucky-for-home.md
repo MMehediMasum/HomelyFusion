@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Bamboo Tree Lucky for Home: Unveiling Surprising Benefits"
 description: "Have you ever wondered if bringing a bamboo tree into your home could actually change your luck? Many people believe that bamboo plants do more than just bright"
 pubDate: 2025-09-24

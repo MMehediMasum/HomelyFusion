@@ -1,10 +1,14 @@
 ---
-title: "Where to Get Bathroom Vanities Cheap: Top Budget-Friendly Finds"
-description: "Are you looking to upgrade your bathroom without spending a fortune? Finding a stylish bathroom vanity that fits your budget can feel overwhelming. But what if "
+title: 'Where to Get Bathroom Vanities Cheap: Top Budget-Friendly Finds'
+description: 'Are you looking to upgrade your bathroom without spending a fortune?
+  Finding a stylish bathroom vanity that fits your budget can feel overwhelming. But
+  what if '
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-get-bathroom-vanities-cheap&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-get-bathroom-vanities-cheap&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to upgrade your bathroom without spending a fortune? Finding a stylish bathroom vanity that fits your budget can feel overwhelming.**

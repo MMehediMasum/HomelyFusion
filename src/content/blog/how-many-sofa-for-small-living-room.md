@@ -1,10 +1,14 @@
 ---
-title: "How Many Sofa for Small Living Room: Ultimate Space-Saving Guide"
-description: "Struggling to find the perfect sofa for your small living room? You’re not alone. Choosing the right number and size of sofas can transform your space from cram"
+title: 'How Many Sofa for Small Living Room: Ultimate Space-Saving Guide'
+description: Struggling to find the perfect sofa for your small living room? You’re
+  not alone. Choosing the right number and size of sofas can transform your space
+  from cram
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-sofa-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-many-sofa-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to find the perfect sofa for your small living room? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wall Lamp at Home: Easy DIY Guide for Stylish Lighting"
-description: "Looking to add a unique touch to your space without spending a fortune? Making a wall lamp at home is easier than you think—and it gives you full control over s"
+title: 'How to Make a Wall Lamp at Home: Easy DIY Guide for Stylish Lighting'
+description: Looking to add a unique touch to your space without spending a fortune?
+  Making a wall lamp at home is easier than you think—and it gives you full control
+  over s
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wall-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wall-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to add a unique touch to your space without spending a fortune? Making a wall lamp at home is easier than you think—and it gives you full control over style and brightness.**

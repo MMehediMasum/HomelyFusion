@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Buffet Table in Living Room: Stunning Ideas"
-description: "Your living room buffet table can be more than just a place to hold dishes—it can become the centerpiece that welcomes your guests and reflects your style. But "
+title: 'How to Decorate a Buffet Table in Living Room: Stunning Ideas'
+description: 'Your living room buffet table can be more than just a place to hold
+  dishes—it can become the centerpiece that welcomes your guests and reflects your
+  style. But '
 pubDate: 2026-03-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-buffet-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-buffet-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room buffet table can be more than just a place to hold dishes—it can become the centerpiece that welcomes your guests and reflects your style. But how do you decorate it in a way that feels both inviting and stylish without overwhelming the space?**

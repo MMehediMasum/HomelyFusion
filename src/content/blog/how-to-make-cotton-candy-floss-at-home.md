@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Floss at Home: Easy & Fun DIY Guide"
 description: "Do you ever crave that sweet, fluffy treat you get at fairs and carnivals? Imagine making cotton candy floss right in your own kitchen. It’s easier than you thi"
 pubDate: 2025-10-22

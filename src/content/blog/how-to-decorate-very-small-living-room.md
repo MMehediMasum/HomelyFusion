@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Very Small Living Room: Expert Tips for Cozy Style"
-description: "Struggling to make your very small living room feel cozy and stylish? You’re not alone. When space is tight, decorating can feel like a puzzle with too many mis"
+title: 'How to Decorate Very Small Living Room: Expert Tips for Cozy Style'
+description: Struggling to make your very small living room feel cozy and stylish?
+  You’re not alone. When space is tight, decorating can feel like a puzzle with too
+  many mis
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-very-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-very-small-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Struggling to make your very small living room feel cozy and stylish? You’re not alone.**

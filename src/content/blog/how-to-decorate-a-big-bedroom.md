@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Big Bedroom: Stunning Ideas for Spacious Style"
-description: "Your big bedroom is a blank canvas full of possibilities. But sometimes, having so much space can feel overwhelming. How do you fill it without making it look e"
+title: 'How to Decorate a Big Bedroom: Stunning Ideas for Spacious Style'
+description: Your big bedroom is a blank canvas full of possibilities. But sometimes,
+  having so much space can feel overwhelming. How do you fill it without making it
+  look e
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your big bedroom is a blank canvas full of possibilities. But sometimes, having so much space can feel overwhelming.**

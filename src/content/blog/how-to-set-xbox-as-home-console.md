@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Xbox As Home Console: Easy Steps to Unlock Benefits"
 description: "Are you ready to get the most out of your Xbox experience? Setting your Xbox as your home console unlocks key benefits like sharing games and subscriptions with"
 pubDate: 2026-04-22

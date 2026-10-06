@@ -1,10 +1,14 @@
 ---
-title: "Thomasville Picture Frames: Elegant Rustic Designs for Every Home Display"
-description: "Thomasville Picture Frames offer a wide variety of options for displaying cherished memories. From rustic wood to sleek metal designs, there's something for eve"
+title: 'Thomasville Picture Frames: Elegant Rustic Designs for Every Home Display'
+description: Thomasville Picture Frames offer a wide variety of options for displaying
+  cherished memories. From rustic wood to sleek metal designs, there's something for
+  eve
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thomasville-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=thomasville-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Thomasville Picture Frames offer a wide variety of options for displaying cherished memories. From rustic wood to sleek metal designs, there's something for every decor style.**

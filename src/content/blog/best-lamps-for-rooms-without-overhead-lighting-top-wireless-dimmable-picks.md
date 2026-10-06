@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Rooms Without Overhead Lighting: Top Wireless & Dimmable Picks"
-description: "Rooms without overhead lighting need smart lamp choices to stay bright and cozy. These lamps add light without complex wiring or ceiling fixtures. Choosing the "
+title: 'Best Lamps for Rooms Without Overhead Lighting: Top Wireless & Dimmable Picks'
+description: 'Rooms without overhead lighting need smart lamp choices to stay bright
+  and cozy. These lamps add light without complex wiring or ceiling fixtures. Choosing
+  the '
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-rooms-without-overhead-lighting-top-wireless-dimmable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-rooms-without-overhead-lighting-top-wireless-dimmable-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Rooms without overhead lighting need smart lamp choices to stay bright and cozy. These lamps add light without complex wiring or ceiling fixtures.**

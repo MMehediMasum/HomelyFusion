@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Passivate Stainless Steel at Home: Easy DIY Guide"
 description: "Are you looking to keep your stainless steel looking brand new and rust-free? Passivating your stainless steel at home is easier than you might think. By follow"
 pubDate: 2025-10-15

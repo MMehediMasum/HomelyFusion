@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Wood Look Tile: Best Peel & Stick Options for Easy Flooring"
-description: "Floor and Decor wood look tiles offer a stylish and practical flooring solution. They mimic the beauty of natural wood. These tiles are perfect for those seekin"
+title: 'Floor And Decor Wood Look Tile: Best Peel & Stick Options for Easy Flooring'
+description: Floor and Decor wood look tiles offer a stylish and practical flooring
+  solution. They mimic the beauty of natural wood. These tiles are perfect for those
+  seekin
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-wood-look-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-wood-look-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor wood look tiles offer a stylish and practical flooring solution. They mimic the beauty of natural wood.**

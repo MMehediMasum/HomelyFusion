@@ -1,10 +1,14 @@
 ---
-title: "Is Bedroom Or Bed Room Correct: Ultimate Grammar Guide Explained"
-description: "Have you ever paused to wonder whether it’s “bedroom” or “bed room”? It might seem like a small detail, but getting it right makes your writing clearer and more"
+title: 'Is Bedroom Or Bed Room Correct: Ultimate Grammar Guide Explained'
+description: Have you ever paused to wonder whether it’s “bedroom” or “bed room”?
+  It might seem like a small detail, but getting it right makes your writing clearer
+  and more
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-bedroom-or-bed-room-correct&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=is-bedroom-or-bed-room-correct&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever paused to wonder whether it’s “bedroom” or “bed room”? It might seem like a small detail, but getting it right makes your writing clearer and more professional.**

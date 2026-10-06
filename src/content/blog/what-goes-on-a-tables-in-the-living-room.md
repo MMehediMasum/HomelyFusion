@@ -1,10 +1,14 @@
 ---
-title: "What Goes on a Tables in the Living Room: Stylish Essentials Guide"
-description: "Have you ever wondered what goes on a table in your living room? That simple surface can do so much more than just hold your coffee cup. It’s where you showcase"
+title: 'What Goes on a Tables in the Living Room: Stylish Essentials Guide'
+description: Have you ever wondered what goes on a table in your living room? That
+  simple surface can do so much more than just hold your coffee cup. It’s where you
+  showcase
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-goes-on-a-tables-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-goes-on-a-tables-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what goes on a table in your living room? That simple surface can do so much more than just hold your coffee cup.**

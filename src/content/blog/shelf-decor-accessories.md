@@ -1,10 +1,14 @@
 ---
-title: "Shelf Decor Accessories to Elevate Your Home’s Style Instantly"
-description: "Shelf decor accessories add charm and personality to any space. They transform plain shelves into eye-catching displays. Small details like artificial plants, s"
+title: Shelf Decor Accessories to Elevate Your Home’s Style Instantly
+description: Shelf decor accessories add charm and personality to any space. They
+  transform plain shelves into eye-catching displays. Small details like artificial
+  plants, s
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shelf-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=shelf-decor-accessories&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Shelf decor accessories add charm and personality to any space. They transform plain shelves into eye-catching displays.**

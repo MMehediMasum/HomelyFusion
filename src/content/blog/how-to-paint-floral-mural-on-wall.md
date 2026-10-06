@@ -1,10 +1,13 @@
 ---
-title: "How to Paint Floral Mural on Wall: Step-by-Step Guide for Beginners"
-description: "Are you ready to transform your plain wall into a stunning floral masterpiece? Painting a floral mural on your wall is a creative way to add color, life, and pe"
+title: 'How to Paint Floral Mural on Wall: Step-by-Step Guide for Beginners'
+description: Are you ready to transform your plain wall into a stunning floral masterpiece?
+  Painting a floral mural on your wall is a creative way to add color, life, and pe
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-floral-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-floral-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a stunning floral masterpiece? Painting a floral mural on your wall is a creative way to add color, life, and personality to any room.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Candles for Home Non Toxic: Top Soy Wax Scents for Relaxation"
-description: "Choosing the best non-toxic candles improves home air quality and creates a safe, cozy atmosphere. These candles burn cleanly without harmful chemicals. Non-tox"
+title: 'Best Candles for Home Non Toxic: Top Soy Wax Scents for Relaxation'
+description: Choosing the best non-toxic candles improves home air quality and creates
+  a safe, cozy atmosphere. These candles burn cleanly without harmful chemicals. Non-tox
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-candles-for-home-non-toxic-top-soy-wax-scents-for-relaxation&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-candles-for-home-non-toxic-top-soy-wax-scents-for-relaxation&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best non-toxic candles improves home air quality and creates a safe, cozy atmosphere. These candles burn cleanly without harmful chemicals.**

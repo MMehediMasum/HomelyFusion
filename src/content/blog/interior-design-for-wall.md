@@ -1,10 +1,14 @@
 ---
-title: "Interior Design for Wall: Transform Your Space with Stunning Wall Decor Ideas"
-description: "Wall decor transforms a space, adding personality and style. Choosing the right pieces can elevate any room's atmosphere. Interior design for walls offers endle"
+title: 'Interior Design for Wall: Transform Your Space with Stunning Wall Decor Ideas'
+description: Wall decor transforms a space, adding personality and style. Choosing
+  the right pieces can elevate any room's atmosphere. Interior design for walls offers
+  endle
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-design-for-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-design-for-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor transforms a space, adding personality and style. Choosing the right pieces can elevate any room's atmosphere.**

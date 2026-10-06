@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Bathroom Light Fixture: Easy Steps for Safe Removal"
-description: "Are you tired of that outdated bathroom light fixture? Maybe it’s flickering, or you just want a fresh look. Removing your bathroom light fixture might sound tr"
+title: 'How to Remove Bathroom Light Fixture: Easy Steps for Safe Removal'
+description: Are you tired of that outdated bathroom light fixture? Maybe it’s flickering,
+  or you just want a fresh look. Removing your bathroom light fixture might sound
+  tr
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-bathroom-light-fixture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-bathroom-light-fixture&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you tired of that outdated bathroom light fixture? Maybe it’s flickering, or you just want a fresh look.**

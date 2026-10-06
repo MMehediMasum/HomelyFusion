@@ -1,10 +1,14 @@
 ---
-title: "How to Make Cotton Mattress at Home: Easy DIY Guide for Comfort"
-description: "Are you tired of expensive mattresses that don’t feel quite right? What if you could make your own cotton mattress at home—just the way you like it? Imagine hav"
+title: 'How to Make Cotton Mattress at Home: Easy DIY Guide for Comfort'
+description: Are you tired of expensive mattresses that don’t feel quite right? What
+  if you could make your own cotton mattress at home—just the way you like it? Imagine
+  hav
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-cotton-mattress-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-cotton-mattress-at-home&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of expensive mattresses that don’t feel quite right? What if you could make your own cotton mattress at home—just the way you like it?**

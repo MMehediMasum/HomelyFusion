@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Sofa in Narrow Living Room: Expert Layout Tips"
-description: "Struggling to find the perfect spot for your sofa in a narrow living room? You’re not alone. Placing a sofa in a tight space can feel like a puzzle, but the rig"
+title: 'Where to Place Sofa in Narrow Living Room: Expert Layout Tips'
+description: Struggling to find the perfect spot for your sofa in a narrow living
+  room? You’re not alone. Placing a sofa in a tight space can feel like a puzzle,
+  but the rig
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-sofa-in-narrow-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-sofa-in-narrow-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to find the perfect spot for your sofa in a narrow living room? You’re not alone.**

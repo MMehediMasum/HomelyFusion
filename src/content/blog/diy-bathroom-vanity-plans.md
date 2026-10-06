@@ -1,10 +1,14 @@
 ---
-title: "Diy Bathroom Vanity Plans: Easy Step-by-Step Guide for Beginners"
-description: "Are you ready to transform your bathroom without spending a fortune? Building your own bathroom vanity can be easier than you think. With the right plans, you c"
+title: 'Diy Bathroom Vanity Plans: Easy Step-by-Step Guide for Beginners'
+description: Are you ready to transform your bathroom without spending a fortune?
+  Building your own bathroom vanity can be easier than you think. With the right plans,
+  you c
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-bathroom-vanity-plans&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=diy-bathroom-vanity-plans&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom without spending a fortune? Building your own bathroom vanity can be easier than you think.**

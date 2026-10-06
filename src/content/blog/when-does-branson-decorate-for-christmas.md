@@ -1,10 +1,14 @@
 ---
-title: "When Does Branson Decorate for Christmas: Ultimate Holiday Guide"
-description: "Are you wondering when Branson starts decorating for Christmas? If you love the magic of the holiday season, knowing the exact time can help you plan your visit"
+title: 'When Does Branson Decorate for Christmas: Ultimate Holiday Guide'
+description: Are you wondering when Branson starts decorating for Christmas? If you
+  love the magic of the holiday season, knowing the exact time can help you plan your
+  visit
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-does-branson-decorate-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=when-does-branson-decorate-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you wondering when Branson starts decorating for Christmas? If you love the magic of the holiday season, knowing the exact time can help you plan your visit perfectly.**

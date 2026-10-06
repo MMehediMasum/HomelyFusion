@@ -1,10 +1,14 @@
 ---
-title: "What to Look for in a Home Office Chair: Ultimate Comfort Guide"
-description: "Choosing the right home office chair can change the way you work every single day. If you spend hours sitting, your chair isn’t just furniture—it’s the foundati"
+title: 'What to Look for in a Home Office Chair: Ultimate Comfort Guide'
+description: Choosing the right home office chair can change the way you work every
+  single day. If you spend hours sitting, your chair isn’t just furniture—it’s the
+  foundati
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-look-for-in-a-home-office-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-to-look-for-in-a-home-office-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right home office chair can change the way you work every single day. If you spend hours sitting, your chair isn’t just furniture—it’s the foundation of your comfort and productivity.**

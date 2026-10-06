@@ -1,10 +1,13 @@
 ---
-title: "Bed Bath And Beyond Wall Art: Unique Bathroom Decor Ideas You’ll Love"
-description: "Bed Bath and Beyond offers a wide range of wall art perfect for bathrooms. Their collection includes fun, vintage, and calming designs that suit various styles."
+title: 'Bed Bath And Beyond Wall Art: Unique Bathroom Decor Ideas You’ll Love'
+description: Bed Bath and Beyond offers a wide range of wall art perfect for bathrooms.
+  Their collection includes fun, vintage, and calming designs that suit various styles.
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-wall-art&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Bed Bath and Beyond offers a wide range of wall art perfect for bathrooms. Their collection includes fun, vintage, and calming designs that suit various styles.**

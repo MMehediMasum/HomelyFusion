@@ -1,10 +1,14 @@
 ---
-title: "Best Accent Chairs for Living Room: Stylish Comfort and Modern Designs"
-description: "Accent chairs add style and comfort to any living room. They create a cozy spot for reading or relaxing. Choosing the best accent chair can change your room’s l"
+title: 'Best Accent Chairs for Living Room: Stylish Comfort and Modern Designs'
+description: Accent chairs add style and comfort to any living room. They create a
+  cozy spot for reading or relaxing. Choosing the best accent chair can change your
+  room’s l
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-accent-chairs-for-living-room-stylish-comfort-and-modern-designs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-accent-chairs-for-living-room-stylish-comfort-and-modern-designs&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Accent chairs add style and comfort to any living room. They create a cozy spot for reading or relaxing.**

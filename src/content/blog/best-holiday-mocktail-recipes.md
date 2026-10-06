@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Holiday Mocktail Recipes: Refreshing & Festive Sips to Try"
 description: "Looking for refreshing and festive drinks that everyone can enjoy this holiday season? You’ve come to the right place. Whether you’re hosting a party or just wa"
 pubDate: 2025-12-19

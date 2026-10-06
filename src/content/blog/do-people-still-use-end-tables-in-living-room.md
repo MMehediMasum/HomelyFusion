@@ -1,10 +1,14 @@
 ---
-title: "Do People Still Use End Tables in Living Room? Discover Why!"
-description: "Have you ever wondered if end tables still have a place in your living room? Maybe you’re thinking they’re old-fashioned or just extra furniture taking up space"
+title: Do People Still Use End Tables in Living Room? Discover Why!
+description: Have you ever wondered if end tables still have a place in your living
+  room? Maybe you’re thinking they’re old-fashioned or just extra furniture taking
+  up space
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-people-still-use-end-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=do-people-still-use-end-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if end tables still have a place in your living room? Maybe you’re thinking they’re old-fashioned or just extra furniture taking up space.**

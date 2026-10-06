@@ -1,10 +1,14 @@
 ---
-title: "Cabinet Home Goods: Top Stylish Storage Solutions for Every Room"
-description: "Cabinet home goods add style and functionality to any space. They offer practical storage solutions for every room. Choosing the right cabinet can transform you"
+title: 'Cabinet Home Goods: Top Stylish Storage Solutions for Every Room'
+description: Cabinet home goods add style and functionality to any space. They offer
+  practical storage solutions for every room. Choosing the right cabinet can transform
+  you
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cabinet-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=cabinet-home-goods&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Cabinet home goods add style and functionality to any space. They offer practical storage solutions for every room.**

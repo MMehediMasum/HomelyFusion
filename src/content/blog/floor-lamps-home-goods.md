@@ -1,10 +1,14 @@
 ---
-title: "Floor Lamps Home Goods: Stylish Lighting Solutions for Every Room"
-description: "Floor lamps add style and light to any room in your home. They fit well in living rooms, bedrooms, and offices. Choosing the right floor lamp can change how a s"
+title: 'Floor Lamps Home Goods: Stylish Lighting Solutions for Every Room'
+description: Floor lamps add style and light to any room in your home. They fit well
+  in living rooms, bedrooms, and offices. Choosing the right floor lamp can change
+  how a s
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=floor-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Floor lamps add style and light to any room in your home. They fit well in living rooms, bedrooms, and offices.**

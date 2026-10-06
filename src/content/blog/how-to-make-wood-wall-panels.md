@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wood Wall Panels: Easy DIY Steps for Stunning Walls"
-description: "Are you ready to transform your space with a touch of natural warmth and style? Making wood wall panels yourself is easier than you might think, and the results"
+title: 'How to Make Wood Wall Panels: Easy DIY Steps for Stunning Walls'
+description: Are you ready to transform your space with a touch of natural warmth
+  and style? Making wood wall panels yourself is easier than you might think, and
+  the results
 pubDate: 2025-08-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wood-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wood-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a touch of natural warmth and style? Making wood wall panels yourself is easier than you might think, and the results can completely change the look and feel of any room.**

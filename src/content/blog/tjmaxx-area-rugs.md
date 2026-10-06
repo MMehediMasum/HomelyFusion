@@ -1,10 +1,14 @@
 ---
-title: "Tjmaxx Area Rugs: Stylish, Durable Picks for Every Room and Style"
-description: "Tjmaxx area rugs offer stylish and affordable options for every room in your home. These rugs come in various sizes, patterns, and colors to fit different taste"
+title: 'Tjmaxx Area Rugs: Stylish, Durable Picks for Every Room and Style'
+description: Tjmaxx area rugs offer stylish and affordable options for every room
+  in your home. These rugs come in various sizes, patterns, and colors to fit different
+  taste
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tjmaxx-area-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tjmaxx-area-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tjmaxx area rugs offer stylish and affordable options for every room in your home. These rugs come in various sizes, patterns, and colors to fit different tastes and spaces.**

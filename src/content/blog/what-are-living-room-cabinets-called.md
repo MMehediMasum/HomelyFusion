@@ -1,10 +1,14 @@
 ---
-title: "What are Living Room Cabinets Called: Essential Guide to Stylish Storage"
-description: "Have you ever wondered what those stylish storage pieces in your living room are really called? You might know them as shelves, cupboards, or just cabinets, but"
+title: 'What are Living Room Cabinets Called: Essential Guide to Stylish Storage'
+description: Have you ever wondered what those stylish storage pieces in your living
+  room are really called? You might know them as shelves, cupboards, or just cabinets,
+  but
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-living-room-cabinets-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-are-living-room-cabinets-called&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered what those stylish storage pieces in your living room are really called? You might know them as shelves, cupboards, or just cabinets, but there’s actually a specific name that fits perfectly.**

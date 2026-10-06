@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home Heating Oil Freeze: Essential Facts You Must Know"
 description: "Have you ever wondered if your home heating oil can freeze when the temperature drops? This question might seem simple, but the answer could save you from unexp"
 pubDate: 2026-04-12

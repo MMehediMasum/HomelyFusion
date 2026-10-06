@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Light Bulbs for Home: Brighten Your Space Perfectly"
-description: "Choosing the right light bulbs for your home might seem simple, but it can actually make a big difference in how your space looks and feels. You want lighting t"
+title: 'How to Choose Light Bulbs for Home: Brighten Your Space Perfectly'
+description: Choosing the right light bulbs for your home might seem simple, but it
+  can actually make a big difference in how your space looks and feels. You want lighting
+  t
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-light-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-light-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right light bulbs for your home might seem simple, but it can actually make a big difference in how your space looks and feels. You want lighting that’s bright enough, energy-efficient, and fits your style—all without breaking the bank.**

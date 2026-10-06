@@ -1,10 +1,14 @@
 ---
-title: "Christmas Tree Star Topper DIY: Easy & Stunning Holiday Craft Ideas"
-description: "Your Christmas tree isn’t complete without that perfect star shining at the top. But what if you could create a unique star topper yourself? Imagine the pride o"
+title: 'Christmas Tree Star Topper DIY: Easy & Stunning Holiday Craft Ideas'
+description: Your Christmas tree isn’t complete without that perfect star shining
+  at the top. But what if you could create a unique star topper yourself? Imagine
+  the pride o
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-tree-star-topper-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-tree-star-topper-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your Christmas tree isn’t complete without that perfect star shining at the top. But what if you could create a unique star topper yourself?**

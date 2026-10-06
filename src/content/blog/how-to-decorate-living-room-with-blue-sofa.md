@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Blue Sofa: Stunning Style Ideas"
-description: "Your living room is the heart of your home, and choosing the right sofa can set the tone for the entire space. A blue sofa is a bold and stylish choice that bri"
+title: 'How to Decorate Living Room With Blue Sofa: Stunning Style Ideas'
+description: Your living room is the heart of your home, and choosing the right sofa
+  can set the tone for the entire space. A blue sofa is a bold and stylish choice
+  that bri
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-blue-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-blue-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and choosing the right sofa can set the tone for the entire space. A blue sofa is a bold and stylish choice that brings calmness and charm to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Have Light Brown Sofa in Living Room: Stylish Decor Ideas to Inspire"
-description: "Have a light brown sofa in your living room? You’ve made a smart choice. Light brown is warm, inviting, and easy to match with almost any style. But how do you "
+title: 'Have Light Brown Sofa in Living Room: Stylish Decor Ideas to Inspire'
+description: 'Have a light brown sofa in your living room? You’ve made a smart choice.
+  Light brown is warm, inviting, and easy to match with almost any style. But how
+  do you '
 pubDate: 2026-02-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=have-light-brown-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=have-light-brown-sofa-in-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have a light brown sofa in your living room? You’ve made a smart choice.**

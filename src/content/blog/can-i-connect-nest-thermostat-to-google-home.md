@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Connect Nest Thermostat to Google Home: Ultimate Guide"
 description: "Are you wondering if you can connect your Nest Thermostat to Google Home? Imagine controlling your home’s temperature with just your voice, making your life sim"
 pubDate: 2025-10-15

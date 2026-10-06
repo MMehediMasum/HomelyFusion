@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Holiday Replacement Parts USA: Top Picks for Festive Decor"
-description: "Home Accents Holiday replacement parts in the USA keep your decorations working well. These parts help fix and maintain popular holiday items like Fishing The W"
+title: 'Home Accents Holiday Replacement Parts USA: Top Picks for Festive Decor'
+description: Home Accents Holiday replacement parts in the USA keep your decorations
+  working well. These parts help fix and maintain popular holiday items like Fishing
+  The W
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-holiday-replacement-parts-usa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-holiday-replacement-parts-usa&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Accents Holiday replacement parts in the USA keep your decorations working well. These parts help fix and maintain popular holiday items like Fishing The Wild and The Beach Crew.**

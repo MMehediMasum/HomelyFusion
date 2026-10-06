@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for a Bedroom: Top RGB LED Strip Lights and Smart Lamps"
-description: "Choosing the best lighting for a bedroom sets the mood and improves comfort. Proper lighting helps you relax, read, or get ready with ease. Bedroom lighting sho"
+title: 'Best Lighting for a Bedroom: Top RGB LED Strip Lights and Smart Lamps'
+description: Choosing the best lighting for a bedroom sets the mood and improves comfort.
+  Proper lighting helps you relax, read, or get ready with ease. Bedroom lighting
+  sho
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-a-bedroom-top-rgb-led-strip-lights-and-smart-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-a-bedroom-top-rgb-led-strip-lights-and-smart-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for a bedroom sets the mood and improves comfort. Proper lighting helps you relax, read, or get ready with ease.**

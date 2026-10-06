@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Harden Steel at Home: Easy Steps for Stronger Metal"
 description: "Have you ever wanted to make your steel tools or knives stronger and more durable without spending a fortune? Hardening steel at home is easier than you might t"
 pubDate: 2026-03-10

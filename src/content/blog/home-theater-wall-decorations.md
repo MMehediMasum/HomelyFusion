@@ -1,10 +1,14 @@
 ---
-title: "Home Theater Wall Decorations: Stylish Movie Room Art and Unique Decor Ideas"
-description: "Transform your home theater into an immersive cinematic experience with the right wall decorations. Choosing the perfect decor enhances the ambiance and makes y"
+title: 'Home Theater Wall Decorations: Stylish Movie Room Art and Unique Decor Ideas'
+description: Transform your home theater into an immersive cinematic experience with
+  the right wall decorations. Choosing the perfect decor enhances the ambiance and
+  makes y
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-theater-wall-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-theater-wall-decorations&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home theater into an immersive cinematic experience with the right wall decorations. Choosing the perfect decor enhances the ambiance and makes your space uniquely yours.**

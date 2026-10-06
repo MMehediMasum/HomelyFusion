@@ -1,10 +1,13 @@
 ---
-title: "Tahari Home Furniture Cabinet: Stylish Storage Solutions for Every Room"
-description: "Tahari Home Furniture Cabinets bring style and functionality to any space. Discover versatile designs for every room in your home. Tahari Home Furniture Cabinet"
+title: 'Tahari Home Furniture Cabinet: Stylish Storage Solutions for Every Room'
+description: Tahari Home Furniture Cabinets bring style and functionality to any space.
+  Discover versatile designs for every room in your home. Tahari Home Furniture Cabinet
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-furniture-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-furniture-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Tahari Home Furniture Cabinets bring style and functionality to any space. Discover versatile designs for every room in your home.**

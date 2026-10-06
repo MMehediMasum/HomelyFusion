@@ -1,10 +1,14 @@
 ---
-title: "Best Pillows for Leather Couch: Stylish Comfort and Durable Decor Options"
-description: "Choosing the best pillows for a leather couch adds comfort and style to your living space. The right pillow protects leather while enhancing its look. Leather c"
+title: 'Best Pillows for Leather Couch: Stylish Comfort and Durable Decor Options'
+description: Choosing the best pillows for a leather couch adds comfort and style
+  to your living space. The right pillow protects leather while enhancing its look.
+  Leather c
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pillows-for-leather-couch-stylish-comfort-and-durable-decor-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-pillows-for-leather-couch-stylish-comfort-and-durable-decor-options&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best pillows for a leather couch adds comfort and style to your living space. The right pillow protects leather while enhancing its look.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Lay Out Living Room With Curved Sofa: Stylish & Smart Ideas"
-description: "Are you wondering how to make your living room feel cozy and stylish with a curved sofa? You’re not alone. Curved sofas add a unique touch, but figuring out the"
+title: 'How to Lay Out Living Room With Curved Sofa: Stylish & Smart Ideas'
+description: Are you wondering how to make your living room feel cozy and stylish
+  with a curved sofa? You’re not alone. Curved sofas add a unique touch, but figuring
+  out the
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-lay-out-living-room-with-curved-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-lay-out-living-room-with-curved-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel cozy and stylish with a curved sofa? You’re not alone.**

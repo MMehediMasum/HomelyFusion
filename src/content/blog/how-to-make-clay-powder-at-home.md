@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Powder at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wanted to create your own clay powder right at home? Whether you’re into arts and crafts, skincare, or DIY projects, making clay powder yourself c"
 pubDate: 2026-02-13

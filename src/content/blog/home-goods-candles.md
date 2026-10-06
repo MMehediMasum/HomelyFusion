@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Candles: Top Scented Picks for Cozy Aromatherapy Bliss"
-description: "Home Goods candles offer a diverse range of scents and styles to elevate any room. From soothing aromas to invigorating fragrances, there's something for everyo"
+title: 'Home Goods Candles: Top Scented Picks for Cozy Aromatherapy Bliss'
+description: Home Goods candles offer a diverse range of scents and styles to elevate
+  any room. From soothing aromas to invigorating fragrances, there's something for
+  everyo
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-candles&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Goods candles offer a diverse range of scents and styles to elevate any room. From soothing aromas to invigorating fragrances, there's something for everyone.**

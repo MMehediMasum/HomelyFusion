@@ -1,10 +1,14 @@
 ---
-title: "How to Use Chest in Bedroom Decor: Stylish Tips for Cozy Spaces"
-description: "Are you looking for a simple way to refresh your bedroom without a complete makeover? Using a chest in your bedroom decor might be the perfect solution. Not onl"
+title: 'How to Use Chest in Bedroom Decor: Stylish Tips for Cozy Spaces'
+description: Are you looking for a simple way to refresh your bedroom without a complete
+  makeover? Using a chest in your bedroom decor might be the perfect solution. Not
+  onl
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-chest-in-bedroom-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-chest-in-bedroom-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking for a simple way to refresh your bedroom without a complete makeover? Using a chest in your bedroom decor might be the perfect solution.**

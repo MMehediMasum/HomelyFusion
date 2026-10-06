@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Azan Clock for Home: Top Digital Prayer Clocks for Muslims"
 description: "Choosing the best Azan clock for your home helps you stay on time for prayers easily. These clocks show accurate prayer times and play Azan sounds clearly. Azan"
 pubDate: 2025-10-09

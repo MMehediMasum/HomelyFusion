@@ -1,10 +1,15 @@
 ---
-title: "Floor And Decor Travertine Tile Cleaning Tips for a Spotless Natural Stone Floor"
-description: "Travertine tiles offer a timeless elegance for any home or office space. Floor and Decor provides a wide variety of options. Travertine tiles are known for thei"
+title: Floor And Decor Travertine Tile Cleaning Tips for a Spotless Natural Stone
+  Floor
+description: Travertine tiles offer a timeless elegance for any home or office space.
+  Floor and Decor provides a wide variety of options. Travertine tiles are known for
+  thei
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-travertine-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-travertine-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Travertine tiles offer a timeless elegance for any home or office space. Floor and Decor provides a wide variety of options.**

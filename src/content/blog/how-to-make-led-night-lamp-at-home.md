@@ -1,10 +1,14 @@
 ---
-title: "How to Make Led Night Lamp at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted a cozy night lamp that lights up your room just the way you like? Making your own LED night lamp at home is easier than you think. Not only"
+title: 'How to Make Led Night Lamp at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted a cozy night lamp that lights up your room just
+  the way you like? Making your own LED night lamp at home is easier than you think.
+  Not only
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-led-night-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-led-night-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted a cozy night lamp that lights up your room just the way you like? Making your own LED night lamp at home is easier than you think.**

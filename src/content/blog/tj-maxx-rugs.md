@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Rugs: Stylish, Washable, and Non-Slip Area Rugs for Every Room"
-description: "Tj Maxx offers a wide range of stylish and affordable rugs for any room. Their collection includes washable, non-slip, and soft area rugs. Tj Maxx rugs blend be"
+title: 'Tj Maxx Rugs: Stylish, Washable, and Non-Slip Area Rugs for Every Room'
+description: Tj Maxx offers a wide range of stylish and affordable rugs for any room.
+  Their collection includes washable, non-slip, and soft area rugs. Tj Maxx rugs blend
+  be
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx offers a wide range of stylish and affordable rugs for any room. Their collection includes washable, non-slip, and soft area rugs.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Mirror in Bedroom for Best Lighting: Expert Tips"
-description: "Have you ever wondered why your bedroom feels dull, even with the lights on? The secret might be right on your wall—a mirror. But not just any mirror, and not j"
+title: 'Where to Put Mirror in Bedroom for Best Lighting: Expert Tips'
+description: Have you ever wondered why your bedroom feels dull, even with the lights
+  on? The secret might be right on your wall—a mirror. But not just any mirror, and
+  not j
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-mirror-in-bedroom-for-best-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-mirror-in-bedroom-for-best-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered why your bedroom feels dull, even with the lights on? The secret might be right on your wall—a mirror.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rocking Chair: Ultimate Comfort for Nursery and Living Room"
-description: "Home goods rocking chairs blend comfort and style perfectly for any room. These chairs offer gentle rocking motion to help you relax and unwind. A rocking chair"
+title: 'Home Goods Rocking Chair: Ultimate Comfort for Nursery and Living Room'
+description: Home goods rocking chairs blend comfort and style perfectly for any room.
+  These chairs offer gentle rocking motion to help you relax and unwind. A rocking
+  chair
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rocking-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rocking-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home goods rocking chairs blend comfort and style perfectly for any room. These chairs offer gentle rocking motion to help you relax and unwind.**

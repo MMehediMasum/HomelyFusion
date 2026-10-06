@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Sangria Recipe Easy: Festive, Refreshing, Crowd-Pleaser!"
 description: "Looking for a festive drink that’s both simple and delicious? Your search ends here with this easy holiday sangria recipe. Imagine sipping a vibrant, fruity coc"
 pubDate: 2026-01-03

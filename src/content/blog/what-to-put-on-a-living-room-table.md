@@ -1,10 +1,14 @@
 ---
-title: "What to Put on a Living Room Table: Stylish Ideas to Impress Guests"
-description: "Your living room table is more than just a piece of furniture—it’s the heart of your space. But what should you put on it to make your room feel inviting, styli"
+title: 'What to Put on a Living Room Table: Stylish Ideas to Impress Guests'
+description: Your living room table is more than just a piece of furniture—it’s the
+  heart of your space. But what should you put on it to make your room feel inviting,
+  styli
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the heart of your space. But what should you put on it to make your room feel inviting, stylish, and truly yours?**

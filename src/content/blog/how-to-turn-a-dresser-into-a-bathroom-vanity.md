@@ -1,10 +1,14 @@
 ---
-title: "How to Turn a Dresser into a Bathroom Vanity: Easy DIY Guide"
-description: "Are you tired of boring, expensive bathroom vanities that don’t match your style? What if you could create a unique, stunning vanity using something you already"
+title: 'How to Turn a Dresser into a Bathroom Vanity: Easy DIY Guide'
+description: Are you tired of boring, expensive bathroom vanities that don’t match
+  your style? What if you could create a unique, stunning vanity using something you
+  already
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-a-dresser-into-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-a-dresser-into-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of boring, expensive bathroom vanities that don’t match your style? What if you could create a unique, stunning vanity using something you already own—a dresser?**

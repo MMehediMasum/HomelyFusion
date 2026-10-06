@@ -1,10 +1,14 @@
 ---
-title: "Best Color Rug for Grey Couch: Top Neutral and Soft Rug Picks"
-description: "Choosing the best color rug for a grey couch can change your room’s look completely. A well-matched rug adds warmth, style, and comfort to your space. Grey couc"
+title: 'Best Color Rug for Grey Couch: Top Neutral and Soft Rug Picks'
+description: Choosing the best color rug for a grey couch can change your room’s look
+  completely. A well-matched rug adds warmth, style, and comfort to your space. Grey
+  couc
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-rug-for-grey-couch-top-neutral-and-soft-rug-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-color-rug-for-grey-couch-top-neutral-and-soft-rug-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best color rug for a grey couch can change your room’s look completely. A well-matched rug adds warmth, style, and comfort to your space.**

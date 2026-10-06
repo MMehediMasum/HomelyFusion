@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Outdoor Lighting Fixtures for Your Home: Expert Tips"
-description: "Choosing the right outdoor lighting fixtures for your home can transform your space in ways you might not expect. Imagine stepping outside to a warm, inviting g"
+title: 'How to Choose Outdoor Lighting Fixtures for Your Home: Expert Tips'
+description: Choosing the right outdoor lighting fixtures for your home can transform
+  your space in ways you might not expect. Imagine stepping outside to a warm, inviting
+  g
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-outdoor-lighting-fixtures-for-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-outdoor-lighting-fixtures-for-your-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right outdoor lighting fixtures for your home can transform your space in ways you might not expect. Imagine stepping outside to a warm, inviting glow that highlights your garden, lights your pathway, and makes your home feel safer.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Remove Cotton Bud Stuck in Ear at Home: Easy Safe Tips"
 description: "Have you ever pushed a cotton bud too far and felt it get stuck in your ear? It’s a scary and uncomfortable situation that can happen to anyone. You might feel "
 pubDate: 2026-03-20

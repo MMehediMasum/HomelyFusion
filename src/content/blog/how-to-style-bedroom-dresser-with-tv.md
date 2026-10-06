@@ -1,10 +1,14 @@
 ---
-title: "How to Style Bedroom Dresser With Tv: Chic & Functional Ideas"
-description: "Your bedroom dresser can be more than just a place to store clothes—it can become a stylish focal point, especially when paired with your TV. But how do you mak"
+title: 'How to Style Bedroom Dresser With Tv: Chic & Functional Ideas'
+description: Your bedroom dresser can be more than just a place to store clothes—it
+  can become a stylish focal point, especially when paired with your TV. But how do
+  you mak
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-bedroom-dresser-with-tv&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-bedroom-dresser-with-tv&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser can be more than just a place to store clothes—it can become a stylish focal point, especially when paired with your TV. But how do you make sure your dresser and TV work together without cluttering your space or losing that cozy bedroom vibe?**

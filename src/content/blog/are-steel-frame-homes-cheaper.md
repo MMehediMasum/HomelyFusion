@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Steel Frame Homes Cheaper: Unveiling True Cost Savings"
 description: "Are you thinking about building a new home but worried about the costs? You’ve probably heard about steel frame homes and wondered if they could save you money."
 pubDate: 2026-02-27

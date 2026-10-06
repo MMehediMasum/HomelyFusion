@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Xbox One for Home: Ultimate Step-by-Step Guide"
 description: "Setting up your Xbox One at home doesn’t have to be confusing or time-consuming. Whether you’re a first-time user or upgrading your gaming space, this guide wil"
 pubDate: 2026-04-29

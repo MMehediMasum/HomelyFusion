@@ -1,10 +1,13 @@
 ---
-title: "Best Rugs for Pet Owners: Durable, Washable, and Pet-Friendly Picks"
-description: "Choosing the right rug makes life easier for pet owners. Durable, easy-to-clean rugs protect floors and handle pet messes well. Pets can leave hair, stains, and"
+title: 'Best Rugs for Pet Owners: Durable, Washable, and Pet-Friendly Picks'
+description: Choosing the right rug makes life easier for pet owners. Durable, easy-to-clean
+  rugs protect floors and handle pet messes well. Pets can leave hair, stains, and
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-pet-owners-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-pet-owners-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug makes life easier for pet owners. Durable, easy-to-clean rugs protect floors and handle pet messes well.**

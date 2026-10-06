@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Spiced Hot Chocolate Recipe: Cozy, Delicious & Easy"
 description: "Imagine wrapping your hands around a warm mug filled with rich, creamy hot chocolate that’s bursting with holiday spices. This isn’t just any hot drink—it’s the"
 pubDate: 2025-10-23

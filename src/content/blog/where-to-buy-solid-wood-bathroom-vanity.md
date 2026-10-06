@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Solid Wood Bathroom Vanity: Top Trusted Stores Revealed"
-description: "Looking for the perfect solid wood bathroom vanity can feel overwhelming. You want something sturdy, stylish, and built to last, but where do you start? If you’"
+title: 'Where to Buy Solid Wood Bathroom Vanity: Top Trusted Stores Revealed'
+description: Looking for the perfect solid wood bathroom vanity can feel overwhelming.
+  You want something sturdy, stylish, and built to last, but where do you start? If
+  you’
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-solid-wood-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-solid-wood-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for the perfect solid wood bathroom vanity can feel overwhelming. You want something sturdy, stylish, and built to last, but where do you start?**

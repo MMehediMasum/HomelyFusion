@@ -1,10 +1,14 @@
 ---
-title: "Flooring Stores: Top Peel & Stick Tiles and Foam Mats for Every Room"
-description: "Flooring stores offer a vast selection of materials to fit your style and budget. From foam mats to vinyl tiles, these stores cater to diverse preferences and n"
+title: 'Flooring Stores: Top Peel & Stick Tiles and Foam Mats for Every Room'
+description: Flooring stores offer a vast selection of materials to fit your style
+  and budget. From foam mats to vinyl tiles, these stores cater to diverse preferences
+  and n
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring stores offer a vast selection of materials to fit your style and budget. From foam mats to vinyl tiles, these stores cater to diverse preferences and needs.**

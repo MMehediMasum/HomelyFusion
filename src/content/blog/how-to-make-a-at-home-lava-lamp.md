@@ -1,10 +1,14 @@
 ---
-title: "How to Make a at Home Lava Lamp: Easy DIY Science Fun"
-description: "Have you ever wanted a cool, colorful lava lamp but didn’t want to spend a lot of money? What if you could make one yourself right at home, using simple ingredi"
+title: 'How to Make a at Home Lava Lamp: Easy DIY Science Fun'
+description: Have you ever wanted a cool, colorful lava lamp but didn’t want to spend
+  a lot of money? What if you could make one yourself right at home, using simple
+  ingredi
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-at-home-lava-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lava Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-at-home-lava-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted a cool, colorful lava lamp but didn’t want to spend a lot of money? What if you could make one yourself right at home, using simple ingredients you probably already have?**

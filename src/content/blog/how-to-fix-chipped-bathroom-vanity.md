@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Chipped Bathroom Vanity: Easy Steps for a Flawless Repair"
-description: "Have you noticed a chip on your bathroom vanity that’s ruining its look? It’s frustrating to see your beautiful space marred by a small but obvious flaw. The go"
+title: 'How to Fix Chipped Bathroom Vanity: Easy Steps for a Flawless Repair'
+description: Have you noticed a chip on your bathroom vanity that’s ruining its look?
+  It’s frustrating to see your beautiful space marred by a small but obvious flaw.
+  The go
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-chipped-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-chipped-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you noticed a chip on your bathroom vanity that’s ruining its look? It’s frustrating to see your beautiful space marred by a small but obvious flaw.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Canopy Bed: Stunning Ideas to Transform Your Space"
-description: "Your canopy bed holds endless potential to transform your bedroom into a cozy, stylish retreat. But how do you decorate it in a way that feels just right for yo"
+title: 'How to Decorate a Canopy Bed: Stunning Ideas to Transform Your Space'
+description: Your canopy bed holds endless potential to transform your bedroom into
+  a cozy, stylish retreat. But how do you decorate it in a way that feels just right
+  for yo
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-canopy-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-canopy-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your canopy bed holds endless potential to transform your bedroom into a cozy, stylish retreat. But how do you decorate it in a way that feels just right for you?**

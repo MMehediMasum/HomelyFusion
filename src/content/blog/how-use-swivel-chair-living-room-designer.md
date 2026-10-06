@@ -1,10 +1,14 @@
 ---
-title: "How Use Swivel Chair Living Room Designer: Ultimate Style Tips"
-description: "Are you looking to add style and comfort to your living room? A swivel chair could be the perfect solution. It’s not just a chair—it’s a versatile piece that ca"
+title: 'How Use Swivel Chair Living Room Designer: Ultimate Style Tips'
+description: Are you looking to add style and comfort to your living room? A swivel
+  chair could be the perfect solution. It’s not just a chair—it’s a versatile piece
+  that ca
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-use-swivel-chair-living-room-designer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-use-swivel-chair-living-room-designer&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add style and comfort to your living room? A swivel chair could be the perfect solution.**

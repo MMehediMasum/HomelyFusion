@@ -1,10 +1,13 @@
 ---
-title: "Best Size Rug for Under Queen Bed: Top Picks for Cozy Bedrooms"
-description: "Choosing the best size rug for under a queen bed can transform your bedroom’s look and feel. The right rug adds comfort, style, and balance to your space. A que"
+title: 'Best Size Rug for Under Queen Bed: Top Picks for Cozy Bedrooms'
+description: Choosing the best size rug for under a queen bed can transform your bedroom’s
+  look and feel. The right rug adds comfort, style, and balance to your space. A que
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-under-queen-bed-top-picks-for-cozy-bedrooms&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-under-queen-bed-top-picks-for-cozy-bedrooms&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for under a queen bed can transform your bedroom’s look and feel. The right rug adds comfort, style, and balance to your space.**

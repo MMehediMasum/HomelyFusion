@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Canvas Art on Wall: Easy Steps for Perfect Display"
-description: "Are you ready to transform your space with beautiful canvas art but unsure how to hang it perfectly? You’re not alone. Hanging canvas art might seem simple, but"
+title: 'How to Hang Canvas Art on Wall: Easy Steps for Perfect Display'
+description: Are you ready to transform your space with beautiful canvas art but unsure
+  how to hang it perfectly? You’re not alone. Hanging canvas art might seem simple,
+  but
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-canvas-art-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-canvas-art-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with beautiful canvas art but unsure how to hang it perfectly? You’re not alone.**

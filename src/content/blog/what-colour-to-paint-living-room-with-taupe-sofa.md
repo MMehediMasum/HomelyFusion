@@ -1,10 +1,13 @@
 ---
-title: "What Colour to Paint Living Room With Taupe Sofa: Stunning Ideas"
-description: "Choosing the perfect wall color to match your taupe sofa can feel tricky. You want your living room to look cozy, stylish, and balanced—but where do you start? "
+title: 'What Colour to Paint Living Room With Taupe Sofa: Stunning Ideas'
+description: 'Choosing the perfect wall color to match your taupe sofa can feel tricky.
+  You want your living room to look cozy, stylish, and balanced—but where do you start? '
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-to-paint-living-room-with-taupe-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-to-paint-living-room-with-taupe-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect wall color to match your taupe sofa can feel tricky. You want your living room to look cozy, stylish, and balanced—but where do you start?**

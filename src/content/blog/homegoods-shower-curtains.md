@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Shower Curtains: Stylish, Waterproof, and Durable Bathroom Essentials"
-description: "Homegoods shower curtains offer practical and stylish solutions for your bathroom. These curtains combine durability with easy maintenance and attractive design"
+title: 'Homegoods Shower Curtains: Stylish, Waterproof, and Durable Bathroom Essentials'
+description: Homegoods shower curtains offer practical and stylish solutions for your
+  bathroom. These curtains combine durability with easy maintenance and attractive
+  design
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-shower-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-shower-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Homegoods shower curtains offer practical and stylish solutions for your bathroom. These curtains combine durability with easy maintenance and attractive designs.**

@@ -1,10 +1,14 @@
 ---
-title: "Fruit Stools Home Goods: Fun and Functional Seating for Every Room"
-description: "Fruit stools bring fun and function to any home space. These colorful, food-shaped seats add charm and extra storage. Fruit stools home goods combine playful de"
+title: 'Fruit Stools Home Goods: Fun and Functional Seating for Every Room'
+description: Fruit stools bring fun and function to any home space. These colorful,
+  food-shaped seats add charm and extra storage. Fruit stools home goods combine playful
+  de
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fruit-stools-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=fruit-stools-home-goods&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Fruit stools bring fun and function to any home space. These colorful, food-shaped seats add charm and extra storage.**

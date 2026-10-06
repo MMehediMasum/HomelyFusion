@@ -1,10 +1,14 @@
 ---
-title: "Can Mirror Face Bedroom Door: Stunning Tips for Feng Shui Harmony"
-description: "Have you ever wondered if placing a mirror on your bedroom door is a good idea? You might be curious about how it affects your space, your energy, or even your "
+title: 'Can Mirror Face Bedroom Door: Stunning Tips for Feng Shui Harmony'
+description: 'Have you ever wondered if placing a mirror on your bedroom door is a
+  good idea? You might be curious about how it affects your space, your energy, or
+  even your '
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-mirror-face-bedroom-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-mirror-face-bedroom-door&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if placing a mirror on your bedroom door is a good idea? You might be curious about how it affects your space, your energy, or even your sleep.**

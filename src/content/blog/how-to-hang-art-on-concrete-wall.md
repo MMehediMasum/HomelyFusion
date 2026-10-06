@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Art on Concrete Wall: Easy Tips for Perfect Display"
-description: "Hanging art on a concrete wall can feel tricky, but it doesn’t have to be. You want your favorite pieces to shine, but the hard surface might make you hesitate."
+title: 'How to Hang Art on Concrete Wall: Easy Tips for Perfect Display'
+description: Hanging art on a concrete wall can feel tricky, but it doesn’t have to
+  be. You want your favorite pieces to shine, but the hard surface might make you
+  hesitate.
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-art-on-concrete-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-art-on-concrete-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging art on a concrete wall can feel tricky, but it doesn’t have to be. You want your favorite pieces to shine, but the hard surface might make you hesitate.**

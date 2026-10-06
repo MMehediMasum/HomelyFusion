@@ -1,10 +1,14 @@
 ---
-title: "Can Two Queen Beds Fit in Bedroom: Space-Saving Tips Revealed"
-description: "Are you wondering if two queen beds can fit comfortably in your bedroom? You’re not alone. Many people face this challenge when trying to accommodate family, gu"
+title: 'Can Two Queen Beds Fit in Bedroom: Space-Saving Tips Revealed'
+description: Are you wondering if two queen beds can fit comfortably in your bedroom?
+  You’re not alone. Many people face this challenge when trying to accommodate family,
+  gu
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-two-queen-beds-fit-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=can-two-queen-beds-fit-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if two queen beds can fit comfortably in your bedroom? You’re not alone.**

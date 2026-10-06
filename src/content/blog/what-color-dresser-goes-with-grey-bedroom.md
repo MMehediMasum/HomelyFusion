@@ -1,10 +1,14 @@
 ---
-title: "What Color Dresser Goes With Grey Bedroom: Stunning Style Ideas"
-description: "Choosing the right dresser color for your grey bedroom can transform the entire space. You want your room to feel balanced, stylish, and inviting. But with so m"
+title: 'What Color Dresser Goes With Grey Bedroom: Stunning Style Ideas'
+description: Choosing the right dresser color for your grey bedroom can transform
+  the entire space. You want your room to feel balanced, stylish, and inviting. But
+  with so m
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-dresser-goes-with-grey-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-color-dresser-goes-with-grey-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right dresser color for your grey bedroom can transform the entire space. You want your room to feel balanced, stylish, and inviting.**

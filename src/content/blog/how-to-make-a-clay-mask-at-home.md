@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Clay Mask at Home: Easy DIY Skin Glow Guide"
 description: "Are you ready to give your skin a fresh, natural boost without spending a fortune? Making a clay mask at home is easier than you think. With just a few simple i"
 pubDate: 2026-03-06

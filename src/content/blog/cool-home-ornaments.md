@@ -1,10 +1,14 @@
 ---
-title: "Cool Home Ornaments: Elegant Gold Bird Statues to Brighten Any Room"
-description: "Cool home ornaments add charm and personality to any space. They create a warm, inviting atmosphere with unique style. Decorative items like small bird statues,"
+title: 'Cool Home Ornaments: Elegant Gold Bird Statues to Brighten Any Room'
+description: Cool home ornaments add charm and personality to any space. They create
+  a warm, inviting atmosphere with unique style. Decorative items like small bird
+  statues,
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-home-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=cool-home-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cool home ornaments add charm and personality to any space. They create a warm, inviting atmosphere with unique style.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Chalkboard Sign Decor: Cozy Ideas to Elevate Your Space"
-description: "Are you ready to bring warm, cozy charm into your home this season? Fall rustic chalkboard sign decor is the perfect way to add that personal, inviting touch to"
+title: 'Fall Rustic Chalkboard Sign Decor: Cozy Ideas to Elevate Your Space'
+description: Are you ready to bring warm, cozy charm into your home this season? Fall
+  rustic chalkboard sign decor is the perfect way to add that personal, inviting touch
+  to
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-chalkboard-sign-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-chalkboard-sign-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring warm, cozy charm into your home this season? Fall rustic chalkboard sign decor is the perfect way to add that personal, inviting touch to your space.**

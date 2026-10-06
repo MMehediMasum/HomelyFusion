@@ -1,10 +1,14 @@
 ---
-title: "Floating Bathroom Vanity Ideas: Stunning Designs to Transform Your Space"
-description: "Are you looking to give your bathroom a fresh, modern look without a full renovation? Floating bathroom vanities might be exactly what you need. They create a s"
+title: 'Floating Bathroom Vanity Ideas: Stunning Designs to Transform Your Space'
+description: Are you looking to give your bathroom a fresh, modern look without a
+  full renovation? Floating bathroom vanities might be exactly what you need. They
+  create a s
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=floating-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floating-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bathroom a fresh, modern look without a full renovation? Floating bathroom vanities might be exactly what you need.**

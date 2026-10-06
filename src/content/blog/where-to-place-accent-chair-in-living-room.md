@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Accent Chair in Living Room: Expert Placement Tips"
-description: "Are you wondering where to place an accent chair in your living room to make the space look inviting and stylish? The right spot can transform your room, adding"
+title: 'Where to Place Accent Chair in Living Room: Expert Placement Tips'
+description: Are you wondering where to place an accent chair in your living room
+  to make the space look inviting and stylish? The right spot can transform your room,
+  adding
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-accent-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-accent-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to place an accent chair in your living room to make the space look inviting and stylish? The right spot can transform your room, adding comfort and a splash of personality.**

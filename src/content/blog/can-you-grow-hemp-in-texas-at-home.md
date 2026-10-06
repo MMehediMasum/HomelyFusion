@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Grow Hemp in Texas at Home: Essential Tips & Legal Guide"
 description: "Have you ever wondered if you can grow hemp right in your own backyard in Texas? Whether you're curious about starting a small garden or exploring hemp for its "
 pubDate: 2026-03-22

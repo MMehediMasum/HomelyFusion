@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Prepare Bedroom for Bed Bug Treatment: Ultimate Guide"
 description: "Are you worried about bed bugs invading your bedroom? Preparing your space properly before treatment can make all the difference in getting rid of these pests f"
 pubDate: 2026-05-10

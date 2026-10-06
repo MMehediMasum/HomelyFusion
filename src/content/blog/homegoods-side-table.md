@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Side Table Ideas: Stylish, Functional Picks for Small Spaces"
-description: "Homegoods side tables blend style and function in small spaces. These tables fit perfectly in living rooms, bedrooms, and offices. A side table adds convenience"
+title: 'Homegoods Side Table Ideas: Stylish, Functional Picks for Small Spaces'
+description: Homegoods side tables blend style and function in small spaces. These
+  tables fit perfectly in living rooms, bedrooms, and offices. A side table adds convenience
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-side-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-side-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods side tables blend style and function in small spaces. These tables fit perfectly in living rooms, bedrooms, and offices.**

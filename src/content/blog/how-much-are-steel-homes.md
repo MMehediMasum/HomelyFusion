@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much are Steel Homes: Affordable, Durable, and Worth It?"
 description: "Are you thinking about building a steel home but wondering how much it will cost? Understanding the price of steel homes can help you make smart decisions for y"
 pubDate: 2026-04-06

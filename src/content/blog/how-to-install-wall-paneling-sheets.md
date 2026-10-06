@@ -1,10 +1,14 @@
 ---
-title: "How to Install Wall Paneling Sheets: Easy Steps for a Stunning Makeover"
-description: "Are you ready to transform your space with a fresh, stylish look? Installing wall paneling sheets is a simple way to add texture, warmth, and character to any r"
+title: 'How to Install Wall Paneling Sheets: Easy Steps for a Stunning Makeover'
+description: Are you ready to transform your space with a fresh, stylish look? Installing
+  wall paneling sheets is a simple way to add texture, warmth, and character to any
+  r
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-paneling-sheets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-paneling-sheets&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a fresh, stylish look? Installing wall paneling sheets is a simple way to add texture, warmth, and character to any room.**

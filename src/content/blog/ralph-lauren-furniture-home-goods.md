@@ -1,10 +1,15 @@
 ---
-title: "Ralph Lauren Furniture Home Goods: Elegant Farmhouse Nightstands & Cozy Accent Chairs"
-description: "Ralph Lauren furniture home goods offer a blend of style and functionality. Their products enhance any living space with elegance and comfort. Explore a range o"
+title: 'Ralph Lauren Furniture Home Goods: Elegant Farmhouse Nightstands & Cozy Accent
+  Chairs'
+description: Ralph Lauren furniture home goods offer a blend of style and functionality.
+  Their products enhance any living space with elegance and comfort. Explore a range
+  o
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-furniture-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-furniture-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ralph Lauren furniture home goods offer a blend of style and functionality. Their products enhance any living space with elegance and comfort.**

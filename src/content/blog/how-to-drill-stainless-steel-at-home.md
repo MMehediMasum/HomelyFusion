@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Drill Stainless Steel at Home: Easy Steps for Perfect Holes"
 description: "Drilling stainless steel at home might sound tricky, but with the right approach, you can do it safely and effectively. If you’ve ever struggled with stubborn m"
 pubDate: 2026-02-27

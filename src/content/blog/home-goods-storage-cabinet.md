@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Storage Cabinet Ideas for Organized Kitchen and Garage Spaces"
-description: "A home goods storage cabinet helps keep your space neat and items easy to find. It offers practical storage for various rooms and needs. Choosing the right stor"
+title: Home Goods Storage Cabinet Ideas for Organized Kitchen and Garage Spaces
+description: A home goods storage cabinet helps keep your space neat and items easy
+  to find. It offers practical storage for various rooms and needs. Choosing the right
+  stor
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-storage-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-storage-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A home goods storage cabinet helps keep your space neat and items easy to find. It offers practical storage for various rooms and needs.**

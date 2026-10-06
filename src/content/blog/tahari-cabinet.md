@@ -1,10 +1,14 @@
 ---
-title: "Tahari Cabinet: Stylish Storage Solutions for Every Room in Your Home"
-description: "Tahari cabinets offer a versatile and stylish solution for home storage needs. These cabinets suit various rooms and purposes. Tahari cabinets bring elegance an"
+title: 'Tahari Cabinet: Stylish Storage Solutions for Every Room in Your Home'
+description: Tahari cabinets offer a versatile and stylish solution for home storage
+  needs. These cabinets suit various rooms and purposes. Tahari cabinets bring elegance
+  an
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=tahari-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Tahari cabinets offer a versatile and stylish solution for home storage needs. These cabinets suit various rooms and purposes.**

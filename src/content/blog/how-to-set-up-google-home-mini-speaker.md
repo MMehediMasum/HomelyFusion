@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home Mini Speaker: Easy Steps for Instant Use"
 description: "Setting up your Google Home Mini speaker is easier than you might think. Imagine having a smart assistant ready to play your favorite music, answer questions, a"
 pubDate: 2026-04-29

@@ -1,10 +1,14 @@
 ---
-title: "Funky Home Accessories to Brighten Your Space with Unique Style"
-description: "Funky home accessories add flair and personality to any space. They blend style with function, making everyday life more enjoyable. From quirky ashtrays to retr"
+title: Funky Home Accessories to Brighten Your Space with Unique Style
+description: Funky home accessories add flair and personality to any space. They blend
+  style with function, making everyday life more enjoyable. From quirky ashtrays to
+  retr
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=funky-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=funky-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Funky home accessories add flair and personality to any space. They blend style with function, making everyday life more enjoyable.**

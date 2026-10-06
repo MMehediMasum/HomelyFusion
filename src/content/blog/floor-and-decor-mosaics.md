@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Mosaics: Stylish Peel and Stick Tiles for Modern Spaces"
-description: "Floor and Decor mosaics offer a stylish and practical solution for enhancing any space. From kitchens to bathrooms, these versatile tiles transform surfaces wit"
+title: 'Floor And Decor Mosaics: Stylish Peel and Stick Tiles for Modern Spaces'
+description: Floor and Decor mosaics offer a stylish and practical solution for enhancing
+  any space. From kitchens to bathrooms, these versatile tiles transform surfaces
+  wit
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-mosaics&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-mosaics&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor mosaics offer a stylish and practical solution for enhancing any space. From kitchens to bathrooms, these versatile tiles transform surfaces with ease.**

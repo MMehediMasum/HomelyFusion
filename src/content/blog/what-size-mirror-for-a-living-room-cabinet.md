@@ -1,10 +1,14 @@
 ---
-title: "What Size Mirror for a Living Room Cabinet: Expert Size Guide"
-description: "Choosing the right size mirror for your living room cabinet can completely change the look and feel of your space. You might be wondering how big is too big or "
+title: 'What Size Mirror for a Living Room Cabinet: Expert Size Guide'
+description: 'Choosing the right size mirror for your living room cabinet can completely
+  change the look and feel of your space. You might be wondering how big is too big
+  or '
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-mirror-for-a-living-room-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-size-mirror-for-a-living-room-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Choosing the right size mirror for your living room cabinet can completely change the look and feel of your space. You might be wondering how big is too big or too small.**

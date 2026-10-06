@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above a Sofa: Stunning Ideas to Transform Your Space"
-description: "Your sofa is the heart of your living room, but the space above it often gets overlooked. How you decorate this area can completely change the feel of your room"
+title: 'How to Decorate above a Sofa: Stunning Ideas to Transform Your Space'
+description: Your sofa is the heart of your living room, but the space above it often
+  gets overlooked. How you decorate this area can completely change the feel of your
+  room
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-a-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-a-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your sofa is the heart of your living room, but the space above it often gets overlooked. How you decorate this area can completely change the feel of your room—making it cozy, stylish, or full of personality.**

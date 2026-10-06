@@ -1,10 +1,14 @@
 ---
-title: "Max Studio Home Throw Blanket: Ultra Soft, Cozy, and Stylish for Any Room"
-description: "The Max Studio Home Throw Blanket offers cozy warmth and stylish comfort. It fits perfectly on couches, beds, or chairs. This throw blanket combines softness an"
+title: 'Max Studio Home Throw Blanket: Ultra Soft, Cozy, and Stylish for Any Room'
+description: The Max Studio Home Throw Blanket offers cozy warmth and stylish comfort.
+  It fits perfectly on couches, beds, or chairs. This throw blanket combines softness
+  an
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=max-studio-home-throw-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=max-studio-home-throw-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Max Studio Home Throw Blanket offers cozy warmth and stylish comfort. It fits perfectly on couches, beds, or chairs.**

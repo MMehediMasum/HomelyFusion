@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bar Cabinet: Stylish Storage and LED-Lit Liquor Display Ideas"
-description: "A well-chosen bar cabinet can transform any space into a stylish and functional home bar. Explore versatile options that cater to your needs and elevate your li"
+title: 'Home Goods Bar Cabinet: Stylish Storage and LED-Lit Liquor Display Ideas'
+description: A well-chosen bar cabinet can transform any space into a stylish and
+  functional home bar. Explore versatile options that cater to your needs and elevate
+  your li
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bar-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bar-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A well-chosen bar cabinet can transform any space into a stylish and functional home bar. Explore versatile options that cater to your needs and elevate your living area.**

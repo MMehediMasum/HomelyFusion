@@ -1,10 +1,14 @@
 ---
-title: "Better Homes And Gardens Decorative Pillows for Stylish Farmhouse Living Room"
-description: "Decorative pillows can transform a space effortlessly. Better Homes and Gardens offers a range of stylish options for every decor. Decorative pillows are an eas"
+title: Better Homes And Gardens Decorative Pillows for Stylish Farmhouse Living Room
+description: Decorative pillows can transform a space effortlessly. Better Homes and
+  Gardens offers a range of stylish options for every decor. Decorative pillows are
+  an eas
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=better-homes-and-gardens-decorative-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=better-homes-and-gardens-decorative-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative pillows can transform a space effortlessly. Better Homes and Gardens offers a range of stylish options for every decor.**

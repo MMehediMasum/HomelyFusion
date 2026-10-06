@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bedroom Storage Bench: Easy DIY Ideas for Stylish Space"
-description: "Are you tired of clutter taking over your bedroom? Imagine having a stylish spot that not only adds charm but also hides away your extra blankets, pillows, or s"
+title: 'How to Make Bedroom Storage Bench: Easy DIY Ideas for Stylish Space'
+description: Are you tired of clutter taking over your bedroom? Imagine having a stylish
+  spot that not only adds charm but also hides away your extra blankets, pillows,
+  or s
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bedroom-storage-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bedroom-storage-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of clutter taking over your bedroom? Imagine having a stylish spot that not only adds charm but also hides away your extra blankets, pillows, or shoes.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut a Steel Pipe at Home: Easy Steps for Perfect Cuts"
 description: "Cutting a steel pipe at home might sound tricky, but it doesn’t have to be. Whether you’re fixing something around the house or starting a new project, knowing "
 pubDate: 2026-03-07

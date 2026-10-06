@@ -1,10 +1,14 @@
 ---
-title: "Do You Need End Tables in a Living Room? Essential Style Tips"
-description: "Have you ever wondered if your living room is truly complete? Sometimes, it’s the small pieces that make the biggest difference. End tables might seem simple, b"
+title: Do You Need End Tables in a Living Room? Essential Style Tips
+description: Have you ever wondered if your living room is truly complete? Sometimes,
+  it’s the small pieces that make the biggest difference. End tables might seem simple,
+  b
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-end-tables-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-end-tables-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room is truly complete? Sometimes, it’s the small pieces that make the biggest difference.**

@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Entryway Table: Stylish Storage Solutions for Your Foyer"
-description: "A Homegoods entryway table adds style and function to your home's entrance. It offers storage and a place to display decor. Entryway tables from Homegoods come "
+title: 'Homegoods Entryway Table: Stylish Storage Solutions for Your Foyer'
+description: 'A Homegoods entryway table adds style and function to your home''s entrance.
+  It offers storage and a place to display decor. Entryway tables from Homegoods come '
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-entryway-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-entryway-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A Homegoods entryway table adds style and function to your home's entrance. It offers storage and a place to display decor.**

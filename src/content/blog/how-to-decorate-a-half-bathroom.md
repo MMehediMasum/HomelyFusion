@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Half Bathroom: Stylish Ideas for Small Spaces"
-description: "Your half bathroom may be small, but it holds big potential. Decorating it the right way can turn it into a stylish and inviting space that impresses every gues"
+title: 'How to Decorate a Half Bathroom: Stylish Ideas for Small Spaces'
+description: Your half bathroom may be small, but it holds big potential. Decorating
+  it the right way can turn it into a stylish and inviting space that impresses every
+  gues
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your half bathroom may be small, but it holds big potential. Decorating it the right way can turn it into a stylish and inviting space that impresses every guest.**

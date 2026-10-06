@@ -1,10 +1,14 @@
 ---
-title: "A Table in the Living Room: Stylish Ideas to Transform Your Space"
-description: "Have you ever noticed how a simple table in the living room can change the whole feel of your space? It’s more than just a piece of furniture—it’s where memorie"
+title: 'A Table in the Living Room: Stylish Ideas to Transform Your Space'
+description: Have you ever noticed how a simple table in the living room can change
+  the whole feel of your space? It’s more than just a piece of furniture—it’s where
+  memorie
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-table-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=a-table-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever noticed how a simple table in the living room can change the whole feel of your space? It’s more than just a piece of furniture—it’s where memories are made, conversations flow, and your personality shines through.**

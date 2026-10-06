@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Spring Steel at Home: Easy DIY Guide for Beginners"
 description: "Are you curious about how to make spring steel at home? Imagine creating a strong, flexible metal that can bend without breaking—perfect for tools, knives, or e"
 pubDate: 2026-02-22

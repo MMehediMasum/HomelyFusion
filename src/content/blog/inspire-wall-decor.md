@@ -1,10 +1,13 @@
 ---
-title: "Inspire Wall Decor: Transform Your Space with Motivational Art Pieces"
-description: "Inspire Wall Decor transforms spaces into motivating environments. Discover decor pieces that uplift and energize your home or office. Wall decor can significan"
+title: 'Inspire Wall Decor: Transform Your Space with Motivational Art Pieces'
+description: Inspire Wall Decor transforms spaces into motivating environments. Discover
+  decor pieces that uplift and energize your home or office. Wall decor can significan
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=inspire-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=inspire-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Inspire Wall Decor transforms spaces into motivating environments. Discover decor pieces that uplift and energize your home or office.**

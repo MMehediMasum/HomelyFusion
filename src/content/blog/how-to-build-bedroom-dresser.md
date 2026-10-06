@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bedroom Dresser: Step-by-Step Guide for Beginners"
-description: "Are you tired of searching for the perfect bedroom dresser that fits your style and space? What if you could build one yourself, tailored exactly to your needs?"
+title: 'How to Build Bedroom Dresser: Step-by-Step Guide for Beginners'
+description: Are you tired of searching for the perfect bedroom dresser that fits
+  your style and space? What if you could build one yourself, tailored exactly to
+  your needs?
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of searching for the perfect bedroom dresser that fits your style and space? What if you could build one yourself, tailored exactly to your needs?**

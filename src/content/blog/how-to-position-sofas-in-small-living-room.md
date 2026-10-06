@@ -1,10 +1,14 @@
 ---
-title: "How to Position Sofas in Small Living Room: Expert Space-Saving Tips"
-description: "Struggling to fit a sofa into your small living room without making it feel cramped? You’re not alone. Finding the perfect spot for your sofa can transform your"
+title: 'How to Position Sofas in Small Living Room: Expert Space-Saving Tips'
+description: Struggling to fit a sofa into your small living room without making it
+  feel cramped? You’re not alone. Finding the perfect spot for your sofa can transform
+  your
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-position-sofas-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-position-sofas-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit a sofa into your small living room without making it feel cramped? You’re not alone.**

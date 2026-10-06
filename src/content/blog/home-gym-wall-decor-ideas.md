@@ -1,10 +1,15 @@
 ---
-title: "Home Gym Wall Decor Ideas: Stylish Mirrors, Motivational Art & Functional Storage"
-description: "Transform your home gym with stylish and practical wall decor ideas. These items blend function and motivation to create a great workout space. Adding mirrors l"
+title: 'Home Gym Wall Decor Ideas: Stylish Mirrors, Motivational Art & Functional
+  Storage'
+description: Transform your home gym with stylish and practical wall decor ideas.
+  These items blend function and motivation to create a great workout space. Adding
+  mirrors l
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-gym-wall-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-gym-wall-decor-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home gym with stylish and practical wall decor ideas. These items blend function and motivation to create a great workout space.**

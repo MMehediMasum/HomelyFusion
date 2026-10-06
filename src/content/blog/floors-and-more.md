@@ -1,10 +1,14 @@
 ---
-title: "Floors And More: Top Interlocking and Peel Stick Floor Tiles Guide"
-description: "Floors And More offers a variety of easy-to-install flooring solutions for every space. From foam mats to peel-and-stick vinyl tiles, find what fits your style "
+title: 'Floors And More: Top Interlocking and Peel Stick Floor Tiles Guide'
+description: 'Floors And More offers a variety of easy-to-install flooring solutions
+  for every space. From foam mats to peel-and-stick vinyl tiles, find what fits your
+  style '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floors-and-more&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=floors-and-more&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Floors And More offers a variety of easy-to-install flooring solutions for every space. From foam mats to peel-and-stick vinyl tiles, find what fits your style and needs.**

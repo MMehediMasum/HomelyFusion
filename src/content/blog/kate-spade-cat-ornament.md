@@ -1,10 +1,14 @@
 ---
-title: "Kate Spade Cat Ornament: Perfect Holiday Gift for Cat Lovers"
-description: "The Kate Spade Cat Ornament adds charm to holiday decorations with its stylish design. It blends festive cheer and playful elegance for cat lovers. This ornamen"
+title: 'Kate Spade Cat Ornament: Perfect Holiday Gift for Cat Lovers'
+description: The Kate Spade Cat Ornament adds charm to holiday decorations with its
+  stylish design. It blends festive cheer and playful elegance for cat lovers. This
+  ornamen
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kate-spade-cat-ornament&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=kate-spade-cat-ornament&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Kate Spade Cat Ornament adds charm to holiday decorations with its stylish design. It blends festive cheer and playful elegance for cat lovers.**

@@ -1,10 +1,14 @@
 ---
-title: "Grinch Bathroom Rug: Soft, Non-Slip Holiday Decor for Festive Bathrooms"
-description: "Transform your bathroom into a festive wonderland with a Grinch-themed rug. Perfect for holiday decorating, it brings a fun, playful vibe. The Grinch Bathroom R"
+title: 'Grinch Bathroom Rug: Soft, Non-Slip Holiday Decor for Festive Bathrooms'
+description: Transform your bathroom into a festive wonderland with a Grinch-themed
+  rug. Perfect for holiday decorating, it brings a fun, playful vibe. The Grinch Bathroom
+  R
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grinch-bathroom-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=grinch-bathroom-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Transform your bathroom into a festive wonderland with a Grinch-themed rug. Perfect for holiday decorating, it brings a fun, playful vibe.**

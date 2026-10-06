@@ -1,10 +1,14 @@
 ---
-title: "How to Set Holiday Buffet Table: Expert Tips for Stunning Displays"
-description: "Setting up a holiday buffet table can feel overwhelming, but it doesn’t have to be. Imagine your guests’ eyes lighting up as they see a beautifully arranged spr"
+title: 'How to Set Holiday Buffet Table: Expert Tips for Stunning Displays'
+description: Setting up a holiday buffet table can feel overwhelming, but it doesn’t
+  have to be. Imagine your guests’ eyes lighting up as they see a beautifully arranged
+  spr
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-holiday-buffet-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-holiday-buffet-table&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Setting up a holiday buffet table can feel overwhelming, but it doesn’t have to be. Imagine your guests’ eyes lighting up as they see a beautifully arranged spread, inviting them to dive in and enjoy every bite.**

@@ -1,10 +1,14 @@
 ---
-title: "Christmas White Snowflake Wreath: Stunning Ideas to Brighten Your Home"
-description: "Imagine your front door dressed in a sparkling touch of winter magic. A Christmas White Snowflake Wreath can do just that—bringing a fresh, festive charm that w"
+title: 'Christmas White Snowflake Wreath: Stunning Ideas to Brighten Your Home'
+description: Imagine your front door dressed in a sparkling touch of winter magic.
+  A Christmas White Snowflake Wreath can do just that—bringing a fresh, festive charm
+  that w
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-white-snowflake-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=christmas-white-snowflake-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine your front door dressed in a sparkling touch of winter magic. A Christmas White Snowflake Wreath can do just that—bringing a fresh, festive charm that welcomes your guests with warmth and style.**

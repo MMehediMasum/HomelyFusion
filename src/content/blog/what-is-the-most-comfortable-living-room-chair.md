@@ -1,10 +1,14 @@
 ---
-title: "What is the Most Comfortable Living Room Chair: Top Cozy Picks"
-description: "Finding the most comfortable living room chair can change how you relax at home. Imagine sinking into a chair that supports your back perfectly and feels soft w"
+title: 'What is the Most Comfortable Living Room Chair: Top Cozy Picks'
+description: Finding the most comfortable living room chair can change how you relax
+  at home. Imagine sinking into a chair that supports your back perfectly and feels
+  soft w
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-most-comfortable-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-most-comfortable-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the most comfortable living room chair can change how you relax at home. Imagine sinking into a chair that supports your back perfectly and feels soft without losing shape.**

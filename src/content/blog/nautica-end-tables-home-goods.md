@@ -1,10 +1,14 @@
 ---
-title: "Nautica End Tables Home Goods: Stylish Coastal and Farmhouse Accent Pieces"
-description: "Nautica end tables at Home Goods blend style and function for any living space. These tables fit well in both modern and farmhouse decor. Nautica end tables off"
+title: 'Nautica End Tables Home Goods: Stylish Coastal and Farmhouse Accent Pieces'
+description: Nautica end tables at Home Goods blend style and function for any living
+  space. These tables fit well in both modern and farmhouse decor. Nautica end tables
+  off
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-end-tables-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=nautica-end-tables-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Nautica end tables at Home Goods blend style and function for any living space. These tables fit well in both modern and farmhouse decor.**

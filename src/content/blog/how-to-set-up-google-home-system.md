@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home System: Easy Steps for Instant Control"
 description: "Setting up your Google Home system can transform the way you live, making daily tasks easier and your home smarter. Imagine controlling your lights, music, and "
 pubDate: 2025-09-19

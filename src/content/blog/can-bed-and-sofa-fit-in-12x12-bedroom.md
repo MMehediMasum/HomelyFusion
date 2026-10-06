@@ -1,10 +1,14 @@
 ---
-title: "Can Bed And Sofa Fit in 12X12 Bedroom: Smart Space Hacks"
-description: "Are you wondering if a bed and sofa can fit comfortably in your 12x12 bedroom? You’re not alone. Many people struggle with making the most of limited space with"
+title: 'Can Bed And Sofa Fit in 12X12 Bedroom: Smart Space Hacks'
+description: Are you wondering if a bed and sofa can fit comfortably in your 12x12
+  bedroom? You’re not alone. Many people struggle with making the most of limited
+  space with
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bed-and-sofa-fit-in-12x12-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=can-bed-and-sofa-fit-in-12x12-bedroom&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a bed and sofa can fit comfortably in your 12x12 bedroom? You’re not alone.**

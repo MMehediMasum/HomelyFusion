@@ -1,10 +1,14 @@
 ---
-title: "Do Built in Cabinets Make a Living Room Seem Smaller? Truth Revealed"
-description: "Are you wondering if built-in cabinets might make your living room feel cramped? It’s a common concern. You want stylish storage but also a space that feels ope"
+title: Do Built in Cabinets Make a Living Room Seem Smaller? Truth Revealed
+description: Are you wondering if built-in cabinets might make your living room feel
+  cramped? It’s a common concern. You want stylish storage but also a space that feels
+  ope
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-built-in-cabinets-make-a-living-room-seem-smaller&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=do-built-in-cabinets-make-a-living-room-seem-smaller&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if built-in cabinets might make your living room feel cramped? It’s a common concern.**

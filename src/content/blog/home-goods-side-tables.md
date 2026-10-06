@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Side Tables: Stylish Storage Solutions for Small Spaces"
-description: "Side tables transform small spaces, adding functionality and style. They are essential for bedrooms, living rooms, and offices. These versatile pieces offer bot"
+title: 'Home Goods Side Tables: Stylish Storage Solutions for Small Spaces'
+description: Side tables transform small spaces, adding functionality and style. They
+  are essential for bedrooms, living rooms, and offices. These versatile pieces offer
+  bot
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Side tables transform small spaces, adding functionality and style. They are essential for bedrooms, living rooms, and offices.**

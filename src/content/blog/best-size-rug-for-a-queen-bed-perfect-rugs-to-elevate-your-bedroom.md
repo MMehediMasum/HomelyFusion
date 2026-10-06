@@ -1,10 +1,14 @@
 ---
-title: "Best Size Rug for a Queen Bed: Perfect Rugs to Elevate Your Bedroom"
-description: "Choosing the best size rug for a queen bed can enhance your bedroom's comfort and style. The right rug fits well under the bed and balances the room’s look. A q"
+title: 'Best Size Rug for a Queen Bed: Perfect Rugs to Elevate Your Bedroom'
+description: Choosing the best size rug for a queen bed can enhance your bedroom's
+  comfort and style. The right rug fits well under the bed and balances the room’s
+  look. A q
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-a-queen-bed-perfect-rugs-to-elevate-your-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-a-queen-bed-perfect-rugs-to-elevate-your-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for a queen bed can enhance your bedroom's comfort and style. The right rug fits well under the bed and balances the room’s look.**

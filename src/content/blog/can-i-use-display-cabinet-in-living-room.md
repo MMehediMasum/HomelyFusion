@@ -1,10 +1,14 @@
 ---
-title: "Can I Use Display Cabinet in Living Room: Stylish Ideas to Transform Space"
-description: "Are you wondering if a display cabinet can fit perfectly in your living room? You’re not alone. Many people struggle with finding the right way to showcase thei"
+title: 'Can I Use Display Cabinet in Living Room: Stylish Ideas to Transform Space'
+description: Are you wondering if a display cabinet can fit perfectly in your living
+  room? You’re not alone. Many people struggle with finding the right way to showcase
+  thei
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-use-display-cabinet-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=can-i-use-display-cabinet-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if a display cabinet can fit perfectly in your living room? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Wool Rugs: Stylish Handcrafted Area Rugs for Every Room"
-description: "Nicole Miller wool rugs offer timeless style and lasting comfort for any room. These rugs combine quality wool with unique handcrafted designs. Nicole Miller’s "
+title: 'Nicole Miller Wool Rugs: Stylish Handcrafted Area Rugs for Every Room'
+description: 'Nicole Miller wool rugs offer timeless style and lasting comfort for
+  any room. These rugs combine quality wool with unique handcrafted designs. Nicole
+  Miller’s '
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-wool-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-wool-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nicole Miller wool rugs offer timeless style and lasting comfort for any room. These rugs combine quality wool with unique handcrafted designs.**

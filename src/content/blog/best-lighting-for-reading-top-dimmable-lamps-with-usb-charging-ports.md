@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Reading: Top Dimmable Lamps with USB Charging Ports"
-description: "Choosing the best lighting for reading helps protect your eyes and improves focus. Proper light reduces strain and creates a cozy reading space. Good reading li"
+title: 'Best Lighting for Reading: Top Dimmable Lamps with USB Charging Ports'
+description: Choosing the best lighting for reading helps protect your eyes and improves
+  focus. Proper light reduces strain and creates a cozy reading space. Good reading
+  li
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-reading-top-dimmable-lamps-with-usb-charging-ports&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-reading-top-dimmable-lamps-with-usb-charging-ports&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for reading helps protect your eyes and improves focus. Proper light reduces strain and creates a cozy reading space.**

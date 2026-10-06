@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Feng Shui Bedroom Dresser: Boost Energy & Harmony Fast"
 description: "Your bedroom should be a peaceful sanctuary where you feel calm and relaxed. But did you know that the way you arrange your dresser can affect the energy in you"
 pubDate: 2026-05-16

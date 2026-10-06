@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who is the Home Team for the Cotton Bowl: Ultimate 2025 Guide"
 description: "Are you curious about which team is called the Home Team for the Cotton Bowl? Whether you’re a passionate fan or just getting into college football, knowing thi"
 pubDate: 2025-09-07

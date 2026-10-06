@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Home Theater System for Tv: Ultimate Step-by-Step Guide"
 description: "Are you ready to transform your living room into a cinematic experience? Installing a home theater system for your TV might seem complicated, but it doesn’t hav"
 pubDate: 2025-11-17

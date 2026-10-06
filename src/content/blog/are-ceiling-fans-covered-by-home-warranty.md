@@ -1,10 +1,14 @@
 ---
-title: "Are Ceiling Fans Covered by Home Warranty: What You Need to Know"
-description: "Are you wondering if your ceiling fans are protected by your home warranty? You’re not alone. Many homeowners ask this question when unexpected issues pop up. K"
+title: 'Are Ceiling Fans Covered by Home Warranty: What You Need to Know'
+description: Are you wondering if your ceiling fans are protected by your home warranty?
+  You’re not alone. Many homeowners ask this question when unexpected issues pop up.
+  K
 pubDate: 2026-04-05
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-ceiling-fans-covered-by-home-warranty&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=are-ceiling-fans-covered-by-home-warranty&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering if your ceiling fans are protected by your home warranty? You’re not alone.**

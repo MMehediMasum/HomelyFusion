@@ -1,10 +1,14 @@
 ---
-title: "Tile Flooring Store: Top Peel & Stick Tiles for Easy DIY Home Makeovers"
-description: "A tile flooring store offers a wide range of tiles for every room and style. From peel-and-stick to vinyl and marble designs, options suit many budgets. Choosin"
+title: 'Tile Flooring Store: Top Peel & Stick Tiles for Easy DIY Home Makeovers'
+description: A tile flooring store offers a wide range of tiles for every room and
+  style. From peel-and-stick to vinyl and marble designs, options suit many budgets.
+  Choosin
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=tile-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=tile-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A tile flooring store offers a wide range of tiles for every room and style. From peel-and-stick to vinyl and marble designs, options suit many budgets.**

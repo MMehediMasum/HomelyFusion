@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Bathroom Mirror from Fogging Up: Easy Anti-Fog Hacks"
-description: "Have you ever stepped out of a hot shower only to find your bathroom mirror completely fogged up? It’s frustrating when you need to get ready quickly, but all y"
+title: 'How to Keep Bathroom Mirror from Fogging Up: Easy Anti-Fog Hacks'
+description: Have you ever stepped out of a hot shower only to find your bathroom
+  mirror completely fogged up? It’s frustrating when you need to get ready quickly,
+  but all y
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-bathroom-mirror-from-fogging-up&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-bathroom-mirror-from-fogging-up&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever stepped out of a hot shower only to find your bathroom mirror completely fogged up? It’s frustrating when you need to get ready quickly, but all you see is a blurry reflection.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bathroom Mirror: Stunning Ideas to Transform Your Space"
-description: "Your bathroom mirror is more than just a reflection—it's a chance to add style and personality to your space. But how do you decorate it without making things l"
+title: 'How to Decorate a Bathroom Mirror: Stunning Ideas to Transform Your Space'
+description: Your bathroom mirror is more than just a reflection—it's a chance to
+  add style and personality to your space. But how do you decorate it without making
+  things l
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bathroom mirror is more than just a reflection—it's a chance to add style and personality to your space. But how do you decorate it without making things look cluttered or overwhelming?**

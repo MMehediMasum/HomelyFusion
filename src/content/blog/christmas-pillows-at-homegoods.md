@@ -1,10 +1,14 @@
 ---
-title: "Christmas Pillows at Homegoods: Transform Your Space with Festive Comfort"
-description: "Christmas pillows at Homegoods add festive charm to any room this holiday season. These cozy, decorative pillows bring warmth and holiday spirit to your home. H"
+title: 'Christmas Pillows at Homegoods: Transform Your Space with Festive Comfort'
+description: Christmas pillows at Homegoods add festive charm to any room this holiday
+  season. These cozy, decorative pillows bring warmth and holiday spirit to your home.
+  H
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-pillows-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-pillows-at-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas pillows at Homegoods add festive charm to any room this holiday season. These cozy, decorative pillows bring warmth and holiday spirit to your home.**

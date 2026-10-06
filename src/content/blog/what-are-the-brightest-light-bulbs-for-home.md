@@ -1,10 +1,14 @@
 ---
-title: "What are the Brightest Light Bulbs for Home: Ultimate Brightness Guide"
-description: "Are you struggling to find the perfect light bulb that truly brightens your home? The right bulb can change everything—making your rooms feel more inviting, hel"
+title: 'What are the Brightest Light Bulbs for Home: Ultimate Brightness Guide'
+description: Are you struggling to find the perfect light bulb that truly brightens
+  your home? The right bulb can change everything—making your rooms feel more inviting,
+  hel
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-brightest-light-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-brightest-light-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you struggling to find the perfect light bulb that truly brightens your home? The right bulb can change everything—making your rooms feel more inviting, helping you focus better, and even boosting your mood.**

@@ -1,10 +1,14 @@
 ---
-title: "Tile And Flooring Solutions: Top Peel & Stick Tiles for Easy Home Makeovers"
-description: "Tile and flooring options greatly affect the look and feel of any room. Choosing the right style can transform your space quickly and easily. Peel and stick flo"
+title: 'Tile And Flooring Solutions: Top Peel & Stick Tiles for Easy Home Makeovers'
+description: Tile and flooring options greatly affect the look and feel of any room.
+  Choosing the right style can transform your space quickly and easily. Peel and stick
+  flo
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=tile-and-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=tile-and-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile and flooring options greatly affect the look and feel of any room. Choosing the right style can transform your space quickly and easily.**

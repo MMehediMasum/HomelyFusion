@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Ikea Hinges on Bedroom Dresser: Easy Step-by-Step Guide"
-description: "Is your Ikea bedroom dresser door not closing properly or looking a bit crooked? You’re not alone, and the good news is that fixing it is easier than you think."
+title: 'How to Adjust Ikea Hinges on Bedroom Dresser: Easy Step-by-Step Guide'
+description: Is your Ikea bedroom dresser door not closing properly or looking a bit
+  crooked? You’re not alone, and the good news is that fixing it is easier than you
+  think.
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-ikea-hinges-on-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-ikea-hinges-on-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your Ikea bedroom dresser door not closing properly or looking a bit crooked? You’re not alone, and the good news is that fixing it is easier than you think.**

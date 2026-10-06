@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Curtains for Sliding Glass Doors: Top Picks for Privacy"
-description: "Blackout curtains provide privacy and block sunlight effectively for sliding glass doors. Choosing the right curtains improves comfort and energy savings at hom"
+title: 'Best Blackout Curtains for Sliding Glass Doors: Top Picks for Privacy'
+description: Blackout curtains provide privacy and block sunlight effectively for
+  sliding glass doors. Choosing the right curtains improves comfort and energy savings
+  at hom
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-sliding-glass-doors-top-picks-for-privacy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-sliding-glass-doors-top-picks-for-privacy&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains provide privacy and block sunlight effectively for sliding glass doors. Choosing the right curtains improves comfort and energy savings at home.**

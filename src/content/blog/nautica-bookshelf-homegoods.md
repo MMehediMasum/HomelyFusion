@@ -1,10 +1,14 @@
 ---
-title: "Nautica Bookshelf Homegoods: Stylish 5-Tier Shelves for Modern Living"
-description: "Nautica Bookshelf Homegoods offer stylish and practical storage for any room. These bookshelves combine modern design with sturdy construction. Choosing the rig"
+title: 'Nautica Bookshelf Homegoods: Stylish 5-Tier Shelves for Modern Living'
+description: Nautica Bookshelf Homegoods offer stylish and practical storage for any
+  room. These bookshelves combine modern design with sturdy construction. Choosing
+  the rig
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-bookshelf-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=nautica-bookshelf-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Nautica Bookshelf Homegoods offer stylish and practical storage for any room. These bookshelves combine modern design with sturdy construction.**

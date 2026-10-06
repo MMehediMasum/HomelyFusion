@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Add Refrigerant to My Home Ac? Expert Tips Revealed"
 description: "Is your home AC not cooling like it used to? You might be wondering, “Can I add refrigerant to my home AC myself?” It’s a common question when your air conditio"
 pubDate: 2026-04-09

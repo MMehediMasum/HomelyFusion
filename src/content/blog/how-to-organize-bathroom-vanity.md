@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Bathroom Vanity: Simple Steps for Clutter-Free Bliss"
-description: "Is your bathroom vanity a cluttered mess that makes getting ready stressful? Imagine opening your vanity drawer and instantly finding exactly what you need—no m"
+title: 'How to Organize Bathroom Vanity: Simple Steps for Clutter-Free Bliss'
+description: Is your bathroom vanity a cluttered mess that makes getting ready stressful?
+  Imagine opening your vanity drawer and instantly finding exactly what you need—no
+  m
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity a cluttered mess that makes getting ready stressful? Imagine opening your vanity drawer and instantly finding exactly what you need—no more digging or frustration.**

@@ -1,10 +1,14 @@
 ---
-title: "Quirky Home Ornaments That Spark Joy and Conversation Instantly"
-description: "Quirky home ornaments add personality and charm to any space. They make your home truly unique and interesting. Decorating your home with quirky ornaments can i"
+title: Quirky Home Ornaments That Spark Joy and Conversation Instantly
+description: Quirky home ornaments add personality and charm to any space. They make
+  your home truly unique and interesting. Decorating your home with quirky ornaments
+  can i
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=quirky-home-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=quirky-home-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Quirky home ornaments add personality and charm to any space. They make your home truly unique and interesting.**

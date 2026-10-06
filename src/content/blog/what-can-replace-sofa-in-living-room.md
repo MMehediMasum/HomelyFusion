@@ -1,10 +1,14 @@
 ---
-title: "What Can Replace Sofa in Living Room: Stylish Alternatives to Try"
-description: "Are you tired of the same old sofa taking up space in your living room? What if you could find something just as comfortable, but more unique and suited to your"
+title: 'What Can Replace Sofa in Living Room: Stylish Alternatives to Try'
+description: Are you tired of the same old sofa taking up space in your living room?
+  What if you could find something just as comfortable, but more unique and suited
+  to your
 pubDate: 2026-04-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-can-replace-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-can-replace-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of the same old sofa taking up space in your living room? What if you could find something just as comfortable, but more unique and suited to your style?**

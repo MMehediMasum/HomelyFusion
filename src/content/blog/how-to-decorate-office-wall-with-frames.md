@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Office Wall With Frames: Stunning Ideas to Inspire"
-description: "Your office wall is a blank canvas waiting to come alive. Decorating it with frames isn’t just about filling space—it’s about creating an environment that inspi"
+title: 'How to Decorate Office Wall With Frames: Stunning Ideas to Inspire'
+description: Your office wall is a blank canvas waiting to come alive. Decorating
+  it with frames isn’t just about filling space—it’s about creating an environment
+  that inspi
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-office-wall-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-office-wall-with-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your office wall is a blank canvas waiting to come alive. Decorating it with frames isn’t just about filling space—it’s about creating an environment that inspires you every day.**

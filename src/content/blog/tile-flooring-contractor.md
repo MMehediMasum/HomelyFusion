@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Tile Flooring Contractor Tips: Choosing Durable Interlocking Garage Tiles"
 description: "Choosing the right tile flooring contractor can transform your space with elegance and durability. Hiring a skilled professional ensures quality installation. T"
 pubDate: 2026-07-25

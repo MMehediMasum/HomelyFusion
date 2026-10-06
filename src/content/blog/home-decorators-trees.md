@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Trees: Top Faux Trees to Elevate Your Indoor Space"
-description: "Home Decorators Trees offer realistic, low-maintenance artificial plants for stylish indoor spaces. These faux trees bring natural beauty without the hassle of "
+title: 'Home Decorators Trees: Top Faux Trees to Elevate Your Indoor Space'
+description: 'Home Decorators Trees offer realistic, low-maintenance artificial plants
+  for stylish indoor spaces. These faux trees bring natural beauty without the hassle
+  of '
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-trees&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Decorators Trees offer realistic, low-maintenance artificial plants for stylish indoor spaces. These faux trees bring natural beauty without the hassle of care.**

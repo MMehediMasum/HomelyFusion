@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Queen Bed And Large Dresser: Stylish Tips"
-description: "Your bedroom should be a place where comfort meets style, and decorating it with a queen bed and a large dresser can transform the space into your personal retr"
+title: 'How to Decorate Bedroom With Queen Bed And Large Dresser: Stylish Tips'
+description: Your bedroom should be a place where comfort meets style, and decorating
+  it with a queen bed and a large dresser can transform the space into your personal
+  retr
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-queen-bed-and-large-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-queen-bed-and-large-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where comfort meets style, and decorating it with a queen bed and a large dresser can transform the space into your personal retreat. But how do you make sure everything fits perfectly without feeling crowded?**

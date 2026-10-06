@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Butternut Squash Soup Recipe: Creamy & Comforting Delight"
 description: "When the crisp air of Thanksgiving rolls in, nothing warms you up like a bowl of creamy, comforting soup. Imagine serving your family a rich butternut squash so"
 pubDate: 2025-11-04

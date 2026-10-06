@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Wall Decoration Ideas to Transform Your Living Space"
-description: "Home interior wall decoration adds charm and personality to any living space. It creates a warm, inviting atmosphere with simple touches. Decorating walls trans"
+title: Home Interior Wall Decoration Ideas to Transform Your Living Space
+description: Home interior wall decoration adds charm and personality to any living
+  space. It creates a warm, inviting atmosphere with simple touches. Decorating walls
+  trans
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-wall-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-wall-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home interior wall decoration adds charm and personality to any living space. It creates a warm, inviting atmosphere with simple touches.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much Does a Steel Home Cost: Ultimate Guide to Pricing"
 description: "Thinking about building a steel home but unsure how much it will cost you? You’re not alone. The price of a steel home can vary widely depending on many factors"
 pubDate: 2026-03-06

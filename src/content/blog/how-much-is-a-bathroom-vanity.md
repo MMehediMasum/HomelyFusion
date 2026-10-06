@@ -1,10 +1,14 @@
 ---
-title: "How Much is a Bathroom Vanity: Ultimate Cost Guide Revealed"
-description: "Thinking about upgrading your bathroom? One of the biggest questions you probably have is, “How much is a bathroom vanity going to cost me?” You want a stylish,"
+title: 'How Much is a Bathroom Vanity: Ultimate Cost Guide Revealed'
+description: Thinking about upgrading your bathroom? One of the biggest questions
+  you probably have is, “How much is a bathroom vanity going to cost me?” You want
+  a stylish,
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-is-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-much-is-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about upgrading your bathroom? One of the biggest questions you probably have is, “How much is a bathroom vanity going to cost me?” You want a stylish, functional piece that fits your space and budget.**

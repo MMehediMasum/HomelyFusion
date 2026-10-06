@@ -1,10 +1,14 @@
 ---
-title: "How to Make Lamp Stand at Home: Easy DIY Ideas for Beginners"
-description: "Are you looking to add a unique touch to your home lighting? Making your own lamp stand at home is easier than you think, and it lets you create something truly"
+title: 'How to Make Lamp Stand at Home: Easy DIY Ideas for Beginners'
+description: Are you looking to add a unique touch to your home lighting? Making your
+  own lamp stand at home is easier than you think, and it lets you create something
+  truly
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lamp-stand-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lamp-stand-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to add a unique touch to your home lighting? Making your own lamp stand at home is easier than you think, and it lets you create something truly personal.**

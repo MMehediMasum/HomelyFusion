@@ -1,10 +1,14 @@
 ---
-title: "Bookends Home Goods: Stylish and Durable Solutions for Organized Shelves"
-description: "Bookends Home Goods offers a variety of stylish and sturdy bookends for organizing your shelves. These bookends combine function with design to keep books neat "
+title: 'Bookends Home Goods: Stylish and Durable Solutions for Organized Shelves'
+description: 'Bookends Home Goods offers a variety of stylish and sturdy bookends
+  for organizing your shelves. These bookends combine function with design to keep
+  books neat '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bookends-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=bookends-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Bookends Home Goods offers a variety of stylish and sturdy bookends for organizing your shelves. These bookends combine function with design to keep books neat and upright.**

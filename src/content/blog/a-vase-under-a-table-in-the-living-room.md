@@ -1,10 +1,14 @@
 ---
-title: "A Vase under a Table in the Living Room: Stunning Decor Ideas"
-description: "Have you ever noticed how a simple object can change the entire feel of your living room? Placing a vase under a table might sound unusual, but it can add a uni"
+title: 'A Vase under a Table in the Living Room: Stunning Decor Ideas'
+description: Have you ever noticed how a simple object can change the entire feel
+  of your living room? Placing a vase under a table might sound unusual, but it can
+  add a uni
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-vase-under-a-table-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=a-vase-under-a-table-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever noticed how a simple object can change the entire feel of your living room? Placing a vase under a table might sound unusual, but it can add a unique charm and unexpected style to your space.**

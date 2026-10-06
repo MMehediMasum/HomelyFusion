@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Lamps Floor: Top Stylish Floor Lamps for Every Room"
-description: "Floor lamps bring style and light to any room in your home. They offer flexible lighting and add a cozy touch. Choosing the right floor lamp can change your liv"
+title: 'Home Goods Lamps Floor: Top Stylish Floor Lamps for Every Room'
+description: Floor lamps bring style and light to any room in your home. They offer
+  flexible lighting and add a cozy touch. Choosing the right floor lamp can change
+  your liv
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamps-floor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamps-floor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Floor lamps bring style and light to any room in your home. They offer flexible lighting and add a cozy touch.**

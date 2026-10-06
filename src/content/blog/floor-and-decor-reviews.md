@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Reviews: Top Picks for Stylish Home and Bathroom Rugs"
-description: "Floor and Decor offers a wide range of home decoration products. This review covers popular items to help you decide what fits your style and needs. Floor and D"
+title: 'Floor And Decor Reviews: Top Picks for Stylish Home and Bathroom Rugs'
+description: Floor and Decor offers a wide range of home decoration products. This
+  review covers popular items to help you decide what fits your style and needs. Floor
+  and D
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-reviews&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-reviews&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a wide range of home decoration products. This review covers popular items to help you decide what fits your style and needs.**

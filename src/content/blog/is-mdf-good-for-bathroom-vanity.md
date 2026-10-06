@@ -1,10 +1,14 @@
 ---
-title: "Is MDF Good for Bathroom Vanity: Pros, Cons & Expert Tips"
-description: "Choosing the right material for your bathroom vanity can be tricky. You want something that looks great, lasts long, and handles moisture well. You might be won"
+title: 'Is MDF Good for Bathroom Vanity: Pros, Cons & Expert Tips'
+description: Choosing the right material for your bathroom vanity can be tricky. You
+  want something that looks great, lasts long, and handles moisture well. You might
+  be won
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-mdf-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-mdf-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right material for your bathroom vanity can be tricky. You want something that looks great, lasts long, and handles moisture well.**

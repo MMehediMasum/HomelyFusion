@@ -1,10 +1,15 @@
 ---
-title: "Furniture And Decor Ideas: Stylish Storage, Lighting, and Accent Tables for Every Room"
-description: "Furniture and decor shape the look and feel of any living space. They add comfort, style, and function to your home. Choosing the right items creates a cozy and"
+title: 'Furniture And Decor Ideas: Stylish Storage, Lighting, and Accent Tables for
+  Every Room'
+description: Furniture and decor shape the look and feel of any living space. They
+  add comfort, style, and function to your home. Choosing the right items creates
+  a cozy and
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture and decor shape the look and feel of any living space. They add comfort, style, and function to your home.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Sterilize Cotton Balls at Home: Easy & Effective Methods"
 description: "You probably use cotton balls for first aid, beauty routines, or cleaning small wounds. But have you ever wondered if those cotton balls are truly clean and saf"
 pubDate: 2026-04-15

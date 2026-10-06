@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Stainless Steel Sheet Metal at Home: Easy & Safe Tips"
 description: "Cutting stainless steel sheet metal at home might sound tough, but it doesn’t have to be. Whether you’re working on a DIY project or making repairs, knowing the"
 pubDate: 2026-02-25

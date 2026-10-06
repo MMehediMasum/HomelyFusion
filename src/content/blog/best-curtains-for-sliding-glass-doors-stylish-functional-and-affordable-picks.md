@@ -1,10 +1,15 @@
 ---
-title: "Best Curtains for Sliding Glass Doors: Stylish, Functional, and Affordable Picks"
-description: "Choosing the best curtains for sliding glass doors can improve privacy, style, and light control. The right curtains also help with insulation and room division"
+title: 'Best Curtains for Sliding Glass Doors: Stylish, Functional, and Affordable
+  Picks'
+description: Choosing the best curtains for sliding glass doors can improve privacy,
+  style, and light control. The right curtains also help with insulation and room
+  division
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-sliding-glass-doors-stylish-functional-and-affordable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-sliding-glass-doors-stylish-functional-and-affordable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for sliding glass doors can improve privacy, style, and light control. The right curtains also help with insulation and room division.**

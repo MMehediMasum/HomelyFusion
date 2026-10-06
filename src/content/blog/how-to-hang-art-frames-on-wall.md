@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Art Frames on Wall: Easy Steps for Perfect Placement"
-description: "Are you ready to transform your space with beautiful art but unsure how to hang your frames perfectly? Hanging art frames on your wall might seem simple, but ge"
+title: 'How to Hang Art Frames on Wall: Easy Steps for Perfect Placement'
+description: Are you ready to transform your space with beautiful art but unsure how
+  to hang your frames perfectly? Hanging art frames on your wall might seem simple,
+  but ge
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-art-frames-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-art-frames-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with beautiful art but unsure how to hang your frames perfectly? Hanging art frames on your wall might seem simple, but getting it just right can make all the difference in how your room feels.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Melt Steel for Casting at Home: Easy Steps for Beginners"
 description: "Have you ever wondered how to melt steel right at home and turn it into something amazing? Whether you’re a hobbyist, a DIY enthusiast, or just curious, melting"
 pubDate: 2026-03-02

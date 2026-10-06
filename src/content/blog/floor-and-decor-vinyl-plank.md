@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Vinyl Plank: Easy Peel & Stick Flooring Solutions Guide"
-description: "Vinyl plank flooring offers an easy and stylish solution for home decor. Floor and Decor provides diverse options for all spaces. Vinyl plank flooring is a popu"
+title: 'Floor And Decor Vinyl Plank: Easy Peel & Stick Flooring Solutions Guide'
+description: Vinyl plank flooring offers an easy and stylish solution for home decor.
+  Floor and Decor provides diverse options for all spaces. Vinyl plank flooring is
+  a popu
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-vinyl-plank&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-vinyl-plank&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Vinyl plank flooring offers an easy and stylish solution for home decor. Floor and Decor provides diverse options for all spaces.**

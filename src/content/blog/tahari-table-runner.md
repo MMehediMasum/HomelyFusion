@@ -1,10 +1,14 @@
 ---
-title: "Tahari Table Runner: Elegant Vintage and Boho Styles for Every Occasion"
-description: "Tahari table runners add style and charm to any dining space. These runners blend classic designs with modern touches. Table runners create a warm, inviting atm"
+title: 'Tahari Table Runner: Elegant Vintage and Boho Styles for Every Occasion'
+description: Tahari table runners add style and charm to any dining space. These runners
+  blend classic designs with modern touches. Table runners create a warm, inviting
+  atm
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-table-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=tahari-table-runner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tahari table runners add style and charm to any dining space. These runners blend classic designs with modern touches.**

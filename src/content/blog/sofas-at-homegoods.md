@@ -1,10 +1,14 @@
 ---
-title: "Sofas at Homegoods: Stylish and Comfy Sectional Couches for Every Space"
-description: "Explore a variety of sofas at Homegoods to find the perfect fit for your living space. Whether you need a cozy spot for relaxing or a stylish centerpiece, there"
+title: 'Sofas at Homegoods: Stylish and Comfy Sectional Couches for Every Space'
+description: Explore a variety of sofas at Homegoods to find the perfect fit for your
+  living space. Whether you need a cozy spot for relaxing or a stylish centerpiece,
+  there
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=sofas-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=sofas-at-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Explore a variety of sofas at Homegoods to find the perfect fit for your living space. Whether you need a cozy spot for relaxing or a stylish centerpiece, there's something for every taste.**

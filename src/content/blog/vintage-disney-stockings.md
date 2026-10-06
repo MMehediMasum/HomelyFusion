@@ -1,10 +1,14 @@
 ---
-title: "Vintage Disney Stockings: Timeless Holiday Charm for Your Christmas Decor"
-description: "Vintage Disney stockings bring a nostalgic charm to holiday decorations. These stockings capture the magic of Disney classics. Fans of Disney will adore the var"
+title: 'Vintage Disney Stockings: Timeless Holiday Charm for Your Christmas Decor'
+description: Vintage Disney stockings bring a nostalgic charm to holiday decorations.
+  These stockings capture the magic of Disney classics. Fans of Disney will adore
+  the var
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-disney-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=vintage-disney-stockings&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Vintage Disney stockings bring a nostalgic charm to holiday decorations. These stockings capture the magic of Disney classics.**

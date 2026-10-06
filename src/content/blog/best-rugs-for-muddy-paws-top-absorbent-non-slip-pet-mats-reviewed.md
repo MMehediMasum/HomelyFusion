@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Muddy Paws: Top Absorbent, Non-Slip Pet Mats Reviewed"
-description: "Muddy paws can quickly turn clean floors into messy chaos. Choosing the right rug helps keep dirt and moisture under control. Pets love to run outside, but they"
+title: 'Best Rugs for Muddy Paws: Top Absorbent, Non-Slip Pet Mats Reviewed'
+description: Muddy paws can quickly turn clean floors into messy chaos. Choosing the
+  right rug helps keep dirt and moisture under control. Pets love to run outside,
+  but they
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-muddy-paws-top-absorbent-non-slip-pet-mats-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-muddy-paws-top-absorbent-non-slip-pet-mats-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Muddy paws can quickly turn clean floors into messy chaos. Choosing the right rug helps keep dirt and moisture under control.**

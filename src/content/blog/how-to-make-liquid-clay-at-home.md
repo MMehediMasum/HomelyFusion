@@ -1,10 +1,14 @@
 ---
-title: "How to Make Liquid Clay at Home: Easy DIY Craft Tutorial"
-description: "Have you ever wanted to create your own liquid clay at home but didn’t know where to start? Making liquid clay yourself is easier than you think—and it can save"
+title: 'How to Make Liquid Clay at Home: Easy DIY Craft Tutorial'
+description: Have you ever wanted to create your own liquid clay at home but didn’t
+  know where to start? Making liquid clay yourself is easier than you think—and it
+  can save
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-liquid-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-liquid-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own liquid clay at home but didn’t know where to start? Making liquid clay yourself is easier than you think—and it can save you money while giving you full control over the consistency and quality.**

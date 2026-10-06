@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Shelves: Stylish Floating Shelves for Every Room Decor"
-description: "Home goods wall shelves offer simple and stylish storage solutions for any room. They help organize items and enhance wall decor without taking floor space. The"
+title: 'Home Goods Wall Shelves: Stylish Floating Shelves for Every Room Decor'
+description: Home goods wall shelves offer simple and stylish storage solutions for
+  any room. They help organize items and enhance wall decor without taking floor space.
+  The
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-shelves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-shelves&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Home goods wall shelves offer simple and stylish storage solutions for any room. They help organize items and enhance wall decor without taking floor space.**

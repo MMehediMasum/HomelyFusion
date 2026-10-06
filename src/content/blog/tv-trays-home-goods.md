@@ -1,10 +1,14 @@
 ---
-title: "Tv Trays Home Goods: Top Foldable Tables for Comfort and Convenience"
-description: "Tv trays from Home Goods offer practical solutions for eating, working, and relaxing at home. These trays fit perfectly on couches, beds, and small spaces. Home"
+title: 'Tv Trays Home Goods: Top Foldable Tables for Comfort and Convenience'
+description: Tv trays from Home Goods offer practical solutions for eating, working,
+  and relaxing at home. These trays fit perfectly on couches, beds, and small spaces.
+  Home
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tv-trays-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=tv-trays-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tv trays from Home Goods offer practical solutions for eating, working, and relaxing at home. These trays fit perfectly on couches, beds, and small spaces.**

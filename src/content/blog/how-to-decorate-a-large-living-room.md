@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Large Living Room: Stunning Ideas That Wow"
-description: "Is your large living room feeling empty or hard to fill? You’re not alone. Decorating a big space can be tricky, but it also gives you a chance to create someth"
+title: 'How to Decorate a Large Living Room: Stunning Ideas That Wow'
+description: Is your large living room feeling empty or hard to fill? You’re not alone.
+  Decorating a big space can be tricky, but it also gives you a chance to create someth
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Is your large living room feeling empty or hard to fill? You’re not alone.**

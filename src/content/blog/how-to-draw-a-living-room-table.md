@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw a Living Room Table: Easy Steps for Stunning Designs"
 description: "Have you ever wanted to add a personal touch to your living room design? Learning how to draw a living room table can be easier than you think. Whether you’re a"
 pubDate: 2025-08-29

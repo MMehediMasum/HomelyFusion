@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Ambient Lighting: Top Picks for Cozy, Colorful Spaces"
-description: "Ambient lighting creates a warm and cozy atmosphere in any room. The best lamps for ambient lighting blend style, color, and brightness control effortlessly. Ch"
+title: 'Best Lamps for Ambient Lighting: Top Picks for Cozy, Colorful Spaces'
+description: Ambient lighting creates a warm and cozy atmosphere in any room. The
+  best lamps for ambient lighting blend style, color, and brightness control effortlessly.
+  Ch
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-ambient-lighting-top-picks-for-cozy-colorful-spaces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-ambient-lighting-top-picks-for-cozy-colorful-spaces&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ambient lighting creates a warm and cozy atmosphere in any room. The best lamps for ambient lighting blend style, color, and brightness control effortlessly.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Xbox to Tv: Easy Steps for Instant Gaming Setup"
 description: "Are you ready to enjoy your favorite games on the big screen but not sure how to connect your Xbox to your TV? You’re in the right place. This simple guide will"
 pubDate: 2026-04-28

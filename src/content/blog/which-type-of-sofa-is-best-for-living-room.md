@@ -1,10 +1,14 @@
 ---
-title: "Which Type of Sofa is Best for Living Room: Ultimate Comfort Guide"
-description: "Choosing the perfect sofa for your living room can feel overwhelming. You want something comfortable, stylish, and that fits your space just right. But with so "
+title: 'Which Type of Sofa is Best for Living Room: Ultimate Comfort Guide'
+description: 'Choosing the perfect sofa for your living room can feel overwhelming.
+  You want something comfortable, stylish, and that fits your space just right. But
+  with so '
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-type-of-sofa-is-best-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-type-of-sofa-is-best-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa for your living room can feel overwhelming. You want something comfortable, stylish, and that fits your space just right.**

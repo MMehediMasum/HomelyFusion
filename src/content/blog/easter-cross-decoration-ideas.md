@@ -1,10 +1,14 @@
 ---
-title: "Easter Cross Decoration Ideas: Stunning DIY Inspirations for Spring"
-description: "Looking to add a meaningful touch to your Easter celebration? Your Easter cross decoration can become the centerpiece that brings warmth and joy to your home. W"
+title: 'Easter Cross Decoration Ideas: Stunning DIY Inspirations for Spring'
+description: Looking to add a meaningful touch to your Easter celebration? Your Easter
+  cross decoration can become the centerpiece that brings warmth and joy to your home.
+  W
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-cross-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-cross-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a meaningful touch to your Easter celebration? Your Easter cross decoration can become the centerpiece that brings warmth and joy to your home.**

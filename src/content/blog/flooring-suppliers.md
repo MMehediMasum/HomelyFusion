@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Suppliers: Top Picks for Unique 3D Wall and Floor Decals"
 description: "Flooring suppliers offer a wide range of products to fit any space and style. They provide materials and displays to help you choose the best option. From uniqu"
 pubDate: 2026-07-15

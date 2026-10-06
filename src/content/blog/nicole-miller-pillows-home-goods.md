@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Pillows Home Goods: Stylish, Cozy Decorative Pillow Covers Guide"
-description: "Nicole Miller Pillows bring style and comfort to your home goods collection. These decorative pillows feature unique designs and soft fabrics. Nicole Miller off"
+title: 'Nicole Miller Pillows Home Goods: Stylish, Cozy Decorative Pillow Covers Guide'
+description: Nicole Miller Pillows bring style and comfort to your home goods collection.
+  These decorative pillows feature unique designs and soft fabrics. Nicole Miller
+  off
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Nicole Miller Pillows bring style and comfort to your home goods collection. These decorative pillows feature unique designs and soft fabrics.**

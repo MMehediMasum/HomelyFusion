@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Engrave Steel at Home: Easy DIY Techniques Revealed"
 description: "Have you ever wanted to add a personal touch to your steel items? Whether it’s a gift, a tool, or a keepsake, engraving steel at home can turn ordinary objects "
 pubDate: 2026-04-04

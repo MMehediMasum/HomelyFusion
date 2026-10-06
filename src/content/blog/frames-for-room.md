@@ -1,10 +1,14 @@
 ---
-title: "Frames for Room Decor: Stylish Photo Frame Sets for Wall and Tabletop"
-description: "Frames can transform any room. They add personality and style to your space effortlessly. Choosing the right frames can significantly enhance your room's decor."
+title: 'Frames for Room Decor: Stylish Photo Frame Sets for Wall and Tabletop'
+description: Frames can transform any room. They add personality and style to your
+  space effortlessly. Choosing the right frames can significantly enhance your room's
+  decor.
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-for-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-for-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames can transform any room. They add personality and style to your space effortlessly.**

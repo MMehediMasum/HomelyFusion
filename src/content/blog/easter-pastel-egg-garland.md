@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Egg Garland: DIY Ideas to Brighten Your Home"
-description: "Looking to add a fresh and charming touch to your Easter decorations? An Easter Pastel Egg Garland is the perfect way to brighten up your home with soft, cheerf"
+title: 'Easter Pastel Egg Garland: DIY Ideas to Brighten Your Home'
+description: Looking to add a fresh and charming touch to your Easter decorations?
+  An Easter Pastel Egg Garland is the perfect way to brighten up your home with soft,
+  cheerf
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-egg-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-egg-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a fresh and charming touch to your Easter decorations? An Easter Pastel Egg Garland is the perfect way to brighten up your home with soft, cheerful colors that instantly lift the mood.**

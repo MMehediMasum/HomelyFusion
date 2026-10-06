@@ -1,10 +1,14 @@
 ---
-title: "Tjmaxx Skeleton Pillow: Perfect Plush Halloween Decor for Your Sofa"
-description: "Tjmaxx Skeleton Pillow offers a unique touch to Halloween decorations. This plush pillow combines spooky charm with cozy comfort. Skeleton pillows are a festive"
+title: 'Tjmaxx Skeleton Pillow: Perfect Plush Halloween Decor for Your Sofa'
+description: Tjmaxx Skeleton Pillow offers a unique touch to Halloween decorations.
+  This plush pillow combines spooky charm with cozy comfort. Skeleton pillows are
+  a festive
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tjmaxx-skeleton-pillow&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tjmaxx-skeleton-pillow&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tjmaxx Skeleton Pillow offers a unique touch to Halloween decorations. This plush pillow combines spooky charm with cozy comfort.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Expected to Rise? Expert Insights"
 description: "Are you worried about the cost of heating your home this winter? If you use home heating oil, you might be wondering if prices are going to rise soon. Higher he"
 pubDate: 2025-10-15

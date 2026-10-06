@@ -1,10 +1,13 @@
 ---
-title: "Halloween Broomstick Decoration DIY: Easy & Spooky Ideas to Try"
-description: "Looking to add a spooky touch to your Halloween decorations without spending a fortune? Your search ends here! Imagine creating a Halloween broomstick decoratio"
+title: 'Halloween Broomstick Decoration DIY: Easy & Spooky Ideas to Try'
+description: Looking to add a spooky touch to your Halloween decorations without spending
+  a fortune? Your search ends here! Imagine creating a Halloween broomstick decoratio
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-broomstick-decoration-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-broomstick-decoration-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a spooky touch to your Halloween decorations without spending a fortune? Your search ends here!**

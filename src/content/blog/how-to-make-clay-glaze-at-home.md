@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Glaze at Home: Easy Steps for Stunning Results"
-description: "Have you ever wanted to add a personal touch to your pottery by creating your own clay glaze at home? Imagine turning your simple clay creations into vibrant, g"
+title: 'How to Make Clay Glaze at Home: Easy Steps for Stunning Results'
+description: Have you ever wanted to add a personal touch to your pottery by creating
+  your own clay glaze at home? Imagine turning your simple clay creations into vibrant,
+  g
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-glaze-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-glaze-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to add a personal touch to your pottery by creating your own clay glaze at home? Imagine turning your simple clay creations into vibrant, glossy masterpieces without spending a fortune on expensive materials.**

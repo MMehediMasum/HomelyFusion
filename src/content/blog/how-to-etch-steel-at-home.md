@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Etch Steel at Home: Easy Steps for Stunning Results"
 description: "Have you ever wanted to add a personal touch to your steel projects? Etching steel at home is easier than you think, and it can transform plain metal into somet"
 pubDate: 2026-02-09

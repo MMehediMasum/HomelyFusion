@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Tp Link Light Bulb to Google Home: Easy Steps Guide"
-description: "Want to control your Tp Link light bulb with just your voice? Connecting it to Google Home can make your daily routine easier and your home smarter. Imagine tur"
+title: 'How to Connect Tp Link Light Bulb to Google Home: Easy Steps Guide'
+description: Want to control your Tp Link light bulb with just your voice? Connecting
+  it to Google Home can make your daily routine easier and your home smarter. Imagine
+  tur
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-tp-link-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-tp-link-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Want to control your Tp Link light bulb with just your voice? Connecting it to Google Home can make your daily routine easier and your home smarter.**

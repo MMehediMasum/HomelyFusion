@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Apple Pie Recipe: Irresistible, Classic & Easy Guide"
 description: "There’s nothing quite like the warm, sweet aroma of apple pie filling your home on Thanksgiving. If you want to impress your family and friends with a classic d"
 pubDate: 2025-10-15

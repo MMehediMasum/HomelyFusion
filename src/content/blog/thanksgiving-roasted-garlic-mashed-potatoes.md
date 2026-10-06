@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Roasted Garlic Mashed Potatoes: Irresistible Comfort Food Delight"
 description: "When it comes to Thanksgiving, your mashed potatoes should be more than just a side dish—they should be the star of the table. Imagine creamy, buttery potatoes "
 pubDate: 2025-12-25

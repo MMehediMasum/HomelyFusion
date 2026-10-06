@@ -1,10 +1,14 @@
 ---
-title: "Can You Put a China Cabinet in a Living Room: Stylish Tips Revealed"
-description: "Are you wondering if a china cabinet can fit into your living room? You might think it belongs only in the dining room, but there’s more to consider. Imagine a "
+title: 'Can You Put a China Cabinet in a Living Room: Stylish Tips Revealed'
+description: 'Are you wondering if a china cabinet can fit into your living room?
+  You might think it belongs only in the dining room, but there’s more to consider.
+  Imagine a '
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-china-cabinet-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-china-cabinet-in-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if a china cabinet can fit into your living room? You might think it belongs only in the dining room, but there’s more to consider.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Plant Stand: Stylish Multi-Tier Shelves for Indoor Plants"
-description: "Discover the perfect plant stand for your home with our selection of versatile and stylish options. Enhance your indoor and outdoor spaces effortlessly. Plant s"
+title: 'Home Goods Plant Stand: Stylish Multi-Tier Shelves for Indoor Plants'
+description: Discover the perfect plant stand for your home with our selection of
+  versatile and stylish options. Enhance your indoor and outdoor spaces effortlessly.
+  Plant s
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-plant-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-plant-stand&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the perfect plant stand for your home with our selection of versatile and stylish options. Enhance your indoor and outdoor spaces effortlessly.**

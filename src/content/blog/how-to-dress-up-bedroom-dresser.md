@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Bedroom Dresser: Stylish Tips to Transform Your Space"
-description: "Your bedroom dresser is more than just a place to store clothes—it’s a chance to showcase your style and make your space feel truly inviting. But how do you tur"
+title: 'How to Dress Up Bedroom Dresser: Stylish Tips to Transform Your Space'
+description: Your bedroom dresser is more than just a place to store clothes—it’s
+  a chance to showcase your style and make your space feel truly inviting. But how
+  do you tur
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser is more than just a place to store clothes—it’s a chance to showcase your style and make your space feel truly inviting. But how do you turn a simple dresser into a stunning focal point?**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Kitchen Cabinets: Stylish Storage Solutions for Every Space"
-description: "Choosing the right kitchen cabinets can transform your space. They add style and functionality to your home. Home decorators offer a diverse range of kitchen ca"
+title: 'Home Decorators Kitchen Cabinets: Stylish Storage Solutions for Every Space'
+description: Choosing the right kitchen cabinets can transform your space. They add
+  style and functionality to your home. Home decorators offer a diverse range of kitchen
+  ca
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right kitchen cabinets can transform your space. They add style and functionality to your home.**

@@ -1,10 +1,13 @@
 ---
-title: "Can I Drive Myself Home After Radiation Treatment? Essential Safety Tips"
-description: "Have you ever wondered if it’s safe to drive yourself home after radiation treatment? You might feel okay right after the session, but your body is going throug"
+title: Can I Drive Myself Home After Radiation Treatment? Essential Safety Tips
+description: Have you ever wondered if it’s safe to drive yourself home after radiation
+  treatment? You might feel okay right after the session, but your body is going throug
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-drive-myself-home-after-radiation-treatment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=can-i-drive-myself-home-after-radiation-treatment&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if it’s safe to drive yourself home after radiation treatment? You might feel okay right after the session, but your body is going through a lot.**

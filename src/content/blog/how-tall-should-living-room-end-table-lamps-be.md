@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should Living Room End Table Lamps Be: Perfect Height Guide"
-description: "When it comes to lighting your living room, the height of your end table lamps can make all the difference. You might wonder, how tall should these lamps be to "
+title: 'How Tall Should Living Room End Table Lamps Be: Perfect Height Guide'
+description: 'When it comes to lighting your living room, the height of your end table
+  lamps can make all the difference. You might wonder, how tall should these lamps
+  be to '
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-living-room-end-table-lamps-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-living-room-end-table-lamps-be&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When it comes to lighting your living room, the height of your end table lamps can make all the difference. You might wonder, how tall should these lamps be to fit perfectly with your space and style?**

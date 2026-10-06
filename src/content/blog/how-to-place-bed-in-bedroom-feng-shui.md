@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Place Bed in Bedroom Feng Shui: Ultimate Guide for Harmony"
 description: "Are you struggling to get a good night’s sleep or feeling restless in your own bedroom? The way you place your bed might be the hidden key to unlocking better e"
 pubDate: 2025-10-15

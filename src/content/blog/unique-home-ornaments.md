@@ -1,10 +1,14 @@
 ---
-title: "Unique Home Ornaments to Transform Your Space with Charming Style"
-description: "Unique home ornaments add charm and personality to any living space. They serve as delightful keepsakes and conversation starters. Explore a world of decorative"
+title: Unique Home Ornaments to Transform Your Space with Charming Style
+description: Unique home ornaments add charm and personality to any living space.
+  They serve as delightful keepsakes and conversation starters. Explore a world of
+  decorative
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unique-home-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=unique-home-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Unique home ornaments add charm and personality to any living space. They serve as delightful keepsakes and conversation starters.**

@@ -1,10 +1,14 @@
 ---
-title: "Cool Home Accents: Top Decorative Picks for Stylish Living Spaces"
-description: "Elevate your home with stylish accents. Discover charming pieces that add warmth and personality to any space. Decorating a home is about creating a welcoming e"
+title: 'Cool Home Accents: Top Decorative Picks for Stylish Living Spaces'
+description: Elevate your home with stylish accents. Discover charming pieces that
+  add warmth and personality to any space. Decorating a home is about creating a welcoming
+  e
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=cool-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Elevate your home with stylish accents. Discover charming pieces that add warmth and personality to any space.**

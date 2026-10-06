@@ -1,10 +1,14 @@
 ---
-title: "Should I Put a Pool Table in My Living Room: Ultimate Guide"
-description: "Are you thinking about adding a pool table to your living room but aren’t sure if it’s the right move? You might be imagining fun game nights and a stylish cent"
+title: 'Should I Put a Pool Table in My Living Room: Ultimate Guide'
+description: Are you thinking about adding a pool table to your living room but aren’t
+  sure if it’s the right move? You might be imagining fun game nights and a stylish
+  cent
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-put-a-pool-table-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=should-i-put-a-pool-table-in-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a pool table to your living room but aren’t sure if it’s the right move? You might be imagining fun game nights and a stylish centerpiece, but also wondering if it will take up too much space or clash with your current setup.**

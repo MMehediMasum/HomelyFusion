@@ -1,10 +1,14 @@
 ---
-title: "Christmas Trees Homegoods: Top Realistic Artificial Trees for Holiday Decor"
-description: "Christmas trees bring festive cheer into homes during the holiday season. Choosing the right one can enhance your holiday décor. Selecting the ideal Christmas t"
+title: 'Christmas Trees Homegoods: Top Realistic Artificial Trees for Holiday Decor'
+description: Christmas trees bring festive cheer into homes during the holiday season.
+  Choosing the right one can enhance your holiday décor. Selecting the ideal Christmas
+  t
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-trees-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-trees-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas trees bring festive cheer into homes during the holiday season. Choosing the right one can enhance your holiday décor.**

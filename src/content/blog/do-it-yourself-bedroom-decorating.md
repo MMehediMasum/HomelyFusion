@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Bedroom Decorating: Stunning Ideas to Transform Your Space"
-description: "Your bedroom should be a place where you feel comfortable, relaxed, and truly yourself. But sometimes, the thought of decorating it can feel overwhelming or exp"
+title: 'Do It Yourself Bedroom Decorating: Stunning Ideas to Transform Your Space'
+description: Your bedroom should be a place where you feel comfortable, relaxed, and
+  truly yourself. But sometimes, the thought of decorating it can feel overwhelming
+  or exp
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-bedroom-decorating&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-bedroom-decorating&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your bedroom should be a place where you feel comfortable, relaxed, and truly yourself. But sometimes, the thought of decorating it can feel overwhelming or expensive.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Christmas Trees: Top Picks for Stunning Holiday Decor"
-description: "Home goods Christmas trees bring festive cheer to any space with easy setup and beautiful designs. They offer a variety of styles, sizes, and lighting options f"
+title: 'Home Goods Christmas Trees: Top Picks for Stunning Holiday Decor'
+description: Home goods Christmas trees bring festive cheer to any space with easy
+  setup and beautiful designs. They offer a variety of styles, sizes, and lighting
+  options f
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-trees&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home goods Christmas trees bring festive cheer to any space with easy setup and beautiful designs. They offer a variety of styles, sizes, and lighting options for all tastes.**

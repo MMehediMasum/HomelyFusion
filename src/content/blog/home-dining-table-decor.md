@@ -1,10 +1,14 @@
 ---
-title: "Home Dining Table Decor Ideas: Stylish Rustic and Boho Centerpiece Picks"
-description: "Home dining table decor creates a warm and inviting space for family and guests. Simple, stylish touches make every meal feel special and cozy. Decorating your "
+title: 'Home Dining Table Decor Ideas: Stylish Rustic and Boho Centerpiece Picks'
+description: 'Home dining table decor creates a warm and inviting space for family
+  and guests. Simple, stylish touches make every meal feel special and cozy. Decorating
+  your '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-dining-table-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=home-dining-table-decor&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home dining table decor creates a warm and inviting space for family and guests. Simple, stylish touches make every meal feel special and cozy.**

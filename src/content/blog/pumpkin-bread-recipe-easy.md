@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Pumpkin Bread Recipe Easy: Irresistible, Moist, and Quick Delight"
 description: "If you love the cozy taste of fall, you’re going to adore this easy pumpkin bread recipe. Imagine slicing into a warm, soft loaf filled with rich pumpkin flavor"
 pubDate: 2025-12-19

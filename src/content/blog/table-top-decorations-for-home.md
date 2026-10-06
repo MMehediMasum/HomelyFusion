@@ -1,10 +1,14 @@
 ---
-title: "Table Top Decorations for Home: Charming Rustic Fall Decor Ideas"
-description: "Creating a warm and inviting home atmosphere starts with the right table top decorations. Simple yet stylish pieces can transform any space. Fall-themed decorat"
+title: 'Table Top Decorations for Home: Charming Rustic Fall Decor Ideas'
+description: Creating a warm and inviting home atmosphere starts with the right table
+  top decorations. Simple yet stylish pieces can transform any space. Fall-themed
+  decorat
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-top-decorations-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=table-top-decorations-for-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a warm and inviting home atmosphere starts with the right table top decorations. Simple yet stylish pieces can transform any space.**

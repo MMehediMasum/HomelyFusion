@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Coffee Table Books That Elevate Style and Inspire Conversation"
-description: "Homegoods coffee table books add style and charm to any living space. They offer art, design, travel, and culture in beautiful, easy-to-read formats. These book"
+title: Homegoods Coffee Table Books That Elevate Style and Inspire Conversation
+description: Homegoods coffee table books add style and charm to any living space.
+  They offer art, design, travel, and culture in beautiful, easy-to-read formats.
+  These book
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-coffee-table-books&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-coffee-table-books&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods coffee table books add style and charm to any living space. They offer art, design, travel, and culture in beautiful, easy-to-read formats.**

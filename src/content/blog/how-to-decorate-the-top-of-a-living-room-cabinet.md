@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Top of a Living Room Cabinet: Stunning Ideas"
-description: "Looking at the top of your living room cabinet, do you feel it’s missing something? That empty space can be a hidden gem in your home décor, waiting to shine. H"
+title: 'How to Decorate the Top of a Living Room Cabinet: Stunning Ideas'
+description: Looking at the top of your living room cabinet, do you feel it’s missing
+  something? That empty space can be a hidden gem in your home décor, waiting to shine.
+  H
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-a-living-room-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-a-living-room-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking at the top of your living room cabinet, do you feel it’s missing something? That empty space can be a hidden gem in your home décor, waiting to shine.**

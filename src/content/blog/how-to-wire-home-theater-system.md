@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wire Home Theater System: Ultimate Step-by-Step Guide"
 description: "Setting up your home theater system can feel confusing at first. You might wonder where to start or worry about making mistakes with the wiring. But what if you"
 pubDate: 2026-04-21

@@ -1,10 +1,14 @@
 ---
-title: "Tjmaxx Bathroom Rugs: Soft, Non-Slip, and Stylish Bath Mat Sets"
-description: "Tjmaxx offers a range of stylish and functional bathroom rugs. These rugs combine softness, absorbency, and non-slip features. Finding the perfect bathroom rug "
+title: 'Tjmaxx Bathroom Rugs: Soft, Non-Slip, and Stylish Bath Mat Sets'
+description: 'Tjmaxx offers a range of stylish and functional bathroom rugs. These
+  rugs combine softness, absorbency, and non-slip features. Finding the perfect bathroom
+  rug '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tjmaxx-bathroom-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tjmaxx-bathroom-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tjmaxx offers a range of stylish and functional bathroom rugs. These rugs combine softness, absorbency, and non-slip features.**

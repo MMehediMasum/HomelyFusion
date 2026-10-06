@@ -1,10 +1,14 @@
 ---
-title: "Home Accent Stores: Top Rustic and Modern Decor Ideas for Every Room"
-description: "Home accent stores offer a variety of items to enhance your living space. These stores provide stylish, practical, and unique decor pieces for every room. From "
+title: 'Home Accent Stores: Top Rustic and Modern Decor Ideas for Every Room'
+description: 'Home accent stores offer a variety of items to enhance your living space.
+  These stores provide stylish, practical, and unique decor pieces for every room.
+  From '
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accent-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=home-accent-stores&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home accent stores offer a variety of items to enhance your living space. These stores provide stylish, practical, and unique decor pieces for every room.**

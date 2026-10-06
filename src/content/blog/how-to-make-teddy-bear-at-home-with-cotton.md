@@ -1,10 +1,14 @@
 ---
-title: "How to Make Teddy Bear at Home With Cotton: Easy DIY Guide"
-description: "Have you ever wanted to create a soft, cuddly teddy bear all by yourself? Making a teddy bear at home with cotton is easier than you might think, and it’s a fun"
+title: 'How to Make Teddy Bear at Home With Cotton: Easy DIY Guide'
+description: Have you ever wanted to create a soft, cuddly teddy bear all by yourself?
+  Making a teddy bear at home with cotton is easier than you might think, and it’s
+  a fun
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-teddy-bear-at-home-with-cotton&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-teddy-bear-at-home-with-cotton&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wanted to create a soft, cuddly teddy bear all by yourself? Making a teddy bear at home with cotton is easier than you might think, and it’s a fun way to add a personal touch to your gift or decor.**

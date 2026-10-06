@@ -1,10 +1,14 @@
 ---
-title: "How to Add Light Bulbs to Google Home: Easy Steps for Smart Control"
-description: "Imagine walking into a room and turning on the lights with just your voice. Sounds convenient, right? If you’ve ever wanted to control your home lighting withou"
+title: 'How to Add Light Bulbs to Google Home: Easy Steps for Smart Control'
+description: Imagine walking into a room and turning on the lights with just your
+  voice. Sounds convenient, right? If you’ve ever wanted to control your home lighting
+  withou
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-light-bulbs-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-light-bulbs-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine walking into a room and turning on the lights with just your voice. Sounds convenient, right?**

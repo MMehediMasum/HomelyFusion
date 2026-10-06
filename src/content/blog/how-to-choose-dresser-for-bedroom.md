@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Dresser for Bedroom: Ultimate Guide for Perfect Style"
-description: "Choosing the right dresser for your bedroom might seem simple, but it can change the entire feel of your space. You want a piece that fits perfectly, looks grea"
+title: 'How to Choose Dresser for Bedroom: Ultimate Guide for Perfect Style'
+description: Choosing the right dresser for your bedroom might seem simple, but it
+  can change the entire feel of your space. You want a piece that fits perfectly,
+  looks grea
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-dresser-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-dresser-for-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right dresser for your bedroom might seem simple, but it can change the entire feel of your space. You want a piece that fits perfectly, looks great, and holds everything you need.**

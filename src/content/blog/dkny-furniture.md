@@ -1,10 +1,14 @@
 ---
-title: "Dkny Furniture: Stylish Designs to Elevate Your Home Decor"
-description: "Dkny Furniture combines style and functionality in every piece. Their designs offer both comfort and elegance for any home. Dkny Furniture stands out with its m"
+title: 'Dkny Furniture: Stylish Designs to Elevate Your Home Decor'
+description: Dkny Furniture combines style and functionality in every piece. Their
+  designs offer both comfort and elegance for any home. Dkny Furniture stands out
+  with its m
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=dkny-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Dkny Furniture combines style and functionality in every piece. Their designs offer both comfort and elegance for any home.**

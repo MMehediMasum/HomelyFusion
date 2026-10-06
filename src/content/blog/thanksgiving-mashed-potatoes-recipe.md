@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Mashed Potatoes Recipe: Creamy, Easy & Irresistible"
 description: "When it comes to Thanksgiving, nothing says comfort like a big bowl of creamy mashed potatoes. If you want your holiday meal to stand out, your mashed potatoes "
 pubDate: 2025-11-03

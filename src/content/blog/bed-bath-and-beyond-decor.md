@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Decor Ideas to Transform Your Home Instantly"
-description: "Transform your living space with stylish décor from Bed Bath & Beyond. Discover a world of beautiful home accents. From whimsical frog figurines to elegant deco"
+title: Bed Bath And Beyond Decor Ideas to Transform Your Home Instantly
+description: Transform your living space with stylish décor from Bed Bath & Beyond.
+  Discover a world of beautiful home accents. From whimsical frog figurines to elegant
+  deco
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-decor&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transform your living space with stylish décor from Bed Bath & Beyond. Discover a world of beautiful home accents.**

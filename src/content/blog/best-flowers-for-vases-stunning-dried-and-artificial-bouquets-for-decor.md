@@ -1,10 +1,14 @@
 ---
-title: "Best Flowers for Vases: Stunning Dried and Artificial Bouquets for Decor"
-description: "Choosing the best flowers for vases can brighten any room instantly. Fresh, dried, or artificial, the right flowers add style and charm. Vases need flowers that"
+title: 'Best Flowers for Vases: Stunning Dried and Artificial Bouquets for Decor'
+description: Choosing the best flowers for vases can brighten any room instantly.
+  Fresh, dried, or artificial, the right flowers add style and charm. Vases need flowers
+  that
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-flowers-for-vases-stunning-dried-and-artificial-bouquets-for-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-flowers-for-vases-stunning-dried-and-artificial-bouquets-for-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best flowers for vases can brighten any room instantly. Fresh, dried, or artificial, the right flowers add style and charm.**

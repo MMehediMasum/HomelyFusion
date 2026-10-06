@@ -1,10 +1,14 @@
 ---
-title: "Do You Need a Sofa in the Living Room: Essential Comfort Tips"
-description: "Have you ever wondered if your living room really needs a sofa? Maybe you’re unsure if it’s the right fit for your space or lifestyle. The truth is, a sofa can "
+title: 'Do You Need a Sofa in the Living Room: Essential Comfort Tips'
+description: 'Have you ever wondered if your living room really needs a sofa? Maybe
+  you’re unsure if it’s the right fit for your space or lifestyle. The truth is, a
+  sofa can '
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-a-sofa-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-a-sofa-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room really needs a sofa? Maybe you’re unsure if it’s the right fit for your space or lifestyle.**

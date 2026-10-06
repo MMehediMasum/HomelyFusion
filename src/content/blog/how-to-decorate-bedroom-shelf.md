@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom Shelf: Creative Ideas for Stylish Spaces"
-description: "Your bedroom shelf is more than just a place to store things—it’s a chance to show your style and make your space feel truly yours. But decorating it can feel t"
+title: 'How to Decorate Bedroom Shelf: Creative Ideas for Stylish Spaces'
+description: Your bedroom shelf is more than just a place to store things—it’s a chance
+  to show your style and make your space feel truly yours. But decorating it can feel
+  t
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bedroom shelf is more than just a place to store things—it’s a chance to show your style and make your space feel truly yours. But decorating it can feel tricky.**

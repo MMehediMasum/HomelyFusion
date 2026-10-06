@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Home Lamp: Elegant Lighting for Modern Coastal Living Spaces"
-description: "The Magaschoni Home Lamp offers a blend of style and functionality for any room. This collection features various designs suitable for different interiors. Choo"
+title: 'Magaschoni Home Lamp: Elegant Lighting for Modern Coastal Living Spaces'
+description: The Magaschoni Home Lamp offers a blend of style and functionality for
+  any room. This collection features various designs suitable for different interiors.
+  Choo
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-home-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-home-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **The Magaschoni Home Lamp offers a blend of style and functionality for any room. This collection features various designs suitable for different interiors.**

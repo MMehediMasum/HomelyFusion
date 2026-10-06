@@ -1,10 +1,14 @@
 ---
-title: "Style Flooring Ideas: Transform Your Space with Stunning Floor Lamps"
-description: "Floor lamps and mirrors play a crucial role in home decor. They enhance ambiance and offer functional lighting and reflection. Explore the diverse world of styl"
+title: 'Style Flooring Ideas: Transform Your Space with Stunning Floor Lamps'
+description: Floor lamps and mirrors play a crucial role in home decor. They enhance
+  ambiance and offer functional lighting and reflection. Explore the diverse world
+  of styl
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=style-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=style-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor lamps and mirrors play a crucial role in home decor. They enhance ambiance and offer functional lighting and reflection.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Counter Corner: Creative Ideas to Transform"
-description: "Your kitchen counter corner is more than just an empty space—it’s a hidden gem waiting to shine. You might have overlooked it, but with the right touch, that co"
+title: 'How to Decorate Kitchen Counter Corner: Creative Ideas to Transform'
+description: Your kitchen counter corner is more than just an empty space—it’s a hidden
+  gem waiting to shine. You might have overlooked it, but with the right touch, that
+  co
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-counter-corner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-counter-corner&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen counter corner is more than just an empty space—it’s a hidden gem waiting to shine. You might have overlooked it, but with the right touch, that corner can become the heart of your kitchen’s style and function.**

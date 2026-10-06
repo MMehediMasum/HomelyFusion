@@ -1,10 +1,14 @@
 ---
-title: "What Size Bed for 11X11 Bedroom: Perfect Fit Guide Revealed"
-description: "Choosing the right bed size for your 11x11 bedroom can feel tricky. You want a bed that fits perfectly—not too big to crowd your space, and not too small to lea"
+title: 'What Size Bed for 11X11 Bedroom: Perfect Fit Guide Revealed'
+description: Choosing the right bed size for your 11x11 bedroom can feel tricky. You
+  want a bed that fits perfectly—not too big to crowd your space, and not too small
+  to lea
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-for-11x11-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-for-11x11-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bed size for your 11x11 bedroom can feel tricky. You want a bed that fits perfectly—not too big to crowd your space, and not too small to leave you uncomfortable.**

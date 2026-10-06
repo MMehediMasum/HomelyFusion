@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Sealer: Ultimate Guide to Protect and Restore Your Floors"
-description: "Floor and decor sealers protect and enhance various floor surfaces. They help maintain shine, prevent damage, and extend floor life. Sealers work on stone, tile"
+title: 'Floor And Decor Sealer: Ultimate Guide to Protect and Restore Your Floors'
+description: Floor and decor sealers protect and enhance various floor surfaces. They
+  help maintain shine, prevent damage, and extend floor life. Sealers work on stone,
+  tile
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-sealer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-sealer&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and decor sealers protect and enhance various floor surfaces. They help maintain shine, prevent damage, and extend floor life.**

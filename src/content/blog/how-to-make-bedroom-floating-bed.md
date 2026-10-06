@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bedroom Floating Bed: Easy DIY Guide for Modern Style"
-description: "Imagine stepping into your bedroom and seeing a bed that seems to float effortlessly above the floor. A floating bed adds a modern, sleek look and creates a sen"
+title: 'How to Make Bedroom Floating Bed: Easy DIY Guide for Modern Style'
+description: Imagine stepping into your bedroom and seeing a bed that seems to float
+  effortlessly above the floor. A floating bed adds a modern, sleek look and creates
+  a sen
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bedroom-floating-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bedroom-floating-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Imagine stepping into your bedroom and seeing a bed that seems to float effortlessly above the floor. A floating bed adds a modern, sleek look and creates a sense of space and calm.**

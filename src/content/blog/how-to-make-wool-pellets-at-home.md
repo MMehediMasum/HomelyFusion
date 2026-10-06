@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Wool Pellets at Home: Easy DIY Guide for Beginners"
 description: "Are you looking for a simple, cost-effective way to create wool pellets right at home? Making your own wool pellets can save you money and give you full control"
 pubDate: 2026-02-09

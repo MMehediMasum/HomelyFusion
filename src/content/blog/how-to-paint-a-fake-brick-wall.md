@@ -1,10 +1,13 @@
 ---
-title: "How to Paint a Fake Brick Wall: Easy Steps for Stunning Results"
-description: "Are you looking to add a bold, stylish touch to your space without the hassle of installing real bricks? Painting a fake brick wall is a smart, budget-friendly "
+title: 'How to Paint a Fake Brick Wall: Easy Steps for Stunning Results'
+description: 'Are you looking to add a bold, stylish touch to your space without the
+  hassle of installing real bricks? Painting a fake brick wall is a smart, budget-friendly '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-fake-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-fake-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a bold, stylish touch to your space without the hassle of installing real bricks? Painting a fake brick wall is a smart, budget-friendly way to transform any room instantly.**

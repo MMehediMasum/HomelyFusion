@@ -1,10 +1,14 @@
 ---
-title: "Does a Small Living Room Need a Coffee Table? Smart Tips Inside"
-description: "Is your small living room feeling cramped and cluttered? You might be wondering if adding a coffee table will help or just take up more space. You want your roo"
+title: Does a Small Living Room Need a Coffee Table? Smart Tips Inside
+description: Is your small living room feeling cramped and cluttered? You might be
+  wondering if adding a coffee table will help or just take up more space. You want
+  your roo
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-small-living-room-need-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=does-a-small-living-room-need-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your small living room feeling cramped and cluttered? You might be wondering if adding a coffee table will help or just take up more space.**

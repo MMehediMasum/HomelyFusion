@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Home Theater System for Optimal Sound: Ultimate Guide"
 description: "Imagine watching your favorite movie and feeling like you're right in the middle of the action. That’s the power of a home theater system with perfect sound. Bu"
 pubDate: 2025-09-14

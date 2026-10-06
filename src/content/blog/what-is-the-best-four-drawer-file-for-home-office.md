@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Four Drawer File for Home Office: Top Picks Reviewed"
-description: "Are you tired of digging through piles of papers on your desk? Finding the right four drawer file can transform your home office from chaotic to organized in mi"
+title: 'What is the Best Four Drawer File for Home Office: Top Picks Reviewed'
+description: Are you tired of digging through piles of papers on your desk? Finding
+  the right four drawer file can transform your home office from chaotic to organized
+  in mi
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-four-drawer-file-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-four-drawer-file-for-home-office&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of digging through piles of papers on your desk? Finding the right four drawer file can transform your home office from chaotic to organized in minutes.**

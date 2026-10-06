@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Moreno Valley: Stylish Dining Buffets and Oversized Ottomans"
-description: "Ashley Furniture Moreno Valley offers quality home furniture that fits many styles and budgets. You can find pieces that add comfort and charm to any room. The "
+title: 'Ashley Furniture Moreno Valley: Stylish Dining Buffets and Oversized Ottomans'
+description: 'Ashley Furniture Moreno Valley offers quality home furniture that fits
+  many styles and budgets. You can find pieces that add comfort and charm to any room.
+  The '
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-moreno-valley&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-moreno-valley&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ashley Furniture Moreno Valley offers quality home furniture that fits many styles and budgets. You can find pieces that add comfort and charm to any room.**

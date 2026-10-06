@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Spiritual Wall Art Home Decor: Transform Your Space with Sacred Beauty"
 description: "Spiritual wall art adds a unique touch to home decor, merging aesthetics with deeper meanings. These pieces offer more than visual appeal; they bring tranquilit"
 pubDate: 2026-08-18

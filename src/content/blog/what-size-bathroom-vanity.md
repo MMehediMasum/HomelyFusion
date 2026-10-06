@@ -1,10 +1,14 @@
 ---
-title: "What Size Bathroom Vanity: Ultimate Guide to Perfect Fit Choices"
-description: "Choosing the right size bathroom vanity can make a big difference in how your space looks and feels. You want it to fit perfectly—not too big to crowd the room,"
+title: 'What Size Bathroom Vanity: Ultimate Guide to Perfect Fit Choices'
+description: Choosing the right size bathroom vanity can make a big difference in
+  how your space looks and feels. You want it to fit perfectly—not too big to crowd
+  the room,
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right size bathroom vanity can make a big difference in how your space looks and feels. You want it to fit perfectly—not too big to crowd the room, and not too small to limit your storage.**

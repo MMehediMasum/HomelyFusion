@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Top of Kitchen Cabinets Pinterest: Stunning Ideas"
-description: "Are you staring at the empty space above your kitchen cabinets and wondering how to make it look stylish? Decorating the top of your kitchen cabinets can comple"
+title: 'How to Decorate Top of Kitchen Cabinets Pinterest: Stunning Ideas'
+description: Are you staring at the empty space above your kitchen cabinets and wondering
+  how to make it look stylish? Decorating the top of your kitchen cabinets can comple
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-top-of-kitchen-cabinets-pinterest&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-top-of-kitchen-cabinets-pinterest&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you staring at the empty space above your kitchen cabinets and wondering how to make it look stylish? Decorating the top of your kitchen cabinets can completely change the vibe of your kitchen, making it feel cozy, elegant, or even bold.**

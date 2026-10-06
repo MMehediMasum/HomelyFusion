@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Pendant Light: Elegant Bamboo & Farmhouse Hanging Lights Guide"
-description: "Pendant lights add style and function to any home space. They brighten rooms while enhancing your decor. Choosing the right pendant light can change the look of"
+title: 'Home Decor Pendant Light: Elegant Bamboo & Farmhouse Hanging Lights Guide'
+description: Pendant lights add style and function to any home space. They brighten
+  rooms while enhancing your decor. Choosing the right pendant light can change the
+  look of
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-pendant-light&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-pendant-light&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Pendant lights add style and function to any home space. They brighten rooms while enhancing your decor.**

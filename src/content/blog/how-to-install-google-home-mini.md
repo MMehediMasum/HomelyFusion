@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home Mini: Easy Steps for Quick Setup"
 description: "Are you ready to make your home smarter with just a simple device? Installing your Google Home Mini is easier than you think, and once set up, it can become you"
 pubDate: 2025-10-15

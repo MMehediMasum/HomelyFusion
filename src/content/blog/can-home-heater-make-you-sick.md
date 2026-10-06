@@ -1,10 +1,14 @@
 ---
-title: "Can Home Heater Make You Sick: Shocking Risks You Must Know"
-description: "Have you ever wondered if your home heater could be making you sick? You rely on it to keep warm and comfortable during cold months, but what if it’s quietly ha"
+title: 'Can Home Heater Make You Sick: Shocking Risks You Must Know'
+description: Have you ever wondered if your home heater could be making you sick?
+  You rely on it to keep warm and comfortable during cold months, but what if it’s
+  quietly ha
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-home-heater-make-you-sick&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=can-home-heater-make-you-sick&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered if your home heater could be making you sick? You rely on it to keep warm and comfortable during cold months, but what if it’s quietly harming your health?**

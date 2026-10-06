@@ -1,10 +1,14 @@
 ---
-title: "Karma Home Lamps Home Goods: Stylish Ceramic Table Lamps for Every Room"
-description: "Karma Home Lamps offers a diverse selection of stylish and functional home lighting solutions. Their collection includes everything from modern table lamps to v"
+title: 'Karma Home Lamps Home Goods: Stylish Ceramic Table Lamps for Every Room'
+description: Karma Home Lamps offers a diverse selection of stylish and functional
+  home lighting solutions. Their collection includes everything from modern table
+  lamps to v
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=karma-home-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=karma-home-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Karma Home Lamps offers a diverse selection of stylish and functional home lighting solutions. Their collection includes everything from modern table lamps to vintage-inspired designs.**

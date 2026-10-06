@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Home Theater System for Xbox: Ultimate Setup Guide"
 description: "Want to turn your Xbox gaming into an unforgettable experience? Hooking up your home theater system the right way is the secret. Imagine hearing every footstep,"
 pubDate: 2026-04-23

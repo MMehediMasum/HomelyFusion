@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Curtains 96 Inches Long: Stylish, Light-Filtering & Blackout Options"
-description: "Home Goods Curtains 96 inches offer both style and function for any room. These curtains fit tall windows and sliding doors perfectly. Curtains that measure 96 "
+title: 'Home Goods Curtains 96 Inches Long: Stylish, Light-Filtering & Blackout Options'
+description: 'Home Goods Curtains 96 inches offer both style and function for any
+  room. These curtains fit tall windows and sliding doors perfectly. Curtains that
+  measure 96 '
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-curtains-96&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-curtains-96&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Goods Curtains 96 inches offer both style and function for any room. These curtains fit tall windows and sliding doors perfectly.**

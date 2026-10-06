@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Living Room With Brown Sofa: Stylish Tips"
-description: "Your brown sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you make it stand out and create a space that feels warm, "
+title: 'How to Decorate Your Living Room With Brown Sofa: Stylish Tips'
+description: 'Your brown sofa is more than just a piece of furniture—it’s the heart
+  of your living room. But how do you make it stand out and create a space that feels
+  warm, '
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-with-brown-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-living-room-with-brown-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your brown sofa is more than just a piece of furniture—it’s the heart of your living room. But how do you make it stand out and create a space that feels warm, stylish, and inviting?**

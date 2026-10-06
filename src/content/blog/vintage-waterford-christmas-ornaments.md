@@ -1,10 +1,14 @@
 ---
-title: "Vintage Waterford Christmas Ornaments: Timeless Elegance for Holiday Decor"
-description: "Vintage Waterford Christmas ornaments bring timeless beauty to holiday decor. These classic pieces add charm and sparkle to any Christmas tree. Waterford orname"
+title: 'Vintage Waterford Christmas Ornaments: Timeless Elegance for Holiday Decor'
+description: Vintage Waterford Christmas ornaments bring timeless beauty to holiday
+  decor. These classic pieces add charm and sparkle to any Christmas tree. Waterford
+  orname
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-waterford-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=vintage-waterford-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Vintage Waterford Christmas ornaments bring timeless beauty to holiday decor. These classic pieces add charm and sparkle to any Christmas tree.**

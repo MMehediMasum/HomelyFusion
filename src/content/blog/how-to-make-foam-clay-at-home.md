@@ -1,10 +1,14 @@
 ---
-title: "How to Make Foam Clay at Home: Easy, Fun, and Budget-Friendly Guide"
-description: "Have you ever wanted to create something soft, squishy, and fun right at home? Making foam clay yourself is easier than you think, and it opens up endless possi"
+title: 'How to Make Foam Clay at Home: Easy, Fun, and Budget-Friendly Guide'
+description: Have you ever wanted to create something soft, squishy, and fun right
+  at home? Making foam clay yourself is easier than you think, and it opens up endless
+  possi
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-foam-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-foam-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something soft, squishy, and fun right at home? Making foam clay yourself is easier than you think, and it opens up endless possibilities for crafts and creativity.**

@@ -1,10 +1,14 @@
 ---
-title: "Kate Spade Queen Blanket: Cozy Luxury for Your Bedroom Comfort"
-description: "The Kate Spade Queen Blanket blends style with comfort for your bedroom. It offers warmth and a chic look in one soft package. This blanket suits those who want"
+title: 'Kate Spade Queen Blanket: Cozy Luxury for Your Bedroom Comfort'
+description: The Kate Spade Queen Blanket blends style with comfort for your bedroom.
+  It offers warmth and a chic look in one soft package. This blanket suits those who
+  want
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kate-spade-queen-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=kate-spade-queen-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Kate Spade Queen Blanket blends style with comfort for your bedroom. It offers warmth and a chic look in one soft package.**

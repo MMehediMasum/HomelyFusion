@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bathroom Vanities Online: Top Picks for Stylish Deals"
-description: "Looking to upgrade your bathroom with a stylish vanity but not sure where to start? Finding the perfect bathroom vanity online can feel overwhelming with so man"
+title: 'Where to Buy Bathroom Vanities Online: Top Picks for Stylish Deals'
+description: Looking to upgrade your bathroom with a stylish vanity but not sure where
+  to start? Finding the perfect bathroom vanity online can feel overwhelming with
+  so man
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-vanities-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-vanities-online&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom with a stylish vanity but not sure where to start? Finding the perfect bathroom vanity online can feel overwhelming with so many options available.**

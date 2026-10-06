@@ -1,10 +1,13 @@
 ---
-title: "Should High Bed Be Avoided in Basement Bedroom? Expert Insights"
-description: "Are you thinking about placing a high bed in your basement bedroom? Before you make that choice, there are important factors you need to consider. Your comfort,"
+title: Should High Bed Be Avoided in Basement Bedroom? Expert Insights
+description: Are you thinking about placing a high bed in your basement bedroom? Before
+  you make that choice, there are important factors you need to consider. Your comfort,
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-high-bed-be-avoided-in-basement-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=should-high-bed-be-avoided-in-basement-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about placing a high bed in your basement bedroom? Before you make that choice, there are important factors you need to consider.**

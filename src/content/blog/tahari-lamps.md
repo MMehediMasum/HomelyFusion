@@ -1,10 +1,14 @@
 ---
-title: "Tahari Lamps: Elegant Marble Table Lamps with USB Ports and Nightlight"
-description: "Tahari lamps blend style and function for every room. They offer elegant lighting with practical features like USB ports and adjustable brightness. Tahari lamps"
+title: 'Tahari Lamps: Elegant Marble Table Lamps with USB Ports and Nightlight'
+description: Tahari lamps blend style and function for every room. They offer elegant
+  lighting with practical features like USB ports and adjustable brightness. Tahari
+  lamps
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=tahari-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tahari lamps blend style and function for every room. They offer elegant lighting with practical features like USB ports and adjustable brightness.**

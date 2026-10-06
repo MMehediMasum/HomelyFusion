@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Living Room With Black Sofas: Stylish Tips Revealed"
-description: "Are you wondering how to make your living room look stylish and inviting with black sofas? Black sofas are bold, elegant, and incredibly versatile, but decorati"
+title: 'How to Decorate a Living Room With Black Sofas: Stylish Tips Revealed'
+description: Are you wondering how to make your living room look stylish and inviting
+  with black sofas? Black sofas are bold, elegant, and incredibly versatile, but decorati
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-black-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-black-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room look stylish and inviting with black sofas? Black sofas are bold, elegant, and incredibly versatile, but decorating around them can feel tricky.**

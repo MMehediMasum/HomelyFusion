@@ -1,10 +1,14 @@
 ---
-title: "Holiday Rugs Home Goods: Top Festive Rugs for Cozy Holiday Decor"
-description: "Holiday rugs add a festive touch to your home during the season. They bring warmth and cheer to any space. These rugs come in various designs, sizes, and materi"
+title: 'Holiday Rugs Home Goods: Top Festive Rugs for Cozy Holiday Decor'
+description: Holiday rugs add a festive touch to your home during the season. They
+  bring warmth and cheer to any space. These rugs come in various designs, sizes,
+  and materi
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-rugs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-rugs-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday rugs add a festive touch to your home during the season. They bring warmth and cheer to any space.**

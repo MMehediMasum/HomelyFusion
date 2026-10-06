@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Big Sofa in Small Living Room: Expert Space Hacks"
-description: "Struggling to fit a big sofa into your small living room? You’re not alone. It can feel like your cozy space is working against you, making your sofa look overs"
+title: 'How to Arrange Big Sofa in Small Living Room: Expert Space Hacks'
+description: Struggling to fit a big sofa into your small living room? You’re not
+  alone. It can feel like your cozy space is working against you, making your sofa
+  look overs
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-big-sofa-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-big-sofa-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit a big sofa into your small living room? You’re not alone.**

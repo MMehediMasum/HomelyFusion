@@ -1,10 +1,14 @@
 ---
-title: "Wall Decorations for Bedroom: Stunning Ideas with Shelves, Vines, and Art"
-description: "Transform your bedroom into a personal sanctuary with the right wall decorations. Enhance your space's aesthetic with stylish, functional decor. Choosing the pe"
+title: 'Wall Decorations for Bedroom: Stunning Ideas with Shelves, Vines, and Art'
+description: Transform your bedroom into a personal sanctuary with the right wall
+  decorations. Enhance your space's aesthetic with stylish, functional decor. Choosing
+  the pe
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decorations-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decorations-for-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your bedroom into a personal sanctuary with the right wall decorations. Enhance your space's aesthetic with stylish, functional decor.**

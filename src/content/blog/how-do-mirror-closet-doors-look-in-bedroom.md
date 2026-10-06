@@ -1,10 +1,14 @@
 ---
-title: "How Do Mirror Closet Doors Look in Bedroom: Stylish & Spacious Ideas"
-description: "Are you thinking about updating your bedroom but unsure how to make it look bigger and brighter? Mirror closet doors might be the simple change you need. They d"
+title: 'How Do Mirror Closet Doors Look in Bedroom: Stylish & Spacious Ideas'
+description: Are you thinking about updating your bedroom but unsure how to make it
+  look bigger and brighter? Mirror closet doors might be the simple change you need.
+  They d
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-mirror-closet-doors-look-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-do-mirror-closet-doors-look-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you thinking about updating your bedroom but unsure how to make it look bigger and brighter? Mirror closet doors might be the simple change you need.**

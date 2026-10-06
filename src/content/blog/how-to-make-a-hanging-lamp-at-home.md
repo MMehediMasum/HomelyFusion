@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Hanging Lamp at Home: Easy DIY Guide"
-description: "Are you ready to add a unique touch to your home lighting? Making your own hanging lamp is easier than you think—and it gives your space a personal glow that st"
+title: 'How to Make a Hanging Lamp at Home: Easy DIY Guide'
+description: Are you ready to add a unique touch to your home lighting? Making your
+  own hanging lamp is easier than you think—and it gives your space a personal glow
+  that st
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-hanging-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-hanging-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to add a unique touch to your home lighting? Making your own hanging lamp is easier than you think—and it gives your space a personal glow that store-bought lamps just can’t match.**

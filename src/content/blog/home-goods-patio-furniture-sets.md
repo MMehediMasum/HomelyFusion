@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Furniture Sets: Stylish, Weather-Resistant Outdoor Seating Solutions"
-description: "Creating a comfortable outdoor space starts with the right patio furniture. Home Goods offers a range of stylish and durable sets. For those looking to enhance "
+title: 'Home Goods Patio Furniture Sets: Stylish, Weather-Resistant Outdoor Seating
+  Solutions'
+description: 'Creating a comfortable outdoor space starts with the right patio furniture.
+  Home Goods offers a range of stylish and durable sets. For those looking to enhance '
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-sets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-sets&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Creating a comfortable outdoor space starts with the right patio furniture. Home Goods offers a range of stylish and durable sets.**

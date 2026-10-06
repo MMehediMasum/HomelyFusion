@@ -1,10 +1,14 @@
 ---
-title: "What Size Coffee Table for Small Living Room: Perfect Fit Guide"
-description: "Choosing the right coffee table for your small living room can feel tricky. You want something that fits perfectly without making the space look crowded. But ho"
+title: 'What Size Coffee Table for Small Living Room: Perfect Fit Guide'
+description: Choosing the right coffee table for your small living room can feel tricky.
+  You want something that fits perfectly without making the space look crowded. But
+  ho
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-coffee-table-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-size-coffee-table-for-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right coffee table for your small living room can feel tricky. You want something that fits perfectly without making the space look crowded.**

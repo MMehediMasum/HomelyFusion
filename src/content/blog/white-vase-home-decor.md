@@ -1,10 +1,14 @@
 ---
-title: "White Vase Home Decor Ideas for Stylish Farmhouse and Modern Spaces"
-description: "White vases add a touch of elegance and simplicity to any home decor. Their versatile design complements various styles effortlessly. White ceramic vases provid"
+title: White Vase Home Decor Ideas for Stylish Farmhouse and Modern Spaces
+description: White vases add a touch of elegance and simplicity to any home decor.
+  Their versatile design complements various styles effortlessly. White ceramic vases
+  provid
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=white-vase-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=white-vase-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **White vases add a touch of elegance and simplicity to any home decor. Their versatile design complements various styles effortlessly.**

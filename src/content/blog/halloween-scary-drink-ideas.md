@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Scary Drink Ideas: Spooktacular Recipes to Haunt Your Party"
 description: "Are you ready to make your Halloween party unforgettable? Your drinks set the mood, and scary, spooky drinks are the perfect way to thrill your guests. Imagine "
 pubDate: 2026-01-09

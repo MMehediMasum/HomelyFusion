@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Blackout Curtains: Ultimate Light Blocking and Energy Saving Solutions"
-description: "Blackout curtains from Homegoods offer an excellent way to enhance privacy and block out unwanted light. These curtains come in various styles and sizes to fit "
+title: 'Homegoods Blackout Curtains: Ultimate Light Blocking and Energy Saving Solutions'
+description: 'Blackout curtains from Homegoods offer an excellent way to enhance privacy
+  and block out unwanted light. These curtains come in various styles and sizes to
+  fit '
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-blackout-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-blackout-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains from Homegoods offer an excellent way to enhance privacy and block out unwanted light. These curtains come in various styles and sizes to fit any room.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Slipcovers for Leather Furniture: Top Waterproof, Durable Protectors"
-description: "Protecting leather furniture keeps it looking new and lasts longer. Choosing the right slipcover guards against spills, scratches, and daily wear. Leather sofas"
+title: 'Best Slipcovers for Leather Furniture: Top Waterproof, Durable Protectors'
+description: Protecting leather furniture keeps it looking new and lasts longer. Choosing
+  the right slipcover guards against spills, scratches, and daily wear. Leather sofas
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-furniture-top-waterproof-durable-protectors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-furniture-top-waterproof-durable-protectors&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protecting leather furniture keeps it looking new and lasts longer. Choosing the right slipcover guards against spills, scratches, and daily wear.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Should a Recliner Be Placed in a Living Room: Ultimate Guide"
-description: "Where should a recliner be placed in your living room to create the perfect mix of comfort and style? You want a spot that not only feels cozy but also fits sea"
+title: 'Where Should a Recliner Be Placed in a Living Room: Ultimate Guide'
+description: Where should a recliner be placed in your living room to create the perfect
+  mix of comfort and style? You want a spot that not only feels cozy but also fits
+  sea
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-a-recliner-be-placed-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=where-should-a-recliner-be-placed-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Where should a recliner be placed in your living room to create the perfect mix of comfort and style? You want a spot that not only feels cozy but also fits seamlessly with your space.**

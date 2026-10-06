@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Website: Top Unique Rustic and Modern Decor Ideas"
-description: "Discover exquisite home accents that effortlessly transform any space. Our curated selection combines style with functionality, perfect for every room. Explore "
+title: 'Home Accents Website: Top Unique Rustic and Modern Decor Ideas'
+description: 'Discover exquisite home accents that effortlessly transform any space.
+  Our curated selection combines style with functionality, perfect for every room.
+  Explore '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-website&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-website&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover exquisite home accents that effortlessly transform any space. Our curated selection combines style with functionality, perfect for every room.**

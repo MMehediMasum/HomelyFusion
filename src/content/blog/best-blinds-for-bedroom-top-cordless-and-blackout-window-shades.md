@@ -1,10 +1,14 @@
 ---
-title: "Best Blinds for Bedroom: Top Cordless and Blackout Window Shades"
-description: "Choosing the best blinds for your bedroom helps control light and privacy. The right blinds also add style and comfort to your space. Bedrooms need window treat"
+title: 'Best Blinds for Bedroom: Top Cordless and Blackout Window Shades'
+description: Choosing the best blinds for your bedroom helps control light and privacy.
+  The right blinds also add style and comfort to your space. Bedrooms need window
+  treat
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blinds-for-bedroom-top-cordless-and-blackout-window-shades&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=best-blinds-for-bedroom-top-cordless-and-blackout-window-shades&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best blinds for your bedroom helps control light and privacy. The right blinds also add style and comfort to your space.**

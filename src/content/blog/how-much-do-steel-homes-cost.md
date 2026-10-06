@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much Do Steel Homes Cost: Ultimate Guide to Affordable Living"
 description: "Are you curious about how much steel homes really cost? If you’re thinking about building a durable, modern home, understanding the price is key. You want a hom"
 pubDate: 2026-03-28

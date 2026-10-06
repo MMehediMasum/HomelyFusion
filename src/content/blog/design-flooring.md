@@ -1,10 +1,13 @@
 ---
-title: "Design Flooring Essentials: Top Products for Stylish and Functional Spaces"
-description: "Design flooring combines style and function to improve any space’s look and feel. Choosing the right flooring can enhance comfort, durability, and cleanliness. "
+title: 'Design Flooring Essentials: Top Products for Stylish and Functional Spaces'
+description: 'Design flooring combines style and function to improve any space’s look
+  and feel. Choosing the right flooring can enhance comfort, durability, and cleanliness. '
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=design-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=design-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Design flooring combines style and function to improve any space’s look and feel. Choosing the right flooring can enhance comfort, durability, and cleanliness.**

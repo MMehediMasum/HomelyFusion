@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up a Home Theater System: Ultimate Guide for Beginners"
 description: "Imagine turning your living room into a movie theater where every sound surrounds you and every scene feels real. Setting up a home theater system might seem tr"
 pubDate: 2025-09-23

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen Island Countertop: Stunning Ideas Revealed"
-description: "Your kitchen island countertop is more than just a workspace—it’s the heart of your kitchen. How you decorate it can transform the entire room, making it feel w"
+title: 'How to Decorate a Kitchen Island Countertop: Stunning Ideas Revealed'
+description: Your kitchen island countertop is more than just a workspace—it’s the
+  heart of your kitchen. How you decorate it can transform the entire room, making
+  it feel w
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-island-countertop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-island-countertop&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen island countertop is more than just a workspace—it’s the heart of your kitchen. How you decorate it can transform the entire room, making it feel warm, inviting, and uniquely yours.**

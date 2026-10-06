@@ -1,10 +1,14 @@
 ---
-title: "Goldendoodle Bookends: Cute and Durable Decorative Book Holders for Home"
-description: "Goldendoodle bookends bring charm and organization to your space. They combine function with delightful design. Meet the perfect solution for keeping your books"
+title: 'Goldendoodle Bookends: Cute and Durable Decorative Book Holders for Home'
+description: Goldendoodle bookends bring charm and organization to your space. They
+  combine function with delightful design. Meet the perfect solution for keeping your
+  books
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=goldendoodle-bookends&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Bookends
+heroImage: https://tse1.mm.bing.net/th?q=goldendoodle-bookends&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Goldendoodle bookends bring charm and organization to your space. They combine function with delightful design.**

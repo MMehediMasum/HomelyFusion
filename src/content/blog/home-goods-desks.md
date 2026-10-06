@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Desks: Top Adjustable and L-Shaped Options for Your Office"
-description: "Home goods desks offer practical and stylish solutions for any home workspace. They come in various designs to fit different needs and spaces. Choosing the righ"
+title: 'Home Goods Desks: Top Adjustable and L-Shaped Options for Your Office'
+description: Home goods desks offer practical and stylish solutions for any home workspace.
+  They come in various designs to fit different needs and spaces. Choosing the righ
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-desks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-desks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods desks offer practical and stylish solutions for any home workspace. They come in various designs to fit different needs and spaces.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Dining Room: Top Modern Farmhouse Chandeliers to Brighten"
-description: "Choosing the best lighting for your dining room sets the mood and enhances the space’s look. The right fixture brightens meals and adds style. Dining room light"
+title: 'Best Lighting for Dining Room: Top Modern Farmhouse Chandeliers to Brighten'
+description: Choosing the best lighting for your dining room sets the mood and enhances
+  the space’s look. The right fixture brightens meals and adds style. Dining room
+  light
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-dining-room-top-modern-farmhouse-chandeliers-to-brighten&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-dining-room-top-modern-farmhouse-chandeliers-to-brighten&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your dining room sets the mood and enhances the space’s look. The right fixture brightens meals and adds style.**

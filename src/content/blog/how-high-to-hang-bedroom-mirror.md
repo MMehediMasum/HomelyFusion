@@ -1,10 +1,15 @@
 ---
-title: "How High to Hang Bedroom Mirror: The Ultimate Hanging Guide for a Flawless Reflection"
-description: "Are you struggling with where to hang your bedroom mirror? Getting the height just right can transform your space, making it feel bigger, brighter, and more sty"
+title: 'How High to Hang Bedroom Mirror: The Ultimate Hanging Guide for a Flawless
+  Reflection'
+description: Are you struggling with where to hang your bedroom mirror? Getting the
+  height just right can transform your space, making it feel bigger, brighter, and
+  more sty
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-to-hang-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-high-to-hang-bedroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you struggling with where to hang your bedroom mirror? Getting the height just right can transform your space, making it feel bigger, brighter, and more stylish.**

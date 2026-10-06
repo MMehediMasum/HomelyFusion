@@ -1,10 +1,14 @@
 ---
-title: "Home Decor And Lighting Ideas to Brighten Every Room Stylishly"
-description: "Creating a warm and inviting home environment requires thoughtful decor and lighting choices. The right lighting enhances mood and functionality. Lighting and d"
+title: Home Decor And Lighting Ideas to Brighten Every Room Stylishly
+description: Creating a warm and inviting home environment requires thoughtful decor
+  and lighting choices. The right lighting enhances mood and functionality. Lighting
+  and d
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-and-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-and-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Creating a warm and inviting home environment requires thoughtful decor and lighting choices. The right lighting enhances mood and functionality.**

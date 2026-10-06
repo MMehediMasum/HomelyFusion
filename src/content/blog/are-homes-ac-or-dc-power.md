@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Homes Ac Or Dc Power? Unveiling the Truth Behind Your Energy Source"
 description: "Have you ever stopped to wonder whether the electricity powering your home is AC or DC? Understanding this simple fact can help you make smarter choices about y"
 pubDate: 2026-04-06

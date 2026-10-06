@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Diwali Lantern at Home: Easy & Stunning DIY Guide"
-description: "Diwali is a time of light, joy, and celebration. Imagine brightening your home with a beautiful, handmade lantern that you created yourself. Making a Diwali lan"
+title: 'How to Make a Diwali Lantern at Home: Easy & Stunning DIY Guide'
+description: Diwali is a time of light, joy, and celebration. Imagine brightening
+  your home with a beautiful, handmade lantern that you created yourself. Making a
+  Diwali lan
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-diwali-lantern-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-diwali-lantern-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Diwali is a time of light, joy, and celebration. Imagine brightening your home with a beautiful, handmade lantern that you created yourself.**

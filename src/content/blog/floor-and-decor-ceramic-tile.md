@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Ceramic Tile: Ultimate Guide to Cleaning, Sealing & Styling"
-description: "Floor And Decor ceramic tile offers durable and stylish options for every room. These tiles blend beauty with easy maintenance for home and office spaces. Ceram"
+title: 'Floor And Decor Ceramic Tile: Ultimate Guide to Cleaning, Sealing & Styling'
+description: Floor And Decor ceramic tile offers durable and stylish options for every
+  room. These tiles blend beauty with easy maintenance for home and office spaces.
+  Ceram
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-ceramic-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-ceramic-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor ceramic tile offers durable and stylish options for every room. These tiles blend beauty with easy maintenance for home and office spaces.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Big Empty Wall: Stunning Ideas to Transform Space"
-description: "Is your big empty wall staring back at you, feeling like a blank canvas waiting for something amazing? You’re not alone. A large, bare wall can make a room feel"
+title: 'How to Decorate a Big Empty Wall: Stunning Ideas to Transform Space'
+description: Is your big empty wall staring back at you, feeling like a blank canvas
+  waiting for something amazing? You’re not alone. A large, bare wall can make a room
+  feel
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-empty-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-empty-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your big empty wall staring back at you, feeling like a blank canvas waiting for something amazing? You’re not alone.**

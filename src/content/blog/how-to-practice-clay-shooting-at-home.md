@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Practice Clay Shooting at Home: Easy Tips for Success"
 description: "Are you looking to improve your clay shooting skills without heading to the range? Practicing at home can be easier than you think. With a few simple tools and "
 pubDate: 2025-09-20

@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Wall Decorations: Stylish Ideas to Elevate Your Living Space"
-description: "Home interior wall decorations bring personality and style to any living space. They transform plain walls into eye-catching focal points with ease. Choosing th"
+title: 'Home Interior Wall Decorations: Stylish Ideas to Elevate Your Living Space'
+description: Home interior wall decorations bring personality and style to any living
+  space. They transform plain walls into eye-catching focal points with ease. Choosing
+  th
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-wall-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-wall-decorations&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home interior wall decorations bring personality and style to any living space. They transform plain walls into eye-catching focal points with ease.**

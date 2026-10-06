@@ -1,10 +1,14 @@
 ---
-title: "Elite Home Decorative Pillows: Stylish Covers to Transform Your Living Space"
-description: "Elite home decorative pillows add style and comfort to any living space. These pillow covers combine quality materials with attractive designs. Decorative pillo"
+title: 'Elite Home Decorative Pillows: Stylish Covers to Transform Your Living Space'
+description: Elite home decorative pillows add style and comfort to any living space.
+  These pillow covers combine quality materials with attractive designs. Decorative
+  pillo
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=elite-home-decorative-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=elite-home-decorative-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Elite home decorative pillows add style and comfort to any living space. These pillow covers combine quality materials with attractive designs.**

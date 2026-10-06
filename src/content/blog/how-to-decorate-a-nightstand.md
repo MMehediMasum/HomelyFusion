@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Nightstand: Stylish Tips for a Cozy Look"
-description: "Your nightstand is more than just a place to put your alarm clock. It’s a small but powerful space that can set the tone for your entire bedroom. Imagine waking"
+title: 'How to Decorate a Nightstand: Stylish Tips for a Cozy Look'
+description: Your nightstand is more than just a place to put your alarm clock. It’s
+  a small but powerful space that can set the tone for your entire bedroom. Imagine
+  waking
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your nightstand is more than just a place to put your alarm clock. It’s a small but powerful space that can set the tone for your entire bedroom.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Damascus Steel at Home: Ultimate DIY Guide"
 description: "Have you ever wondered how those stunning Damascus steel blades are made? Imagine creating your own piece of this legendary metal right at home. It might sound "
 pubDate: 2026-04-03

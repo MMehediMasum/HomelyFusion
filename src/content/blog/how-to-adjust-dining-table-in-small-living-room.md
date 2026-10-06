@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Dining Table in Small Living Room: Space-Saving Tips"
-description: "Struggling to fit a dining table into your small living room? You’re not alone. Finding the right balance between style and space can feel like a puzzle. But wh"
+title: 'How to Adjust Dining Table in Small Living Room: Space-Saving Tips'
+description: Struggling to fit a dining table into your small living room? You’re
+  not alone. Finding the right balance between style and space can feel like a puzzle.
+  But wh
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-dining-table-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-dining-table-in-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to fit a dining table into your small living room? You’re not alone.**

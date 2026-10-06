@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home With Spotify: Ultimate Setup Guide"
 description: "Imagine walking into your home and instantly hearing your favorite playlist without lifting a finger. With Google Home and Spotify, this can be your reality. If"
 pubDate: 2025-09-17

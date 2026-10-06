@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel at Home: Easy DIY Methods That Work"
 description: "Bending steel at home might sound like a tough job, but it’s more doable than you think. Whether you want to create custom metal art, fix something around the h"
 pubDate: 2026-04-07

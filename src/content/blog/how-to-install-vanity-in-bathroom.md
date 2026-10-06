@@ -1,10 +1,14 @@
 ---
-title: "How to Install Vanity in Bathroom: Easy Steps for a Stunning Upgrade"
-description: "Are you ready to give your bathroom a fresh new look? Installing a vanity is one of the easiest and most effective ways to transform your space. Whether you wan"
+title: 'How to Install Vanity in Bathroom: Easy Steps for a Stunning Upgrade'
+description: Are you ready to give your bathroom a fresh new look? Installing a vanity
+  is one of the easiest and most effective ways to transform your space. Whether you
+  wan
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-vanity-in-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-vanity-in-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to give your bathroom a fresh new look? Installing a vanity is one of the easiest and most effective ways to transform your space.**

@@ -1,10 +1,14 @@
 ---
-title: "What Height for a Living Room Tv Table: Perfect Viewing Guide"
-description: "Choosing the right height for your living room TV table can change the way you enjoy your favorite shows. If your TV is too high or too low, it can cause discom"
+title: 'What Height for a Living Room Tv Table: Perfect Viewing Guide'
+description: Choosing the right height for your living room TV table can change the
+  way you enjoy your favorite shows. If your TV is too high or too low, it can cause
+  discom
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-height-for-a-living-room-tv-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-height-for-a-living-room-tv-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right height for your living room TV table can change the way you enjoy your favorite shows. If your TV is too high or too low, it can cause discomfort and strain your neck.**

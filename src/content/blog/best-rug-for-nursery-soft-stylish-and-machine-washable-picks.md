@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Nursery: Soft, Stylish, and Machine Washable Picks"
-description: "Choosing the best rug for a nursery is important for comfort and safety. A soft, easy-to-clean rug creates a cozy space for your child to play and rest. Nursery"
+title: 'Best Rug for Nursery: Soft, Stylish, and Machine Washable Picks'
+description: Choosing the best rug for a nursery is important for comfort and safety.
+  A soft, easy-to-clean rug creates a cozy space for your child to play and rest.
+  Nursery
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-nursery-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-nursery-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for a nursery is important for comfort and safety. A soft, easy-to-clean rug creates a cozy space for your child to play and rest.**

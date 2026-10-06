@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Chair Cushion for Office Chair: Ultimate Comfort and Pain Relief Guide"
 description: "Finding the best chair cushion for your office chair can boost comfort and reduce pain. Choosing the right cushion supports your back during long sitting hours."
 pubDate: 2025-09-07

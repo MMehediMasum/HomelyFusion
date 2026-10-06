@@ -1,10 +1,14 @@
 ---
-title: "Cheap Bathroom Sink Ideas: Stylish Solutions on a Budget"
-description: "Looking to refresh your bathroom without spending a fortune? You’re in the right place. Finding cheap bathroom sink ideas that look stylish and work well doesn’"
+title: 'Cheap Bathroom Sink Ideas: Stylish Solutions on a Budget'
+description: Looking to refresh your bathroom without spending a fortune? You’re in
+  the right place. Finding cheap bathroom sink ideas that look stylish and work well
+  doesn’
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-bathroom-sink-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=cheap-bathroom-sink-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to refresh your bathroom without spending a fortune? You’re in the right place.**

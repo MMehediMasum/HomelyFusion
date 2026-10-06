@@ -1,10 +1,14 @@
 ---
-title: "Everwash Cashmere Rug Home Goods: Soft, Durable, and Stylish Area Rugs"
-description: "Everwash Cashmere Rug Home Goods offers stylish, washable rugs for every room. These rugs combine comfort with easy care. Everwash Cashmere Rug Home Goods provi"
+title: 'Everwash Cashmere Rug Home Goods: Soft, Durable, and Stylish Area Rugs'
+description: Everwash Cashmere Rug Home Goods offers stylish, washable rugs for every
+  room. These rugs combine comfort with easy care. Everwash Cashmere Rug Home Goods
+  provi
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=everwash-cashmere-rug-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=everwash-cashmere-rug-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Everwash Cashmere Rug Home Goods offers stylish, washable rugs for every room. These rugs combine comfort with easy care.**

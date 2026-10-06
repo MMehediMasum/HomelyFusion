@@ -1,10 +1,13 @@
 ---
-title: "How to Paint an Ombre Wall: Stunning Tips for a Perfect Gradient"
-description: "Are you looking to transform your room with a fresh, stylish look? Painting an ombre wall is one of the easiest ways to add depth and personality to any space. "
+title: 'How to Paint an Ombre Wall: Stunning Tips for a Perfect Gradient'
+description: 'Are you looking to transform your room with a fresh, stylish look? Painting
+  an ombre wall is one of the easiest ways to add depth and personality to any space. '
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-an-ombre-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ombre Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-an-ombre-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your room with a fresh, stylish look? Painting an ombre wall is one of the easiest ways to add depth and personality to any space.**

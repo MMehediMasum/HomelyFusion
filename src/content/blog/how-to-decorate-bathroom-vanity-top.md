@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bathroom Vanity Top: Stunning Ideas for a Chic Look"
-description: "Your bathroom vanity top is more than just a place to keep your daily essentials—it’s a chance to express your style and make your morning routine more enjoyabl"
+title: 'How to Decorate Bathroom Vanity Top: Stunning Ideas for a Chic Look'
+description: Your bathroom vanity top is more than just a place to keep your daily
+  essentials—it’s a chance to express your style and make your morning routine more
+  enjoyabl
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity top is more than just a place to keep your daily essentials—it’s a chance to express your style and make your morning routine more enjoyable. But decorating it can feel tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Dining Room Table: Stunning Ideas for Every Style"
-description: "Your dining room table is more than just a place to eat—it’s where memories are made, conversations flow, and your personal style shines. But how do you turn a "
+title: 'How to Decorate a Dining Room Table: Stunning Ideas for Every Style'
+description: 'Your dining room table is more than just a place to eat—it’s where memories
+  are made, conversations flow, and your personal style shines. But how do you turn
+  a '
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your dining room table is more than just a place to eat—it’s where memories are made, conversations flow, and your personal style shines. But how do you turn a simple table into a stunning centerpiece that draws everyone in?**

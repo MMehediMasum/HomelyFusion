@@ -1,10 +1,14 @@
 ---
-title: "How to Mix Sofas in Living Room: Stylish Tips for Perfect Harmony"
-description: "Are you wondering how to mix sofas in your living room without making it look messy or mismatched? You’re not alone. Finding the perfect way to combine differen"
+title: 'How to Mix Sofas in Living Room: Stylish Tips for Perfect Harmony'
+description: Are you wondering how to mix sofas in your living room without making
+  it look messy or mismatched? You’re not alone. Finding the perfect way to combine
+  differen
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-mix-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-mix-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to mix sofas in your living room without making it look messy or mismatched? You’re not alone.**

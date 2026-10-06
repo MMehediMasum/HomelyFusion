@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Furniture Clearance: Must-Have Stylish Storage & Charging Tables"
-description: "Discover incredible deals on stylish and functional furniture in our Home Goods Furniture Clearance. Perfect for refreshing your space affordably. Explore a wid"
+title: 'Home Goods Furniture Clearance: Must-Have Stylish Storage & Charging Tables'
+description: Discover incredible deals on stylish and functional furniture in our
+  Home Goods Furniture Clearance. Perfect for refreshing your space affordably. Explore
+  a wid
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-furniture-clearance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-furniture-clearance&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover incredible deals on stylish and functional furniture in our Home Goods Furniture Clearance. Perfect for refreshing your space affordably.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Rugs for Classroom: Top Cozy and Educational Kids’ Carpet Picks"
-description: "Choosing the best rugs for classrooms helps create a comfortable and organized learning space. Rugs add color, warmth, and safety to any classroom environment. "
+title: 'Best Rugs for Classroom: Top Cozy and Educational Kids’ Carpet Picks'
+description: 'Choosing the best rugs for classrooms helps create a comfortable and
+  organized learning space. Rugs add color, warmth, and safety to any classroom environment. '
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-classroom-top-cozy-and-educational-kids-carpet-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-classroom-top-cozy-and-educational-kids-carpet-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for classrooms helps create a comfortable and organized learning space. Rugs add color, warmth, and safety to any classroom environment.**

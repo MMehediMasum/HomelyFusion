@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Cake Stands: Elegant Displays for Parties and Celebrations"
-description: "Home goods cake stands add style and function to any dessert display. They come in many designs to fit different occasions and tastes. Cake stands hold cakes, c"
+title: 'Home Goods Cake Stands: Elegant Displays for Parties and Celebrations'
+description: Home goods cake stands add style and function to any dessert display.
+  They come in many designs to fit different occasions and tastes. Cake stands hold
+  cakes, c
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-cake-stands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-cake-stands&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods cake stands add style and function to any dessert display. They come in many designs to fit different occasions and tastes.**

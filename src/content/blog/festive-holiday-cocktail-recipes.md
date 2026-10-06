@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Festive Holiday Cocktail Recipes: Irresistible Drinks to Celebrate"
 description: "Are you ready to make your holiday gatherings unforgettable? Imagine serving festive holiday cocktail recipes that not only taste amazing but also bring a spark"
 pubDate: 2025-12-28

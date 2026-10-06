@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Mudroom: Durable, Stylish, and Easy-to-Clean Picks"
-description: "Choosing the best rugs for your mudroom helps keep dirt and moisture under control. The right rug also adds comfort and style to this busy space. Mudrooms face "
+title: 'Best Rugs for Mudroom: Durable, Stylish, and Easy-to-Clean Picks'
+description: 'Choosing the best rugs for your mudroom helps keep dirt and moisture
+  under control. The right rug also adds comfort and style to this busy space. Mudrooms
+  face '
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-mudroom-durable-stylish-and-easy-to-clean-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-mudroom-durable-stylish-and-easy-to-clean-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for your mudroom helps keep dirt and moisture under control. The right rug also adds comfort and style to this busy space.**

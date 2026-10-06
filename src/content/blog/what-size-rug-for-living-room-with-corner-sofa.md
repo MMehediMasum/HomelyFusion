@@ -1,10 +1,14 @@
 ---
-title: "What Size Rug for Living Room With Corner Sofa: Ultimate Guide"
-description: "Choosing the perfect rug size for your living room with a corner sofa can feel tricky. You want it to look just right—not too small that it gets lost, and not t"
+title: 'What Size Rug for Living Room With Corner Sofa: Ultimate Guide'
+description: Choosing the perfect rug size for your living room with a corner sofa
+  can feel tricky. You want it to look just right—not too small that it gets lost,
+  and not t
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-rug-for-living-room-with-corner-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-rug-for-living-room-with-corner-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect rug size for your living room with a corner sofa can feel tricky. You want it to look just right—not too small that it gets lost, and not too big that it overwhelms the space.**

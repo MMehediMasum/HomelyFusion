@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Table in Living Room: Stunning Ideas to Try Today"
-description: "Your living room table is more than just a surface—it’s the heart of your space. How you decorate it can transform the entire feel of your room, making it cozy,"
+title: 'How to Decorate a Table in Living Room: Stunning Ideas to Try Today'
+description: Your living room table is more than just a surface—it’s the heart of
+  your space. How you decorate it can transform the entire feel of your room, making
+  it cozy,
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room table is more than just a surface—it’s the heart of your space. How you decorate it can transform the entire feel of your room, making it cozy, stylish, and inviting.**

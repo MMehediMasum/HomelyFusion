@@ -1,10 +1,14 @@
 ---
-title: "How to Create Wall Panel Designs: Stunning Ideas for Your Space"
-description: "Are you looking to transform your space without a complete makeover? Creating wall panel designs might be the simple change that makes a big impact. Imagine you"
+title: 'How to Create Wall Panel Designs: Stunning Ideas for Your Space'
+description: Are you looking to transform your space without a complete makeover?
+  Creating wall panel designs might be the simple change that makes a big impact.
+  Imagine you
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-wall-panel-designs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-wall-panel-designs&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space without a complete makeover? Creating wall panel designs might be the simple change that makes a big impact.**

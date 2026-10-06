@@ -1,10 +1,15 @@
 ---
-title: "Photography Wall Art Home Decor: Stunning Black & White Prints to Elevate Spaces"
-description: "Photography wall art adds charm and personality to any living space. It brings moments, memories, and style right onto your walls. Choosing the right photograph"
+title: 'Photography Wall Art Home Decor: Stunning Black & White Prints to Elevate
+  Spaces'
+description: Photography wall art adds charm and personality to any living space.
+  It brings moments, memories, and style right onto your walls. Choosing the right
+  photograph
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=photography-wall-art-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=photography-wall-art-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Photography wall art adds charm and personality to any living space. It brings moments, memories, and style right onto your walls.**

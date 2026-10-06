@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bookcase in a Living Room: Stunning Style Tips"
-description: "Your living room bookcase is more than just a place to store books—it’s a chance to show your style and make your space feel inviting. But how do you decorate i"
+title: 'How to Decorate a Bookcase in a Living Room: Stunning Style Tips'
+description: Your living room bookcase is more than just a place to store books—it’s
+  a chance to show your style and make your space feel inviting. But how do you decorate
+  i
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bookcase-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bookcase-in-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room bookcase is more than just a place to store books—it’s a chance to show your style and make your space feel inviting. But how do you decorate it so it looks balanced, interesting, and personal?**

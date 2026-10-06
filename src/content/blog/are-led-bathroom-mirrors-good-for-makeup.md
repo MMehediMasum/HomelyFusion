@@ -1,10 +1,14 @@
 ---
-title: "Are Led Bathroom Mirrors Good for Makeup: Expert Insights Revealed"
-description: "When it comes to applying makeup, the lighting you use can make all the difference. Have you ever noticed how colors look different under harsh bathroom lights "
+title: 'Are Led Bathroom Mirrors Good for Makeup: Expert Insights Revealed'
+description: 'When it comes to applying makeup, the lighting you use can make all
+  the difference. Have you ever noticed how colors look different under harsh bathroom
+  lights '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-led-bathroom-mirrors-good-for-makeup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=are-led-bathroom-mirrors-good-for-makeup&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When it comes to applying makeup, the lighting you use can make all the difference. Have you ever noticed how colors look different under harsh bathroom lights or dim bulbs?**

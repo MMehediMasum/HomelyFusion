@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What Does Feng Shui Say About Mirrors in Bedroom: Vital Insights"
 description: "Have you ever wondered why some bedrooms feel peaceful while others leave you restless? Mirrors in your bedroom might be playing a bigger role than you think. F"
 pubDate: 2025-11-18

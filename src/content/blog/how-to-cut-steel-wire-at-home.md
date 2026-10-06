@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Steel Wire at Home: Easy & Safe DIY Techniques"
 description: "Are you struggling to cut steel wire cleanly and safely at home? Whether you're working on a DIY project or fixing something around the house, knowing the right"
 pubDate: 2026-03-29

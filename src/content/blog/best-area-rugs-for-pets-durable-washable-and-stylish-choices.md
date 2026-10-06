@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Pets: Durable, Washable, and Stylish Choices"
-description: "Finding the best area rugs for pets can protect your floors and add comfort to your home. Pet-friendly rugs resist stains, odors, and wear from claws and paws. "
+title: 'Best Area Rugs for Pets: Durable, Washable, and Stylish Choices'
+description: 'Finding the best area rugs for pets can protect your floors and add
+  comfort to your home. Pet-friendly rugs resist stains, odors, and wear from claws
+  and paws. '
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-pets-durable-washable-and-stylish-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-pets-durable-washable-and-stylish-choices&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best area rugs for pets can protect your floors and add comfort to your home. Pet-friendly rugs resist stains, odors, and wear from claws and paws.**

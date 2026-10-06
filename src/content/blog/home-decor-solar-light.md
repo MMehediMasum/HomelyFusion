@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Solar Light Ideas to Brighten Your Garden and Patio"
-description: "Solar lights can transform your garden into a stunning oasis. They offer beauty and function, enhancing any outdoor space. Solar lights for home decor are both "
+title: Home Decor Solar Light Ideas to Brighten Your Garden and Patio
+description: 'Solar lights can transform your garden into a stunning oasis. They offer
+  beauty and function, enhancing any outdoor space. Solar lights for home decor are
+  both '
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-solar-light&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-solar-light&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Solar lights can transform your garden into a stunning oasis. They offer beauty and function, enhancing any outdoor space.**

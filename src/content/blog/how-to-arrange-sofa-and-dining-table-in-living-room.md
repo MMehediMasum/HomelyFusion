@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofa And Dining Table in Living Room: Ultimate Guide"
-description: "Are you struggling to find the perfect spot for your sofa and dining table in your living room? You’re not alone. Getting the right arrangement can make your sp"
+title: 'How to Arrange Sofa And Dining Table in Living Room: Ultimate Guide'
+description: Are you struggling to find the perfect spot for your sofa and dining
+  table in your living room? You’re not alone. Getting the right arrangement can make
+  your sp
 pubDate: 2026-04-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-and-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-and-dining-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your sofa and dining table in your living room? You’re not alone.**

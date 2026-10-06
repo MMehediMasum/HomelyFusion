@@ -1,10 +1,14 @@
 ---
-title: "What Colours Go With Dark Grey Sofa Living Room: Stylish Color Combos"
-description: "Choosing the perfect colours to match your dark grey sofa can transform your living room from dull to dazzling. You might wonder which shades will make your spa"
+title: 'What Colours Go With Dark Grey Sofa Living Room: Stylish Color Combos'
+description: Choosing the perfect colours to match your dark grey sofa can transform
+  your living room from dull to dazzling. You might wonder which shades will make
+  your spa
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colours-go-with-dark-grey-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colours-go-with-dark-grey-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect colours to match your dark grey sofa can transform your living room from dull to dazzling. You might wonder which shades will make your space feel cozy, stylish, and inviting all at once.**

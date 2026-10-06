@@ -1,10 +1,14 @@
 ---
-title: "Does Bed Need to Be in Bedroom: Surprising Facts You Must Know"
-description: "Have you ever wondered if your bed truly needs to be in your bedroom? It sounds like a simple question, but the answer might surprise you. Where you place your "
+title: 'Does Bed Need to Be in Bedroom: Surprising Facts You Must Know'
+description: 'Have you ever wondered if your bed truly needs to be in your bedroom?
+  It sounds like a simple question, but the answer might surprise you. Where you place
+  your '
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-bed-need-to-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=does-bed-need-to-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your bed truly needs to be in your bedroom? It sounds like a simple question, but the answer might surprise you.**

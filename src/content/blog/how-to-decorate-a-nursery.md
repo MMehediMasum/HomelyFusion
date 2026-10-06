@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Nursery: Creative Ideas for a Dreamy Space"
-description: "Creating the perfect nursery is more than just picking colors and furniture—it’s about making a cozy, safe space where your little one will grow and explore. Yo"
+title: 'How to Decorate a Nursery: Creative Ideas for a Dreamy Space'
+description: Creating the perfect nursery is more than just picking colors and furniture—it’s
+  about making a cozy, safe space where your little one will grow and explore. Yo
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-nursery&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-nursery&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Creating the perfect nursery is more than just picking colors and furniture—it’s about making a cozy, safe space where your little one will grow and explore. You want a room that feels warm, calming, and full of love from the very first moment.**

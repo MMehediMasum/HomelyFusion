@@ -1,10 +1,13 @@
 ---
-title: "Flooring Places to Find Durable Underlayments and Protective Floor Mats"
-description: "Finding the right flooring places can make a big difference in your home’s look and feel. Quality floors add comfort and style to any room. Many flooring produc"
+title: Flooring Places to Find Durable Underlayments and Protective Floor Mats
+description: Finding the right flooring places can make a big difference in your home’s
+  look and feel. Quality floors add comfort and style to any room. Many flooring produc
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-places&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-places&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the right flooring places can make a big difference in your home’s look and feel. Quality floors add comfort and style to any room.**

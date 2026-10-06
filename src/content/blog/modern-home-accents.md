@@ -1,10 +1,14 @@
 ---
-title: "Modern Home Accents: Stylish Decorative Pieces to Elevate Your Space"
-description: "Discover the elegance of modern home accents with our curated selection of stylish decorative pieces. Elevate your spaces effortlessly. Modern home accents add "
+title: 'Modern Home Accents: Stylish Decorative Pieces to Elevate Your Space'
+description: 'Discover the elegance of modern home accents with our curated selection
+  of stylish decorative pieces. Elevate your spaces effortlessly. Modern home accents
+  add '
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the elegance of modern home accents with our curated selection of stylish decorative pieces. Elevate your spaces effortlessly.**

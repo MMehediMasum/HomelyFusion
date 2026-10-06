@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Material for Living Room: Top Picks for Style and Function"
-description: "Choosing the best curtain material for your living room affects style, light, and privacy. Curtains set the tone and comfort of your space. Natural linen curtai"
+title: 'Best Curtain Material for Living Room: Top Picks for Style and Function'
+description: Choosing the best curtain material for your living room affects style,
+  light, and privacy. Curtains set the tone and comfort of your space. Natural linen
+  curtai
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-material-for-living-room-top-picks-for-style-and-function&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-material-for-living-room-top-picks-for-style-and-function&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain material for your living room affects style, light, and privacy. Curtains set the tone and comfort of your space.**

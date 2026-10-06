@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Chandelier Crystals at Home: Easy Sparkling Tips"
-description: "Are your chandelier crystals looking dull and dusty? You might think cleaning them is a huge hassle or that you need special tools to get them sparkling again. "
+title: 'How to Clean Chandelier Crystals at Home: Easy Sparkling Tips'
+description: 'Are your chandelier crystals looking dull and dusty? You might think
+  cleaning them is a huge hassle or that you need special tools to get them sparkling
+  again. '
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-chandelier-crystals-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-chandelier-crystals-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are your chandelier crystals looking dull and dusty? You might think cleaning them is a huge hassle or that you need special tools to get them sparkling again.**

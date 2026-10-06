@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Vinyl Plank Flooring Reviews: Durable, Stylish, Easy DIY Options"
-description: "Home Decorators vinyl plank flooring offers stylish and affordable options for any room. These planks are easy to install and maintain. This review covers popul"
+title: 'Home Decorators Vinyl Plank Flooring Reviews: Durable, Stylish, Easy DIY Options'
+description: Home Decorators vinyl plank flooring offers stylish and affordable options
+  for any room. These planks are easy to install and maintain. This review covers
+  popul
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-vinyl-plank-flooring-reviews&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-vinyl-plank-flooring-reviews&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators vinyl plank flooring offers stylish and affordable options for any room. These planks are easy to install and maintain.**

@@ -1,10 +1,14 @@
 ---
-title: "Calvin Klein Rug Home Goods: Stylish, Durable Rugs for Every Room"
-description: "Calvin Klein rug home goods bring style and comfort to any room. Their modern designs fit bedrooms, living rooms, and kitchens well. These rugs offer a blend of"
+title: 'Calvin Klein Rug Home Goods: Stylish, Durable Rugs for Every Room'
+description: Calvin Klein rug home goods bring style and comfort to any room. Their
+  modern designs fit bedrooms, living rooms, and kitchens well. These rugs offer a
+  blend of
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=calvin-klein-rug-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=calvin-klein-rug-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Calvin Klein rug home goods bring style and comfort to any room. Their modern designs fit bedrooms, living rooms, and kitchens well.**

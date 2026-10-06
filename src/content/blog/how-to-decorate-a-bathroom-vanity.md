@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bathroom Vanity: Stunning Ideas for a Fresh Look"
-description: "Your bathroom vanity is more than just a sink and storage spot—it's a chance to express your style and make your daily routine feel special. But how do you deco"
+title: 'How to Decorate a Bathroom Vanity: Stunning Ideas for a Fresh Look'
+description: Your bathroom vanity is more than just a sink and storage spot—it's a
+  chance to express your style and make your daily routine feel special. But how do
+  you deco
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a sink and storage spot—it's a chance to express your style and make your daily routine feel special. But how do you decorate it without making it look cluttered or dull?**

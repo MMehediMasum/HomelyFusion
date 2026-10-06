@@ -1,10 +1,14 @@
 ---
-title: "Does a Living Room Need End Tables: Essential Style & Function Tips"
-description: "Have you ever wondered if your living room truly needs end tables? Maybe you’ve thought they’re just extra pieces taking up space, or perhaps you’re unsure how "
+title: 'Does a Living Room Need End Tables: Essential Style & Function Tips'
+description: 'Have you ever wondered if your living room truly needs end tables? Maybe
+  you’ve thought they’re just extra pieces taking up space, or perhaps you’re unsure
+  how '
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-living-room-need-end-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=does-a-living-room-need-end-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room truly needs end tables? Maybe you’ve thought they’re just extra pieces taking up space, or perhaps you’re unsure how they could actually improve your space.**

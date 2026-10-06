@@ -1,10 +1,14 @@
 ---
-title: "Would 10X12 Bedroom Fit King Size Bed: Ultimate Space Guide"
-description: "Are you wondering if a king size bed will fit comfortably in your 10x12 bedroom? Choosing the right bed size can make a big difference in how your room looks an"
+title: 'Would 10X12 Bedroom Fit King Size Bed: Ultimate Space Guide'
+description: Are you wondering if a king size bed will fit comfortably in your 10x12
+  bedroom? Choosing the right bed size can make a big difference in how your room
+  looks an
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=would-10x12-bedroom-fit-king-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=would-10x12-bedroom-fit-king-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if a king size bed will fit comfortably in your 10x12 bedroom? Choosing the right bed size can make a big difference in how your room looks and feels.**

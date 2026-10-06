@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Full Length Mirror: Stylish Floor Mirrors for Modern Home Decor"
-description: "Homegoods full length mirrors offer a perfect way to check your outfit from head to toe. These mirrors fit well in bedrooms, living rooms, or hallways. A full l"
+title: 'Homegoods Full Length Mirror: Stylish Floor Mirrors for Modern Home Decor'
+description: Homegoods full length mirrors offer a perfect way to check your outfit
+  from head to toe. These mirrors fit well in bedrooms, living rooms, or hallways.
+  A full l
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-full-length-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-full-length-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Homegoods full length mirrors offer a perfect way to check your outfit from head to toe. These mirrors fit well in bedrooms, living rooms, or hallways.**

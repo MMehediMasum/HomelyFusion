@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Shoe Rack: Ultimate Space-Saving Organizer for Every Room"
-description: "A home goods shoe rack keeps your shoes neat and easy to find. It helps organize your space and saves room. Shoe racks come in many styles and sizes to fit clos"
+title: 'Home Goods Shoe Rack: Ultimate Space-Saving Organizer for Every Room'
+description: A home goods shoe rack keeps your shoes neat and easy to find. It helps
+  organize your space and saves room. Shoe racks come in many styles and sizes to
+  fit clos
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-shoe-rack&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-shoe-rack&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A home goods shoe rack keeps your shoes neat and easy to find. It helps organize your space and saves room.**

@@ -1,10 +1,14 @@
 ---
-title: "Should Table Lamps Match in a Living Room: Stylish Tips Revealed"
-description: "Are you wondering if your table lamps should match in your living room? It’s a question that might seem small but can make a big difference in how your space lo"
+title: 'Should Table Lamps Match in a Living Room: Stylish Tips Revealed'
+description: Are you wondering if your table lamps should match in your living room?
+  It’s a question that might seem small but can make a big difference in how your
+  space lo
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-table-lamps-match-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=should-table-lamps-match-in-a-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering if your table lamps should match in your living room? It’s a question that might seem small but can make a big difference in how your space looks and feels.**

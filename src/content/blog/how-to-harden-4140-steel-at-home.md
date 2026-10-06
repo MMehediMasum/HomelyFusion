@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Harden 4140 Steel at Home: Easy DIY Heat Treatment Guide"
 description: "If you work with metal, you know how important it is to make your steel strong and durable. 4140 steel is a popular choice because of its toughness and versatil"
 pubDate: 2026-03-06

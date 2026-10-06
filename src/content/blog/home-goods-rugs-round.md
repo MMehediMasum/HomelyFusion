@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs Round: Stylish and Durable Circle Rugs for Every Room"
-description: "Round rugs from Home Goods are a versatile addition to any room. They bring warmth and style effortlessly. Whether you want a cozy addition to your bedroom or a"
+title: 'Home Goods Rugs Round: Stylish and Durable Circle Rugs for Every Room'
+description: Round rugs from Home Goods are a versatile addition to any room. They
+  bring warmth and style effortlessly. Whether you want a cozy addition to your bedroom
+  or a
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-round&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-round&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Round rugs from Home Goods are a versatile addition to any room. They bring warmth and style effortlessly.**

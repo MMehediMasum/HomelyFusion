@@ -1,10 +1,14 @@
 ---
-title: "How to Create Accent Stripes on Wall: Stunning DIY Guide"
-description: "Are you looking to add a fresh, stylish touch to your room without spending a fortune? Creating accent stripes on your wall is a simple and effective way to tra"
+title: 'How to Create Accent Stripes on Wall: Stunning DIY Guide'
+description: Are you looking to add a fresh, stylish touch to your room without spending
+  a fortune? Creating accent stripes on your wall is a simple and effective way to
+  tra
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-accent-stripes-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-accent-stripes-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a fresh, stylish touch to your room without spending a fortune? Creating accent stripes on your wall is a simple and effective way to transform any space instantly.**

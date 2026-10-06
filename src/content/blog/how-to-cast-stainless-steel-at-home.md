@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cast Stainless Steel at Home: Ultimate DIY Guide"
 description: "Have you ever wanted to create your own stainless steel items right at home? Imagine turning raw metal into something useful or artistic with your own hands. Ca"
 pubDate: 2026-04-07

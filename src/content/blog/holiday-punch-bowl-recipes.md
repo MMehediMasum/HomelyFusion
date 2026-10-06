@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Punch Bowl Recipes: Festive & Refreshing Drink Ideas"
 description: "Are you ready to become the star of your next holiday gathering? Imagine your guests’ eyes lighting up as they gather around a festive punch bowl filled with br"
 pubDate: 2025-12-19

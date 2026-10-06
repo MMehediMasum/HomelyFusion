@@ -1,10 +1,14 @@
 ---
-title: "Easter Lily Table Arrangement: Stunning Ideas to Brighten Your Home"
-description: "Looking to make your Easter table truly unforgettable? An Easter Lily table arrangement can bring fresh beauty and a touch of elegance to your celebration. Imag"
+title: 'Easter Lily Table Arrangement: Stunning Ideas to Brighten Your Home'
+description: Looking to make your Easter table truly unforgettable? An Easter Lily
+  table arrangement can bring fresh beauty and a touch of elegance to your celebration.
+  Imag
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-lily-table-arrangement&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-lily-table-arrangement&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to make your Easter table truly unforgettable? An Easter Lily table arrangement can bring fresh beauty and a touch of elegance to your celebration.**

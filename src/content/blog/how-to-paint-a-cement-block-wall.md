@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Cement Block Wall: Easy Steps for a Flawless Finish"
-description: "Are you looking to transform your dull cement block wall into something vibrant and eye-catching? Painting a cement block wall might seem tricky, but with the r"
+title: 'How to Paint a Cement Block Wall: Easy Steps for a Flawless Finish'
+description: Are you looking to transform your dull cement block wall into something
+  vibrant and eye-catching? Painting a cement block wall might seem tricky, but with
+  the r
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-cement-block-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-cement-block-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your dull cement block wall into something vibrant and eye-catching? Painting a cement block wall might seem tricky, but with the right steps, you can easily give your space a fresh, new look.**

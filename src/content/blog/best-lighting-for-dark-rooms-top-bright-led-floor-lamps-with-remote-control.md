@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Dark Rooms: Top Bright LED Floor Lamps with Remote Control"
-description: "Dark rooms often feel cramped and gloomy without proper lighting. Choosing the right light can brighten the space and improve comfort. Dark areas need bright, a"
+title: 'Best Lighting for Dark Rooms: Top Bright LED Floor Lamps with Remote Control'
+description: Dark rooms often feel cramped and gloomy without proper lighting. Choosing
+  the right light can brighten the space and improve comfort. Dark areas need bright,
+  a
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-dark-rooms-top-bright-led-floor-lamps-with-remote-control&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-dark-rooms-top-bright-led-floor-lamps-with-remote-control&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Dark rooms often feel cramped and gloomy without proper lighting. Choosing the right light can brighten the space and improve comfort.**

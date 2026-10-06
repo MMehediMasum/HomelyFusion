@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Stainless Steel Jewelry at Home: Easy DIY Guide"
 description: "Have you ever wanted to create your own stylish jewelry that lasts? Making stainless steel jewelry at home is easier than you think. Imagine wearing pieces you "
 pubDate: 2026-04-03

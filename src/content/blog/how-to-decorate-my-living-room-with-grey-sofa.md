@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate My Living Room With Grey Sofa: Stunning Style Tips"
-description: "Are you wondering how to make your living room look stylish and cozy with a grey sofa? You’re not alone. Grey sofas are a popular choice because they’re versati"
+title: 'How to Decorate My Living Room With Grey Sofa: Stunning Style Tips'
+description: Are you wondering how to make your living room look stylish and cozy
+  with a grey sofa? You’re not alone. Grey sofas are a popular choice because they’re
+  versati
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-my-living-room-with-grey-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-my-living-room-with-grey-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room look stylish and cozy with a grey sofa? You’re not alone.**

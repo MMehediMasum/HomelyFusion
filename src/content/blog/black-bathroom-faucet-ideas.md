@@ -1,10 +1,14 @@
 ---
-title: "Black Bathroom Faucet Ideas: Stunning Designs to Transform Your Space"
-description: "Are you looking to give your bathroom a fresh, modern look? Choosing the right faucet can make a huge difference. Black bathroom faucets are more than just tren"
+title: 'Black Bathroom Faucet Ideas: Stunning Designs to Transform Your Space'
+description: Are you looking to give your bathroom a fresh, modern look? Choosing
+  the right faucet can make a huge difference. Black bathroom faucets are more than
+  just tren
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-bathroom-faucet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Faucet Ideas
+heroImage: https://tse1.mm.bing.net/th?q=black-bathroom-faucet-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bathroom a fresh, modern look? Choosing the right faucet can make a huge difference.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Grand Duchess Christmas Tree: Elegant Pre-Lit Holiday Centerpiece"
-description: "Experience the magic of the holiday season with the Home Decorators Grand Duchess Christmas Tree. This tree brings elegance and warmth to your home. The Home De"
+title: 'Home Decorators Grand Duchess Christmas Tree: Elegant Pre-Lit Holiday Centerpiece'
+description: Experience the magic of the holiday season with the Home Decorators Grand
+  Duchess Christmas Tree. This tree brings elegance and warmth to your home. The Home
+  De
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-grand-duchess-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-grand-duchess-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Experience the magic of the holiday season with the Home Decorators Grand Duchess Christmas Tree. This tree brings elegance and warmth to your home.**

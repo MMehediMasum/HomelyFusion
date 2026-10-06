@@ -1,10 +1,14 @@
 ---
-title: "Christmas Santa Claus Figurine Decor: Magical Holiday Charm Ideas"
-description: "Are you ready to bring a touch of magic and warmth to your holiday space? A Christmas Santa Claus figurine decor is just what you need to spark joy and create t"
+title: 'Christmas Santa Claus Figurine Decor: Magical Holiday Charm Ideas'
+description: Are you ready to bring a touch of magic and warmth to your holiday space?
+  A Christmas Santa Claus figurine decor is just what you need to spark joy and create
+  t
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-santa-claus-figurine-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-santa-claus-figurine-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring a touch of magic and warmth to your holiday space? A Christmas Santa Claus figurine decor is just what you need to spark joy and create that cozy, festive feeling in your home.**

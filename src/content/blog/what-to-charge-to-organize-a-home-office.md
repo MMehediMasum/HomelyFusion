@@ -1,10 +1,14 @@
 ---
-title: "What to Charge to Organize a Home Office: Ultimate Pricing Guide"
-description: "Thinking about organizing a home office but unsure how much to charge? You’re not alone. Setting the right price can feel tricky—too high, and you might scare c"
+title: 'What to Charge to Organize a Home Office: Ultimate Pricing Guide'
+description: Thinking about organizing a home office but unsure how much to charge?
+  You’re not alone. Setting the right price can feel tricky—too high, and you might
+  scare c
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-charge-to-organize-a-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=what-to-charge-to-organize-a-home-office&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Thinking about organizing a home office but unsure how much to charge? You’re not alone.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Candy Apple Recipe: Irresistible & Easy Treat Ideas"
 description: "Are you ready to make your Halloween extra sweet and spooky? This Halloween Candy Apple Recipe is just what you need to impress your friends and family. Imagine"
 pubDate: 2025-12-27

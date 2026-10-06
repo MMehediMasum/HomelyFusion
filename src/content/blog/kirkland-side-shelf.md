@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Side Shelf: Ultimate Convenience for Your Stand by Your Side Setup"
-description: "The Kirkland Side Shelf adds extra space right next to your grill. It helps keep tools and food within easy reach. This side shelf fits well with many Kirkland "
+title: 'Kirkland Side Shelf: Ultimate Convenience for Your Stand by Your Side Setup'
+description: 'The Kirkland Side Shelf adds extra space right next to your grill. It
+  helps keep tools and food within easy reach. This side shelf fits well with many
+  Kirkland '
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-side-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-side-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **The Kirkland Side Shelf adds extra space right next to your grill. It helps keep tools and food within easy reach.**

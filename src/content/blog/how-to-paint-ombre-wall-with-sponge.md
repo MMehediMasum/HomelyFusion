@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Ombre Wall With Sponge: Easy Steps for Stunning Results"
-description: "Are you looking to add a fresh, stylish touch to your space without spending a fortune? Painting an ombre wall with a sponge is a simple and creative way to tra"
+title: 'How to Paint Ombre Wall With Sponge: Easy Steps for Stunning Results'
+description: Are you looking to add a fresh, stylish touch to your space without spending
+  a fortune? Painting an ombre wall with a sponge is a simple and creative way to
+  tra
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-ombre-wall-with-sponge&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ombre Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-ombre-wall-with-sponge&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a fresh, stylish touch to your space without spending a fortune? Painting an ombre wall with a sponge is a simple and creative way to transform any room.**

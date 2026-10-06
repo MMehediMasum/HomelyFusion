@@ -1,10 +1,14 @@
 ---
-title: "Will a Sectional Sofa Make My Living Room Look Larger? Expert Tips"
-description: "Are you wondering if a sectional sofa could actually make your living room look bigger? It might sound surprising, but the right sectional can open up your spac"
+title: Will a Sectional Sofa Make My Living Room Look Larger? Expert Tips
+description: Are you wondering if a sectional sofa could actually make your living
+  room look bigger? It might sound surprising, but the right sectional can open up
+  your spac
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-sectional-sofa-make-my-living-room-look-larger&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=will-a-sectional-sofa-make-my-living-room-look-larger&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a sectional sofa could actually make your living room look bigger? It might sound surprising, but the right sectional can open up your space and create a fresh, inviting feel.**

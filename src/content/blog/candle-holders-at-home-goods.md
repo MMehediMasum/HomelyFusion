@@ -1,10 +1,14 @@
 ---
-title: "Candle Holders at Home Goods: Elegant Gold and Vintage Centerpiece Ideas"
-description: "Candle holders at Home Goods offer style and function for any room. They come in many shapes, sizes, and colors to fit your taste. Home Goods carries a wide ran"
+title: 'Candle Holders at Home Goods: Elegant Gold and Vintage Centerpiece Ideas'
+description: Candle holders at Home Goods offer style and function for any room. They
+  come in many shapes, sizes, and colors to fit your taste. Home Goods carries a wide
+  ran
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=candle-holders-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=candle-holders-at-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Candle holders at Home Goods offer style and function for any room. They come in many shapes, sizes, and colors to fit your taste.**

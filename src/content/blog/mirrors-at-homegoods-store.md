@@ -1,10 +1,14 @@
 ---
-title: "Mirrors at Homegoods Store: Stylish Full-Length and Decorative Wall Options"
-description: "Mirrors from Homegoods Store offer diverse styles and sizes to elevate any space. They are essential for practical and decorative purposes. Explore a variety of"
+title: 'Mirrors at Homegoods Store: Stylish Full-Length and Decorative Wall Options'
+description: Mirrors from Homegoods Store offer diverse styles and sizes to elevate
+  any space. They are essential for practical and decorative purposes. Explore a variety
+  of
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirrors-at-homegoods-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=mirrors-at-homegoods-store&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors from Homegoods Store offer diverse styles and sizes to elevate any space. They are essential for practical and decorative purposes.**

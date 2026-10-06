@@ -1,10 +1,14 @@
 ---
-title: "Which Smart Bulbs Work With Google Home: Top Picks for 2025"
-description: "Looking to make your home smarter and more convenient? Choosing the right smart bulbs that work seamlessly with Google Home can transform the way you control yo"
+title: 'Which Smart Bulbs Work With Google Home: Top Picks for 2025'
+description: Looking to make your home smarter and more convenient? Choosing the right
+  smart bulbs that work seamlessly with Google Home can transform the way you control
+  yo
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-smart-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=which-smart-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to make your home smarter and more convenient? Choosing the right smart bulbs that work seamlessly with Google Home can transform the way you control your lighting.**

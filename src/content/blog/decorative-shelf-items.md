@@ -1,10 +1,13 @@
 ---
-title: "Decorative Shelf Items: Top Picks for Stylish Home and Office Decor"
-description: "Decorative shelf items breathe life into any room, turning simple spaces into stylish displays. These items add personality and charm. Incorporating decorative "
+title: 'Decorative Shelf Items: Top Picks for Stylish Home and Office Decor'
+description: 'Decorative shelf items breathe life into any room, turning simple spaces
+  into stylish displays. These items add personality and charm. Incorporating decorative '
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-shelf-items&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=decorative-shelf-items&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Decorative shelf items breathe life into any room, turning simple spaces into stylish displays. These items add personality and charm.**

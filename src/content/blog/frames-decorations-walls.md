@@ -1,10 +1,14 @@
 ---
-title: "Frames Decorations Walls: Top Multi-Size Picture Frame Sets for Stunning Displays"
-description: "Frames decorations walls create a stylish and personal touch in any room. They display your favorite photos and art beautifully and easily. Using picture frames"
+title: 'Frames Decorations Walls: Top Multi-Size Picture Frame Sets for Stunning Displays'
+description: Frames decorations walls create a stylish and personal touch in any room.
+  They display your favorite photos and art beautifully and easily. Using picture
+  frames
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-decorations-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-decorations-walls&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames decorations walls create a stylish and personal touch in any room. They display your favorite photos and art beautifully and easily.**

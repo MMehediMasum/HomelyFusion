@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Hexagon Tile Ideas for Stylish, Easy DIY Home Makeovers"
-description: "Hexagon tiles offer a stylish, modern touch to any space. They're versatile, easy to install, and come in various designs. Hexagon tiles are becoming a favorite"
+title: Floor And Decor Hexagon Tile Ideas for Stylish, Easy DIY Home Makeovers
+description: Hexagon tiles offer a stylish, modern touch to any space. They're versatile,
+  easy to install, and come in various designs. Hexagon tiles are becoming a favorite
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-hexagon-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-hexagon-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Hexagon tiles offer a stylish, modern touch to any space. They're versatile, easy to install, and come in various designs.**

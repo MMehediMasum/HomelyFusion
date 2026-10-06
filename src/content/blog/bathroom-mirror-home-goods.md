@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Mirror Home Goods: Stylish Matte Black Frames for Modern Bathrooms"
-description: "Bathroom mirrors are essential home goods that combine function and style. They brighten spaces and enhance bathroom decor effortlessly. Choosing the right bath"
+title: 'Bathroom Mirror Home Goods: Stylish Matte Black Frames for Modern Bathrooms'
+description: Bathroom mirrors are essential home goods that combine function and style.
+  They brighten spaces and enhance bathroom decor effortlessly. Choosing the right
+  bath
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bathroom mirrors are essential home goods that combine function and style. They brighten spaces and enhance bathroom decor effortlessly.**

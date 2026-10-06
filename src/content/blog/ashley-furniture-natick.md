@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ashley Furniture Natick: Top Stylish Sofas to Elevate Your Living Room"
 description: "Ashley Furniture in Natick offers a diverse range of sofas to suit every style and comfort need. Explore modern, farmhouse, and vintage designs that fit perfect"
 pubDate: 2025-10-15

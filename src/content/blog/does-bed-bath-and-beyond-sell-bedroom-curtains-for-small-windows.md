@@ -1,10 +1,15 @@
 ---
-title: "Does Bed Bath And Beyond Sell Bedroom Curtains for Small Windows? Find Out Now!"
-description: "Are you struggling to find the perfect bedroom curtains for your small windows? You want something that fits just right, looks great, and adds comfort to your s"
+title: Does Bed Bath And Beyond Sell Bedroom Curtains for Small Windows? Find Out
+  Now!
+description: Are you struggling to find the perfect bedroom curtains for your small
+  windows? You want something that fits just right, looks great, and adds comfort
+  to your s
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-bed-bath-and-beyond-sell-bedroom-curtains-for-small-windows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=does-bed-bath-and-beyond-sell-bedroom-curtains-for-small-windows&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you struggling to find the perfect bedroom curtains for your small windows? You want something that fits just right, looks great, and adds comfort to your space.**

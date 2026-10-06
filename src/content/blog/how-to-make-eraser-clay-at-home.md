@@ -1,10 +1,14 @@
 ---
-title: "How to Make Eraser Clay at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wished you could create your own eraser clay right at home? Imagine having a fun, soft, and colorful clay that not only shapes your creativity but"
+title: 'How to Make Eraser Clay at Home: Easy DIY Guide for Beginners'
+description: Have you ever wished you could create your own eraser clay right at home?
+  Imagine having a fun, soft, and colorful clay that not only shapes your creativity
+  but
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-eraser-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-eraser-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wished you could create your own eraser clay right at home? Imagine having a fun, soft, and colorful clay that not only shapes your creativity but also erases mistakes easily.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home: Easy & Fun DIY Craft Guide"
 description: "Have you ever wanted to create your own clay at home but didn’t know where to start? Making clay yourself is easier than you think, and it opens up endless poss"
 pubDate: 2026-04-10

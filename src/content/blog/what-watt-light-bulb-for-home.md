@@ -1,10 +1,14 @@
 ---
-title: "What Watt Light Bulb for Home: Choosing the Perfect Brightness"
-description: "Choosing the right watt light bulb for your home can feel confusing. You want bright, comfortable light without wasting energy or spending too much on bills. Bu"
+title: 'What Watt Light Bulb for Home: Choosing the Perfect Brightness'
+description: Choosing the right watt light bulb for your home can feel confusing.
+  You want bright, comfortable light without wasting energy or spending too much on
+  bills. Bu
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-watt-light-bulb-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-watt-light-bulb-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right watt light bulb for your home can feel confusing. You want bright, comfortable light without wasting energy or spending too much on bills.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw Bedroom With Bed And Shelf: Easy Step-by-Step Guide"
 description: "Are you ready to create a cozy bedroom design that feels just right? Drawing a bedroom with a bed and shelf might seem tricky, but it’s easier than you think. I"
 pubDate: 2026-05-17

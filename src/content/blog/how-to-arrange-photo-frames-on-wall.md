@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Photo Frames on Wall: Stunning Ideas That Impress"
-description: "Are you looking to turn your blank walls into a stunning display of memories and art? Arranging photo frames on your wall can completely transform the feel of a"
+title: 'How to Arrange Photo Frames on Wall: Stunning Ideas That Impress'
+description: Are you looking to turn your blank walls into a stunning display of memories
+  and art? Arranging photo frames on your wall can completely transform the feel of
+  a
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-photo-frames-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-photo-frames-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to turn your blank walls into a stunning display of memories and art? Arranging photo frames on your wall can completely transform the feel of a room, making it warm and personal.**

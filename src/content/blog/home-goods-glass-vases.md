@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Glass Vases: Stylish Centerpieces for Elegant Home Decor"
-description: "Glass vases offer elegant solutions for home decor and event settings. Their timeless beauty enhances any space effortlessly. Perfect for centerpieces or table "
+title: 'Home Goods Glass Vases: Stylish Centerpieces for Elegant Home Decor'
+description: 'Glass vases offer elegant solutions for home decor and event settings.
+  Their timeless beauty enhances any space effortlessly. Perfect for centerpieces
+  or table '
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-glass-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-glass-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Glass vases offer elegant solutions for home decor and event settings. Their timeless beauty enhances any space effortlessly.**

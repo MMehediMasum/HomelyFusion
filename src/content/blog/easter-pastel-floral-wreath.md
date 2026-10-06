@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Floral Wreath: Stunning DIY Spring Decor Ideas"
-description: "Are you looking to add a fresh and charming touch to your home this Easter? An Easter pastel floral wreath might be just what you need. Imagine soft, delicate c"
+title: 'Easter Pastel Floral Wreath: Stunning DIY Spring Decor Ideas'
+description: Are you looking to add a fresh and charming touch to your home this Easter?
+  An Easter pastel floral wreath might be just what you need. Imagine soft, delicate
+  c
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-floral-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-floral-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a fresh and charming touch to your home this Easter? An Easter pastel floral wreath might be just what you need.**

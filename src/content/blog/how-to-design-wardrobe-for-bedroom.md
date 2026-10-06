@@ -1,10 +1,13 @@
 ---
-title: "How to Design Wardrobe for Bedroom: Ultimate Guide for Stylish Storage"
-description: "Are you tired of a cluttered bedroom that makes getting dressed stressful? Designing the perfect wardrobe can transform your space into a calm, organized haven "
+title: 'How to Design Wardrobe for Bedroom: Ultimate Guide for Stylish Storage'
+description: 'Are you tired of a cluttered bedroom that makes getting dressed stressful?
+  Designing the perfect wardrobe can transform your space into a calm, organized haven '
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-wardrobe-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-wardrobe-for-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of a cluttered bedroom that makes getting dressed stressful? Designing the perfect wardrobe can transform your space into a calm, organized haven where everything has its place.**

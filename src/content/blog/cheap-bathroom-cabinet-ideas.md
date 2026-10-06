@@ -1,10 +1,14 @@
 ---
-title: "Cheap Bathroom Cabinet Ideas: Stylish & Budget-Friendly Solutions"
-description: "Are you looking to upgrade your bathroom without spending a fortune? Finding the perfect bathroom cabinet doesn’t have to drain your wallet. Imagine having a st"
+title: 'Cheap Bathroom Cabinet Ideas: Stylish & Budget-Friendly Solutions'
+description: Are you looking to upgrade your bathroom without spending a fortune?
+  Finding the perfect bathroom cabinet doesn’t have to drain your wallet. Imagine
+  having a st
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-bathroom-cabinet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=cheap-bathroom-cabinet-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to upgrade your bathroom without spending a fortune? Finding the perfect bathroom cabinet doesn’t have to drain your wallet.**

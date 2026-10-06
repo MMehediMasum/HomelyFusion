@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Narrow Living Room: Stunning Space Hacks"
-description: "Is your long narrow living room feeling more like a hallway than a cozy space? You’re not alone. Decorating this type of room can be tricky, but with the right "
+title: 'How to Decorate a Long Narrow Living Room: Stunning Space Hacks'
+description: 'Is your long narrow living room feeling more like a hallway than a cozy
+  space? You’re not alone. Decorating this type of room can be tricky, but with the
+  right '
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-narrow-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-narrow-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Is your long narrow living room feeling more like a hallway than a cozy space? You’re not alone.**

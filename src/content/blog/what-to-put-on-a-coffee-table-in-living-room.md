@@ -1,10 +1,14 @@
 ---
-title: "What to Put on a Coffee Table in Living Room: Stylish Must-Haves"
-description: "Your coffee table is more than just a piece of furniture—it’s the heart of your living room. But what should you put on it to make your space feel inviting, sty"
+title: 'What to Put on a Coffee Table in Living Room: Stylish Must-Haves'
+description: Your coffee table is more than just a piece of furniture—it’s the heart
+  of your living room. But what should you put on it to make your space feel inviting,
+  sty
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-a-coffee-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-a-coffee-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your coffee table is more than just a piece of furniture—it’s the heart of your living room. But what should you put on it to make your space feel inviting, stylish, and truly yours?**

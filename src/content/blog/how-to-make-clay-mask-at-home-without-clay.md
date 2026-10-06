@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Mask at Home Without Clay: Easy DIY Glow"
 description: "Looking for a fresh, glowing complexion but don’t have any clay on hand? You’re not alone—and the good news is, you don’t need clay to create an effective face "
 pubDate: 2026-02-23

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Expected to Go Down? Expert Insights"
 description: "Are you worried about the rising cost of heating your home this winter? You’re not alone. Many homeowners are asking the same question: are home heating oil pri"
 pubDate: 2026-04-01

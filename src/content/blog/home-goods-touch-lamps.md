@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Touch Lamps: Stylish Dimmable Lighting with USB Charging Ports"
-description: "Touch lamps are a popular choice for adding convenience and style to any room. These lamps offer easy brightness adjustment and useful features like USB ports. "
+title: 'Home Goods Touch Lamps: Stylish Dimmable Lighting with USB Charging Ports'
+description: 'Touch lamps are a popular choice for adding convenience and style to
+  any room. These lamps offer easy brightness adjustment and useful features like
+  USB ports. '
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-touch-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-touch-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Touch lamps are a popular choice for adding convenience and style to any room. These lamps offer easy brightness adjustment and useful features like USB ports.**

@@ -1,10 +1,14 @@
 ---
-title: "Flooring Websites Featuring Top Peel & Stick and Foam Floor Tiles Reviews"
-description: "Flooring websites offer a diverse range of options for home improvement enthusiasts. They cater to various styles and preferences, simplifying the selection pro"
+title: Flooring Websites Featuring Top Peel & Stick and Foam Floor Tiles Reviews
+description: Flooring websites offer a diverse range of options for home improvement
+  enthusiasts. They cater to various styles and preferences, simplifying the selection
+  pro
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-websites&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-websites&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring websites offer a diverse range of options for home improvement enthusiasts. They cater to various styles and preferences, simplifying the selection process.**

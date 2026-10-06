@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Full Length Mirror in Small Bedroom: Space-Saving Tips"
-description: "Are you struggling to find the perfect spot for a full-length mirror in your small bedroom? You’re not alone. A well-placed mirror can instantly make your room "
+title: 'Where to Put Full Length Mirror in Small Bedroom: Space-Saving Tips'
+description: 'Are you struggling to find the perfect spot for a full-length mirror
+  in your small bedroom? You’re not alone. A well-placed mirror can instantly make
+  your room '
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-full-length-mirror-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-full-length-mirror-in-small-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you struggling to find the perfect spot for a full-length mirror in your small bedroom? You’re not alone.**

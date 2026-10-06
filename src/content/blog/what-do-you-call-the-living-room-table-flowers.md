@@ -1,10 +1,13 @@
 ---
-title: "What Do You Call the Living Room Table Flowers: Stunning Decor Ideas"
-description: "Have you ever stopped to wonder what you actually call the flowers sitting on your living room table? You see them every day, but the name behind these beautifu"
+title: 'What Do You Call the Living Room Table Flowers: Stunning Decor Ideas'
+description: Have you ever stopped to wonder what you actually call the flowers sitting
+  on your living room table? You see them every day, but the name behind these beautifu
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-the-living-room-table-flowers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-the-living-room-table-flowers&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever stopped to wonder what you actually call the flowers sitting on your living room table? You see them every day, but the name behind these beautiful blooms might surprise you.**

@@ -1,10 +1,14 @@
 ---
-title: "How Much to Install Bathroom Vanity And Sink: Ultimate Cost Guide"
-description: "Thinking about upgrading your bathroom? One of the biggest questions you probably have is, \"How much will it cost to install a bathroom vanity and sink?\" You wa"
+title: 'How Much to Install Bathroom Vanity And Sink: Ultimate Cost Guide'
+description: Thinking about upgrading your bathroom? One of the biggest questions
+  you probably have is, "How much will it cost to install a bathroom vanity and sink?"
+  You wa
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-install-bathroom-vanity-and-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-install-bathroom-vanity-and-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about upgrading your bathroom? One of the biggest questions you probably have is, "How much will it cost to install a bathroom vanity and sink?"**

@@ -1,10 +1,14 @@
 ---
-title: "Best Wool Rugs for Living Room: Top Soft, Durable, Stylish Picks"
-description: "Choosing the best wool rug can enhance your living room’s comfort and style. Wool rugs bring warmth, durability, and natural beauty to any space. Wool rugs are "
+title: 'Best Wool Rugs for Living Room: Top Soft, Durable, Stylish Picks'
+description: 'Choosing the best wool rug can enhance your living room’s comfort and
+  style. Wool rugs bring warmth, durability, and natural beauty to any space. Wool
+  rugs are '
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wool-rugs-for-living-room-top-soft-durable-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-wool-rugs-for-living-room-top-soft-durable-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best wool rug can enhance your living room’s comfort and style. Wool rugs bring warmth, durability, and natural beauty to any space.**

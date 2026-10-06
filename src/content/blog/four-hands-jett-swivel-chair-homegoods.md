@@ -1,10 +1,14 @@
 ---
-title: "Four Hands Jett Swivel Chair Homegoods: Stylish Comfort for Any Space"
-description: "Discover the charm of the Four Hands Jett Swivel Chair, a perfect blend of style and comfort. Ideal for any home setting, it offers a unique design and smooth f"
+title: 'Four Hands Jett Swivel Chair Homegoods: Stylish Comfort for Any Space'
+description: Discover the charm of the Four Hands Jett Swivel Chair, a perfect blend
+  of style and comfort. Ideal for any home setting, it offers a unique design and
+  smooth f
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=four-hands-jett-swivel-chair-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=four-hands-jett-swivel-chair-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the charm of the Four Hands Jett Swivel Chair, a perfect blend of style and comfort. Ideal for any home setting, it offers a unique design and smooth functionality.**

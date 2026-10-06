@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Living Room Cabinet: Easy Steps for Stunning Results"
-description: "Are you tired of searching for the perfect living room cabinet that fits your style and space? What if you could create one yourself, tailored exactly to your n"
+title: 'How to Build a Living Room Cabinet: Easy Steps for Stunning Results'
+description: Are you tired of searching for the perfect living room cabinet that fits
+  your style and space? What if you could create one yourself, tailored exactly to
+  your n
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of searching for the perfect living room cabinet that fits your style and space? What if you could create one yourself, tailored exactly to your needs?**

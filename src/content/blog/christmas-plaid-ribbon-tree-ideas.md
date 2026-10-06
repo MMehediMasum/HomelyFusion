@@ -1,10 +1,13 @@
 ---
-title: "Christmas Plaid Ribbon Tree Ideas: Stunning DIY Holiday Decor Tips"
-description: "Are you looking to add a cozy, festive touch to your holiday decor? Christmas plaid ribbon trees are the perfect way to bring warmth and charm to your home this"
+title: 'Christmas Plaid Ribbon Tree Ideas: Stunning DIY Holiday Decor Tips'
+description: Are you looking to add a cozy, festive touch to your holiday decor? Christmas
+  plaid ribbon trees are the perfect way to bring warmth and charm to your home this
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-plaid-ribbon-tree-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-plaid-ribbon-tree-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a cozy, festive touch to your holiday decor? Christmas plaid ribbon trees are the perfect way to bring warmth and charm to your home this season.**

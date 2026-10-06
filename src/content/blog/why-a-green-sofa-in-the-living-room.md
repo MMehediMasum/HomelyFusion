@@ -1,10 +1,14 @@
 ---
-title: "Why a Green Sofa in the Living Room: Stunning Style Boost"
-description: "Imagine walking into your living room and feeling an instant calm wash over you. That’s the magic a green sofa can bring to your space. If you’re thinking about"
+title: 'Why a Green Sofa in the Living Room: Stunning Style Boost'
+description: Imagine walking into your living room and feeling an instant calm wash
+  over you. That’s the magic a green sofa can bring to your space. If you’re thinking
+  about
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-a-green-sofa-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=why-a-green-sofa-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and feeling an instant calm wash over you. That’s the magic a green sofa can bring to your space.**

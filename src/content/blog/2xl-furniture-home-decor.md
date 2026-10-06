@@ -1,10 +1,14 @@
 ---
-title: "2XL Furniture & Home Decor: Transform Your Space with Elegant Pieces"
-description: "2XL Furniture & Home Decor offers unique pieces to brighten your living space. Their collection includes statues, wall art, furniture covers, and more. Discover"
+title: '2XL Furniture & Home Decor: Transform Your Space with Elegant Pieces'
+description: 2XL Furniture & Home Decor offers unique pieces to brighten your living
+  space. Their collection includes statues, wall art, furniture covers, and more.
+  Discover
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=2xl-furniture-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=2xl-furniture-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **2XL Furniture & Home Decor offers unique pieces to brighten your living space. Their collection includes statues, wall art, furniture covers, and more.**

@@ -1,10 +1,14 @@
 ---
-title: "Is It Possible to Dye Leather Living Room Sofa: Expert Tips Revealed"
-description: "Are you tired of the look of your leather living room sofa but don’t want to spend a fortune on a new one? You might be wondering, is it possible to dye leather"
+title: 'Is It Possible to Dye Leather Living Room Sofa: Expert Tips Revealed'
+description: Are you tired of the look of your leather living room sofa but don’t
+  want to spend a fortune on a new one? You might be wondering, is it possible to
+  dye leather
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-possible-to-dye-leather-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=is-it-possible-to-dye-leather-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of the look of your leather living room sofa but don’t want to spend a fortune on a new one? You might be wondering, is it possible to dye leather living room sofa yourself?**

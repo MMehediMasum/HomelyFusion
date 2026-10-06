@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange a Living Room With a Sectional Sofa: Expert Tips"
-description: "Arranging your living room with a sectional sofa can transform the heart of your home into a cozy, stylish space you’ll love. But where do you start? You want y"
+title: 'How to Arrange a Living Room With a Sectional Sofa: Expert Tips'
+description: Arranging your living room with a sectional sofa can transform the heart
+  of your home into a cozy, stylish space you’ll love. But where do you start? You
+  want y
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-a-sectional-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-a-sectional-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Arranging your living room with a sectional sofa can transform the heart of your home into a cozy, stylish space you’ll love. But where do you start?**

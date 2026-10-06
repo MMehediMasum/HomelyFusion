@@ -1,10 +1,14 @@
 ---
-title: "How to Install Double Sink Bathroom Vanity: Step-by-Step Guide"
-description: "Are you ready to upgrade your bathroom with a stylish double sink vanity? Installing one might seem tricky, but you can do it yourself with the right steps. Ima"
+title: 'How to Install Double Sink Bathroom Vanity: Step-by-Step Guide'
+description: Are you ready to upgrade your bathroom with a stylish double sink vanity?
+  Installing one might seem tricky, but you can do it yourself with the right steps.
+  Ima
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-double-sink-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-double-sink-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to upgrade your bathroom with a stylish double sink vanity? Installing one might seem tricky, but you can do it yourself with the right steps.**

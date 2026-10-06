@@ -1,10 +1,14 @@
 ---
-title: "What to Hang above Bed in Master Bedroom: Stunning Ideas for Style"
-description: "Your master bedroom should be a place where you feel calm and inspired. But what do you hang above your bed to make that happen? Choosing the right piece can ch"
+title: 'What to Hang above Bed in Master Bedroom: Stunning Ideas for Style'
+description: Your master bedroom should be a place where you feel calm and inspired.
+  But what do you hang above your bed to make that happen? Choosing the right piece
+  can ch
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-hang-above-bed-in-master-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=what-to-hang-above-bed-in-master-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your master bedroom should be a place where you feel calm and inspired. But what do you hang above your bed to make that happen?**

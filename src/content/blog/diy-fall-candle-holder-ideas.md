@@ -1,10 +1,14 @@
 ---
-title: "Diy Fall Candle Holder Ideas: Cozy & Creative Decor Inspirations"
-description: "Are you ready to bring cozy, warm vibes into your home this fall? Creating your own fall candle holders is easier than you think, and it’s a fun way to add a pe"
+title: 'Diy Fall Candle Holder Ideas: Cozy & Creative Decor Inspirations'
+description: Are you ready to bring cozy, warm vibes into your home this fall? Creating
+  your own fall candle holders is easier than you think, and it’s a fun way to add
+  a pe
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-fall-candle-holder-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=diy-fall-candle-holder-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring cozy, warm vibes into your home this fall? Creating your own fall candle holders is easier than you think, and it’s a fun way to add a personal touch to your space.**

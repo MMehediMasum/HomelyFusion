@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Picture Frames: Stylish Multi-Size Sets for Stunning Wall Decor"
-description: "Bedroom picture frames add personality and warmth to your personal space. They showcase memories and style on your walls or bedside table. Choosing the right pi"
+title: 'Bedroom Picture Frames: Stylish Multi-Size Sets for Stunning Wall Decor'
+description: Bedroom picture frames add personality and warmth to your personal space.
+  They showcase memories and style on your walls or bedside table. Choosing the right
+  pi
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bedroom picture frames add personality and warmth to your personal space. They showcase memories and style on your walls or bedside table.**

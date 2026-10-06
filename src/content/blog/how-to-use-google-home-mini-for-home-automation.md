@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home Mini for Home Automation: Ultimate Guide"
 description: "Imagine controlling your entire home with just your voice. With the Google Home Mini, this isn’t a futuristic dream—it’s something you can start doing right now"
 pubDate: 2026-04-28

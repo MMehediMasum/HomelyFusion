@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home Mini: Ultimate Guide for Smart Living"
 description: "Are you ready to make your life easier with just your voice? The Google Home Mini is a small device that can do big things for you. Whether you want to play mus"
 pubDate: 2025-10-18

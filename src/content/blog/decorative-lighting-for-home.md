@@ -1,10 +1,14 @@
 ---
-title: "Decorative Lighting for Home: Transform Your Space with Stunning LED Lamps"
-description: "Decorative lighting adds charm and warmth to any home space. It creates a cozy, inviting atmosphere with style and soft light. Choosing the right decorative lig"
+title: 'Decorative Lighting for Home: Transform Your Space with Stunning LED Lamps'
+description: Decorative lighting adds charm and warmth to any home space. It creates
+  a cozy, inviting atmosphere with style and soft light. Choosing the right decorative
+  lig
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-lighting-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=decorative-lighting-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Decorative lighting adds charm and warmth to any home space. It creates a cozy, inviting atmosphere with style and soft light.**

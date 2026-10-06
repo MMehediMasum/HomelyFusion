@@ -1,10 +1,14 @@
 ---
-title: "Fall Centerpiece Ideas for Dining Table: Stunning Seasonal Decor Tips"
-description: "Your dining table is more than just a place to eat—it’s where memories are made, especially during the cozy fall season. Imagine your guests’ eyes lighting up a"
+title: 'Fall Centerpiece Ideas for Dining Table: Stunning Seasonal Decor Tips'
+description: Your dining table is more than just a place to eat—it’s where memories
+  are made, especially during the cozy fall season. Imagine your guests’ eyes lighting
+  up a
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-centerpiece-ideas-for-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-centerpiece-ideas-for-dining-table&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your dining table is more than just a place to eat—it’s where memories are made, especially during the cozy fall season. Imagine your guests’ eyes lighting up as they see a beautiful centerpiece that captures the warm colors and textures of autumn.**

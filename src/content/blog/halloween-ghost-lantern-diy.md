@@ -1,10 +1,14 @@
 ---
-title: "Halloween Ghost Lantern Diy: Easy & Spooky Step-by-Step Guide"
-description: "Looking to add a spooky touch to your Halloween decorations? Imagine lighting up your home with a unique ghost lantern that you made yourself. This Halloween Gh"
+title: 'Halloween Ghost Lantern Diy: Easy & Spooky Step-by-Step Guide'
+description: Looking to add a spooky touch to your Halloween decorations? Imagine
+  lighting up your home with a unique ghost lantern that you made yourself. This Halloween
+  Gh
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-ghost-lantern-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-ghost-lantern-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a spooky touch to your Halloween decorations? Imagine lighting up your home with a unique ghost lantern that you made yourself.**

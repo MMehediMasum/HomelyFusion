@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Rings at Home: Easy Steps for Stunning DIY Jewelry"
 description: "Have you ever wanted to create your own unique jewelry without spending a fortune? Making clay rings at home is a fun and easy way to express your creativity an"
 pubDate: 2026-04-01

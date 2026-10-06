@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Porcelain Tile: Stylish, Durable Options for Every Room"
-description: "Floor and Decor offers a wide range of porcelain tiles perfect for any home renovation project. From sleek, matte finishes to elegant mosaics, their collection "
+title: 'Floor And Decor Porcelain Tile: Stylish, Durable Options for Every Room'
+description: 'Floor and Decor offers a wide range of porcelain tiles perfect for any
+  home renovation project. From sleek, matte finishes to elegant mosaics, their collection '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-porcelain-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-porcelain-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a wide range of porcelain tiles perfect for any home renovation project. From sleek, matte finishes to elegant mosaics, their collection provides versatile options.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Store Light Bulbs at Home: Expert Tips for Safety & Longevity"
-description: "Are you tired of searching for light bulbs when you need them most? Storing your light bulbs properly at home can save you time, money, and frustration. When yo"
+title: 'How to Store Light Bulbs at Home: Expert Tips for Safety & Longevity'
+description: Are you tired of searching for light bulbs when you need them most? Storing
+  your light bulbs properly at home can save you time, money, and frustration. When
+  yo
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-store-light-bulbs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-store-light-bulbs-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you tired of searching for light bulbs when you need them most? Storing your light bulbs properly at home can save you time, money, and frustration.**

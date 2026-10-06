@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Dining Room Table When Not in Use: Stunning Ideas"
-description: "Your dining room table is more than just a place to eat—it can be a stunning centerpiece that adds charm and personality to your home, even when you’re not usin"
+title: 'How to Decorate Dining Room Table When Not in Use: Stunning Ideas'
+description: Your dining room table is more than just a place to eat—it can be a stunning
+  centerpiece that adds charm and personality to your home, even when you’re not usin
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-dining-room-table-when-not-in-use&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-dining-room-table-when-not-in-use&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your dining room table is more than just a place to eat—it can be a stunning centerpiece that adds charm and personality to your home, even when you’re not using it for meals. But how do you decorate it in a way that looks inviting without feeling cluttered?**

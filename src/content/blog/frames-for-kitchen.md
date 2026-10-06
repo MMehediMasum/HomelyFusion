@@ -1,10 +1,14 @@
 ---
-title: "Frames for Kitchen: Stylish Wall Art to Transform Your Cooking Space"
-description: "Frames can transform your kitchen into a warm, inviting space. They add character and charm to your home. Frames for kitchen walls aren't just decorative; they "
+title: 'Frames for Kitchen: Stylish Wall Art to Transform Your Cooking Space'
+description: 'Frames can transform your kitchen into a warm, inviting space. They
+  add character and charm to your home. Frames for kitchen walls aren''t just decorative;
+  they '
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-for-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-for-kitchen&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames can transform your kitchen into a warm, inviting space. They add character and charm to your home.**

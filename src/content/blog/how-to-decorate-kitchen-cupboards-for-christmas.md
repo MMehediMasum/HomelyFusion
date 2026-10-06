@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Cupboards for Christmas: Festive & Easy Tips"
-description: "Your kitchen cupboards are more than just storage—they can be the heart of your holiday décor. Imagine opening your kitchen doors to find charming Christmas dec"
+title: 'How to Decorate Kitchen Cupboards for Christmas: Festive & Easy Tips'
+description: Your kitchen cupboards are more than just storage—they can be the heart
+  of your holiday décor. Imagine opening your kitchen doors to find charming Christmas
+  dec
 pubDate: 2025-10-02
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cupboards-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cupboards-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your kitchen cupboards are more than just storage—they can be the heart of your holiday décor. Imagine opening your kitchen doors to find charming Christmas decorations that bring warmth and joy to every meal.**

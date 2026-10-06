@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Cotton Sofa at Home: Easy Steps for a Fresh Look"
-description: "Is your cotton sofa looking dull or stained? You don’t have to spend a fortune or hire professionals to bring it back to life. With a few simple steps and every"
+title: 'How to Clean Cotton Sofa at Home: Easy Steps for a Fresh Look'
+description: Is your cotton sofa looking dull or stained? You don’t have to spend
+  a fortune or hire professionals to bring it back to life. With a few simple steps
+  and every
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-cotton-sofa-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-cotton-sofa-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Is your cotton sofa looking dull or stained? You don’t have to spend a fortune or hire professionals to bring it back to life.**

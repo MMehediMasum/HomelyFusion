@@ -1,10 +1,14 @@
 ---
-title: "Flooring Superstore: Best Foam, Vinyl & Peel Stick Floor Tiles Guide"
-description: "Flooring Superstore offers a wide range of easy-to-install floor tiles and mats. Find durable options for homes, playrooms, basements, and more. Choose from woo"
+title: 'Flooring Superstore: Best Foam, Vinyl & Peel Stick Floor Tiles Guide'
+description: Flooring Superstore offers a wide range of easy-to-install floor tiles
+  and mats. Find durable options for homes, playrooms, basements, and more. Choose
+  from woo
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-superstore&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-superstore&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring Superstore offers a wide range of easy-to-install floor tiles and mats. Find durable options for homes, playrooms, basements, and more.**

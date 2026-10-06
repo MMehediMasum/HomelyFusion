@@ -1,10 +1,15 @@
 ---
-title: "Best Ceiling Fans With Lights for Bedrooms: Quiet, Dimmable & Remote-Controlled Picks"
-description: "Choosing the best ceiling fan with lights for your bedroom improves comfort and lighting in one device. These fans offer quiet operation, remote control, and ad"
+title: 'Best Ceiling Fans With Lights for Bedrooms: Quiet, Dimmable & Remote-Controlled
+  Picks'
+description: Choosing the best ceiling fan with lights for your bedroom improves comfort
+  and lighting in one device. These fans offer quiet operation, remote control, and
+  ad
 pubDate: 2025-12-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ceiling-fans-with-lights-for-bedrooms-quiet-dimmable-remote-controlled-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-ceiling-fans-with-lights-for-bedrooms-quiet-dimmable-remote-controlled-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best ceiling fan with lights for your bedroom improves comfort and lighting in one device. These fans offer quiet operation, remote control, and adjustable brightness.**

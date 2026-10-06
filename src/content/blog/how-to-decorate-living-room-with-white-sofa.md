@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With White Sofa: Stunning Style Tips"
-description: "Your living room is the heart of your home, and a white sofa can be the perfect centerpiece. But how do you make sure it stands out without feeling cold or plai"
+title: 'How to Decorate Living Room With White Sofa: Stunning Style Tips'
+description: Your living room is the heart of your home, and a white sofa can be the
+  perfect centerpiece. But how do you make sure it stands out without feeling cold
+  or plai
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-white-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-white-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and a white sofa can be the perfect centerpiece. But how do you make sure it stands out without feeling cold or plain?**

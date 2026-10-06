@@ -1,10 +1,13 @@
 ---
-title: "Can Ikea Bedroom Beds Fit in Car: Essential Tips for Easy Transport"
-description: "Are you planning to buy a bed from Ikea but worried if it will fit inside your car? You’re not alone. Many people face this exact problem when trying to transpo"
+title: 'Can Ikea Bedroom Beds Fit in Car: Essential Tips for Easy Transport'
+description: Are you planning to buy a bed from Ikea but worried if it will fit inside
+  your car? You’re not alone. Many people face this exact problem when trying to transpo
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-ikea-bedroom-beds-fit-in-car&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=can-ikea-bedroom-beds-fit-in-car&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to buy a bed from Ikea but worried if it will fit inside your car? You’re not alone.**

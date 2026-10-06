@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Marble Tile: Stylish Peel & Stick Options for Every Room"
-description: "Marble tiles from Floor and Decor transform spaces with timeless elegance. They offer style and durability for various rooms. Marble tiles create a luxurious fe"
+title: 'Floor And Decor Marble Tile: Stylish Peel & Stick Options for Every Room'
+description: Marble tiles from Floor and Decor transform spaces with timeless elegance.
+  They offer style and durability for various rooms. Marble tiles create a luxurious
+  fe
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-marble-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-marble-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Marble tiles from Floor and Decor transform spaces with timeless elegance. They offer style and durability for various rooms.**

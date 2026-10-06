@@ -1,10 +1,15 @@
 ---
-title: "Wall Decals Home Decor: Transform Your Space with Stunning Peel-and-Stick Art"
-description: "Wall decals offer a simple way to transform your home's ambiance. They add personality without the need for paint or wallpaper. These versatile decorations come"
+title: 'Wall Decals Home Decor: Transform Your Space with Stunning Peel-and-Stick
+  Art'
+description: Wall decals offer a simple way to transform your home's ambiance. They
+  add personality without the need for paint or wallpaper. These versatile decorations
+  come
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decals-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decals-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decals offer a simple way to transform your home's ambiance. They add personality without the need for paint or wallpaper.**

@@ -1,10 +1,14 @@
 ---
-title: "What is Two Bedroom Suite With Queen Bed: Ultimate Comfort Guide"
-description: "Are you planning a trip and wondering what a two bedroom suite with a queen bed really offers? Imagine having enough space for everyone to relax comfortably, wi"
+title: 'What is Two Bedroom Suite With Queen Bed: Ultimate Comfort Guide'
+description: Are you planning a trip and wondering what a two bedroom suite with a
+  queen bed really offers? Imagine having enough space for everyone to relax comfortably,
+  wi
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-two-bedroom-suite-with-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=what-is-two-bedroom-suite-with-queen-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning a trip and wondering what a two bedroom suite with a queen bed really offers? Imagine having enough space for everyone to relax comfortably, with a cozy queen bed waiting for you after a long day.**

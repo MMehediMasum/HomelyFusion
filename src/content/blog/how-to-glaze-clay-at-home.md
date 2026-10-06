@@ -1,10 +1,13 @@
 ---
-title: "How to Glaze Clay at Home: Easy Steps for Stunning Results"
-description: "Have you ever wanted to add that perfect shiny finish to your clay creations right at home? Glazing clay can seem tricky, but with the right steps, you can achi"
+title: 'How to Glaze Clay at Home: Easy Steps for Stunning Results'
+description: Have you ever wanted to add that perfect shiny finish to your clay creations
+  right at home? Glazing clay can seem tricky, but with the right steps, you can achi
 pubDate: 2026-04-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-glaze-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-glaze-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to add that perfect shiny finish to your clay creations right at home? Glazing clay can seem tricky, but with the right steps, you can achieve beautiful results without expensive equipment or a studio.**

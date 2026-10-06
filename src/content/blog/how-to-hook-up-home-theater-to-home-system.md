@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Home Theater to Home System: Easy Step-by-Step Guide"
 description: "Are you ready to transform your living room into a cinematic experience? Connecting your home theater to your home system might sound tricky, but it’s simpler t"
 pubDate: 2026-04-25

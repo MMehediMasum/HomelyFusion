@@ -1,10 +1,13 @@
 ---
-title: "Best Slipcovers for Sofa: Top Stretch and Pet-Friendly Couch Covers"
-description: "Choosing the best slipcovers for your sofa protects it from pets, kids, and daily wear. Slipcovers also refresh your living room’s look quickly and affordably. "
+title: 'Best Slipcovers for Sofa: Top Stretch and Pet-Friendly Couch Covers'
+description: 'Choosing the best slipcovers for your sofa protects it from pets, kids,
+  and daily wear. Slipcovers also refresh your living room’s look quickly and affordably. '
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-sofa-top-stretch-and-pet-friendly-couch-covers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-sofa-top-stretch-and-pet-friendly-couch-covers&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best slipcovers for your sofa protects it from pets, kids, and daily wear. Slipcovers also refresh your living room’s look quickly and affordably.**

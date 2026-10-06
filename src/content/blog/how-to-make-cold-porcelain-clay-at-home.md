@@ -1,10 +1,13 @@
 ---
-title: "How to Make Cold Porcelain Clay at Home: Easy DIY Guide"
-description: "Have you ever wanted to create beautiful, lasting crafts without spending a fortune on materials? Making cold porcelain clay at home is easier than you think—an"
+title: 'How to Make Cold Porcelain Clay at Home: Easy DIY Guide'
+description: Have you ever wanted to create beautiful, lasting crafts without spending
+  a fortune on materials? Making cold porcelain clay at home is easier than you think—an
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-cold-porcelain-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-cold-porcelain-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful, lasting crafts without spending a fortune on materials? Making cold porcelain clay at home is easier than you think—and it opens up a whole new world of creative possibilities for you.**

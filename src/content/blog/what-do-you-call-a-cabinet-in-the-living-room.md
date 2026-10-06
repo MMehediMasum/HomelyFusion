@@ -1,10 +1,14 @@
 ---
-title: "What Do You Call a Cabinet in the Living Room: Ultimate Guide"
-description: "Have you ever wondered what to call that stylish piece of furniture in your living room that holds your books, decor, or even your TV? You might say \"cabinet,\" "
+title: 'What Do You Call a Cabinet in the Living Room: Ultimate Guide'
+description: 'Have you ever wondered what to call that stylish piece of furniture
+  in your living room that holds your books, decor, or even your TV? You might say
+  "cabinet," '
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-a-cabinet-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-a-cabinet-in-the-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered what to call that stylish piece of furniture in your living room that holds your books, decor, or even your TV? You might say "cabinet," but is that the right word?**

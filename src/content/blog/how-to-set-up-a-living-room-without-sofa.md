@@ -1,10 +1,13 @@
 ---
-title: "How to Set Up a Living Room Without Sofa: Creative Ideas That Wow"
-description: "Imagine walking into your living room and feeling instantly relaxed—without a traditional sofa taking up space. You might think a sofa is a must-have, but what "
+title: 'How to Set Up a Living Room Without Sofa: Creative Ideas That Wow'
+description: 'Imagine walking into your living room and feeling instantly relaxed—without
+  a traditional sofa taking up space. You might think a sofa is a must-have, but what '
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-a-living-room-without-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-a-living-room-without-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and feeling instantly relaxed—without a traditional sofa taking up space. You might think a sofa is a must-have, but what if you could create a cozy, stylish space without one?**

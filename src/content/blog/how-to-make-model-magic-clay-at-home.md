@@ -1,10 +1,13 @@
 ---
-title: "How to Make Model Magic Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create colorful, soft clay right at home without buying expensive kits? Imagine having your own batch of Model Magic clay ready whenever"
+title: 'How to Make Model Magic Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create colorful, soft clay right at home without
+  buying expensive kits? Imagine having your own batch of Model Magic clay ready whenever
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-model-magic-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-model-magic-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create colorful, soft clay right at home without buying expensive kits? Imagine having your own batch of Model Magic clay ready whenever creativity strikes.**

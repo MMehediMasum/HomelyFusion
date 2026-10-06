@@ -1,10 +1,14 @@
 ---
-title: "Can I Blow Glass at Home: Ultimate Guide to DIY Glassblowing"
-description: "Have you ever wondered if you can blow glass right in your own home? It might sound like something only professionals with big studios can do, but what if you c"
+title: 'Can I Blow Glass at Home: Ultimate Guide to DIY Glassblowing'
+description: Have you ever wondered if you can blow glass right in your own home?
+  It might sound like something only professionals with big studios can do, but what
+  if you c
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-blow-glass-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=can-i-blow-glass-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if you can blow glass right in your own home? It might sound like something only professionals with big studios can do, but what if you could try this fascinating art yourself?**

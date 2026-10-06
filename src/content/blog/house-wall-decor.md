@@ -1,10 +1,14 @@
 ---
-title: "House Wall Decor Ideas to Transform Your Living Space Beautifully"
-description: "Transform your living space with stylish wall decor that reflects your personality. Wall decor isn't just art; it's an expression. Decorating your walls can ele"
+title: House Wall Decor Ideas to Transform Your Living Space Beautifully
+description: Transform your living space with stylish wall decor that reflects your
+  personality. Wall decor isn't just art; it's an expression. Decorating your walls
+  can ele
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=house-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=house-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living space with stylish wall decor that reflects your personality. Wall decor isn't just art; it's an expression.**

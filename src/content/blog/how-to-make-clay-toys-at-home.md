@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Toys at Home: Easy Steps for Creative Fun"
 description: "Have you ever wanted to create something fun and unique with your own hands? Making clay toys at home is easier than you think, and it’s a great way to bring yo"
 pubDate: 2026-03-19

@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Vanity Storage Solutions: Maximize Space with Style"
-description: "Is your bathroom cluttered with too many toiletries and nowhere to put them? You’re not alone. Finding smart bathroom vanity storage solutions can transform you"
+title: 'Bathroom Vanity Storage Solutions: Maximize Space with Style'
+description: Is your bathroom cluttered with too many toiletries and nowhere to put
+  them? You’re not alone. Finding smart bathroom vanity storage solutions can transform
+  you
 pubDate: 2025-09-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-vanity-storage-solutions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-vanity-storage-solutions&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom cluttered with too many toiletries and nowhere to put them? You’re not alone.**

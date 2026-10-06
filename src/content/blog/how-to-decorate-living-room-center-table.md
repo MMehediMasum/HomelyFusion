@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Center Table: Stunning Ideas to Try"
-description: "Your living room center table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly change the vibe of your ent"
+title: 'How to Decorate Living Room Center Table: Stunning Ideas to Try'
+description: Your living room center table is more than just a piece of furniture—it’s
+  the heart of your space. How you decorate it can instantly change the vibe of your
+  ent
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-center-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-center-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room center table is more than just a piece of furniture—it’s the heart of your space. How you decorate it can instantly change the vibe of your entire room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Guest Bedroom Open Shelves: Stylish & Simple Tips"
-description: "Your guest bedroom deserves more than just a bed and a few basics. Those open shelves can be your secret weapon to creating a warm, inviting space that makes yo"
+title: 'How to Dress Up Guest Bedroom Open Shelves: Stylish & Simple Tips'
+description: Your guest bedroom deserves more than just a bed and a few basics. Those
+  open shelves can be your secret weapon to creating a warm, inviting space that makes
+  yo
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-guest-bedroom-open-shelves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-guest-bedroom-open-shelves&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your guest bedroom deserves more than just a bed and a few basics. Those open shelves can be your secret weapon to creating a warm, inviting space that makes your guests feel truly at home.**

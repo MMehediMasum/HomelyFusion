@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A Frame Steel Homes: Durable, Stylish, and Eco-Friendly Living"
 description: "Are you dreaming of a home that stands strong, looks modern, and lasts for generations? A Frame Steel Homes might be exactly what you need. Imagine a house desi"
 pubDate: 2026-03-20

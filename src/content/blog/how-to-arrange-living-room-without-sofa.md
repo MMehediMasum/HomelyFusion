@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room Without Sofa: Creative Seating Ideas"
-description: "Imagine walking into your living room and feeling instantly comfortable, even without a sofa taking up space. It might sound tricky, but arranging your living r"
+title: 'How to Arrange Living Room Without Sofa: Creative Seating Ideas'
+description: Imagine walking into your living room and feeling instantly comfortable,
+  even without a sofa taking up space. It might sound tricky, but arranging your living
+  r
 pubDate: 2026-03-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-without-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-without-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and feeling instantly comfortable, even without a sofa taking up space. It might sound tricky, but arranging your living room without a sofa can open up new possibilities for style, space, and function.**

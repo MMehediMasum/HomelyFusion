@@ -1,10 +1,14 @@
 ---
-title: "Are Whole Home Humidifiers a Good Idea? Benefits & Drawbacks Explained"
-description: "Are you tired of dry air making your home feel uncomfortable? You might have heard about whole home humidifiers, but are they really a good idea for you? Imagin"
+title: Are Whole Home Humidifiers a Good Idea? Benefits & Drawbacks Explained
+description: Are you tired of dry air making your home feel uncomfortable? You might
+  have heard about whole home humidifiers, but are they really a good idea for you?
+  Imagin
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-a-good-idea&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-whole-home-humidifiers-a-good-idea&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of dry air making your home feel uncomfortable? You might have heard about whole home humidifiers, but are they really a good idea for you?**

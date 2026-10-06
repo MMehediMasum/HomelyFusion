@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Print on Cotton Bags at Home: Easy DIY Guide"
 description: "Are you looking to add a personal touch to your cotton bags without spending a fortune? Printing on cotton bags at home is easier than you might think, and it l"
 pubDate: 2026-02-09

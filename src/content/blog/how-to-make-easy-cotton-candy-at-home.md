@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Easy Cotton Candy at Home: Quick & Fun Guide"
 description: "Imagine biting into a fluffy, sweet cloud that melts instantly in your mouth—cotton candy is pure magic. What if you could create that magic right in your own k"
 pubDate: 2026-03-06

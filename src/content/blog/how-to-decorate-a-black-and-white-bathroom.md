@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Black And White Bathroom: Stunning Design Tips"
-description: "Your bathroom is more than just a place to get ready—it’s a space where style meets comfort. If you’re drawn to the timeless charm of black and white, you’re in"
+title: 'How to Decorate a Black And White Bathroom: Stunning Design Tips'
+description: Your bathroom is more than just a place to get ready—it’s a space where
+  style meets comfort. If you’re drawn to the timeless charm of black and white, you’re
+  in
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-black-and-white-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-black-and-white-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom is more than just a place to get ready—it’s a space where style meets comfort. If you’re drawn to the timeless charm of black and white, you’re in the right place.**

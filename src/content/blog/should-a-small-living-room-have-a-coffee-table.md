@@ -1,10 +1,14 @@
 ---
-title: "Should a Small Living Room Have a Coffee Table: Smart Space Hacks"
-description: "Is your small living room feeling cramped and cluttered? You might be wondering if adding a coffee table will make the space look better or just crowd it even m"
+title: 'Should a Small Living Room Have a Coffee Table: Smart Space Hacks'
+description: Is your small living room feeling cramped and cluttered? You might be
+  wondering if adding a coffee table will make the space look better or just crowd
+  it even m
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-a-small-living-room-have-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=should-a-small-living-room-have-a-coffee-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Is your small living room feeling cramped and cluttered? You might be wondering if adding a coffee table will make the space look better or just crowd it even more.**

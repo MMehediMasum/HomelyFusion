@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Entry Table: Stunning Ideas to Impress Guests"
-description: "Your entry table is the first thing people see when they walk into your home. It sets the tone and shows off your style without saying a word. But how do you de"
+title: 'How to Decorate an Entry Table: Stunning Ideas to Impress Guests'
+description: Your entry table is the first thing people see when they walk into your
+  home. It sets the tone and shows off your style without saying a word. But how do
+  you de
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-entry-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-entry-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your entry table is the first thing people see when they walk into your home. It sets the tone and shows off your style without saying a word.**

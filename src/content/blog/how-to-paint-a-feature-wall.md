@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Feature Wall: Stunning Tips for a Bold Makeover"
-description: "Are you ready to transform your room without a full makeover? Painting a feature wall is one of the easiest and most effective ways to add personality and style"
+title: 'How to Paint a Feature Wall: Stunning Tips for a Bold Makeover'
+description: Are you ready to transform your room without a full makeover? Painting
+  a feature wall is one of the easiest and most effective ways to add personality
+  and style
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-feature-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-feature-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your room without a full makeover? Painting a feature wall is one of the easiest and most effective ways to add personality and style to your space.**

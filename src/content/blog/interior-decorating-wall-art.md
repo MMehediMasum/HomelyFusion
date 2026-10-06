@@ -1,10 +1,14 @@
 ---
-title: "Interior Decorating Wall Art Ideas: Boho Macrame, Stencils & DIY Decor Essentials"
-description: "Wall art transforms any space, adding personality and style. It's an essential element in interior decorating. Decorating your walls goes beyond just paint and "
+title: 'Interior Decorating Wall Art Ideas: Boho Macrame, Stencils & DIY Decor Essentials'
+description: 'Wall art transforms any space, adding personality and style. It''s an
+  essential element in interior decorating. Decorating your walls goes beyond just
+  paint and '
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-decorating-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-decorating-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art transforms any space, adding personality and style. It's an essential element in interior decorating.**

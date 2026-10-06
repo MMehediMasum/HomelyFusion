@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much to Build a Steel Home: Ultimate Cost Guide 2025"
 description: "Thinking about building a steel home? You’re probably wondering, “How much will it actually cost me?” It’s a smart question because knowing the price upfront he"
 pubDate: 2026-02-09

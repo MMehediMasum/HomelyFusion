@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Roasted Vegetables Recipe: Easy, Flavorful & Perfect"
 description: "Are you looking to add a burst of flavor and color to your Thanksgiving table? Your search ends here with this easy and delicious Thanksgiving Roasted Vegetable"
 pubDate: 2025-12-20

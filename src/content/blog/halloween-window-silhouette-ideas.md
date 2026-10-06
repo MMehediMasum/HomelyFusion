@@ -1,10 +1,14 @@
 ---
-title: "Halloween Window Silhouette Ideas: Spooky DIY Decor to Wow Neighbors"
-description: "Are you ready to turn your home into the spookiest spot on the block this Halloween? Your windows are the perfect canvas to create eerie, eye-catching silhouett"
+title: 'Halloween Window Silhouette Ideas: Spooky DIY Decor to Wow Neighbors'
+description: Are you ready to turn your home into the spookiest spot on the block
+  this Halloween? Your windows are the perfect canvas to create eerie, eye-catching
+  silhouett
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-window-silhouette-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-window-silhouette-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to turn your home into the spookiest spot on the block this Halloween? Your windows are the perfect canvas to create eerie, eye-catching silhouettes that will thrill trick-or-treaters and guests alike.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Window Dress Small Bedroom Windows: Stylish Tips That Transform"
-description: "Are you struggling to make your small bedroom windows look stylish without overwhelming the space? Finding the right window dressing can feel tricky when every "
+title: 'How to Window Dress Small Bedroom Windows: Stylish Tips That Transform'
+description: 'Are you struggling to make your small bedroom windows look stylish without
+  overwhelming the space? Finding the right window dressing can feel tricky when every '
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-window-dress-small-bedroom-windows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-window-dress-small-bedroom-windows&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to make your small bedroom windows look stylish without overwhelming the space? Finding the right window dressing can feel tricky when every inch counts.**

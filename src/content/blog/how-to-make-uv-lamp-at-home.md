@@ -1,10 +1,14 @@
 ---
-title: "How to Make Uv Lamp at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wished you could have a UV lamp at home without spending a lot of money? Imagine creating your own UV light device quickly and safely using simple"
+title: 'How to Make Uv Lamp at Home: Easy DIY Guide for Beginners'
+description: Have you ever wished you could have a UV lamp at home without spending
+  a lot of money? Imagine creating your own UV light device quickly and safely using
+  simple
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-uv-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-uv-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wished you could have a UV lamp at home without spending a lot of money? Imagine creating your own UV light device quickly and safely using simple materials you probably already have.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Dining Room Wall: Stunning Ideas to Transform Space"
-description: "Your dining room wall is more than just a blank space—it’s a chance to bring personality and warmth into the heart of your home. Imagine transforming that plain"
+title: 'How to Decorate Dining Room Wall: Stunning Ideas to Transform Space'
+description: Your dining room wall is more than just a blank space—it’s a chance to
+  bring personality and warmth into the heart of your home. Imagine transforming that
+  plain
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-dining-room-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-dining-room-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your dining room wall is more than just a blank space—it’s a chance to bring personality and warmth into the heart of your home. Imagine transforming that plain wall into a stunning focal point that makes every meal feel special.**

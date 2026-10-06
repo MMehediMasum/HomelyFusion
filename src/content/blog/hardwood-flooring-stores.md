@@ -1,10 +1,14 @@
 ---
-title: "Hardwood Flooring Stores: Top Essentials for Protecting and Maintaining Floors"
-description: "Hardwood flooring stores offer a wide variety of products to keep your floors beautiful and well-maintained. From peel-and-stick vinyl tiles to protective furni"
+title: 'Hardwood Flooring Stores: Top Essentials for Protecting and Maintaining Floors'
+description: Hardwood flooring stores offer a wide variety of products to keep your
+  floors beautiful and well-maintained. From peel-and-stick vinyl tiles to protective
+  furni
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=hardwood-flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=hardwood-flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Hardwood flooring stores offer a wide variety of products to keep your floors beautiful and well-maintained. From peel-and-stick vinyl tiles to protective furniture pads, these stores have everything you need.**

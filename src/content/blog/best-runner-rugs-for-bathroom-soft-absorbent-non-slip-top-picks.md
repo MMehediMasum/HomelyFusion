@@ -1,10 +1,14 @@
 ---
-title: "Best Runner Rugs for Bathroom: Soft, Absorbent, Non-Slip Top Picks"
-description: "Choosing the best runner rugs for bathroom adds comfort and style to your space. These rugs keep floors dry and prevent slips. Bathroom runner rugs come in many"
+title: 'Best Runner Rugs for Bathroom: Soft, Absorbent, Non-Slip Top Picks'
+description: Choosing the best runner rugs for bathroom adds comfort and style to
+  your space. These rugs keep floors dry and prevent slips. Bathroom runner rugs come
+  in many
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-runner-rugs-for-bathroom-soft-absorbent-non-slip-top-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-runner-rugs-for-bathroom-soft-absorbent-non-slip-top-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best runner rugs for bathroom adds comfort and style to your space. These rugs keep floors dry and prevent slips.**

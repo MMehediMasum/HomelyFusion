@@ -1,10 +1,13 @@
 ---
-title: "Small Living Room Ornaments to Elevate Your Home Decor Style"
-description: "Decorating a small living room can be challenging. Ornaments bring charm and personality to compact spaces. In small living rooms, choosing the right ornaments "
+title: Small Living Room Ornaments to Elevate Your Home Decor Style
+description: 'Decorating a small living room can be challenging. Ornaments bring charm
+  and personality to compact spaces. In small living rooms, choosing the right ornaments '
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=small-living-room-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=small-living-room-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorating a small living room can be challenging. Ornaments bring charm and personality to compact spaces.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a Good Height for Living Room Chair Seat: Expert Tips"
-description: "Choosing the right height for your living room chair seat might seem simple, but it can make a huge difference in your comfort and style. Have you ever sat down"
+title: 'What is a Good Height for Living Room Chair Seat: Expert Tips'
+description: Choosing the right height for your living room chair seat might seem
+  simple, but it can make a huge difference in your comfort and style. Have you ever
+  sat down
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-good-height-for-living-room-chair-seat&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-good-height-for-living-room-chair-seat&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right height for your living room chair seat might seem simple, but it can make a huge difference in your comfort and style. Have you ever sat down and felt either too low or too high?**

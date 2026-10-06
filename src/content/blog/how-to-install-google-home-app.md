@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home App: Quick & Easy Step-by-Step Guide"
 description: "Want to make your smart home smarter? The first step is easy: installing the Google Home app. This app puts the power of voice control, smart devices, and home "
 pubDate: 2025-08-29

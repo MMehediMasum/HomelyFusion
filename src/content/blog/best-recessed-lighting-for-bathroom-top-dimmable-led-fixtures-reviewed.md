@@ -1,10 +1,13 @@
 ---
-title: "Best Recessed Lighting for Bathroom: Top Dimmable LED Fixtures Reviewed"
-description: "Choosing the best recessed lighting for your bathroom improves both function and style. Bright, adjustable lights help create a welcoming and safe space. Bathro"
+title: 'Best Recessed Lighting for Bathroom: Top Dimmable LED Fixtures Reviewed'
+description: Choosing the best recessed lighting for your bathroom improves both function
+  and style. Bright, adjustable lights help create a welcoming and safe space. Bathro
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-recessed-lighting-for-bathroom-top-dimmable-led-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-recessed-lighting-for-bathroom-top-dimmable-led-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best recessed lighting for your bathroom improves both function and style. Bright, adjustable lights help create a welcoming and safe space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Install Floating Bathroom Vanity: Easy Steps for a Modern Look"
-description: "Are you ready to give your bathroom a sleek, modern upgrade? Installing a floating bathroom vanity can instantly make your space look bigger and more stylish. B"
+title: 'How to Install Floating Bathroom Vanity: Easy Steps for a Modern Look'
+description: Are you ready to give your bathroom a sleek, modern upgrade? Installing
+  a floating bathroom vanity can instantly make your space look bigger and more stylish.
+  B
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-floating-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-floating-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to give your bathroom a sleek, modern upgrade? Installing a floating bathroom vanity can instantly make your space look bigger and more stylish.**

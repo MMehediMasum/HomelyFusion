@@ -1,10 +1,14 @@
 ---
-title: "Home Good Vases: Stylish Ceramic Designs for Modern Home Decor"
-description: "Vases add charm and elegance to any space. They are versatile, enhancing your home decor effortlessly. Decorating with vases can transform a room. From modern m"
+title: 'Home Good Vases: Stylish Ceramic Designs for Modern Home Decor'
+description: Vases add charm and elegance to any space. They are versatile, enhancing
+  your home decor effortlessly. Decorating with vases can transform a room. From modern
+  m
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-good-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Vases add charm and elegance to any space. They are versatile, enhancing your home decor effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Shades for Bedroom: Ultimate Privacy and Light Control Solutions"
-description: "Choosing the best blackout shades for your bedroom helps block light and improve sleep quality. These shades come in various styles, sizes, and easy-install opt"
+title: 'Best Blackout Shades for Bedroom: Ultimate Privacy and Light Control Solutions'
+description: Choosing the best blackout shades for your bedroom helps block light
+  and improve sleep quality. These shades come in various styles, sizes, and easy-install
+  opt
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-shades-for-bedroom-ultimate-privacy-and-light-control-solutions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-shades-for-bedroom-ultimate-privacy-and-light-control-solutions&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best blackout shades for your bedroom helps block light and improve sleep quality. These shades come in various styles, sizes, and easy-install options.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Autumn Table Centerpiece: Stunning Ideas to Wow Your Guests"
-description: "Imagine your dining table transformed into a warm, inviting space that captures the true spirit of fall. Your guests will feel the cozy charm of autumn the mome"
+title: 'Fall Autumn Table Centerpiece: Stunning Ideas to Wow Your Guests'
+description: Imagine your dining table transformed into a warm, inviting space that
+  captures the true spirit of fall. Your guests will feel the cozy charm of autumn
+  the mome
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-autumn-table-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-autumn-table-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine your dining table transformed into a warm, inviting space that captures the true spirit of fall. Your guests will feel the cozy charm of autumn the moment they sit down.**

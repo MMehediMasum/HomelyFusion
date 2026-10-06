@@ -1,10 +1,14 @@
 ---
-title: "What are Dimensions of Bedroom Bench: Ultimate Size Guide for Comfort"
-description: "Are you thinking about adding a bedroom bench but unsure what size will fit perfectly? Choosing the right dimensions for your bedroom bench can make a big diffe"
+title: 'What are Dimensions of Bedroom Bench: Ultimate Size Guide for Comfort'
+description: Are you thinking about adding a bedroom bench but unsure what size will
+  fit perfectly? Choosing the right dimensions for your bedroom bench can make a big
+  diffe
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-dimensions-of-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=what-are-dimensions-of-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about adding a bedroom bench but unsure what size will fit perfectly? Choosing the right dimensions for your bedroom bench can make a big difference in both comfort and style.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Wool Trousers at Home: Easy & Effective Steps"
 description: "Wool trousers are a stylish and comfortable addition to your wardrobe, but washing them at home can feel tricky. You might worry about shrinking, losing shape, "
 pubDate: 2026-02-27

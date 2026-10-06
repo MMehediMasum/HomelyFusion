@@ -1,10 +1,14 @@
 ---
-title: "House Accents That Transform Your Living Space with Rustic Charm"
-description: "House accents add charm and personality to any living space. They create a warm and inviting atmosphere with simple touches. Choosing the right accents can chan"
+title: House Accents That Transform Your Living Space with Rustic Charm
+description: House accents add charm and personality to any living space. They create
+  a warm and inviting atmosphere with simple touches. Choosing the right accents can
+  chan
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=house-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=house-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **House accents add charm and personality to any living space. They create a warm and inviting atmosphere with simple touches.**

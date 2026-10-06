@@ -1,10 +1,14 @@
 ---
-title: "Mens Bedroom Ornaments: Unique Astronaut Statues for Stylish Space Decor"
-description: "Men’s bedroom ornaments add personality and style to any space. They create a unique vibe that reflects personal interests and tastes. Choosing the right decora"
+title: 'Mens Bedroom Ornaments: Unique Astronaut Statues for Stylish Space Decor'
+description: Men’s bedroom ornaments add personality and style to any space. They
+  create a unique vibe that reflects personal interests and tastes. Choosing the right
+  decora
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mens-bedroom-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=mens-bedroom-ornaments&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Men’s bedroom ornaments add personality and style to any space. They create a unique vibe that reflects personal interests and tastes.**

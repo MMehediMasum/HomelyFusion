@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Kitchen Soffit: Stunning Ideas to Transform Space"
-description: "Your kitchen soffit is more than just an empty space above your cabinets—it’s a hidden opportunity to add style and personality to your kitchen. If you’ve ever "
+title: 'How to Decorate Kitchen Soffit: Stunning Ideas to Transform Space'
+description: 'Your kitchen soffit is more than just an empty space above your cabinets—it’s
+  a hidden opportunity to add style and personality to your kitchen. If you’ve ever '
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-soffit&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-soffit&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen soffit is more than just an empty space above your cabinets—it’s a hidden opportunity to add style and personality to your kitchen. If you’ve ever wondered how to decorate your kitchen soffit in a way that stands out without overwhelming the room, you’re in the right place.**

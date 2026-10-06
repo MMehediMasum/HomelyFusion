@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Quartz for Bathroom Vanity Top: Durable & Stylish Choice"
-description: "Are you thinking about upgrading your bathroom vanity top? Choosing the right material can feel overwhelming, especially with so many options out there. But wha"
+title: 'Can You Use Quartz for Bathroom Vanity Top: Durable & Stylish Choice'
+description: Are you thinking about upgrading your bathroom vanity top? Choosing the
+  right material can feel overwhelming, especially with so many options out there.
+  But wha
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-quartz-for-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-quartz-for-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom vanity top? Choosing the right material can feel overwhelming, especially with so many options out there.**

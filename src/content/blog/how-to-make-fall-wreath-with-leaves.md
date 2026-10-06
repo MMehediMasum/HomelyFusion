@@ -1,10 +1,14 @@
 ---
-title: "How to Make Fall Wreath With Leaves: Easy DIY Autumn Decor Tips"
-description: "Are you ready to bring the cozy spirit of fall right to your front door? Making a fall wreath with leaves is a simple, fun way to add warmth and color to your h"
+title: 'How to Make Fall Wreath With Leaves: Easy DIY Autumn Decor Tips'
+description: Are you ready to bring the cozy spirit of fall right to your front door?
+  Making a fall wreath with leaves is a simple, fun way to add warmth and color to
+  your h
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-fall-wreath-with-leaves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-fall-wreath-with-leaves&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring the cozy spirit of fall right to your front door? Making a fall wreath with leaves is a simple, fun way to add warmth and color to your home.**

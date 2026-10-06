@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Xbox One to TV: Easy Steps for Instant Play"
 description: "Are you ready to bring your Xbox One to life on your TV but not sure where to start? Connecting your Xbox One to your TV might seem tricky at first, but it’s ac"
 pubDate: 2025-09-13

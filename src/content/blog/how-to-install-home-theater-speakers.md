@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Home Theater Speakers: Easy Steps for Perfect Sound"
 description: "Are you ready to transform your living room into a true entertainment hub? Installing home theater speakers might sound tricky, but with the right steps, you ca"
 pubDate: 2026-04-25

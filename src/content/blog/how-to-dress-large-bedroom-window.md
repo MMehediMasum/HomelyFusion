@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Large Bedroom Window: Stylish Ideas for Impact"
-description: "Your large bedroom window is more than just an opening to the outside world—it’s a focal point that can transform the entire room. But how do you dress it in a "
+title: 'How to Dress Large Bedroom Window: Stylish Ideas for Impact'
+description: 'Your large bedroom window is more than just an opening to the outside
+  world—it’s a focal point that can transform the entire room. But how do you dress
+  it in a '
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-large-bedroom-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-large-bedroom-window&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your large bedroom window is more than just an opening to the outside world—it’s a focal point that can transform the entire room. But how do you dress it in a way that adds style, controls light, and keeps your space cozy?**

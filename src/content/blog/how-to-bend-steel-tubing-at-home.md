@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Tubing at Home: Easy DIY Bending Tips"
 description: "Are you looking to bend steel tubing at home but don’t know where to start? Bending steel tubing might seem tricky, but with the right tools and simple steps, y"
 pubDate: 2026-03-09

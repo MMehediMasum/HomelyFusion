@@ -1,10 +1,14 @@
 ---
-title: "Celebrity Home Pillows Homegoods: Cozy Decorative Throw Covers for Every Room"
-description: "Celebrity home pillows at HomeGoods blend style and comfort effortlessly. These pillows add a touch of luxury to any room. Celebrities often choose cozy and chi"
+title: 'Celebrity Home Pillows Homegoods: Cozy Decorative Throw Covers for Every Room'
+description: Celebrity home pillows at HomeGoods blend style and comfort effortlessly.
+  These pillows add a touch of luxury to any room. Celebrities often choose cozy and
+  chi
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=celebrity-home-pillows-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=celebrity-home-pillows-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Celebrity home pillows at HomeGoods blend style and comfort effortlessly. These pillows add a touch of luxury to any room.**

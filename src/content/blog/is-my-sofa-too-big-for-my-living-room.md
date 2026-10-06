@@ -1,10 +1,14 @@
 ---
-title: "Is My Sofa Too Big for My Living Room? Expert Space Tips"
-description: "Is your sofa taking up more space than you expected? You might be wondering, \"Is my sofa too big for my living room?\" It’s a common problem that can make your s"
+title: Is My Sofa Too Big for My Living Room? Expert Space Tips
+description: Is your sofa taking up more space than you expected? You might be wondering,
+  "Is my sofa too big for my living room?" It’s a common problem that can make your
+  s
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-my-sofa-too-big-for-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=is-my-sofa-too-big-for-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your sofa taking up more space than you expected? You might be wondering, "Is my sofa too big for my living room?"**

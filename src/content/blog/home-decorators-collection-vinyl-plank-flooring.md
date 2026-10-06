@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Vinyl Plank Flooring: Stylish, Easy DIY Wood-Look Tiles"
-description: "Home Decorators Collection Vinyl Plank Flooring offers a stylish and practical solution for your flooring needs. These vinyl planks mimic the beauty of natural "
+title: 'Home Decorators Collection Vinyl Plank Flooring: Stylish, Easy DIY Wood-Look
+  Tiles'
+description: 'Home Decorators Collection Vinyl Plank Flooring offers a stylish and
+  practical solution for your flooring needs. These vinyl planks mimic the beauty
+  of natural '
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-vinyl-plank-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-vinyl-plank-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators Collection Vinyl Plank Flooring offers a stylish and practical solution for your flooring needs. These vinyl planks mimic the beauty of natural wood while providing durability and ease of installation.**

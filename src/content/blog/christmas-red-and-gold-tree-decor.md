@@ -1,10 +1,13 @@
 ---
-title: "Christmas Red And Gold Tree Decor: Stunning Ideas to Shine Bright"
-description: "Are you ready to make your Christmas tree the heart of your holiday celebrations? Imagine your tree glowing with rich red and shimmering gold decorations that i"
+title: 'Christmas Red And Gold Tree Decor: Stunning Ideas to Shine Bright'
+description: Are you ready to make your Christmas tree the heart of your holiday celebrations?
+  Imagine your tree glowing with rich red and shimmering gold decorations that i
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-red-and-gold-tree-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-red-and-gold-tree-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas tree the heart of your holiday celebrations? Imagine your tree glowing with rich red and shimmering gold decorations that instantly bring warmth and joy to your home.**

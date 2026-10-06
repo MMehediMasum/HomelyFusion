@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are There Electric Boilers for Home Heating: Efficient & Eco-Friendly Solutions"
 description: "Are you looking for a cleaner, quieter way to heat your home? Electric boilers might be the answer you’ve been searching for. But what exactly are they, and can"
 pubDate: 2026-04-04

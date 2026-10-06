@@ -1,10 +1,14 @@
 ---
-title: "Halloween Pumpkin Carving Ideas: Spooky Designs to Try This Year"
-description: "Are you ready to make this Halloween unforgettable? Carving pumpkins is one of the best ways to bring your spooky spirit to life. But finding the perfect design"
+title: 'Halloween Pumpkin Carving Ideas: Spooky Designs to Try This Year'
+description: Are you ready to make this Halloween unforgettable? Carving pumpkins
+  is one of the best ways to bring your spooky spirit to life. But finding the perfect
+  design
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-pumpkin-carving-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-pumpkin-carving-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make this Halloween unforgettable? Carving pumpkins is one of the best ways to bring your spooky spirit to life.**

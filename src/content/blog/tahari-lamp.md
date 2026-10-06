@@ -1,10 +1,14 @@
 ---
-title: "Tahari Lamp: Elegant Alabaster Table Lamps with USB Ports for Bedrooms"
-description: "Tahari lamps blend style and function to brighten any room. These lamps suit bedrooms, living rooms, and offices with ease. Tahari lamps come in various designs"
+title: 'Tahari Lamp: Elegant Alabaster Table Lamps with USB Ports for Bedrooms'
+description: Tahari lamps blend style and function to brighten any room. These lamps
+  suit bedrooms, living rooms, and offices with ease. Tahari lamps come in various
+  designs
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=tahari-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tahari lamps blend style and function to brighten any room. These lamps suit bedrooms, living rooms, and offices with ease.**

@@ -1,10 +1,14 @@
 ---
-title: "Table Home Goods Lamps: Stylish and Functional Lighting for Every Room"
-description: "Table home goods lamps blend style and function for every room. They provide light while enhancing your space’s look. Choosing the right table lamp can change t"
+title: 'Table Home Goods Lamps: Stylish and Functional Lighting for Every Room'
+description: Table home goods lamps blend style and function for every room. They
+  provide light while enhancing your space’s look. Choosing the right table lamp can
+  change t
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-home-goods-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=table-home-goods-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Table home goods lamps blend style and function for every room. They provide light while enhancing your space’s look.**

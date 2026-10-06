@@ -1,10 +1,14 @@
 ---
-title: "Can I Fire Clay in My Home Oven: Safe Tips & Expert Guide"
-description: "Have you ever wondered if you can fire clay right in your home oven? If you’re working on a clay project and don’t have access to a kiln, this question probably"
+title: 'Can I Fire Clay in My Home Oven: Safe Tips & Expert Guide'
+description: Have you ever wondered if you can fire clay right in your home oven?
+  If you’re working on a clay project and don’t have access to a kiln, this question
+  probably
 pubDate: 2026-02-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-fire-clay-in-my-home-oven&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pot Firing
+heroImage: https://tse1.mm.bing.net/th?q=can-i-fire-clay-in-my-home-oven&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered if you can fire clay right in your home oven? If you’re working on a clay project and don’t have access to a kiln, this question probably crosses your mind.**

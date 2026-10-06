@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch for Party at Home: Easy Step-by-Step Guide"
-description: "Planning a party at home and want to add that wow factor? A balloon arch is the perfect way to make your celebration stand out. Imagine your guests’ smiles as t"
+title: 'How to Make Balloon Arch for Party at Home: Easy Step-by-Step Guide'
+description: Planning a party at home and want to add that wow factor? A balloon arch
+  is the perfect way to make your celebration stand out. Imagine your guests’ smiles
+  as t
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-party-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-party-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Planning a party at home and want to add that wow factor? A balloon arch is the perfect way to make your celebration stand out.**

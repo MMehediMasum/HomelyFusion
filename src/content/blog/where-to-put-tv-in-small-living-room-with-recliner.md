@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Tv in Small Living Room With Recliner: Smart Layout Tips"
-description: "Struggling to find the perfect spot for your TV in a small living room with a recliner? You’re not alone. Balancing comfort, space, and viewing angles can feel "
+title: 'Where to Put Tv in Small Living Room With Recliner: Smart Layout Tips'
+description: 'Struggling to find the perfect spot for your TV in a small living room
+  with a recliner? You’re not alone. Balancing comfort, space, and viewing angles
+  can feel '
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-tv-in-small-living-room-with-recliner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-tv-in-small-living-room-with-recliner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to find the perfect spot for your TV in a small living room with a recliner? You’re not alone.**

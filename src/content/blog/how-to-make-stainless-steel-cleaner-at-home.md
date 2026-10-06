@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Stainless Steel Cleaner at Home: Easy DIY Guide"
 description: "Are you tired of stubborn smudges and fingerprints ruining the shine of your stainless steel appliances? You don’t have to spend a fortune on expensive cleaners"
 pubDate: 2026-02-24

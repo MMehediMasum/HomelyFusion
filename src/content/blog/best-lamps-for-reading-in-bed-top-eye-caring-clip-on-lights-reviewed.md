@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Reading in Bed: Top Eye-Caring Clip-On Lights Reviewed"
-description: "Finding the best lamps for reading in bed can improve comfort and protect your eyes. A good reading lamp offers adjustable brightness and easy placement. Readin"
+title: 'Best Lamps for Reading in Bed: Top Eye-Caring Clip-On Lights Reviewed'
+description: Finding the best lamps for reading in bed can improve comfort and protect
+  your eyes. A good reading lamp offers adjustable brightness and easy placement.
+  Readin
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-reading-in-bed-top-eye-caring-clip-on-lights-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-reading-in-bed-top-eye-caring-clip-on-lights-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Finding the best lamps for reading in bed can improve comfort and protect your eyes. A good reading lamp offers adjustable brightness and easy placement.**

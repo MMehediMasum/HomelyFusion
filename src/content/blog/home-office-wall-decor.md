@@ -1,10 +1,14 @@
 ---
-title: "Home Office Wall Decor Ideas to Inspire Productivity and Style"
-description: "Home office wall decor shapes a productive and pleasant workspace. It adds personality and motivation to your daily routine. Choosing the right wall decor can i"
+title: Home Office Wall Decor Ideas to Inspire Productivity and Style
+description: Home office wall decor shapes a productive and pleasant workspace. It
+  adds personality and motivation to your daily routine. Choosing the right wall decor
+  can i
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-office-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-office-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home office wall decor shapes a productive and pleasant workspace. It adds personality and motivation to your daily routine.**

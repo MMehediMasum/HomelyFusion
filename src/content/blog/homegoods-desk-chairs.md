@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Desk Chairs: Top Ergonomic Picks for Comfort and Style"
-description: "Finding the right desk chair is essential for comfort and productivity. Homegoods offers a variety of options to suit different needs. From ergonomic designs to"
+title: 'Homegoods Desk Chairs: Top Ergonomic Picks for Comfort and Style'
+description: Finding the right desk chair is essential for comfort and productivity.
+  Homegoods offers a variety of options to suit different needs. From ergonomic designs
+  to
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-desk-chairs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-desk-chairs&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the right desk chair is essential for comfort and productivity. Homegoods offers a variety of options to suit different needs.**

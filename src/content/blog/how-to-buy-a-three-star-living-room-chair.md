@@ -1,10 +1,14 @@
 ---
-title: "How to Buy a Three Star Living Room Chair: Expert Tips Revealed"
-description: "Looking for the perfect three star living room chair can feel overwhelming. You want something comfortable, stylish, and built to last—but where do you start? T"
+title: 'How to Buy a Three Star Living Room Chair: Expert Tips Revealed'
+description: Looking for the perfect three star living room chair can feel overwhelming.
+  You want something comfortable, stylish, and built to last—but where do you start?
+  T
 pubDate: 2026-02-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-buy-a-three-star-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-buy-a-three-star-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for the perfect three star living room chair can feel overwhelming. You want something comfortable, stylish, and built to last—but where do you start?**

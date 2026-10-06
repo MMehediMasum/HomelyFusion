@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool Scarf at Home: Easy & Safe Steps Revealed"
 description: "Your wool scarf is more than just an accessory—it’s a cozy companion on chilly days. But when it gets dirty, cleaning it can feel tricky. You might worry about "
 pubDate: 2026-03-17

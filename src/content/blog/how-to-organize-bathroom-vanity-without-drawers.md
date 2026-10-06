@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Bathroom Vanity Without Drawers: Simple Hacks"
-description: "Is your bathroom vanity without drawers leaving you frustrated and cluttered? You’re not alone. Without proper storage, it’s easy for your essentials to pile up"
+title: 'How to Organize Bathroom Vanity Without Drawers: Simple Hacks'
+description: Is your bathroom vanity without drawers leaving you frustrated and cluttered?
+  You’re not alone. Without proper storage, it’s easy for your essentials to pile
+  up
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-bathroom-vanity-without-drawers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-bathroom-vanity-without-drawers&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity without drawers leaving you frustrated and cluttered? You’re not alone.**

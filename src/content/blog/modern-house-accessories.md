@@ -1,10 +1,14 @@
 ---
-title: "Modern House Accessories to Elevate Your Bathroom and Kitchen Spaces"
-description: "Modern house accessories blend style and functionality, enhancing your living space with ease. These essentials elevate everyday living with practical design an"
+title: Modern House Accessories to Elevate Your Bathroom and Kitchen Spaces
+description: Modern house accessories blend style and functionality, enhancing your
+  living space with ease. These essentials elevate everyday living with practical
+  design an
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-house-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-house-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern house accessories blend style and functionality, enhancing your living space with ease. These essentials elevate everyday living with practical design and aesthetic appeal.**

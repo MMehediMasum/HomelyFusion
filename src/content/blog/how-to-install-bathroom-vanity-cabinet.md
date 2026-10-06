@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity Cabinet: Easy Steps for a Perfect Fit"
-description: "Are you ready to give your bathroom a fresh, new look? Installing a bathroom vanity cabinet is one of the fastest ways to upgrade your space and add valuable st"
+title: 'How to Install Bathroom Vanity Cabinet: Easy Steps for a Perfect Fit'
+description: Are you ready to give your bathroom a fresh, new look? Installing a bathroom
+  vanity cabinet is one of the fastest ways to upgrade your space and add valuable
+  st
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to give your bathroom a fresh, new look? Installing a bathroom vanity cabinet is one of the fastest ways to upgrade your space and add valuable storage.**

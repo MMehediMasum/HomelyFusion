@@ -1,10 +1,14 @@
 ---
-title: "Are Cool Led Lights Good for Bedroom: Brighten Your Space Smartly"
-description: "Are you thinking about adding cool LED lights to your bedroom but aren’t sure if they’re the right choice? You’re not alone. Many people wonder if these trendy "
+title: 'Are Cool Led Lights Good for Bedroom: Brighten Your Space Smartly'
+description: 'Are you thinking about adding cool LED lights to your bedroom but aren’t
+  sure if they’re the right choice? You’re not alone. Many people wonder if these
+  trendy '
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-cool-led-lights-good-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=are-cool-led-lights-good-for-bedroom&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you thinking about adding cool LED lights to your bedroom but aren’t sure if they’re the right choice? You’re not alone.**

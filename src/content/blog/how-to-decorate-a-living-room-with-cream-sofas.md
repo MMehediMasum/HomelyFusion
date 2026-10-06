@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Cream Sofas: Stunning Ideas"
-description: "Are you wondering how to make your living room feel warm, stylish, and inviting with cream sofas? Cream sofas are a perfect choice because they bring a soft, ne"
+title: 'How to Decorate a Living Room With Cream Sofas: Stunning Ideas'
+description: Are you wondering how to make your living room feel warm, stylish, and
+  inviting with cream sofas? Cream sofas are a perfect choice because they bring a
+  soft, ne
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-cream-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-cream-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel warm, stylish, and inviting with cream sofas? Cream sofas are a perfect choice because they bring a soft, neutral touch that can brighten any space.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Harden Mild Steel at Home: Easy DIY Heat Treatment Tips"
 description: "Are you looking to make your mild steel tougher and more durable without spending a fortune or needing fancy tools? You’re in the right place. Hardening mild st"
 pubDate: 2026-03-16

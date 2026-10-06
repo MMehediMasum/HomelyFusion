@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Dark Wall White: Easy Steps for a Stunning Makeover"
-description: "Are you tired of that dark wall making your room feel smaller and gloomier? Changing it to white can brighten up your space and give it a fresh, clean look. But"
+title: 'How to Paint a Dark Wall White: Easy Steps for a Stunning Makeover'
+description: Are you tired of that dark wall making your room feel smaller and gloomier?
+  Changing it to white can brighten up your space and give it a fresh, clean look.
+  But
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-dark-wall-white&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-dark-wall-white&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of that dark wall making your room feel smaller and gloomier? Changing it to white can brighten up your space and give it a fresh, clean look.**

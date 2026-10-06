@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Collage Wall Frames: Stunning Ideas for Your Space"
-description: "Are you looking to transform your blank wall into a stunning display of memories and art? Arranging collage wall frames might seem tricky at first, but with the"
+title: 'How to Arrange Collage Wall Frames: Stunning Ideas for Your Space'
+description: Are you looking to transform your blank wall into a stunning display
+  of memories and art? Arranging collage wall frames might seem tricky at first, but
+  with the
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-collage-wall-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-collage-wall-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your blank wall into a stunning display of memories and art? Arranging collage wall frames might seem tricky at first, but with the right approach, you can create a beautiful and personalized gallery that catches every eye.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen Counter: Stunning Ideas for Every Style"
-description: "Your kitchen counter is more than just a workspace—it’s the heart of your kitchen. How you decorate it can change the whole vibe of the room, making it feel war"
+title: 'How to Decorate a Kitchen Counter: Stunning Ideas for Every Style'
+description: Your kitchen counter is more than just a workspace—it’s the heart of
+  your kitchen. How you decorate it can change the whole vibe of the room, making
+  it feel war
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-counter&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-counter&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen counter is more than just a workspace—it’s the heart of your kitchen. How you decorate it can change the whole vibe of the room, making it feel warm, inviting, and uniquely yours.**

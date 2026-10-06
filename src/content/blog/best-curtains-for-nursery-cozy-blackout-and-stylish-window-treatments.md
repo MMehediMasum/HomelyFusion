@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Nursery: Cozy, Blackout, and Stylish Window Treatments"
-description: "Choosing the best curtains for a nursery helps create a cozy and safe space for your baby. The right curtains block light, reduce noise, and add style to the ro"
+title: 'Best Curtains for Nursery: Cozy, Blackout, and Stylish Window Treatments'
+description: Choosing the best curtains for a nursery helps create a cozy and safe
+  space for your baby. The right curtains block light, reduce noise, and add style
+  to the ro
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-nursery-cozy-blackout-and-stylish-window-treatments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-nursery-cozy-blackout-and-stylish-window-treatments&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for a nursery helps create a cozy and safe space for your baby. The right curtains block light, reduce noise, and add style to the room.**

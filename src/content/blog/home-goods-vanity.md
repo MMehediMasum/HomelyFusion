@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity: Stylish Makeup Desks with Storage and LED Lights"
-description: "Home goods vanities blend style and function for bedrooms and small spaces. They offer storage, lighting, and a place to get ready comfortably. A home vanity de"
+title: 'Home Goods Vanity: Stylish Makeup Desks with Storage and LED Lights'
+description: Home goods vanities blend style and function for bedrooms and small spaces.
+  They offer storage, lighting, and a place to get ready comfortably. A home vanity
+  de
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Home goods vanities blend style and function for bedrooms and small spaces. They offer storage, lighting, and a place to get ready comfortably.**

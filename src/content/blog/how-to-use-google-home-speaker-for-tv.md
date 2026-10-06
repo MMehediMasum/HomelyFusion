@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home Speaker for TV: Ultimate Smart Guide"
 description: "Imagine controlling your TV with just your voice—no remote, no hassle. With a Google Home speaker, this simple convenience is right at your fingertips. You migh"
 pubDate: 2026-04-29

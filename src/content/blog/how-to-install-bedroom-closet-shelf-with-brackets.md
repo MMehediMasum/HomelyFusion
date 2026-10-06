@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bedroom Closet Shelf With Brackets: Easy Step-by-Step Guide"
-description: "Are you tired of a cluttered bedroom closet that makes finding your clothes a daily struggle? Installing a closet shelf with brackets can transform your space, "
+title: 'How to Install Bedroom Closet Shelf With Brackets: Easy Step-by-Step Guide'
+description: 'Are you tired of a cluttered bedroom closet that makes finding your
+  clothes a daily struggle? Installing a closet shelf with brackets can transform
+  your space, '
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bedroom-closet-shelf-with-brackets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bedroom-closet-shelf-with-brackets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of a cluttered bedroom closet that makes finding your clothes a daily struggle? Installing a closet shelf with brackets can transform your space, giving you extra room to organize and store your belongings neatly.**

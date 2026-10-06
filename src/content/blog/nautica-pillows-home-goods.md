@@ -1,10 +1,14 @@
 ---
-title: "Nautica Pillows Home Goods: Ultimate Comfort for Every Sleep Style"
-description: "Nautica pillows offer comfort and style for every sleeping position and home decor. Explore versatile options for a restful night. Finding the right pillow can "
+title: 'Nautica Pillows Home Goods: Ultimate Comfort for Every Sleep Style'
+description: 'Nautica pillows offer comfort and style for every sleeping position
+  and home decor. Explore versatile options for a restful night. Finding the right
+  pillow can '
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=nautica-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Nautica pillows offer comfort and style for every sleeping position and home decor. Explore versatile options for a restful night.**

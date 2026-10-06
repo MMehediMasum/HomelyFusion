@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home: Easy Steps for Instant Smart Control"
 description: "Setting up your Google Home might seem tricky at first, but it’s easier than you think. Imagine having a helpful assistant ready to answer questions, control yo"
 pubDate: 2026-04-27

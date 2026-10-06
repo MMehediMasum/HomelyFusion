@@ -1,10 +1,14 @@
 ---
-title: "Where to Store Candles: Expert Tips for Lasting Freshness"
-description: "You love candles—they create the perfect mood, add warmth to your space, and sometimes even bring back special memories. But have you ever wondered if you’re st"
+title: 'Where to Store Candles: Expert Tips for Lasting Freshness'
+description: You love candles—they create the perfect mood, add warmth to your space,
+  and sometimes even bring back special memories. But have you ever wondered if you’re
+  st
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-store-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-store-candles&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **You love candles—they create the perfect mood, add warmth to your space, and sometimes even bring back special memories. But have you ever wondered if you’re storing them the right way?**

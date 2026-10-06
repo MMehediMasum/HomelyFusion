@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Winter Cranberry Punch Recipe: Festive & Refreshingly Easy"
 description: "When the cold season hits, nothing warms you up like a delicious, festive drink. Imagine holding a glass filled with bright, tangy cranberry punch that instantl"
 pubDate: 2025-12-27

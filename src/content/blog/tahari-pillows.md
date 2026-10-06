@@ -1,10 +1,14 @@
 ---
-title: "Tahari Pillows: Stylish and Cozy Decorative Throws for Every Room"
-description: "Discover the elegance and comfort of Tahari pillows. They bring style and coziness to any space effortlessly. Tahari pillows are perfect for enhancing your home"
+title: 'Tahari Pillows: Stylish and Cozy Decorative Throws for Every Room'
+description: Discover the elegance and comfort of Tahari pillows. They bring style
+  and coziness to any space effortlessly. Tahari pillows are perfect for enhancing
+  your home
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tahari-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the elegance and comfort of Tahari pillows. They bring style and coziness to any space effortlessly.**

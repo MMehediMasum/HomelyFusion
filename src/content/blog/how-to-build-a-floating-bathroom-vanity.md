@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Floating Bathroom Vanity: Easy DIY Guide"
-description: "Are you ready to transform your bathroom with a sleek, modern look? Building a floating bathroom vanity can instantly elevate your space, making it feel bigger "
+title: 'How to Build a Floating Bathroom Vanity: Easy DIY Guide'
+description: 'Are you ready to transform your bathroom with a sleek, modern look?
+  Building a floating bathroom vanity can instantly elevate your space, making it
+  feel bigger '
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-floating-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-floating-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom with a sleek, modern look? Building a floating bathroom vanity can instantly elevate your space, making it feel bigger and more stylish.**

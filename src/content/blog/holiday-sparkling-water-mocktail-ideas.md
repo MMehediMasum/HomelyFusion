@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Sparkling Water Mocktail Ideas: Festive & Refreshing Recipes"
 description: "Looking for a fun and refreshing way to celebrate this holiday season? You’ve come to the right place. Holiday sparkling water mocktails are the perfect choice "
 pubDate: 2026-01-17

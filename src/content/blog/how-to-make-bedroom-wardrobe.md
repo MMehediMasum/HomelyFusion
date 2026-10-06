@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bedroom Wardrobe: Easy Steps for Stylish Storage"
-description: "Are you tired of cluttered clothes and messy drawers in your bedroom? A well-made wardrobe can transform your space, making it neat and stylish. But how do you "
+title: 'How to Make Bedroom Wardrobe: Easy Steps for Stylish Storage'
+description: 'Are you tired of cluttered clothes and messy drawers in your bedroom?
+  A well-made wardrobe can transform your space, making it neat and stylish. But how
+  do you '
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bedroom-wardrobe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wardrobes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bedroom-wardrobe&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of cluttered clothes and messy drawers in your bedroom? A well-made wardrobe can transform your space, making it neat and stylish.**

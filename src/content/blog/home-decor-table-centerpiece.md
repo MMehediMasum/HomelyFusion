@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Table Centerpiece Ideas with Pampas Grass and Rustic Vases"
-description: "Creating a captivating table centerpiece transforms your home decor with style and elegance. Whether it's a boho chic vibe or a minimalist look, the right cente"
+title: Home Decor Table Centerpiece Ideas with Pampas Grass and Rustic Vases
+description: Creating a captivating table centerpiece transforms your home decor with
+  style and elegance. Whether it's a boho chic vibe or a minimalist look, the right
+  cente
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-table-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-table-centerpiece&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a captivating table centerpiece transforms your home decor with style and elegance. Whether it's a boho chic vibe or a minimalist look, the right centerpiece brings character to your space.**

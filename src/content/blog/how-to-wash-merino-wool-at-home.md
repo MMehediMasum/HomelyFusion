@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Merino Wool at Home: Easy Steps for Perfect Care"
 description: "You love your Merino wool clothes—they’re soft, warm, and perfect for any season. But when it comes to washing them at home, you might feel unsure or worried ab"
 pubDate: 2026-03-16

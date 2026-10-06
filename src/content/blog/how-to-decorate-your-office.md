@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Office: Creative Ideas for a Stylish Space"
-description: "Your office is more than just a place to work—it’s where ideas grow and productivity happens. How your space looks and feels can boost your mood and focus every"
+title: 'How to Decorate Your Office: Creative Ideas for a Stylish Space'
+description: Your office is more than just a place to work—it’s where ideas grow and
+  productivity happens. How your space looks and feels can boost your mood and focus
+  every
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office is more than just a place to work—it’s where ideas grow and productivity happens. How your space looks and feels can boost your mood and focus every single day.**

@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Placemats: Stylish and Durable Table Decor Essentials"
-description: "Tahari Home Placemats bring elegance and functionality to any dining setting. They combine style with practicality effortlessly. Tahari Home Placemats offer a p"
+title: 'Tahari Home Placemats: Stylish and Durable Table Decor Essentials'
+description: Tahari Home Placemats bring elegance and functionality to any dining
+  setting. They combine style with practicality effortlessly. Tahari Home Placemats
+  offer a p
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Tahari Home Placemats bring elegance and functionality to any dining setting. They combine style with practicality effortlessly.**

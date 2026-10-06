@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Your Fist Like Steel at Home: Ultimate Strength Guide"
 description: "Do you want to make your fist as strong as steel? Imagine having the power to deliver punches that feel solid and confident every time. Whether you’re training "
 pubDate: 2026-03-20

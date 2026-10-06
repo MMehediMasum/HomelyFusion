@@ -1,10 +1,14 @@
 ---
-title: "Halloween Haunted House Yard Decor: Spooktacular Ideas to Wow Neighbors"
-description: "Are you ready to turn your yard into the spookiest spot on the block this Halloween? Haunted house yard decor is the perfect way to thrill your neighbors and de"
+title: 'Halloween Haunted House Yard Decor: Spooktacular Ideas to Wow Neighbors'
+description: Are you ready to turn your yard into the spookiest spot on the block
+  this Halloween? Haunted house yard decor is the perfect way to thrill your neighbors
+  and de
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-haunted-house-yard-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-haunted-house-yard-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to turn your yard into the spookiest spot on the block this Halloween? Haunted house yard decor is the perfect way to thrill your neighbors and delight trick-or-treaters.**

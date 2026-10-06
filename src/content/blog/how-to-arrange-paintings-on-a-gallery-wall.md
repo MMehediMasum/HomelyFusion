@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Paintings on a Gallery Wall: Expert Tips & Tricks"
-description: "Are you staring at a blank wall wondering how to turn it into a stunning gallery? Arranging paintings on a gallery wall might seem tricky, but with the right ti"
+title: 'How to Arrange Paintings on a Gallery Wall: Expert Tips & Tricks'
+description: Are you staring at a blank wall wondering how to turn it into a stunning
+  gallery? Arranging paintings on a gallery wall might seem tricky, but with the right
+  ti
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-paintings-on-a-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-paintings-on-a-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a blank wall wondering how to turn it into a stunning gallery? Arranging paintings on a gallery wall might seem tricky, but with the right tips, you can create a display that reflects your personality and style.**

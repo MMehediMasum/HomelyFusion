@@ -1,10 +1,14 @@
 ---
-title: "Best Ambient Lighting for Bedroom: Top Smart LED Lamps and Projectors"
-description: "Creating the best ambient lighting can transform your bedroom into a cozy and relaxing space. Choosing the right light enhances mood and adds style without hars"
+title: 'Best Ambient Lighting for Bedroom: Top Smart LED Lamps and Projectors'
+description: Creating the best ambient lighting can transform your bedroom into a
+  cozy and relaxing space. Choosing the right light enhances mood and adds style without
+  hars
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ambient-lighting-for-bedroom-top-smart-led-lamps-and-projectors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-ambient-lighting-for-bedroom-top-smart-led-lamps-and-projectors&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Creating the best ambient lighting can transform your bedroom into a cozy and relaxing space. Choosing the right light enhances mood and adds style without harsh brightness.**

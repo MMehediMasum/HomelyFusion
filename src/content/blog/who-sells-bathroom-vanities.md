@@ -1,10 +1,14 @@
 ---
-title: "Who Sells Bathroom Vanities: Top Stores for Stylish Choices"
-description: "Are you looking to upgrade your bathroom with a stylish vanity but don’t know where to start? Finding the right place that sells bathroom vanities can feel over"
+title: 'Who Sells Bathroom Vanities: Top Stores for Stylish Choices'
+description: Are you looking to upgrade your bathroom with a stylish vanity but don’t
+  know where to start? Finding the right place that sells bathroom vanities can feel
+  over
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-sells-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=who-sells-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to upgrade your bathroom with a stylish vanity but don’t know where to start? Finding the right place that sells bathroom vanities can feel overwhelming with so many options out there.**

@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Nightstand in Guest Bedroom: Essential Must-Haves"
-description: "Your guest bedroom is more than just a place to sleep—it’s a chance to make your visitors feel truly welcome and comfortable. But what should you put on the nig"
+title: 'What to Put on Nightstand in Guest Bedroom: Essential Must-Haves'
+description: Your guest bedroom is more than just a place to sleep—it’s a chance to
+  make your visitors feel truly welcome and comfortable. But what should you put on
+  the nig
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-nightstand-in-guest-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-nightstand-in-guest-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your guest bedroom is more than just a place to sleep—it’s a chance to make your visitors feel truly welcome and comfortable. But what should you put on the nightstand to create that perfect balance of style and function?**

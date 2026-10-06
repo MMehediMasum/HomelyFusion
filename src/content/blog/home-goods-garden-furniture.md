@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Garden Furniture: Stylish Outdoor Sets for Ultimate Relaxation"
-description: "Home goods garden furniture creates a cozy outdoor space for relaxing and socializing. Choosing the right set enhances comfort and style in your garden or patio"
+title: 'Home Goods Garden Furniture: Stylish Outdoor Sets for Ultimate Relaxation'
+description: Home goods garden furniture creates a cozy outdoor space for relaxing
+  and socializing. Choosing the right set enhances comfort and style in your garden
+  or patio
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-garden-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-garden-furniture&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home goods garden furniture creates a cozy outdoor space for relaxing and socializing. Choosing the right set enhances comfort and style in your garden or patio.**

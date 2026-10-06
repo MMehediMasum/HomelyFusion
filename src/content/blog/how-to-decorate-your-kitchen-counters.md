@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Kitchen Counters: Stunning Ideas That Shine"
-description: "Your kitchen counters are more than just a workspace—they’re the heart of your kitchen’s style and personality. But how do you make sure they look inviting with"
+title: 'How to Decorate Your Kitchen Counters: Stunning Ideas That Shine'
+description: Your kitchen counters are more than just a workspace—they’re the heart
+  of your kitchen’s style and personality. But how do you make sure they look inviting
+  with
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-kitchen-counters&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-kitchen-counters&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen counters are more than just a workspace—they’re the heart of your kitchen’s style and personality. But how do you make sure they look inviting without feeling cluttered?**

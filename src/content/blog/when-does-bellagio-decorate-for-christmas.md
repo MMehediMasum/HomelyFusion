@@ -1,10 +1,14 @@
 ---
-title: "When Does Bellagio Decorate for Christmas: Ultimate Festive Guide"
-description: "Are you wondering when the Bellagio transforms into a magical winter wonderland? If you’ve ever dreamed of seeing dazzling lights, festive decorations, and stun"
+title: 'When Does Bellagio Decorate for Christmas: Ultimate Festive Guide'
+description: Are you wondering when the Bellagio transforms into a magical winter
+  wonderland? If you’ve ever dreamed of seeing dazzling lights, festive decorations,
+  and stun
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-does-bellagio-decorate-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=when-does-bellagio-decorate-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you wondering when the Bellagio transforms into a magical winter wonderland? If you’ve ever dreamed of seeing dazzling lights, festive decorations, and stunning holiday displays, the Bellagio’s Christmas makeover is something you won’t want to miss.**

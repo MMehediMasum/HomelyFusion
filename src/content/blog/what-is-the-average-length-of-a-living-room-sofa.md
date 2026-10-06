@@ -1,10 +1,14 @@
 ---
-title: "What is the Average Length of a Living Room Sofa: Ultimate Guide"
-description: "When you’re picking out a sofa for your living room, size matters more than you might think. Choosing the right length can make your space feel cozy and invitin"
+title: 'What is the Average Length of a Living Room Sofa: Ultimate Guide'
+description: When you’re picking out a sofa for your living room, size matters more
+  than you might think. Choosing the right length can make your space feel cozy and
+  invitin
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-average-length-of-a-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-average-length-of-a-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **When you’re picking out a sofa for your living room, size matters more than you might think. Choosing the right length can make your space feel cozy and inviting—or cramped and uncomfortable.**

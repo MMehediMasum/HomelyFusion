@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Kitchen Cabinets: Stylish Storage Solutions for Every Room"
-description: "Home Decorators Collection kitchen cabinets offer a blend of style and functionality for your home. They cater to diverse needs with various designs. These cabi"
+title: 'Home Decorators Collection Kitchen Cabinets: Stylish Storage Solutions for
+  Every Room'
+description: Home Decorators Collection kitchen cabinets offer a blend of style and
+  functionality for your home. They cater to diverse needs with various designs. These
+  cabi
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home Decorators Collection kitchen cabinets offer a blend of style and functionality for your home. They cater to diverse needs with various designs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Old Living Room Table: Easy Tips for Stunning Results"
-description: "Is your old living room table looking dull or sticky? You might think it’s impossible to bring back its original shine, but you’re closer than you realize. With"
+title: 'How to Clean Old Living Room Table: Easy Tips for Stunning Results'
+description: Is your old living room table looking dull or sticky? You might think
+  it’s impossible to bring back its original shine, but you’re closer than you realize.
+  With
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-old-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-old-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your old living room table looking dull or sticky? You might think it’s impossible to bring back its original shine, but you’re closer than you realize.**

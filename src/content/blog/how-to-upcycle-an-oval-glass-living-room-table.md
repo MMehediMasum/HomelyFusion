@@ -1,10 +1,14 @@
 ---
-title: "How to Upcycle an Oval Glass Living Room Table: Stunning DIY Ideas"
-description: "Looking at your oval glass living room table, do you see just a piece of furniture, or do you see a chance to create something unique? What if you could transfo"
+title: 'How to Upcycle an Oval Glass Living Room Table: Stunning DIY Ideas'
+description: Looking at your oval glass living room table, do you see just a piece
+  of furniture, or do you see a chance to create something unique? What if you could
+  transfo
 pubDate: 2026-04-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-upcycle-an-oval-glass-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=how-to-upcycle-an-oval-glass-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking at your oval glass living room table, do you see just a piece of furniture, or do you see a chance to create something unique? What if you could transform that plain table into a stunning centerpiece that reflects your style and personality?**

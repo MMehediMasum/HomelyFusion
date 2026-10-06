@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home As a Speakerphone: Easy Steps to Connect"
 description: "Imagine turning your Google Home into the perfect hands-free speakerphone. Whether you're cooking, working, or just relaxing, being able to take calls without h"
 pubDate: 2025-10-22

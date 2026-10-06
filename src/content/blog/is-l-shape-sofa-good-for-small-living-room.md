@@ -1,10 +1,13 @@
 ---
-title: "Is L-Shape Sofa Good for Small Living Room? Top Benefits Revealed"
-description: "Are you struggling to find the perfect sofa for your small living room? Choosing the right furniture can make a huge difference in how spacious and comfortable "
+title: Is L-Shape Sofa Good for Small Living Room? Top Benefits Revealed
+description: 'Are you struggling to find the perfect sofa for your small living room?
+  Choosing the right furniture can make a huge difference in how spacious and comfortable '
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-l-shape-sofa-good-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=is-l-shape-sofa-good-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect sofa for your small living room? Choosing the right furniture can make a huge difference in how spacious and comfortable your space feels.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Would Living Room Chair Arms Be Short: Surprising Benefits Explained"
-description: "Have you ever noticed some living room chairs with surprisingly short arms and wondered why? It might seem like a small detail, but those short arms can actuall"
+title: 'Why Would Living Room Chair Arms Be Short: Surprising Benefits Explained'
+description: Have you ever noticed some living room chairs with surprisingly short
+  arms and wondered why? It might seem like a small detail, but those short arms can
+  actuall
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-would-living-room-chair-arms-be-short&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=why-would-living-room-chair-arms-be-short&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever noticed some living room chairs with surprisingly short arms and wondered why? It might seem like a small detail, but those short arms can actually make a big difference in how comfortable and functional your space feels.**

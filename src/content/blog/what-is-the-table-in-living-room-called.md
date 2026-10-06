@@ -1,10 +1,14 @@
 ---
-title: "What is the Table in Living Room Called: Ultimate Guide Revealed"
-description: "Have you ever wondered what the table in your living room is actually called? You see it every day, but do you know its proper name and the role it plays in you"
+title: 'What is the Table in Living Room Called: Ultimate Guide Revealed'
+description: Have you ever wondered what the table in your living room is actually
+  called? You see it every day, but do you know its proper name and the role it plays
+  in you
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-table-in-living-room-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-table-in-living-room-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what the table in your living room is actually called? You see it every day, but do you know its proper name and the role it plays in your space?**

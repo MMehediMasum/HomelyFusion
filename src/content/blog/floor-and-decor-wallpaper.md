@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Wallpaper: Stylish Peel and Stick Options for Every Room"
-description: "Floor and Decor wallpaper offers stylish, easy-to-use wall coverings for any room. These peel-and-stick options transform walls quickly without mess or damage. "
+title: 'Floor And Decor Wallpaper: Stylish Peel and Stick Options for Every Room'
+description: 'Floor and Decor wallpaper offers stylish, easy-to-use wall coverings
+  for any room. These peel-and-stick options transform walls quickly without mess
+  or damage. '
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-wallpaper&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-wallpaper&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor wallpaper offers stylish, easy-to-use wall coverings for any room. These peel-and-stick options transform walls quickly without mess or damage.**

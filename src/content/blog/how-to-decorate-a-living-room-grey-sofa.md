@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Grey Sofa: Stylish Tips & Tricks"
-description: "Your grey sofa is more than just a place to sit—it’s the heart of your living room. But how do you bring it to life without overwhelming the space? You might fe"
+title: 'How to Decorate a Living Room Grey Sofa: Stylish Tips & Tricks'
+description: Your grey sofa is more than just a place to sit—it’s the heart of your
+  living room. But how do you bring it to life without overwhelming the space? You
+  might fe
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-grey-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-grey-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your grey sofa is more than just a place to sit—it’s the heart of your living room. But how do you bring it to life without overwhelming the space?**

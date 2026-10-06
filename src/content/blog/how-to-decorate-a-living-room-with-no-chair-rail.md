@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With No Chair Rail: Stunning Ideas"
-description: "Are you wondering how to make your living room look stunning without a chair rail? You might think a chair rail is a must-have for adding style and structure, b"
+title: 'How to Decorate a Living Room With No Chair Rail: Stunning Ideas'
+description: Are you wondering how to make your living room look stunning without
+  a chair rail? You might think a chair rail is a must-have for adding style and structure,
+  b
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-no-chair-rail&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-no-chair-rail&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you wondering how to make your living room look stunning without a chair rail? You might think a chair rail is a must-have for adding style and structure, but that’s not true.**

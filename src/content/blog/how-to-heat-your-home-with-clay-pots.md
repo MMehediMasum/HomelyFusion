@@ -1,10 +1,13 @@
 ---
-title: "How to Heat Your Home With Clay Pots: Easy & Affordable Tips"
-description: "Are you looking for a simple, affordable way to keep your home warm without breaking the bank? Heating your home with clay pots might be the surprising solution"
+title: 'How to Heat Your Home With Clay Pots: Easy & Affordable Tips'
+description: Are you looking for a simple, affordable way to keep your home warm without
+  breaking the bank? Heating your home with clay pots might be the surprising solution
 pubDate: 2025-10-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-heat-your-home-with-clay-pots&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pottery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-heat-your-home-with-clay-pots&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a simple, affordable way to keep your home warm without breaking the bank? Heating your home with clay pots might be the surprising solution you’ve been missing.**

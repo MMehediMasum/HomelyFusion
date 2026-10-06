@@ -1,10 +1,14 @@
 ---
-title: "Big Mirror Home Goods: Stunning Full-Length Mirrors to Elevate Your Space"
-description: "Big mirrors can transform any space, making rooms appear larger and more inviting. Discover stunning options for your home. Mirrors do more than reflect our ima"
+title: 'Big Mirror Home Goods: Stunning Full-Length Mirrors to Elevate Your Space'
+description: Big mirrors can transform any space, making rooms appear larger and more
+  inviting. Discover stunning options for your home. Mirrors do more than reflect
+  our ima
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=big-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=big-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Big mirrors can transform any space, making rooms appear larger and more inviting. Discover stunning options for your home.**

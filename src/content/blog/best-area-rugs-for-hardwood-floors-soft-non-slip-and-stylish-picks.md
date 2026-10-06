@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Hardwood Floors: Soft, Non-Slip, and Stylish Picks"
-description: "Choosing the best area rugs for hardwood floors enhances comfort and protects your wood surfaces. Area rugs add style and warmth to any room without damaging fl"
+title: 'Best Area Rugs for Hardwood Floors: Soft, Non-Slip, and Stylish Picks'
+description: Choosing the best area rugs for hardwood floors enhances comfort and
+  protects your wood surfaces. Area rugs add style and warmth to any room without
+  damaging fl
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-hardwood-floors-soft-non-slip-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-hardwood-floors-soft-non-slip-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rugs for hardwood floors enhances comfort and protects your wood surfaces. Area rugs add style and warmth to any room without damaging floors.**

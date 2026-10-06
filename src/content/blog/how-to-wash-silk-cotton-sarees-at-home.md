@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Silk Cotton Sarees at Home: Easy, Gentle Guide"
-description: "You’ve invested in a beautiful silk cotton saree, and now you want to keep it looking fresh and vibrant. But washing it at home can feel risky—what if the color"
+title: 'How to Wash Silk Cotton Sarees at Home: Easy, Gentle Guide'
+description: You’ve invested in a beautiful silk cotton saree, and now you want to
+  keep it looking fresh and vibrant. But washing it at home can feel risky—what if
+  the color
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-silk-cotton-sarees-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-silk-cotton-sarees-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **You’ve invested in a beautiful silk cotton saree, and now you want to keep it looking fresh and vibrant. But washing it at home can feel risky—what if the colors fade or the fabric gets damaged?**

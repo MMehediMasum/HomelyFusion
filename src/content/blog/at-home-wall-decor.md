@@ -1,10 +1,14 @@
 ---
-title: "At Home Wall Decor Ideas to Transform Your Living Space Instantly"
-description: "Sprucing up your home with wall decor can transform any space into a personal sanctuary. From boho accents to practical solutions, the right decor pieces can ma"
+title: At Home Wall Decor Ideas to Transform Your Living Space Instantly
+description: Sprucing up your home with wall decor can transform any space into a
+  personal sanctuary. From boho accents to practical solutions, the right decor pieces
+  can ma
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Sprucing up your home with wall decor can transform any space into a personal sanctuary. From boho accents to practical solutions, the right decor pieces can make all the difference.**

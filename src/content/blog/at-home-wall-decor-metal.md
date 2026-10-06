@@ -1,10 +1,14 @@
 ---
-title: "At Home Wall Decor Metal: Stylish Rustic and Modern Art Ideas"
-description: "Metal wall decor brings a unique charm to any room, offering both style and personality. This blog post explores various options to enhance your home using meta"
+title: 'At Home Wall Decor Metal: Stylish Rustic and Modern Art Ideas'
+description: Metal wall decor brings a unique charm to any room, offering both style
+  and personality. This blog post explores various options to enhance your home using
+  meta
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-wall-decor-metal&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-wall-decor-metal&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Metal wall decor brings a unique charm to any room, offering both style and personality. This blog post explores various options to enhance your home using metal art.**

@@ -1,10 +1,14 @@
 ---
-title: "Farmhouse Bathroom Sink Ideas: Stylish Designs to Transform Your Space"
-description: "Are you looking to give your bathroom a fresh, cozy touch that feels both timeless and inviting? A farmhouse bathroom sink could be the perfect centerpiece to t"
+title: 'Farmhouse Bathroom Sink Ideas: Stylish Designs to Transform Your Space'
+description: Are you looking to give your bathroom a fresh, cozy touch that feels
+  both timeless and inviting? A farmhouse bathroom sink could be the perfect centerpiece
+  to t
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=farmhouse-bathroom-sink-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=farmhouse-bathroom-sink-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bathroom a fresh, cozy touch that feels both timeless and inviting? A farmhouse bathroom sink could be the perfect centerpiece to transform your space.**

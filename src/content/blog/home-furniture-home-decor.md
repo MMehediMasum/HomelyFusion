@@ -1,10 +1,15 @@
 ---
-title: "Home Furniture Home Decor: Stylish Storage and Lighting Solutions for Every Room"
-description: "Home furniture and home decor create a comfortable and stylish living space. Choosing the right items helps organize and beautify your home easily. Organizing t"
+title: 'Home Furniture Home Decor: Stylish Storage and Lighting Solutions for Every
+  Room'
+description: Home furniture and home decor create a comfortable and stylish living
+  space. Choosing the right items helps organize and beautify your home easily. Organizing
+  t
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home furniture and home decor create a comfortable and stylish living space. Choosing the right items helps organize and beautify your home easily.**

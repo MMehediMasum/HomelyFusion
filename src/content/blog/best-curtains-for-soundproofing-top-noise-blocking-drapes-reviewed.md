@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Soundproofing: Top Noise-Blocking Drapes Reviewed"
-description: "Choosing the best curtains for soundproofing can greatly reduce noise in your home. Quality soundproof curtains block outside noise and create a peaceful space."
+title: 'Best Curtains for Soundproofing: Top Noise-Blocking Drapes Reviewed'
+description: Choosing the best curtains for soundproofing can greatly reduce noise
+  in your home. Quality soundproof curtains block outside noise and create a peaceful
+  space.
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-soundproofing-top-noise-blocking-drapes-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-soundproofing-top-noise-blocking-drapes-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for soundproofing can greatly reduce noise in your home. Quality soundproof curtains block outside noise and create a peaceful space.**

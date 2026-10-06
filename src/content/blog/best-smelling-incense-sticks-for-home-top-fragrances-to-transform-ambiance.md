@@ -1,10 +1,13 @@
 ---
-title: "Best Smelling Incense Sticks for Home: Top Fragrances to Transform Ambiance"
-description: "Choosing the best smelling incense sticks can transform your home’s atmosphere instantly. The right fragrance creates calm, comfort, and a welcoming vibe. Incen"
+title: 'Best Smelling Incense Sticks for Home: Top Fragrances to Transform Ambiance'
+description: Choosing the best smelling incense sticks can transform your home’s atmosphere
+  instantly. The right fragrance creates calm, comfort, and a welcoming vibe. Incen
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smelling-incense-sticks-for-home-top-fragrances-to-transform-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-smelling-incense-sticks-for-home-top-fragrances-to-transform-ambiance&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best smelling incense sticks can transform your home’s atmosphere instantly. The right fragrance creates calm, comfort, and a welcoming vibe.**

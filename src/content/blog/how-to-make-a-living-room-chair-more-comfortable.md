@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Chair More Comfortable: Easy Tips"
-description: "Is your living room chair more of a pain than a place to relax? You deserve a seat that welcomes you after a long day, not one that leaves you fidgeting or sore"
+title: 'How to Make a Living Room Chair More Comfortable: Easy Tips'
+description: Is your living room chair more of a pain than a place to relax? You deserve
+  a seat that welcomes you after a long day, not one that leaves you fidgeting or
+  sore
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-more-comfortable&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair-more-comfortable&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your living room chair more of a pain than a place to relax? You deserve a seat that welcomes you after a long day, not one that leaves you fidgeting or sore.**

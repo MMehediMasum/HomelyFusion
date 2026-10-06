@@ -1,10 +1,14 @@
 ---
-title: "How High Should Bed Headboard Be in Bedroom: Expert Guide"
-description: "Are you wondering how high your bed headboard should be to make your bedroom look just right? The height of your headboard isn’t just about style—it affects com"
+title: 'How High Should Bed Headboard Be in Bedroom: Expert Guide'
+description: Are you wondering how high your bed headboard should be to make your
+  bedroom look just right? The height of your headboard isn’t just about style—it
+  affects com
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-should-bed-headboard-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-high-should-bed-headboard-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how high your bed headboard should be to make your bedroom look just right? The height of your headboard isn’t just about style—it affects comfort, room balance, and even your sleep quality.**

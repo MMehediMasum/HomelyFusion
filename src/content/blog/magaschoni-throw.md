@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Throw: Ultimate Cozy Luxury Blanket for Couch and Bedroom"
-description: "Magaschoni Throw blankets bring warmth and style to any room. These throws combine softness with elegant design for cozy comfort. Magaschoni Throws offer a perf"
+title: 'Magaschoni Throw: Ultimate Cozy Luxury Blanket for Couch and Bedroom'
+description: Magaschoni Throw blankets bring warmth and style to any room. These throws
+  combine softness with elegant design for cozy comfort. Magaschoni Throws offer a
+  perf
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-throw&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-throw&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Magaschoni Throw blankets bring warmth and style to any room. These throws combine softness with elegant design for cozy comfort.**

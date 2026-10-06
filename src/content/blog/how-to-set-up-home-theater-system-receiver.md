@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Home Theater System Receiver: Ultimate Step-by-Step Guide"
 description: "Setting up your home theater system receiver might seem tricky at first, but it doesn’t have to be. Imagine sitting back, pressing play, and hearing crystal-cle"
 pubDate: 2025-10-26

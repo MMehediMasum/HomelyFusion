@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Bedroom With Mirrored Furniture: Stunning Ideas"
-description: "Imagine stepping into your bedroom and feeling an instant sense of brightness and space. Mirrored furniture can do just that—it reflects light, creates a stylis"
+title: 'How to Decorate Bedroom With Mirrored Furniture: Stunning Ideas'
+description: Imagine stepping into your bedroom and feeling an instant sense of brightness
+  and space. Mirrored furniture can do just that—it reflects light, creates a stylis
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-mirrored-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-mirrored-furniture&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Imagine stepping into your bedroom and feeling an instant sense of brightness and space. Mirrored furniture can do just that—it reflects light, creates a stylish look, and makes your room feel larger than it really is.**

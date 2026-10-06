@@ -1,10 +1,14 @@
 ---
-title: "Pink Ghost Pillow Homegoods: Cozy Spooky Decor for Your Sofa"
-description: "The Pink Ghost Pillow collection at Homegoods offers fun and spooky decor for Halloween. These soft, plush pillows bring a cozy, festive touch to any room. This"
+title: 'Pink Ghost Pillow Homegoods: Cozy Spooky Decor for Your Sofa'
+description: The Pink Ghost Pillow collection at Homegoods offers fun and spooky decor
+  for Halloween. These soft, plush pillows bring a cozy, festive touch to any room.
+  This
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pink-ghost-pillow-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=pink-ghost-pillow-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Pink Ghost Pillow collection at Homegoods offers fun and spooky decor for Halloween. These soft, plush pillows bring a cozy, festive touch to any room.**

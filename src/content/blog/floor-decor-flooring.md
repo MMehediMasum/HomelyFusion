@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Flooring Ideas: Stylish Rugs, Lamps, and Pampas Grass Accents"
-description: "Floor Decor Flooring offers a wide range of stylish home accessories that enhance any room's ambiance. Their collection includes mirrors, faux pampas grass, kit"
+title: 'Floor Decor Flooring Ideas: Stylish Rugs, Lamps, and Pampas Grass Accents'
+description: Floor Decor Flooring offers a wide range of stylish home accessories
+  that enhance any room's ambiance. Their collection includes mirrors, faux pampas
+  grass, kit
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor Flooring offers a wide range of stylish home accessories that enhance any room's ambiance. Their collection includes mirrors, faux pampas grass, kitchen mats, bathroom rugs, and more.**

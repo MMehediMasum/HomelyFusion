@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom Without Dresser: Creative Space-Saving Ideas"
-description: "Looking to refresh your bedroom but don’t have space for a dresser? You’re not alone—and you don’t have to sacrifice style or storage. Imagine a room that feels"
+title: 'How to Decorate Bedroom Without Dresser: Creative Space-Saving Ideas'
+description: Looking to refresh your bedroom but don’t have space for a dresser? You’re
+  not alone—and you don’t have to sacrifice style or storage. Imagine a room that
+  feels
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-without-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-without-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to refresh your bedroom but don’t have space for a dresser? You’re not alone—and you don’t have to sacrifice style or storage.**

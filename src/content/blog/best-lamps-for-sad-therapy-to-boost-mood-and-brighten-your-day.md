@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lamps for Sad Therapy to Boost Mood and Brighten Your Day"
 description: "Light therapy lamps help improve mood and ease symptoms of seasonal affective disorder (SAD). They mimic natural sunlight to lift spirits and boost energy. SAD "
 pubDate: 2025-11-11

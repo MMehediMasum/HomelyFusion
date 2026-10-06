@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Dresser: Stunning Ideas to Transform Your Space"
-description: "Your dresser is more than just a place to store clothes—it’s a chance to show your style and make your room feel cozy and inviting. But decorating it can feel t"
+title: 'How to Decorate Dresser: Stunning Ideas to Transform Your Space'
+description: Your dresser is more than just a place to store clothes—it’s a chance
+  to show your style and make your room feel cozy and inviting. But decorating it
+  can feel t
 pubDate: 2025-10-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your dresser is more than just a place to store clothes—it’s a chance to show your style and make your room feel cozy and inviting. But decorating it can feel tricky.**

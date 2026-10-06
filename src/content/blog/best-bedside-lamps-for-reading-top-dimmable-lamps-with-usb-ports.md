@@ -1,10 +1,14 @@
 ---
-title: "Best Bedside Lamps for Reading: Top Dimmable Lamps with USB Ports"
-description: "Choosing the best bedside lamp for reading improves comfort and reduces eye strain. The right lamp offers adjustable brightness and easy controls. Good lighting"
+title: 'Best Bedside Lamps for Reading: Top Dimmable Lamps with USB Ports'
+description: Choosing the best bedside lamp for reading improves comfort and reduces
+  eye strain. The right lamp offers adjustable brightness and easy controls. Good
+  lighting
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bedside-lamps-for-reading-top-dimmable-lamps-with-usb-ports&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-bedside-lamps-for-reading-top-dimmable-lamps-with-usb-ports&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best bedside lamp for reading improves comfort and reduces eye strain. The right lamp offers adjustable brightness and easy controls.**

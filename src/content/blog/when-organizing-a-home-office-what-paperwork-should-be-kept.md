@@ -1,10 +1,14 @@
 ---
-title: "When Organizing a Home Office What Paperwork Should Be Kept: Essential Guide"
-description: "When organizing a home office, one of the biggest challenges is deciding which paperwork to keep and which to toss. You don’t want clutter slowing you down, but"
+title: 'When Organizing a Home Office What Paperwork Should Be Kept: Essential Guide'
+description: When organizing a home office, one of the biggest challenges is deciding
+  which paperwork to keep and which to toss. You don’t want clutter slowing you down,
+  but
 pubDate: 2025-08-26
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-organizing-a-home-office-what-paperwork-should-be-kept&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=when-organizing-a-home-office-what-paperwork-should-be-kept&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **When organizing a home office, one of the biggest challenges is deciding which paperwork to keep and which to toss. You don’t want clutter slowing you down, but you also need quick access to important documents.**

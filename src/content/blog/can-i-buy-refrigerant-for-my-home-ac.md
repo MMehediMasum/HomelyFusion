@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Buy Refrigerant for My Home Ac? Essential Tips Revealed"
 description: "Are you wondering if you can buy refrigerant for your home AC? You’re not alone. Many homeowners face the same question when their air conditioner stops cooling"
 pubDate: 2026-04-03

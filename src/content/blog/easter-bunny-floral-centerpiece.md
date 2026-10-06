@@ -1,10 +1,13 @@
 ---
-title: "Easter Bunny Floral Centerpiece: Stunning Ideas to Brighten Your Table"
-description: "Are you looking to add a fresh and charming touch to your Easter celebrations? An Easter Bunny Floral Centerpiece is the perfect way to bring life and joy to yo"
+title: 'Easter Bunny Floral Centerpiece: Stunning Ideas to Brighten Your Table'
+description: Are you looking to add a fresh and charming touch to your Easter celebrations?
+  An Easter Bunny Floral Centerpiece is the perfect way to bring life and joy to yo
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-floral-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-floral-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a fresh and charming touch to your Easter celebrations? An Easter Bunny Floral Centerpiece is the perfect way to bring life and joy to your table.**

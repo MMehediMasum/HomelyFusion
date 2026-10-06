@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Steel Plate at Home: Easy, Safe, and Precise Methods"
 description: "Cutting steel plate at home might sound tough, but with the right tools and simple steps, you can do it safely and precisely. Whether you’re working on a DIY pr"
 pubDate: 2026-02-20

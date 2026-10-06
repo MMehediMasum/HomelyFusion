@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Mural Wall Art: Stunning Tips for Beginners"
-description: "Are you ready to transform your plain wall into a stunning piece of art? Painting mural wall art is a fun and creative way to make your space truly unique. Whet"
+title: 'How to Paint Mural Wall Art: Stunning Tips for Beginners'
+description: Are you ready to transform your plain wall into a stunning piece of art?
+  Painting mural wall art is a fun and creative way to make your space truly unique.
+  Whet
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-mural-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-mural-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a stunning piece of art? Painting mural wall art is a fun and creative way to make your space truly unique.**

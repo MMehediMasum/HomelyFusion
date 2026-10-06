@@ -1,10 +1,13 @@
 ---
-title: "Holiday Home Decor Ideas: Rustic and Cozy Seasonal Decorations for Every Room"
-description: "Holiday home decor ideas can transform your space for every season and special occasion. Simple touches bring warmth and charm to your living areas. Decorating "
+title: 'Holiday Home Decor Ideas: Rustic and Cozy Seasonal Decorations for Every Room'
+description: 'Holiday home decor ideas can transform your space for every season and
+  special occasion. Simple touches bring warmth and charm to your living areas. Decorating '
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-decor-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday home decor ideas can transform your space for every season and special occasion. Simple touches bring warmth and charm to your living areas.**

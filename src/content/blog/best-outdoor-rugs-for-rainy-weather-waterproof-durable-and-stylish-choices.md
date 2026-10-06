@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rugs for Rainy Weather: Waterproof, Durable, and Stylish Choices"
-description: "Choosing the right outdoor rug can protect your space during rainy weather. Waterproof rugs keep your patio dry and comfortable. Rain can damage many outdoor ru"
+title: 'Best Outdoor Rugs for Rainy Weather: Waterproof, Durable, and Stylish Choices'
+description: Choosing the right outdoor rug can protect your space during rainy weather.
+  Waterproof rugs keep your patio dry and comfortable. Rain can damage many outdoor
+  ru
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rainy-weather-waterproof-durable-and-stylish-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rainy-weather-waterproof-durable-and-stylish-choices&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right outdoor rug can protect your space during rainy weather. Waterproof rugs keep your patio dry and comfortable.**

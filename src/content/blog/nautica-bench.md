@@ -1,10 +1,14 @@
 ---
-title: "Nautica Bench: Stylish and Functional Upholstered Storage Bench Ideas"
-description: "The Nautica Bench offers versatile seating solutions for any space. Perfect for bedrooms, living rooms, or entryways. Benches are more than just seating; they a"
+title: 'Nautica Bench: Stylish and Functional Upholstered Storage Bench Ideas'
+description: The Nautica Bench offers versatile seating solutions for any space. Perfect
+  for bedrooms, living rooms, or entryways. Benches are more than just seating; they
+  a
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=nautica-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **The Nautica Bench offers versatile seating solutions for any space. Perfect for bedrooms, living rooms, or entryways.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Fireplace Heat a Home: Ultimate Guide to Cozy Warmth"
 description: "Have you ever wondered if a fireplace can really heat your whole home? It’s a cozy thought—imagine sitting by the fire, feeling warmth spread through every room"
 pubDate: 2025-10-15

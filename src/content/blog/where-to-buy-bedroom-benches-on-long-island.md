@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Buy Bedroom Benches on Long Island: Top Picks Revealed"
 description: "Are you looking to add a stylish and practical touch to your bedroom? A bedroom bench can be the perfect piece to enhance both comfort and decor. But where do y"
 pubDate: 2026-05-18

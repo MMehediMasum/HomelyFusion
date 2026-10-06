@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Rugs 8X10: Stylish Indoor/Outdoor Area Rugs for Every Space"
-description: "Nicole Miller rugs offer a blend of style and functionality, perfect for any indoor or outdoor space. These 8x10 rugs add elegance and comfort to your home with"
+title: 'Nicole Miller Rugs 8X10: Stylish Indoor/Outdoor Area Rugs for Every Space'
+description: Nicole Miller rugs offer a blend of style and functionality, perfect
+  for any indoor or outdoor space. These 8x10 rugs add elegance and comfort to your
+  home with
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-rugs-8x10&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-rugs-8x10&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nicole Miller rugs offer a blend of style and functionality, perfect for any indoor or outdoor space. These 8x10 rugs add elegance and comfort to your home with their diverse designs.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Snowflake Ornaments for Christmas: Easy & Stunning Ideas"
-description: "Are you ready to add a personal touch to your Christmas decorations this year? DIY snowflake ornaments are a fun and simple way to bring magic to your home. Ima"
+title: 'Diy Snowflake Ornaments for Christmas: Easy & Stunning Ideas'
+description: Are you ready to add a personal touch to your Christmas decorations this
+  year? DIY snowflake ornaments are a fun and simple way to bring magic to your home.
+  Ima
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-snowflake-ornaments-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-snowflake-ornaments-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your Christmas decorations this year? DIY snowflake ornaments are a fun and simple way to bring magic to your home.**

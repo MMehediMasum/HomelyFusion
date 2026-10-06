@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate With a Cherry Red Sofa Living Room: Stunning Style Tips"
-description: "A cherry red sofa can instantly transform your living room into a bold and inviting space. But how do you decorate around such a vibrant piece without overwhelm"
+title: 'How to Decorate With a Cherry Red Sofa Living Room: Stunning Style Tips'
+description: A cherry red sofa can instantly transform your living room into a bold
+  and inviting space. But how do you decorate around such a vibrant piece without
+  overwhelm
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-a-cherry-red-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-a-cherry-red-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A cherry red sofa can instantly transform your living room into a bold and inviting space. But how do you decorate around such a vibrant piece without overwhelming the room?**

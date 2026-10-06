@@ -1,10 +1,14 @@
 ---
-title: "Home Furniture Online Store: Stylish Storage & Decor Solutions for Every Room"
-description: "Find quality home furniture online with ease and convenience. Discover a wide range of stylish, practical pieces for every room. Shopping for home furniture onl"
+title: 'Home Furniture Online Store: Stylish Storage & Decor Solutions for Every Room'
+description: Find quality home furniture online with ease and convenience. Discover
+  a wide range of stylish, practical pieces for every room. Shopping for home furniture
+  onl
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-online-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-online-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Find quality home furniture online with ease and convenience. Discover a wide range of stylish, practical pieces for every room.**

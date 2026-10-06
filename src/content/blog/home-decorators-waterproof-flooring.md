@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Waterproof Flooring: Stylish, Durable Vinyl Tiles and Mats Guide"
-description: "Choosing waterproof flooring for your home ensures durability and style. It complements any room while offering easy maintenance. Waterproof flooring is a pract"
+title: 'Home Decorators Waterproof Flooring: Stylish, Durable Vinyl Tiles and Mats
+  Guide'
+description: Choosing waterproof flooring for your home ensures durability and style.
+  It complements any room while offering easy maintenance. Waterproof flooring is
+  a pract
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-waterproof-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-waterproof-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing waterproof flooring for your home ensures durability and style. It complements any room while offering easy maintenance.**

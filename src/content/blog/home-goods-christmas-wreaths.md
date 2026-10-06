@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Christmas Wreaths: Stunning Decor for Festive Front Doors"
-description: "Christmas wreaths add festive charm to any home during the holiday season. They create a warm and welcoming atmosphere. From classic designs to modern interpret"
+title: 'Home Goods Christmas Wreaths: Stunning Decor for Festive Front Doors'
+description: Christmas wreaths add festive charm to any home during the holiday season.
+  They create a warm and welcoming atmosphere. From classic designs to modern interpret
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-wreaths&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-wreaths&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas wreaths add festive charm to any home during the holiday season. They create a warm and welcoming atmosphere.**

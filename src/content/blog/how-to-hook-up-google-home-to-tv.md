@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Google Home to Tv: Easy Steps for Instant Control"
 description: "Have you ever wished you could control your TV with just your voice? Connecting your Google Home to your TV makes this possible—and it’s easier than you might t"
 pubDate: 2025-10-15

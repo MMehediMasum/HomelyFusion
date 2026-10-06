@@ -1,10 +1,14 @@
 ---
-title: "How Many End Tables is Too Many for Living Room: Expert Tips"
-description: "Have you ever wondered how many end tables are just right for your living room? Too few, and you might struggle to find a spot for your drink or book. Too many,"
+title: 'How Many End Tables is Too Many for Living Room: Expert Tips'
+description: Have you ever wondered how many end tables are just right for your living
+  room? Too few, and you might struggle to find a spot for your drink or book. Too
+  many,
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-end-tables-is-too-many-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-many-end-tables-is-too-many-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how many end tables are just right for your living room? Too few, and you might struggle to find a spot for your drink or book.**

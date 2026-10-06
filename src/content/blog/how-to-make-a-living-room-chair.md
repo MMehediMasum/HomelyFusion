@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Chair: Easy Steps for Stylish Comfort"
-description: "Are you ready to create a cozy spot that feels truly yours? Making a living room chair by yourself is easier than you think. Imagine sinking into a chair you bu"
+title: 'How to Make a Living Room Chair: Easy Steps for Stylish Comfort'
+description: Are you ready to create a cozy spot that feels truly yours? Making a
+  living room chair by yourself is easier than you think. Imagine sinking into a chair
+  you bu
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to create a cozy spot that feels truly yours? Making a living room chair by yourself is easier than you think.**

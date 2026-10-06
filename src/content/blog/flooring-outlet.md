@@ -1,10 +1,14 @@
 ---
-title: "Flooring Outlet: Top Peel & Stick Tiles and Foam Mats for Every Room"
-description: "Discover the perfect flooring solutions at our Flooring Outlet. Explore a range of stylish and affordable options today. Choosing the right flooring can transfo"
+title: 'Flooring Outlet: Top Peel & Stick Tiles and Foam Mats for Every Room'
+description: Discover the perfect flooring solutions at our Flooring Outlet. Explore
+  a range of stylish and affordable options today. Choosing the right flooring can
+  transfo
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-outlet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-outlet&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the perfect flooring solutions at our Flooring Outlet. Explore a range of stylish and affordable options today.**

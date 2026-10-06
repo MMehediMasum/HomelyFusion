@@ -1,10 +1,14 @@
 ---
-title: "Easter Brunch Table Decor Ideas: Stunning Designs to Impress Guests"
-description: "Are you ready to make your Easter brunch unforgettable? The secret lies in the little details—especially your table decor. Imagine your guests’ eyes lighting up"
+title: 'Easter Brunch Table Decor Ideas: Stunning Designs to Impress Guests'
+description: Are you ready to make your Easter brunch unforgettable? The secret lies
+  in the little details—especially your table decor. Imagine your guests’ eyes lighting
+  up
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-brunch-table-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-brunch-table-decor-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Easter brunch unforgettable? The secret lies in the little details—especially your table decor.**

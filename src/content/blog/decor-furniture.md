@@ -1,10 +1,14 @@
 ---
-title: "Decor & Furniture Must-Haves: Stylish Shelves, Storage, and Display Ideas"
-description: "Decor and furniture play vital roles in enhancing a home's aesthetic and functionality. Both elements offer unique ways to express personal style and improve li"
+title: 'Decor & Furniture Must-Haves: Stylish Shelves, Storage, and Display Ideas'
+description: Decor and furniture play vital roles in enhancing a home's aesthetic
+  and functionality. Both elements offer unique ways to express personal style and
+  improve li
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor and furniture play vital roles in enhancing a home's aesthetic and functionality. Both elements offer unique ways to express personal style and improve living spaces.**

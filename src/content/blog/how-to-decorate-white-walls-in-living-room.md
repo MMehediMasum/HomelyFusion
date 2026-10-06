@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate White Walls in Living Room: Stunning Ideas Revealed"
-description: "White walls in your living room offer a clean, fresh canvas—but they can also feel plain or cold if left bare. You want your space to feel warm, inviting, and f"
+title: 'How to Decorate White Walls in Living Room: Stunning Ideas Revealed'
+description: White walls in your living room offer a clean, fresh canvas—but they
+  can also feel plain or cold if left bare. You want your space to feel warm, inviting,
+  and f
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-white-walls-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-white-walls-in-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **White walls in your living room offer a clean, fresh canvas—but they can also feel plain or cold if left bare. You want your space to feel warm, inviting, and full of personality, right?**

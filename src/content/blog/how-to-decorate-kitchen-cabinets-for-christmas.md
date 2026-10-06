@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Cabinets for Christmas: Festive Ideas Made Easy"
-description: "Your kitchen is the heart of your home, especially during the holiday season. Decorating your kitchen cabinets for Christmas can instantly bring warmth and fest"
+title: 'How to Decorate Kitchen Cabinets for Christmas: Festive Ideas Made Easy'
+description: Your kitchen is the heart of your home, especially during the holiday
+  season. Decorating your kitchen cabinets for Christmas can instantly bring warmth
+  and fest
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinets-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinets-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your kitchen is the heart of your home, especially during the holiday season. Decorating your kitchen cabinets for Christmas can instantly bring warmth and festive cheer to the space where you spend so much time.**

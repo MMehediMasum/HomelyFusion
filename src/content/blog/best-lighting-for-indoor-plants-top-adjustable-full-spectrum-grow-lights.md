@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Indoor Plants: Top Adjustable Full Spectrum Grow Lights"
-description: "Choosing the best lighting for indoor plants helps them grow healthy and strong. Proper light supports photosynthesis and boosts plant growth indoors. Indoor pl"
+title: 'Best Lighting for Indoor Plants: Top Adjustable Full Spectrum Grow Lights'
+description: Choosing the best lighting for indoor plants helps them grow healthy
+  and strong. Proper light supports photosynthesis and boosts plant growth indoors.
+  Indoor pl
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-indoor-plants-top-adjustable-full-spectrum-grow-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-indoor-plants-top-adjustable-full-spectrum-grow-lights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for indoor plants helps them grow healthy and strong. Proper light supports photosynthesis and boosts plant growth indoors.**

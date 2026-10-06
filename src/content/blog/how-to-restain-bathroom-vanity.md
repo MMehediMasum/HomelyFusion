@@ -1,10 +1,14 @@
 ---
-title: "How to Restain Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Is your bathroom vanity looking dull or outdated? Restaining it can bring back its shine and give your whole bathroom a fresh new look without spending a fortun"
+title: 'How to Restain Bathroom Vanity: Easy Steps for Stunning Results'
+description: Is your bathroom vanity looking dull or outdated? Restaining it can bring
+  back its shine and give your whole bathroom a fresh new look without spending a
+  fortun
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-restain-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-restain-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity looking dull or outdated? Restaining it can bring back its shine and give your whole bathroom a fresh new look without spending a fortune.**

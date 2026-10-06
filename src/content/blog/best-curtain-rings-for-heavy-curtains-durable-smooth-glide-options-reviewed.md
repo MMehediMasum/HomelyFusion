@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Curtain Rings for Heavy Curtains: Durable, Smooth-Glide Options Reviewed"
 description: "Choosing the best curtain rings for heavy curtains ensures smooth movement and strong support. Heavy curtains need durable rings that hold weight without slippi"
 pubDate: 2025-12-16

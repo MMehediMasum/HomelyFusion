@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Pet Hair: Top Picks for Easy Cleaning and Durability"
-description: "Pet hair can make rugs look dirty and hard to clean. Choosing the right rug helps keep your home tidy and comfortable. Pets shed hair constantly, which sticks t"
+title: 'Best Rugs for Pet Hair: Top Picks for Easy Cleaning and Durability'
+description: Pet hair can make rugs look dirty and hard to clean. Choosing the right
+  rug helps keep your home tidy and comfortable. Pets shed hair constantly, which
+  sticks t
 pubDate: 2025-10-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-pet-hair-top-picks-for-easy-cleaning-and-durability&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-pet-hair-top-picks-for-easy-cleaning-and-durability&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Pet hair can make rugs look dirty and hard to clean. Choosing the right rug helps keep your home tidy and comfortable.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Smart Blinds for Home Assistant: Top Picks for Seamless Automation"
-description: "Smart blinds bring convenience and energy savings to your home with voice and app control. They work seamlessly with Home Assistant for easy automation. Choosin"
+title: 'Best Smart Blinds for Home Assistant: Top Picks for Seamless Automation'
+description: Smart blinds bring convenience and energy savings to your home with voice
+  and app control. They work seamlessly with Home Assistant for easy automation. Choosin
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smart-blinds-for-home-assistant-top-picks-for-seamless-automation&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-smart-blinds-for-home-assistant-top-picks-for-seamless-automation&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Smart blinds bring convenience and energy savings to your home with voice and app control. They work seamlessly with Home Assistant for easy automation.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Tablets at Home: Easy DIY Craft Tutorial"
-description: "Have you ever wondered how people wrote messages thousands of years ago? Making clay tablets at home is a fun and simple way to connect with history—and you don"
+title: 'How to Make Clay Tablets at Home: Easy DIY Craft Tutorial'
+description: Have you ever wondered how people wrote messages thousands of years ago?
+  Making clay tablets at home is a fun and simple way to connect with history—and
+  you don
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-tablets-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-tablets-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered how people wrote messages thousands of years ago? Making clay tablets at home is a fun and simple way to connect with history—and you don’t need any special tools.**

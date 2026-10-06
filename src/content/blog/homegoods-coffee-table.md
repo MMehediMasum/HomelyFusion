@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Coffee Table Ideas: Stylish Storage and Functional Designs"
-description: "Homegoods coffee tables blend style and function for any living space. These tables offer storage, easy assembly, and versatile designs. Coffee tables from Home"
+title: 'Homegoods Coffee Table Ideas: Stylish Storage and Functional Designs'
+description: Homegoods coffee tables blend style and function for any living space.
+  These tables offer storage, easy assembly, and versatile designs. Coffee tables
+  from Home
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods coffee tables blend style and function for any living space. These tables offer storage, easy assembly, and versatile designs.**

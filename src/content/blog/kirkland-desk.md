@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Desk: Stylish and Functional Home Office Solutions for You"
-description: "The Kirkland Desk offers practical solutions for home and office use. It combines style, functionality, and comfort in one design. Choosing the right desk matte"
+title: 'Kirkland Desk: Stylish and Functional Home Office Solutions for You'
+description: The Kirkland Desk offers practical solutions for home and office use.
+  It combines style, functionality, and comfort in one design. Choosing the right
+  desk matte
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-desk&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **The Kirkland Desk offers practical solutions for home and office use. It combines style, functionality, and comfort in one design.**

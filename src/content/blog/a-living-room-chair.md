@@ -1,10 +1,14 @@
 ---
-title: "A Living Room Chair: Stylish Comfort for Every Home"
-description: "Your living room is more than just a space—it’s where you relax, connect, and make memories. And the right chair can change everything. Imagine sinking into a c"
+title: 'A Living Room Chair: Stylish Comfort for Every Home'
+description: Your living room is more than just a space—it’s where you relax, connect,
+  and make memories. And the right chair can change everything. Imagine sinking into
+  a c
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is more than just a space—it’s where you relax, connect, and make memories. And the right chair can change everything.**

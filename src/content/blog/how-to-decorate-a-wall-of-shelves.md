@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall of Shelves: Stunning Ideas to Transform Your Space"
-description: "Are you staring at your empty wall and wondering how to make it come alive? Decorating a wall of shelves can transform your space from bland to beautiful in no "
+title: 'How to Decorate a Wall of Shelves: Stunning Ideas to Transform Your Space'
+description: 'Are you staring at your empty wall and wondering how to make it come
+  alive? Decorating a wall of shelves can transform your space from bland to beautiful
+  in no '
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-of-shelves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-of-shelves&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you staring at your empty wall and wondering how to make it come alive? Decorating a wall of shelves can transform your space from bland to beautiful in no time.**

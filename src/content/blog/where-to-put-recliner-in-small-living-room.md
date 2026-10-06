@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Recliner in Small Living Room: Smart Space Hacks"
-description: "Finding the perfect spot for a recliner in your small living room can feel tricky. You want comfort without crowding your space or blocking pathways. But where "
+title: 'Where to Put Recliner in Small Living Room: Smart Space Hacks'
+description: 'Finding the perfect spot for a recliner in your small living room can
+  feel tricky. You want comfort without crowding your space or blocking pathways.
+  But where '
 pubDate: 2026-02-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-recliner-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-recliner-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect spot for a recliner in your small living room can feel tricky. You want comfort without crowding your space or blocking pathways.**

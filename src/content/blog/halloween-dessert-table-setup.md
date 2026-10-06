@@ -1,10 +1,13 @@
 ---
-title: "Halloween Dessert Table Setup: Spooktacular Ideas for Your Party"
-description: "Are you ready to wow your guests with a Halloween dessert table that’s as spooky as it is delicious? Your dessert setup can turn any party into an unforgettable"
+title: 'Halloween Dessert Table Setup: Spooktacular Ideas for Your Party'
+description: Are you ready to wow your guests with a Halloween dessert table that’s
+  as spooky as it is delicious? Your dessert setup can turn any party into an unforgettable
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-dessert-table-setup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-dessert-table-setup&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to wow your guests with a Halloween dessert table that’s as spooky as it is delicious? Your dessert setup can turn any party into an unforgettable experience.**

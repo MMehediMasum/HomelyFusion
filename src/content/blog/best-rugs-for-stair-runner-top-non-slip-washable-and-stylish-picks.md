@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Stair Runner: Top Non-Slip, Washable, and Stylish Picks"
-description: "Choosing the best rugs for stair runners improves safety and style in your home. Quality stair runners protect stairs and add warmth to any space. Rugs designed"
+title: 'Best Rugs for Stair Runner: Top Non-Slip, Washable, and Stylish Picks'
+description: Choosing the best rugs for stair runners improves safety and style in
+  your home. Quality stair runners protect stairs and add warmth to any space. Rugs
+  designed
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-stair-runner-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-stair-runner-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for stair runners improves safety and style in your home. Quality stair runners protect stairs and add warmth to any space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Brown Couch: Stunning Ideas to Transform Your Space"
-description: "A brown couch is a classic piece that can bring warmth and comfort to your living space. But decorating around it can sometimes feel tricky. You might wonder wh"
+title: 'How to Decorate a Brown Couch: Stunning Ideas to Transform Your Space'
+description: A brown couch is a classic piece that can bring warmth and comfort to
+  your living space. But decorating around it can sometimes feel tricky. You might
+  wonder wh
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-brown-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-brown-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A brown couch is a classic piece that can bring warmth and comfort to your living space. But decorating around it can sometimes feel tricky.**

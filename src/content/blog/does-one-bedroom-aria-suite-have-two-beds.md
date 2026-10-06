@@ -1,10 +1,14 @@
 ---
-title: "Does One Bedroom Aria Suite Have Two Beds? Discover Now!"
-description: "Are you planning a stay at the Aria and wondering if the One Bedroom Aria Suite comes with two beds? This detail can make a big difference in your comfort and h"
+title: Does One Bedroom Aria Suite Have Two Beds? Discover Now!
+description: Are you planning a stay at the Aria and wondering if the One Bedroom
+  Aria Suite comes with two beds? This detail can make a big difference in your comfort
+  and h
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-one-bedroom-aria-suite-have-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=does-one-bedroom-aria-suite-have-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning a stay at the Aria and wondering if the One Bedroom Aria Suite comes with two beds? This detail can make a big difference in your comfort and how you plan your trip.**

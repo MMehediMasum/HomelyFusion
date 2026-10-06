@@ -1,10 +1,14 @@
 ---
-title: "Decorative Home Lighting Ideas to Transform Your Living Space Instantly"
-description: "Decorative home lighting adds charm and warmth to any room instantly. It creates a cozy, inviting atmosphere with style and function. Choosing the right lights "
+title: Decorative Home Lighting Ideas to Transform Your Living Space Instantly
+description: 'Decorative home lighting adds charm and warmth to any room instantly.
+  It creates a cozy, inviting atmosphere with style and function. Choosing the right
+  lights '
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-home-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=decorative-home-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Decorative home lighting adds charm and warmth to any room instantly. It creates a cozy, inviting atmosphere with style and function.**

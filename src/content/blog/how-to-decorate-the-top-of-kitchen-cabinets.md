@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Top of Kitchen Cabinets: Stunning Ideas"
-description: "Are you looking to add charm and personality to your kitchen without a full remodel? Decorating the top of your kitchen cabinets is a simple, creative way to tr"
+title: 'How to Decorate the Top of Kitchen Cabinets: Stunning Ideas'
+description: Are you looking to add charm and personality to your kitchen without
+  a full remodel? Decorating the top of your kitchen cabinets is a simple, creative
+  way to tr
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-top-of-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you looking to add charm and personality to your kitchen without a full remodel? Decorating the top of your kitchen cabinets is a simple, creative way to transform your space.**

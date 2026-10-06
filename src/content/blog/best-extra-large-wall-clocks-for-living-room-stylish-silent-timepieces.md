@@ -1,10 +1,14 @@
 ---
-title: "Best Extra Large Wall Clocks for Living Room: Stylish Silent Timepieces"
-description: "Extra large wall clocks make a bold statement in any living room. They add style and help keep time easily visible from across the room. Choosing the best extra"
+title: 'Best Extra Large Wall Clocks for Living Room: Stylish Silent Timepieces'
+description: Extra large wall clocks make a bold statement in any living room. They
+  add style and help keep time easily visible from across the room. Choosing the best
+  extra
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-extra-large-wall-clocks-for-living-room-stylish-silent-timepieces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-extra-large-wall-clocks-for-living-room-stylish-silent-timepieces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Extra large wall clocks make a bold statement in any living room. They add style and help keep time easily visible from across the room.**

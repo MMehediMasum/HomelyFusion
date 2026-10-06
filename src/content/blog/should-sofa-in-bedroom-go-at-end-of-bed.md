@@ -1,10 +1,14 @@
 ---
-title: "Should Sofa in Bedroom Go at End of Bed: Expert Tips Revealed"
-description: "Are you wondering if placing a sofa at the end of your bed is a good idea? You’re not alone. This simple choice can change the look and feel of your bedroom in "
+title: 'Should Sofa in Bedroom Go at End of Bed: Expert Tips Revealed'
+description: 'Are you wondering if placing a sofa at the end of your bed is a good
+  idea? You’re not alone. This simple choice can change the look and feel of your
+  bedroom in '
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-sofa-in-bedroom-go-at-end-of-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=should-sofa-in-bedroom-go-at-end-of-bed&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if placing a sofa at the end of your bed is a good idea? You’re not alone.**

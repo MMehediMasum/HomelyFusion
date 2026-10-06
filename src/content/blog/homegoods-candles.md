@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Candles: Luxurious Aromatherapy Sets for Relaxing Home Ambiance"
-description: "Candles from Homegoods offer a delightful way to enhance your home's ambiance. They provide various scents and styles to suit any mood or occasion. Homegoods ca"
+title: 'Homegoods Candles: Luxurious Aromatherapy Sets for Relaxing Home Ambiance'
+description: Candles from Homegoods offer a delightful way to enhance your home's
+  ambiance. They provide various scents and styles to suit any mood or occasion. Homegoods
+  ca
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Candles from Homegoods offer a delightful way to enhance your home's ambiance. They provide various scents and styles to suit any mood or occasion.**

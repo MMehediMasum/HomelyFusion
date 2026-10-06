@@ -1,10 +1,14 @@
 ---
-title: "Best Chair Pads for Hardwood Floors: Ultimate Protection and Comfort Guide"
-description: "Protect hardwood floors with the best chair pads designed to stop scratches and dents. These pads keep furniture stable and floors safe. Hardwood floors look be"
+title: 'Best Chair Pads for Hardwood Floors: Ultimate Protection and Comfort Guide'
+description: Protect hardwood floors with the best chair pads designed to stop scratches
+  and dents. These pads keep furniture stable and floors safe. Hardwood floors look
+  be
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-chair-pads-for-hardwood-floors-ultimate-protection-and-comfort-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-chair-pads-for-hardwood-floors-ultimate-protection-and-comfort-guide&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Protect hardwood floors with the best chair pads designed to stop scratches and dents. These pads keep furniture stable and floors safe.**

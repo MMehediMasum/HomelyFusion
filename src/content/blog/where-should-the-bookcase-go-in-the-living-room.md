@@ -1,10 +1,14 @@
 ---
-title: "Where Should the Bookcase Go in the Living Room: Perfect Placement Tips"
-description: "Where should the bookcase go in your living room? It might seem like a simple question, but the answer can change how your space feels and functions. Placing yo"
+title: 'Where Should the Bookcase Go in the Living Room: Perfect Placement Tips'
+description: Where should the bookcase go in your living room? It might seem like
+  a simple question, but the answer can change how your space feels and functions.
+  Placing yo
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-the-bookcase-go-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=where-should-the-bookcase-go-in-the-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Where should the bookcase go in your living room? It might seem like a simple question, but the answer can change how your space feels and functions.**

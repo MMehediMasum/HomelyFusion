@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Creepy Spider Cupcake Recipe: Spooky & Delicious Treats"
 description: "Are you ready to make your Halloween party unforgettable? Imagine serving cupcakes that not only taste amazing but also give your guests a spooky surprise. This"
 pubDate: 2025-10-30

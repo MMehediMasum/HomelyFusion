@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Red Chair in the Living Room: Stunning Ideas"
-description: "Your red chair is more than just a seat—it’s a bold statement in your living room. But how do you make sure it stands out without overpowering the space? You wa"
+title: 'How to Decorate the Red Chair in the Living Room: Stunning Ideas'
+description: Your red chair is more than just a seat—it’s a bold statement in your
+  living room. But how do you make sure it stands out without overpowering the space?
+  You wa
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-red-chair-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-red-chair-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your red chair is more than just a seat—it’s a bold statement in your living room. But how do you make sure it stands out without overpowering the space?**

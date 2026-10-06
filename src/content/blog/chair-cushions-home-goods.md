@@ -1,10 +1,14 @@
 ---
-title: "Chair Cushions Home Goods: Top Memory Foam Picks for Comfort & Support"
-description: "Chair cushions add comfort and style to any seating area. They enhance your home’s aesthetic while providing essential support. Finding the right chair cushions"
+title: 'Chair Cushions Home Goods: Top Memory Foam Picks for Comfort & Support'
+description: Chair cushions add comfort and style to any seating area. They enhance
+  your home’s aesthetic while providing essential support. Finding the right chair
+  cushions
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=chair-cushions-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=chair-cushions-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Chair cushions add comfort and style to any seating area. They enhance your home’s aesthetic while providing essential support.**

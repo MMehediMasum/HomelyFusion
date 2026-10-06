@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Leaking Bathroom Faucet: Quick and Easy Solutions"
-description: "Is your bathroom faucet dripping nonstop, driving you crazy and wasting water? You’re not alone, and the good news is that fixing it might be easier than you th"
+title: 'How to Fix Leaking Bathroom Faucet: Quick and Easy Solutions'
+description: Is your bathroom faucet dripping nonstop, driving you crazy and wasting
+  water? You’re not alone, and the good news is that fixing it might be easier than
+  you th
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-leaking-bathroom-faucet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Faucet Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-leaking-bathroom-faucet&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom faucet dripping nonstop, driving you crazy and wasting water? You’re not alone, and the good news is that fixing it might be easier than you think.**

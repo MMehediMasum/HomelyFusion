@@ -1,10 +1,14 @@
 ---
-title: "How to Deal With Fans Over Bed in Bedroom: Smart Tips & Tricks"
-description: "Are you tired of noisy fans right over your bed, making it hard to relax or sleep? You’re not alone. Fans can be great for keeping cool, but when placed above y"
+title: 'How to Deal With Fans Over Bed in Bedroom: Smart Tips & Tricks'
+description: Are you tired of noisy fans right over your bed, making it hard to relax
+  or sleep? You’re not alone. Fans can be great for keeping cool, but when placed
+  above y
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-deal-with-fans-over-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-deal-with-fans-over-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of noisy fans right over your bed, making it hard to relax or sleep? You’re not alone.**

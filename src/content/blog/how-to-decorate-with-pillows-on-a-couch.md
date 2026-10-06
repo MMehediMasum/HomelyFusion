@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate With Pillows on a Couch: Stunning Style Tips"
-description: "Are you looking to give your couch a fresh, cozy look without spending a fortune? Decorating with pillows is one of the easiest and most effective ways to trans"
+title: 'How to Decorate With Pillows on a Couch: Stunning Style Tips'
+description: Are you looking to give your couch a fresh, cozy look without spending
+  a fortune? Decorating with pillows is one of the easiest and most effective ways
+  to trans
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-pillows-on-a-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-pillows-on-a-couch&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to give your couch a fresh, cozy look without spending a fortune? Decorating with pillows is one of the easiest and most effective ways to transform your living space instantly.**

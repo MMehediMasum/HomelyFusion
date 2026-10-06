@@ -1,10 +1,14 @@
 ---
-title: "Decorative Accents: Stylish Home Figurines and Modern Shelf Decor Ideas"
-description: "Decorative accents add charm and personality to any space. They bring style, warmth, and uniqueness to your home or office. Small sculptures, carved wood pieces"
+title: 'Decorative Accents: Stylish Home Figurines and Modern Shelf Decor Ideas'
+description: Decorative accents add charm and personality to any space. They bring
+  style, warmth, and uniqueness to your home or office. Small sculptures, carved wood
+  pieces
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decorative-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative accents add charm and personality to any space. They bring style, warmth, and uniqueness to your home or office.**

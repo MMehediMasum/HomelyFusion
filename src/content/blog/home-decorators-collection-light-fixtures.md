@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Light Fixtures: Stylish Designs for Every Room"
-description: "Home Decorators Collection offers a stunning range of light fixtures. They enhance any space with style and elegance. Explore their diverse selection, from the "
+title: 'Home Decorators Collection Light Fixtures: Stylish Designs for Every Room'
+description: 'Home Decorators Collection offers a stunning range of light fixtures.
+  They enhance any space with style and elegance. Explore their diverse selection,
+  from the '
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-light-fixtures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-light-fixtures&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Home Decorators Collection offers a stunning range of light fixtures. They enhance any space with style and elegance.**

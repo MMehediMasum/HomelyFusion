@@ -1,10 +1,13 @@
 ---
-title: "Accent Pieces Living Room: Top Stylish Decor Ideas to Elevate Your Space"
-description: "Accent pieces in a living room add charm and personality. They transform ordinary spaces into inviting havens. Choosing the right decor can enhance the ambiance"
+title: 'Accent Pieces Living Room: Top Stylish Decor Ideas to Elevate Your Space'
+description: Accent pieces in a living room add charm and personality. They transform
+  ordinary spaces into inviting havens. Choosing the right decor can enhance the ambiance
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-pieces-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-pieces-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent pieces in a living room add charm and personality. They transform ordinary spaces into inviting havens.**

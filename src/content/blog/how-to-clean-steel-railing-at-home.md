@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Steel Railing at Home: Easy Steps for Sparkling Results"
-description: "Is your steel railing looking dull or covered in dirt? You don’t have to spend a lot of time or money to make it shine again. Cleaning your steel railing at hom"
+title: 'How to Clean Steel Railing at Home: Easy Steps for Sparkling Results'
+description: Is your steel railing looking dull or covered in dirt? You don’t have
+  to spend a lot of time or money to make it shine again. Cleaning your steel railing
+  at hom
 pubDate: 2026-02-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-steel-railing-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-steel-railing-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Is your steel railing looking dull or covered in dirt? You don’t have to spend a lot of time or money to make it shine again.**

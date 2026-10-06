@@ -1,10 +1,14 @@
 ---
-title: "Cheap Home Ornaments: Affordable Christmas Decorations and Housewarming Gifts"
-description: "Transform your home into a cozy haven without breaking the bank. Discover affordable ornaments for every special occasion. Decorating your home doesn't need to "
+title: 'Cheap Home Ornaments: Affordable Christmas Decorations and Housewarming Gifts'
+description: 'Transform your home into a cozy haven without breaking the bank. Discover
+  affordable ornaments for every special occasion. Decorating your home doesn''t need
+  to '
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-home-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=cheap-home-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your home into a cozy haven without breaking the bank. Discover affordable ornaments for every special occasion.**

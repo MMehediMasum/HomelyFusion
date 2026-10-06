@@ -1,10 +1,14 @@
 ---
-title: "Why are Bathroom Vanities So Expensive: Uncover the True Costs"
-description: "Have you ever wondered why bathroom vanities come with such a high price tag? You might be surprised to learn that the cost isn’t just about looks. Your bathroo"
+title: 'Why are Bathroom Vanities So Expensive: Uncover the True Costs'
+description: Have you ever wondered why bathroom vanities come with such a high price
+  tag? You might be surprised to learn that the cost isn’t just about looks. Your
+  bathroo
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-are-bathroom-vanities-so-expensive&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=why-are-bathroom-vanities-so-expensive&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered why bathroom vanities come with such a high price tag? You might be surprised to learn that the cost isn’t just about looks.**

@@ -1,10 +1,14 @@
 ---
-title: "Mirrors in Home Goods: Stylish Full-Length Options for Every Room"
-description: "Mirrors add style and function to any home space. They brighten rooms and create a sense of openness. Choosing the right mirror can change the look and feel of "
+title: 'Mirrors in Home Goods: Stylish Full-Length Options for Every Room'
+description: 'Mirrors add style and function to any home space. They brighten rooms
+  and create a sense of openness. Choosing the right mirror can change the look and
+  feel of '
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirrors-in-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=mirrors-in-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors add style and function to any home space. They brighten rooms and create a sense of openness.**

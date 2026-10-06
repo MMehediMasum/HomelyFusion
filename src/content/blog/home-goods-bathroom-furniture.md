@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bathroom Furniture: Stylish Storage Solutions for Every Space"
-description: "Home goods bathroom furniture combines style and function to keep your space neat and attractive. These pieces fit various bathroom sizes and storage needs with"
+title: 'Home Goods Bathroom Furniture: Stylish Storage Solutions for Every Space'
+description: Home goods bathroom furniture combines style and function to keep your
+  space neat and attractive. These pieces fit various bathroom sizes and storage needs
+  with
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bathroom-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bathroom-furniture&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Home goods bathroom furniture combines style and function to keep your space neat and attractive. These pieces fit various bathroom sizes and storage needs with ease.**

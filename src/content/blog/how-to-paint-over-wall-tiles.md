@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Over Wall Tiles: Easy Steps for Stunning Results"
-description: "Are your wall tiles looking outdated or dull? You don’t have to spend a fortune on a full renovation to give your space a fresh new look. Painting over wall til"
+title: 'How to Paint Over Wall Tiles: Easy Steps for Stunning Results'
+description: Are your wall tiles looking outdated or dull? You don’t have to spend
+  a fortune on a full renovation to give your space a fresh new look. Painting over
+  wall til
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-over-wall-tiles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-over-wall-tiles&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are your wall tiles looking outdated or dull? You don’t have to spend a fortune on a full renovation to give your space a fresh new look.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Couch Protectors for Dogs to Keep Your Sofa Clean and Safe"
-description: "Protect your couch from dog hair, dirt, and scratches with the best couch protectors for dogs. These covers keep furniture clean and comfortable for pets. Dogs "
+title: Best Couch Protectors for Dogs to Keep Your Sofa Clean and Safe
+description: 'Protect your couch from dog hair, dirt, and scratches with the best
+  couch protectors for dogs. These covers keep furniture clean and comfortable for
+  pets. Dogs '
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-couch-protectors-for-dogs-to-keep-your-sofa-clean-and-safe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-couch-protectors-for-dogs-to-keep-your-sofa-clean-and-safe&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protect your couch from dog hair, dirt, and scratches with the best couch protectors for dogs. These covers keep furniture clean and comfortable for pets.**

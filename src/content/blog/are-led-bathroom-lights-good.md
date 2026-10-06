@@ -1,10 +1,14 @@
 ---
-title: "Are Led Bathroom Lights Good: Brighten Your Space Efficiently"
-description: "Are LED bathroom lights really worth it for your space? If you’ve ever wondered whether switching to LED lighting will make a difference, you’re not alone. You "
+title: 'Are Led Bathroom Lights Good: Brighten Your Space Efficiently'
+description: 'Are LED bathroom lights really worth it for your space? If you’ve ever
+  wondered whether switching to LED lighting will make a difference, you’re not alone.
+  You '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-led-bathroom-lights-good&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=are-led-bathroom-lights-good&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are LED bathroom lights really worth it for your space? If you’ve ever wondered whether switching to LED lighting will make a difference, you’re not alone.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Wash Wool Pants at Home? Expert Tips for Safe Cleaning"
 description: "Have you ever wondered if you can wash your wool pants at home without ruining them? Wool is a delicate fabric, and many people hesitate to clean it themselves,"
 pubDate: 2026-03-18

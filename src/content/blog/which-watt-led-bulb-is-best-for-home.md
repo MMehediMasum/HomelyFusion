@@ -1,10 +1,14 @@
 ---
-title: "Which Watt Led Bulb is Best for Home: Ultimate Brightness Guide"
-description: "Choosing the right LED bulb wattage for your home can feel confusing. You want bright light without wasting energy or spending too much on electricity bills. Wh"
+title: 'Which Watt Led Bulb is Best for Home: Ultimate Brightness Guide'
+description: Choosing the right LED bulb wattage for your home can feel confusing.
+  You want bright light without wasting energy or spending too much on electricity
+  bills. Wh
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-watt-led-bulb-is-best-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=which-watt-led-bulb-is-best-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right LED bulb wattage for your home can feel confusing. You want bright light without wasting energy or spending too much on electricity bills.**

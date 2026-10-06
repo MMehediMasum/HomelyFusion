@@ -1,10 +1,14 @@
 ---
-title: "Best Reed Diffuser for Home: Top Luxury Scents for Lasting Freshness"
-description: "A reed diffuser adds a soft, lasting fragrance to any room without flames or electricity. Choosing the best reed diffuser helps create a calm and inviting home "
+title: 'Best Reed Diffuser for Home: Top Luxury Scents for Lasting Freshness'
+description: 'A reed diffuser adds a soft, lasting fragrance to any room without flames
+  or electricity. Choosing the best reed diffuser helps create a calm and inviting
+  home '
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-reed-diffuser-for-home-top-luxury-scents-for-lasting-freshness&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-reed-diffuser-for-home-top-luxury-scents-for-lasting-freshness&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A reed diffuser adds a soft, lasting fragrance to any room without flames or electricity. Choosing the best reed diffuser helps create a calm and inviting home atmosphere.**

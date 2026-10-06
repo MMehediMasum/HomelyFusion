@@ -1,10 +1,14 @@
 ---
-title: "What Percentage of Bedroom Should Bed Occupy: Expert Space Guide"
-description: "Have you ever walked into a bedroom and felt instantly comfortable—or oddly cramped? The size and placement of your bed play a huge role in how your room feels "
+title: 'What Percentage of Bedroom Should Bed Occupy: Expert Space Guide'
+description: 'Have you ever walked into a bedroom and felt instantly comfortable—or
+  oddly cramped? The size and placement of your bed play a huge role in how your room
+  feels '
 pubDate: 2025-08-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-percentage-of-bedroom-should-bed-occupy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-percentage-of-bedroom-should-bed-occupy&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever walked into a bedroom and felt instantly comfortable—or oddly cramped? The size and placement of your bed play a huge role in how your room feels and functions.**

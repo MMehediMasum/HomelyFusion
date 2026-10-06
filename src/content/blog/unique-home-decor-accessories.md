@@ -1,10 +1,14 @@
 ---
-title: "Unique Home Decor Accessories to Elevate Your Living Space Instantly"
-description: "Discovering unique home decor accessories can transform your space into a reflection of your personality. Add character and charm with distinct pieces. Decorati"
+title: Unique Home Decor Accessories to Elevate Your Living Space Instantly
+description: Discovering unique home decor accessories can transform your space into
+  a reflection of your personality. Add character and charm with distinct pieces.
+  Decorati
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unique-home-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=unique-home-decor-accessories&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discovering unique home decor accessories can transform your space into a reflection of your personality. Add character and charm with distinct pieces.**

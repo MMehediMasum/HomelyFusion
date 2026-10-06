@@ -1,10 +1,14 @@
 ---
-title: "Home Exterior Wall Decor Ideas to Transform Your Outdoor Space"
-description: "Decorating your home's exterior walls transforms its look and creates a welcoming atmosphere. Various stylish options are available to enhance your outdoor spac"
+title: Home Exterior Wall Decor Ideas to Transform Your Outdoor Space
+description: Decorating your home's exterior walls transforms its look and creates
+  a welcoming atmosphere. Various stylish options are available to enhance your outdoor
+  spac
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-exterior-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-exterior-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating your home's exterior walls transforms its look and creates a welcoming atmosphere. Various stylish options are available to enhance your outdoor space.**

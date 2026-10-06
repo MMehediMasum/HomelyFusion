@@ -1,10 +1,14 @@
 ---
-title: "Tile Floor Peel and Stick Tiles: Easy DIY Flooring for Any Room"
-description: "Tile floors offer a durable and stylish surface for any room. They come in many designs, colors, and materials to fit your space. Tile floors suit kitchens, bat"
+title: 'Tile Floor Peel and Stick Tiles: Easy DIY Flooring for Any Room'
+description: Tile floors offer a durable and stylish surface for any room. They come
+  in many designs, colors, and materials to fit your space. Tile floors suit kitchens,
+  bat
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=tile-floor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=tile-floor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile floors offer a durable and stylish surface for any room. They come in many designs, colors, and materials to fit your space.**

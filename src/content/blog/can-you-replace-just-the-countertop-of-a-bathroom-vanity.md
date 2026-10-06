@@ -1,10 +1,14 @@
 ---
-title: "Can You Replace Just the Countertop of a Bathroom Vanity? Expert Tips"
-description: "Are you thinking about giving your bathroom a fresh look without a full makeover? One simple change that can make a big difference is replacing just the counter"
+title: Can You Replace Just the Countertop of a Bathroom Vanity? Expert Tips
+description: Are you thinking about giving your bathroom a fresh look without a full
+  makeover? One simple change that can make a big difference is replacing just the
+  counter
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-replace-just-the-countertop-of-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-replace-just-the-countertop-of-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about giving your bathroom a fresh look without a full makeover? One simple change that can make a big difference is replacing just the countertop of your bathroom vanity.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Finish Bed in Bedroom: Ultimate Guide for Stylish Comfort"
-description: "Your bedroom bed is more than just a place to sleep—it’s the heart of your personal space. How you finish your bed can change the entire look and feel of your r"
+title: 'How to Finish Bed in Bedroom: Ultimate Guide for Stylish Comfort'
+description: Your bedroom bed is more than just a place to sleep—it’s the heart of
+  your personal space. How you finish your bed can change the entire look and feel
+  of your r
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-finish-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-finish-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom bed is more than just a place to sleep—it’s the heart of your personal space. How you finish your bed can change the entire look and feel of your room.**

@@ -1,10 +1,14 @@
 ---
-title: "Can Heat Exhaustion Be Treated at Home: Essential Tips & Remedies"
-description: "Have you ever felt dizzy, weak, or unusually sweaty after being out in the heat? These could be signs of heat exhaustion, a condition that can catch anyone off "
+title: 'Can Heat Exhaustion Be Treated at Home: Essential Tips & Remedies'
+description: 'Have you ever felt dizzy, weak, or unusually sweaty after being out
+  in the heat? These could be signs of heat exhaustion, a condition that can catch
+  anyone off '
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-heat-exhaustion-be-treated-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-heat-exhaustion-be-treated-at-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever felt dizzy, weak, or unusually sweaty after being out in the heat? These could be signs of heat exhaustion, a condition that can catch anyone off guard.**

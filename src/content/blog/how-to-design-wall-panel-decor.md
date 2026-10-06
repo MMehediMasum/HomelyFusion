@@ -1,10 +1,13 @@
 ---
-title: "How to Design Wall Panel Decor: Stunning Ideas to Transform Spaces"
-description: "Are you looking to transform your space without a full renovation? Designing wall panel decor is a simple way to add style and personality to any room. Imagine "
+title: 'How to Design Wall Panel Decor: Stunning Ideas to Transform Spaces'
+description: 'Are you looking to transform your space without a full renovation? Designing
+  wall panel decor is a simple way to add style and personality to any room. Imagine '
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-wall-panel-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-wall-panel-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space without a full renovation? Designing wall panel decor is a simple way to add style and personality to any room.**

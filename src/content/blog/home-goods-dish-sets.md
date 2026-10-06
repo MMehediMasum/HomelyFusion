@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Dish Sets: Stylish, Durable Dinnerware for Every Kitchen"
-description: "Home goods dish sets combine style, durability, and convenience for everyday dining. These sets suit various needs, from casual meals to special gatherings. Cho"
+title: 'Home Goods Dish Sets: Stylish, Durable Dinnerware for Every Kitchen'
+description: Home goods dish sets combine style, durability, and convenience for everyday
+  dining. These sets suit various needs, from casual meals to special gatherings.
+  Cho
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-dish-sets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-dish-sets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home goods dish sets combine style, durability, and convenience for everyday dining. These sets suit various needs, from casual meals to special gatherings.**

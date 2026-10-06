@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Coffee Tables: Stylish Storage Solutions for Every Living Room"
-description: "Coffee tables are a staple in any living room, offering both style and functionality. They serve as central pieces that can enhance the overall aesthetic of you"
+title: 'Home Goods Coffee Tables: Stylish Storage Solutions for Every Living Room'
+description: Coffee tables are a staple in any living room, offering both style and
+  functionality. They serve as central pieces that can enhance the overall aesthetic
+  of you
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-coffee-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-coffee-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Coffee tables are a staple in any living room, offering both style and functionality. They serve as central pieces that can enhance the overall aesthetic of your space.**

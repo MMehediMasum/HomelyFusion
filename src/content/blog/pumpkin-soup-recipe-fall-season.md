@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Pumpkin Soup Recipe Fall Season: Cozy, Creamy, and Easy Delight"
 description: "As the crisp air of fall settles in, nothing warms you up like a bowl of creamy pumpkin soup. Imagine the rich aroma filling your kitchen, the smooth taste comf"
 pubDate: 2026-01-03

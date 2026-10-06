@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Baby Bed in Small Bedroom: Smart Space-Saving Tips"
-description: "Struggling to find space for your baby’s bed in a small bedroom? You’re not alone. Creating a cozy, safe sleeping area for your little one can feel like a puzzl"
+title: 'How to Fit Baby Bed in Small Bedroom: Smart Space-Saving Tips'
+description: Struggling to find space for your baby’s bed in a small bedroom? You’re
+  not alone. Creating a cozy, safe sleeping area for your little one can feel like
+  a puzzl
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-baby-bed-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-baby-bed-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to find space for your baby’s bed in a small bedroom? You’re not alone.**

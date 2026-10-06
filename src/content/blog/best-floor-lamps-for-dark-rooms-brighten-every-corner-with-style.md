@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Dark Rooms: Brighten Every Corner with Style"
-description: "Dark rooms need bright, well-placed lighting to feel warm and inviting. Floor lamps offer flexible light sources that brighten corners and open spaces. Choosing"
+title: 'Best Floor Lamps for Dark Rooms: Brighten Every Corner with Style'
+description: Dark rooms need bright, well-placed lighting to feel warm and inviting.
+  Floor lamps offer flexible light sources that brighten corners and open spaces.
+  Choosing
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-dark-rooms-brighten-every-corner-with-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-dark-rooms-brighten-every-corner-with-style&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Dark rooms need bright, well-placed lighting to feel warm and inviting. Floor lamps offer flexible light sources that brighten corners and open spaces.**

@@ -1,10 +1,13 @@
 ---
-title: "Halloween Spider Web Decoration: Stunning Ideas to Wow Your Guests"
-description: "Are you ready to transform your home into a spooky Halloween haven? Halloween spider web decoration is the secret ingredient to creating that eerie, spine-chill"
+title: 'Halloween Spider Web Decoration: Stunning Ideas to Wow Your Guests'
+description: Are you ready to transform your home into a spooky Halloween haven? Halloween
+  spider web decoration is the secret ingredient to creating that eerie, spine-chill
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-spider-web-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-spider-web-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your home into a spooky Halloween haven? Halloween spider web decoration is the secret ingredient to creating that eerie, spine-chilling atmosphere everyone will talk about.**

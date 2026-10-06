@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should a Living Room Side Table Be: Perfect Height Guide"
-description: "Choosing the right side table for your living room might seem simple, but getting the height just right can change everything. Have you ever reached for your dr"
+title: 'How Tall Should a Living Room Side Table Be: Perfect Height Guide'
+description: Choosing the right side table for your living room might seem simple,
+  but getting the height just right can change everything. Have you ever reached for
+  your dr
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-side-table-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-a-living-room-side-table-be&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right side table for your living room might seem simple, but getting the height just right can change everything. Have you ever reached for your drink or remote, only to find your table too low or too high?**

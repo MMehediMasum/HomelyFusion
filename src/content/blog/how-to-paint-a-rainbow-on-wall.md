@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Rainbow on Wall: Easy Steps for Stunning Results"
-description: "Imagine turning your plain wall into a burst of color that brightens your entire room. Painting a rainbow on your wall is easier than you think, and you don’t n"
+title: 'How to Paint a Rainbow on Wall: Easy Steps for Stunning Results'
+description: Imagine turning your plain wall into a burst of color that brightens
+  your entire room. Painting a rainbow on your wall is easier than you think, and
+  you don’t n
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-rainbow-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-rainbow-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine turning your plain wall into a burst of color that brightens your entire room. Painting a rainbow on your wall is easier than you think, and you don’t need to be an artist to do it.**

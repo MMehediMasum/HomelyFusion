@@ -1,10 +1,14 @@
 ---
-title: "When Do People Decorate for Christmas: Ultimate Timing Guide Revealed"
-description: "Have you ever wondered when is the perfect time to start decorating for Christmas? You might feel the urge to bring out the lights and ornaments early, or maybe"
+title: 'When Do People Decorate for Christmas: Ultimate Timing Guide Revealed'
+description: Have you ever wondered when is the perfect time to start decorating for
+  Christmas? You might feel the urge to bring out the lights and ornaments early,
+  or maybe
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-do-people-decorate-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=when-do-people-decorate-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Have you ever wondered when is the perfect time to start decorating for Christmas? You might feel the urge to bring out the lights and ornaments early, or maybe you wait until the last minute.**

@@ -1,10 +1,14 @@
 ---
-title: "Stockbridge Home Blanket: Cozy Luxury and Softness for Every Season"
-description: "Stockbridge Home Blanket offers a range of cozy, stylish options for any home. These blankets promise comfort and elegance for every room. Explore a diverse sel"
+title: 'Stockbridge Home Blanket: Cozy Luxury and Softness for Every Season'
+description: Stockbridge Home Blanket offers a range of cozy, stylish options for
+  any home. These blankets promise comfort and elegance for every room. Explore a
+  diverse sel
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=stockbridge-home-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=stockbridge-home-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Stockbridge Home Blanket offers a range of cozy, stylish options for any home. These blankets promise comfort and elegance for every room.**

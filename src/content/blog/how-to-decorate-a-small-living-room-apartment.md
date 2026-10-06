@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Living Room Apartment: Expert Tips Revealed"
-description: "Struggling to make your small living room feel cozy and stylish? You’re not alone. When space is tight, every decision counts. But don’t worry—transforming your"
+title: 'How to Decorate a Small Living Room Apartment: Expert Tips Revealed'
+description: Struggling to make your small living room feel cozy and stylish? You’re
+  not alone. When space is tight, every decision counts. But don’t worry—transforming
+  your
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-living-room-apartment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-living-room-apartment&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Struggling to make your small living room feel cozy and stylish? You’re not alone.**

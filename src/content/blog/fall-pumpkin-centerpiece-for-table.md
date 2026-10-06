@@ -1,10 +1,14 @@
 ---
-title: "Fall Pumpkin Centerpiece for Table: Stunning Ideas to Wow Guests"
-description: "Are you ready to transform your dining table into a warm, inviting space this fall? A fall pumpkin centerpiece for your table is the perfect way to bring cozy a"
+title: 'Fall Pumpkin Centerpiece for Table: Stunning Ideas to Wow Guests'
+description: Are you ready to transform your dining table into a warm, inviting space
+  this fall? A fall pumpkin centerpiece for your table is the perfect way to bring
+  cozy a
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-pumpkin-centerpiece-for-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-pumpkin-centerpiece-for-table&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your dining table into a warm, inviting space this fall? A fall pumpkin centerpiece for your table is the perfect way to bring cozy autumn vibes right to where you gather most.**

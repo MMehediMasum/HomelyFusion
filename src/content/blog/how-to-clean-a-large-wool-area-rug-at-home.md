@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Large Wool Area Rug at Home: Easy Expert Tips"
-description: "Your large wool area rug adds warmth and style to your home, but cleaning it can feel like a huge task. You might worry about ruining the delicate fibers or mak"
+title: 'How to Clean a Large Wool Area Rug at Home: Easy Expert Tips'
+description: Your large wool area rug adds warmth and style to your home, but cleaning
+  it can feel like a huge task. You might worry about ruining the delicate fibers
+  or mak
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-large-wool-area-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-large-wool-area-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your large wool area rug adds warmth and style to your home, but cleaning it can feel like a huge task. You might worry about ruining the delicate fibers or making the stain worse.**

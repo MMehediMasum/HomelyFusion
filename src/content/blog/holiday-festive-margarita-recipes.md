@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Festive Margarita Recipes: Irresistible Drinks to Celebrate"
 description: "Looking to add a fresh twist to your holiday celebrations? You’re in the right place. Holiday Festive Margarita Recipes are here to bring vibrant flavors and fe"
 pubDate: 2025-11-18

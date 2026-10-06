@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Small Dining Room: Stylish Tips for Cozy Spaces"
-description: "Is your dining room feeling cramped or cluttered? You’re not alone. Decorating a small dining room can feel tricky, but it doesn’t have to be. With the right id"
+title: 'How to Decorate a Small Dining Room: Stylish Tips for Cozy Spaces'
+description: Is your dining room feeling cramped or cluttered? You’re not alone. Decorating
+  a small dining room can feel tricky, but it doesn’t have to be. With the right id
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-dining-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-dining-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Is your dining room feeling cramped or cluttered? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Noise Reduction: Top Soundproof Blackout Drapes Reviewed"
-description: "Reducing noise at home improves comfort and peace. Choosing the best curtains for noise reduction helps block outside sounds effectively. Noise-blocking curtain"
+title: 'Best Curtains for Noise Reduction: Top Soundproof Blackout Drapes Reviewed'
+description: Reducing noise at home improves comfort and peace. Choosing the best
+  curtains for noise reduction helps block outside sounds effectively. Noise-blocking
+  curtain
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-noise-reduction-top-soundproof-blackout-drapes-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-noise-reduction-top-soundproof-blackout-drapes-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Reducing noise at home improves comfort and peace. Choosing the best curtains for noise reduction helps block outside sounds effectively.**

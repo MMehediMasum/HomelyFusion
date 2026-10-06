@@ -1,10 +1,14 @@
 ---
-title: "Which Light Bulb to Buy for Home: Ultimate Guide for Bright Savings"
-description: "Choosing the right light bulb for your home might seem simple, but it can actually make a big difference in your comfort, energy bills, and the look of your roo"
+title: 'Which Light Bulb to Buy for Home: Ultimate Guide for Bright Savings'
+description: Choosing the right light bulb for your home might seem simple, but it
+  can actually make a big difference in your comfort, energy bills, and the look of
+  your roo
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-light-bulb-to-buy-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=which-light-bulb-to-buy-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right light bulb for your home might seem simple, but it can actually make a big difference in your comfort, energy bills, and the look of your rooms. You want a bulb that brightens your space just right, lasts long, and saves money.**

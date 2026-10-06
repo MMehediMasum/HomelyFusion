@@ -1,10 +1,14 @@
 ---
-title: "Rustic Bathroom Vanity Ideas: Stunning Designs to Transform Your Space"
-description: "Are you looking to give your bathroom a warm, inviting touch? Rustic bathroom vanity ideas can transform your space into a cozy retreat that feels both natural "
+title: 'Rustic Bathroom Vanity Ideas: Stunning Designs to Transform Your Space'
+description: 'Are you looking to give your bathroom a warm, inviting touch? Rustic
+  bathroom vanity ideas can transform your space into a cozy retreat that feels both
+  natural '
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rustic-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=rustic-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bathroom a warm, inviting touch? Rustic bathroom vanity ideas can transform your space into a cozy retreat that feels both natural and stylish.**

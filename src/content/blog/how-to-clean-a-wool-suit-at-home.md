@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean a Wool Suit at Home: Easy Steps for Freshness"
 description: "Your wool suit is a valuable piece of clothing that deserves proper care. But taking it to the dry cleaner every time can be expensive and time-consuming. What "
 pubDate: 2026-02-12

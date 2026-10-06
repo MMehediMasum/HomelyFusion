@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Lucky Bamboo in Home: Boost Luck & Positive Energy"
-description: "Are you wondering where to put lucky bamboo in your home to bring good energy and positive vibes? Placing this simple plant in the right spot can make a big dif"
+title: 'Where to Put Lucky Bamboo in Home: Boost Luck & Positive Energy'
+description: Are you wondering where to put lucky bamboo in your home to bring good
+  energy and positive vibes? Placing this simple plant in the right spot can make
+  a big dif
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-lucky-bamboo-in-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bamboo Plant Care
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-lucky-bamboo-in-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering where to put lucky bamboo in your home to bring good energy and positive vibes? Placing this simple plant in the right spot can make a big difference in how your space feels and flows.**

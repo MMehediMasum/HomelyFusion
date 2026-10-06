@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Roll Steel Plate at Home: Easy DIY Metalworking Guide"
 description: "Are you looking to roll steel plate at home but don’t know where to start? You’re about to discover simple, clear steps that make this tough job easier than you"
 pubDate: 2026-04-13

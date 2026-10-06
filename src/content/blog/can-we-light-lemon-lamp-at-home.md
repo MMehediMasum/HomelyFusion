@@ -1,10 +1,14 @@
 ---
-title: "Can We Light Lemon Lamp at Home: Safe, Simple & Stunning Tips"
-description: "Have you ever wondered if you can light a lemon lamp right at home? It sounds unusual, but this simple idea can brighten your space in a unique way. Imagine cre"
+title: 'Can We Light Lemon Lamp at Home: Safe, Simple & Stunning Tips'
+description: Have you ever wondered if you can light a lemon lamp right at home? It
+  sounds unusual, but this simple idea can brighten your space in a unique way. Imagine
+  cre
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-we-light-lemon-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=can-we-light-lemon-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered if you can light a lemon lamp right at home? It sounds unusual, but this simple idea can brighten your space in a unique way.**

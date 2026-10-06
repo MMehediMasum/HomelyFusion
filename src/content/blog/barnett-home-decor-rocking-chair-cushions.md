@@ -1,10 +1,14 @@
 ---
-title: "Barnett Home Decor Rocking Chair Cushions: Comfort Meets Stylish Durability"
-description: "Barnett Home Decor rocking chair cushions add comfort and style to your favorite seat. These cushions come in various sizes, colors, and patterns to match any d"
+title: 'Barnett Home Decor Rocking Chair Cushions: Comfort Meets Stylish Durability'
+description: Barnett Home Decor rocking chair cushions add comfort and style to your
+  favorite seat. These cushions come in various sizes, colors, and patterns to match
+  any d
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=barnett-home-decor-rocking-chair-cushions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=barnett-home-decor-rocking-chair-cushions&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Barnett Home Decor rocking chair cushions add comfort and style to your favorite seat. These cushions come in various sizes, colors, and patterns to match any décor.**

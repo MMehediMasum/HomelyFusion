@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Scary Punch Recipe: Spooky, Delicious & Easy to Make"
 description: "Looking to make your Halloween party unforgettable? Your spooky celebration isn’t complete without a chillingly delicious drink that everyone will love. This Ha"
 pubDate: 2025-09-14

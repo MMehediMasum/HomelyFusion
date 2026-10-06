@@ -1,10 +1,15 @@
 ---
-title: "Best Furniture Pads for Hardwood Floors: Ultimate Protection and Durability Guide"
-description: "Protect your hardwood floors with the best furniture pads designed to prevent scratches and dents. These pads help keep floors looking new by cushioning furnitu"
+title: 'Best Furniture Pads for Hardwood Floors: Ultimate Protection and Durability
+  Guide'
+description: Protect your hardwood floors with the best furniture pads designed to
+  prevent scratches and dents. These pads help keep floors looking new by cushioning
+  furnitu
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-furniture-pads-for-hardwood-floors-ultimate-protection-and-durability-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=best-furniture-pads-for-hardwood-floors-ultimate-protection-and-durability-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Protect your hardwood floors with the best furniture pads designed to prevent scratches and dents. These pads help keep floors looking new by cushioning furniture legs.**

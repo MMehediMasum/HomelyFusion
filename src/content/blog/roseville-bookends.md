@@ -1,10 +1,14 @@
 ---
-title: "Roseville Bookends: Stylish Ceramic Designs to Elevate Your Shelf Decor"
-description: "Roseville Bookends add a touch of elegance to any space. These bookends provide both functionality and aesthetic charm. Explore a range of exquisite designs tha"
+title: 'Roseville Bookends: Stylish Ceramic Designs to Elevate Your Shelf Decor'
+description: Roseville Bookends add a touch of elegance to any space. These bookends
+  provide both functionality and aesthetic charm. Explore a range of exquisite designs
+  tha
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=roseville-bookends&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Bookends
+heroImage: https://tse1.mm.bing.net/th?q=roseville-bookends&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Roseville Bookends add a touch of elegance to any space. These bookends provide both functionality and aesthetic charm.**

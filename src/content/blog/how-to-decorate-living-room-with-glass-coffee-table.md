@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Glass Coffee Table: Stunning Ideas"
-description: "Your living room is the heart of your home, and the right coffee table can transform its look instantly. A glass coffee table adds a touch of elegance and openn"
+title: 'How to Decorate Living Room With Glass Coffee Table: Stunning Ideas'
+description: Your living room is the heart of your home, and the right coffee table
+  can transform its look instantly. A glass coffee table adds a touch of elegance
+  and openn
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-glass-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-glass-coffee-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room is the heart of your home, and the right coffee table can transform its look instantly. A glass coffee table adds a touch of elegance and openness, making your space feel brighter and more inviting.**

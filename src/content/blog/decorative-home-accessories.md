@@ -1,10 +1,13 @@
 ---
-title: "Decorative Home Accessories to Elevate Your Living Space Instantly"
-description: "Decorative home accessories add charm and personality to any space. They bring warmth and style without much effort. Small statues, wooden trays, and artificial"
+title: Decorative Home Accessories to Elevate Your Living Space Instantly
+description: Decorative home accessories add charm and personality to any space. They
+  bring warmth and style without much effort. Small statues, wooden trays, and artificial
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decorative-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative home accessories add charm and personality to any space. They bring warmth and style without much effort.**

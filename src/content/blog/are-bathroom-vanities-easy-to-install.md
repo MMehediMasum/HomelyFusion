@@ -1,10 +1,14 @@
 ---
-title: "Are Bathroom Vanities Easy to Install? Expert Tips Revealed!"
-description: "Are you thinking about upgrading your bathroom with a new vanity but worried it might be too tricky to install? You’re not alone. Many people hesitate because t"
+title: Are Bathroom Vanities Easy to Install? Expert Tips Revealed!
+description: Are you thinking about upgrading your bathroom with a new vanity but
+  worried it might be too tricky to install? You’re not alone. Many people hesitate
+  because t
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-bathroom-vanities-easy-to-install&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=are-bathroom-vanities-easy-to-install&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom with a new vanity but worried it might be too tricky to install? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Canvas Art Home Decor: Transform Your Space with Stunning Wall Art"
-description: "Canvas art adds style and personality to any room. It brightens walls and creates a warm, inviting space. Choosing the right canvas art can transform your home "
+title: 'Canvas Art Home Decor: Transform Your Space with Stunning Wall Art'
+description: 'Canvas art adds style and personality to any room. It brightens walls
+  and creates a warm, inviting space. Choosing the right canvas art can transform
+  your home '
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=canvas-art-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=canvas-art-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Canvas art adds style and personality to any room. It brightens walls and creates a warm, inviting space.**

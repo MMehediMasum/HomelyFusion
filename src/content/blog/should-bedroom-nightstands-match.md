@@ -1,10 +1,14 @@
 ---
-title: "Should Bedroom Nightstands Match: Expert Tips for Perfect Harmony"
-description: "When it comes to designing your bedroom, you might wonder: should bedroom nightstands match? You want your space to feel cozy and stylish, but choosing the righ"
+title: 'Should Bedroom Nightstands Match: Expert Tips for Perfect Harmony'
+description: 'When it comes to designing your bedroom, you might wonder: should bedroom
+  nightstands match? You want your space to feel cozy and stylish, but choosing the
+  righ'
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bedroom-nightstands-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=should-bedroom-nightstands-match&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When it comes to designing your bedroom, you might wonder: should bedroom nightstands match? You want your space to feel cozy and stylish, but choosing the right nightstands can be tricky.**

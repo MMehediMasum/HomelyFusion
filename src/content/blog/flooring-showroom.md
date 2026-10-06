@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Showroom Essentials: Top Interlocking and Peel Stick Floor Tiles"
 description: "A flooring showroom offers a wide selection of floor tiles and mats for every space. It helps you find the right floor covering with ease and confidence. Choosi"
 pubDate: 2026-06-21

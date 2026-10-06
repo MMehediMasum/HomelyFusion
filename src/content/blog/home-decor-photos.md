@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Photos: Transform Your Space with Personalized Canvas Prints"
-description: "Home decor photos bring life and personality to any living space. They show your style and make your home feel warm and inviting. Choosing the right wall art is"
+title: 'Home Decor Photos: Transform Your Space with Personalized Canvas Prints'
+description: Home decor photos bring life and personality to any living space. They
+  show your style and make your home feel warm and inviting. Choosing the right wall
+  art is
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-photos&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-photos&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor photos bring life and personality to any living space. They show your style and make your home feel warm and inviting.**

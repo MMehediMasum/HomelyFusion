@@ -1,10 +1,13 @@
 ---
-title: "How to Make Air Dry Modeling Clay at Home: Easy DIY Guide"
-description: "Have you ever wanted to create your own air dry modeling clay right at home? Imagine having a soft, moldable material ready whenever creativity strikes—without "
+title: 'How to Make Air Dry Modeling Clay at Home: Easy DIY Guide'
+description: 'Have you ever wanted to create your own air dry modeling clay right
+  at home? Imagine having a soft, moldable material ready whenever creativity strikes—without '
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-dry-modeling-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-dry-modeling-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own air dry modeling clay right at home? Imagine having a soft, moldable material ready whenever creativity strikes—without running to the store.**

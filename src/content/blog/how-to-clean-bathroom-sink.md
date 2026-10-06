@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bathroom Sink: Easy Steps for a Sparkling Shine"
-description: "Your bathroom sink gets used every day, and over time, it can start to look dull and dirty. You might notice stains, soap scum, or grime building up, making you"
+title: 'How to Clean Bathroom Sink: Easy Steps for a Sparkling Shine'
+description: Your bathroom sink gets used every day, and over time, it can start to
+  look dull and dirty. You might notice stains, soap scum, or grime building up, making
+  you
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom sink gets used every day, and over time, it can start to look dull and dirty. You might notice stains, soap scum, or grime building up, making your sink less inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Accent Chair: Stylish Comfort for Every Living Space"
-description: "Homegoods accent chairs add style and comfort to any room. These chairs come in many designs to fit your space and needs. A good accent chair changes a room’s l"
+title: 'Homegoods Accent Chair: Stylish Comfort for Every Living Space'
+description: Homegoods accent chairs add style and comfort to any room. These chairs
+  come in many designs to fit your space and needs. A good accent chair changes a
+  room’s l
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-accent-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-accent-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods accent chairs add style and comfort to any room. These chairs come in many designs to fit your space and needs.**

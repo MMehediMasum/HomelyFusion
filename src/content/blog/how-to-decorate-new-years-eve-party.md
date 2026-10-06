@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate New Year’S Eve Party: Stunning Ideas to Wow Guests"
-description: "Are you ready to throw a New Year’s Eve party that everyone will remember? How you decorate your space sets the mood for the entire night. Imagine your friends "
+title: 'How to Decorate New Year’S Eve Party: Stunning Ideas to Wow Guests'
+description: 'Are you ready to throw a New Year’s Eve party that everyone will remember?
+  How you decorate your space sets the mood for the entire night. Imagine your friends '
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-new-years-eve-party&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-new-years-eve-party&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to throw a New Year’s Eve party that everyone will remember? How you decorate your space sets the mood for the entire night.**

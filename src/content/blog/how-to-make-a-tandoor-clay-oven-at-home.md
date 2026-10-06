@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Tandoor Clay Oven at Home: Easy Step-by-Step Guide"
 description: "Have you ever dreamed of cooking delicious, smoky dishes right in your backyard? Imagine making perfect tandoori chicken or fresh naan bread with a traditional "
 pubDate: 2026-02-27

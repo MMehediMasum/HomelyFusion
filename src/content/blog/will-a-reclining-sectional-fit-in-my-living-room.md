@@ -1,10 +1,14 @@
 ---
-title: "Will a Reclining Sectional Fit in My Living Room? Expert Tips"
-description: "Thinking about adding a reclining sectional to your living room? You’re probably wondering if it will fit just right without overcrowding your space. Choosing t"
+title: Will a Reclining Sectional Fit in My Living Room? Expert Tips
+description: Thinking about adding a reclining sectional to your living room? You’re
+  probably wondering if it will fit just right without overcrowding your space. Choosing
+  t
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-reclining-sectional-fit-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=will-a-reclining-sectional-fit-in-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Thinking about adding a reclining sectional to your living room? You’re probably wondering if it will fit just right without overcrowding your space.**

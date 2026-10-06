@@ -1,10 +1,14 @@
 ---
-title: "Tommy Bahama Pillows Home Goods: Stylish Coastal Decor for Every Room"
-description: "Tommy Bahama pillows bring a touch of island style to your home. These pillows combine comfort and tropical designs for any room. Tommy Bahama pillows stand out"
+title: 'Tommy Bahama Pillows Home Goods: Stylish Coastal Decor for Every Room'
+description: Tommy Bahama pillows bring a touch of island style to your home. These
+  pillows combine comfort and tropical designs for any room. Tommy Bahama pillows
+  stand out
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-bahama-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tommy-bahama-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tommy Bahama pillows bring a touch of island style to your home. These pillows combine comfort and tropical designs for any room.**

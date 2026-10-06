@@ -1,10 +1,14 @@
 ---
-title: "Are Brass Bathroom Faucets in Style: Timeless Elegance Uncovered"
-description: "Are you thinking about updating your bathroom but unsure which faucet style will make the biggest impact? Brass bathroom faucets might be the answer you’ve been"
+title: 'Are Brass Bathroom Faucets in Style: Timeless Elegance Uncovered'
+description: Are you thinking about updating your bathroom but unsure which faucet
+  style will make the biggest impact? Brass bathroom faucets might be the answer you’ve
+  been
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-brass-bathroom-faucets-in-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=are-brass-bathroom-faucets-in-style&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about updating your bathroom but unsure which faucet style will make the biggest impact? Brass bathroom faucets might be the answer you’ve been looking for.**

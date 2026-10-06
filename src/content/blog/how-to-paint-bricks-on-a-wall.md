@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Bricks on a Wall: Easy Steps for a Stunning Makeover"
-description: "Are you looking to give your brick wall a fresh, vibrant look without the hassle of replacing it? Painting bricks can completely transform your space, adding pe"
+title: 'How to Paint Bricks on a Wall: Easy Steps for a Stunning Makeover'
+description: Are you looking to give your brick wall a fresh, vibrant look without
+  the hassle of replacing it? Painting bricks can completely transform your space,
+  adding pe
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-bricks-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-bricks-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your brick wall a fresh, vibrant look without the hassle of replacing it? Painting bricks can completely transform your space, adding personality and style in a way that’s both simple and affordable.**

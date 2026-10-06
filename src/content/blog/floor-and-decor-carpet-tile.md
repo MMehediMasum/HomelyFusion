@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Carpet Tile: Soft, Durable Flooring Solutions for Kids Rooms"
-description: "Floor and Decor carpet tiles offer versatile flooring solutions for homes and play areas. These tiles combine comfort, style, and easy installation. Carpet tile"
+title: 'Floor And Decor Carpet Tile: Soft, Durable Flooring Solutions for Kids Rooms'
+description: Floor and Decor carpet tiles offer versatile flooring solutions for homes
+  and play areas. These tiles combine comfort, style, and easy installation. Carpet
+  tile
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-carpet-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-carpet-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor carpet tiles offer versatile flooring solutions for homes and play areas. These tiles combine comfort, style, and easy installation.**

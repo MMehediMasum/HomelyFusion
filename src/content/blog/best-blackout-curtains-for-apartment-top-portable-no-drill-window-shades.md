@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Curtains for Apartment: Top Portable No-Drill Window Shades"
-description: "Blackout curtains help block light and improve privacy in apartments. They create a dark, cozy space for better sleep or screen time. Apartments often have thin"
+title: 'Best Blackout Curtains for Apartment: Top Portable No-Drill Window Shades'
+description: Blackout curtains help block light and improve privacy in apartments.
+  They create a dark, cozy space for better sleep or screen time. Apartments often
+  have thin
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-apartment-top-portable-no-drill-window-shades&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-apartment-top-portable-no-drill-window-shades&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains help block light and improve privacy in apartments. They create a dark, cozy space for better sleep or screen time.**

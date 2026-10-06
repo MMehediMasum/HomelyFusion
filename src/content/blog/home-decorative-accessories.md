@@ -1,10 +1,14 @@
 ---
-title: "Home Decorative Accessories to Transform Your Living Space Instantly"
-description: "Home decorative accessories add style and personality to any living space. They create a warm, inviting atmosphere with simple touches. Decorating your home doe"
+title: Home Decorative Accessories to Transform Your Living Space Instantly
+description: Home decorative accessories add style and personality to any living space.
+  They create a warm, inviting atmosphere with simple touches. Decorating your home
+  doe
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorative-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-decorative-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decorative accessories add style and personality to any living space. They create a warm, inviting atmosphere with simple touches.**

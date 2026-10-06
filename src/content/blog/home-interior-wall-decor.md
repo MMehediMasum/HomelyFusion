@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Wall Decor Ideas to Transform Your Living Space Easily"
-description: "Home interior wall decor adds personality and warmth to any room. It transforms plain walls into stylish, inviting spaces. Choosing the right wall decor can bri"
+title: Home Interior Wall Decor Ideas to Transform Your Living Space Easily
+description: Home interior wall decor adds personality and warmth to any room. It
+  transforms plain walls into stylish, inviting spaces. Choosing the right wall decor
+  can bri
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home interior wall decor adds personality and warmth to any room. It transforms plain walls into stylish, inviting spaces.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a Puffy Living Room Chair Called: Ultimate Comfort Guide"
-description: "Are you looking to add a cozy, inviting touch to your living room? You might have seen those soft, cushy chairs that seem to promise comfort the moment you sit "
+title: 'What is a Puffy Living Room Chair Called: Ultimate Comfort Guide'
+description: 'Are you looking to add a cozy, inviting touch to your living room? You
+  might have seen those soft, cushy chairs that seem to promise comfort the moment
+  you sit '
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-puffy-living-room-chair-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-puffy-living-room-chair-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add a cozy, inviting touch to your living room? You might have seen those soft, cushy chairs that seem to promise comfort the moment you sit down.**

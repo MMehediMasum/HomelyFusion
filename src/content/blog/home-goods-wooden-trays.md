@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wooden Trays: Stylish Serving Solutions for Every Occasion"
-description: "Wooden trays add warmth and functionality to any home setting. They are versatile for both serving and decorating. Wooden trays offer a rustic charm that comple"
+title: 'Home Goods Wooden Trays: Stylish Serving Solutions for Every Occasion'
+description: Wooden trays add warmth and functionality to any home setting. They are
+  versatile for both serving and decorating. Wooden trays offer a rustic charm that
+  comple
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wooden-trays&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wooden-trays&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Wooden trays add warmth and functionality to any home setting. They are versatile for both serving and decorating.**

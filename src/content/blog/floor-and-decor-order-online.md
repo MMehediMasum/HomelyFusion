@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Order Online: Top Stylish Rugs and Mats for Every Room"
-description: "Floor and Decor makes ordering home flooring and rugs online simple and convenient. Browse a wide selection of quality mats, rugs, and tiles from your computer."
+title: 'Floor And Decor Order Online: Top Stylish Rugs and Mats for Every Room'
+description: Floor and Decor makes ordering home flooring and rugs online simple and
+  convenient. Browse a wide selection of quality mats, rugs, and tiles from your computer.
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-order-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-order-online&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor makes ordering home flooring and rugs online simple and convenient. Browse a wide selection of quality mats, rugs, and tiles from your computer.**

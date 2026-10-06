@@ -1,10 +1,15 @@
 ---
-title: "Which Kind of Sofa Will Withstand Sunlight in Living Room: Durable & Stylish Picks"
-description: "Is your living room flooded with sunlight, but you’re worried your sofa might fade or wear out too quickly? Choosing the right sofa that can handle strong sunli"
+title: 'Which Kind of Sofa Will Withstand Sunlight in Living Room: Durable & Stylish
+  Picks'
+description: Is your living room flooded with sunlight, but you’re worried your sofa
+  might fade or wear out too quickly? Choosing the right sofa that can handle strong
+  sunli
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-kind-of-sofa-will-withstand-sunlight-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=which-kind-of-sofa-will-withstand-sunlight-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room flooded with sunlight, but you’re worried your sofa might fade or wear out too quickly? Choosing the right sofa that can handle strong sunlight isn’t just about style—it’s about making a smart investment for your home.**

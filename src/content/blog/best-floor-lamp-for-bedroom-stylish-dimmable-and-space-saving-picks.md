@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamp for Bedroom: Stylish, Dimmable, and Space-Saving Picks"
-description: "Choosing the best floor lamp for your bedroom can improve both lighting and style. A good lamp offers the right brightness and fits your room’s design. A bedroo"
+title: 'Best Floor Lamp for Bedroom: Stylish, Dimmable, and Space-Saving Picks'
+description: Choosing the best floor lamp for your bedroom can improve both lighting
+  and style. A good lamp offers the right brightness and fits your room’s design.
+  A bedroo
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamp-for-bedroom-stylish-dimmable-and-space-saving-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamp-for-bedroom-stylish-dimmable-and-space-saving-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for your bedroom can improve both lighting and style. A good lamp offers the right brightness and fits your room’s design.**

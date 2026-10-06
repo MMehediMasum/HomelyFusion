@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Cabinet Tops: Stunning Ideas for Style"
-description: "Your kitchen cabinet tops are often overlooked, but they hold amazing potential to transform your entire kitchen. Imagine turning that empty space above your ca"
+title: 'How to Decorate Kitchen Cabinet Tops: Stunning Ideas for Style'
+description: Your kitchen cabinet tops are often overlooked, but they hold amazing
+  potential to transform your entire kitchen. Imagine turning that empty space above
+  your ca
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinet-tops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinet-tops&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen cabinet tops are often overlooked, but they hold amazing potential to transform your entire kitchen. Imagine turning that empty space above your cabinets into a stylish, eye-catching feature that reflects your personality.**

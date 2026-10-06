@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Dresser Top: Stunning Ideas to Transform Your Space"
-description: "Your dresser top is more than just a place to store everyday items—it’s a chance to show off your style and add a touch of personality to your room. But decorat"
+title: 'How to Decorate a Dresser Top: Stunning Ideas to Transform Your Space'
+description: Your dresser top is more than just a place to store everyday items—it’s
+  a chance to show off your style and add a touch of personality to your room. But
+  decorat
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-dresser-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-dresser-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your dresser top is more than just a place to store everyday items—it’s a chance to show off your style and add a touch of personality to your room. But decorating it can feel tricky.**

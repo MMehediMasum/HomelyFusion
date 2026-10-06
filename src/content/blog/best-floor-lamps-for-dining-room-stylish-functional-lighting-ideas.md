@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Dining Room: Stylish & Functional Lighting Ideas"
-description: "Choosing the best floor lamp can transform your dining room’s atmosphere and lighting. The right lamp adds style and improves visibility during meals or gatheri"
+title: 'Best Floor Lamps for Dining Room: Stylish & Functional Lighting Ideas'
+description: Choosing the best floor lamp can transform your dining room’s atmosphere
+  and lighting. The right lamp adds style and improves visibility during meals or
+  gatheri
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-dining-room-stylish-functional-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-dining-room-stylish-functional-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp can transform your dining room’s atmosphere and lighting. The right lamp adds style and improves visibility during meals or gatherings.**

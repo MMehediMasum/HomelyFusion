@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Painting on the Wall Without Nails: Easy & Damage-Free Tips"
-description: "Want to hang a painting on your wall but worried about damaging it with nails? You’re not alone. Many people want to decorate their space without leaving holes "
+title: 'How to Hang a Painting on the Wall Without Nails: Easy & Damage-Free Tips'
+description: 'Want to hang a painting on your wall but worried about damaging it with
+  nails? You’re not alone. Many people want to decorate their space without leaving
+  holes '
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-painting-on-the-wall-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-painting-on-the-wall-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to hang a painting on your wall but worried about damaging it with nails? You’re not alone.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System: Ultimate Easy Setup Guide"
 description: "Setting up your home theater system might seem tricky, but it doesn’t have to be. Imagine sinking into your couch, surrounded by crystal-clear sound and stunnin"
 pubDate: 2026-04-26

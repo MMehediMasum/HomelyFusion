@@ -1,10 +1,14 @@
 ---
-title: "How to Coordinate Tables in Living Room: Stunning Style Tips"
-description: "Are you struggling to find the perfect balance between style and function when arranging tables in your living room? Getting your tables to work together can tr"
+title: 'How to Coordinate Tables in Living Room: Stunning Style Tips'
+description: Are you struggling to find the perfect balance between style and function
+  when arranging tables in your living room? Getting your tables to work together
+  can tr
 pubDate: 2026-02-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-coordinate-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-coordinate-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect balance between style and function when arranging tables in your living room? Getting your tables to work together can transform your space from cluttered to cozy, making it more inviting for you and your guests.**

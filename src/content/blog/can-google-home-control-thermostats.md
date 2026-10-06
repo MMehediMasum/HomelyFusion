@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Google Home Control Thermostats: Ultimate Smart Home Guide"
 description: "Have you ever wished you could adjust your home's temperature without leaving your seat? Imagine simply saying a few words and feeling the perfect warmth or coo"
 pubDate: 2025-10-15

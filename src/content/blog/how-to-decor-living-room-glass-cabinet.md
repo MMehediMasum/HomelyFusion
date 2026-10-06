@@ -1,10 +1,14 @@
 ---
-title: "How to Decor Living Room Glass Cabinet: Stunning Ideas to Try Today"
-description: "Your living room glass cabinet is more than just a storage space—it’s a chance to showcase your style and personality. But how do you turn that simple cabinet i"
+title: 'How to Decor Living Room Glass Cabinet: Stunning Ideas to Try Today'
+description: Your living room glass cabinet is more than just a storage space—it’s
+  a chance to showcase your style and personality. But how do you turn that simple
+  cabinet i
 pubDate: 2026-02-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decor-living-room-glass-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decor-living-room-glass-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room glass cabinet is more than just a storage space—it’s a chance to showcase your style and personality. But how do you turn that simple cabinet into a stunning focal point that draws attention and compliments?**

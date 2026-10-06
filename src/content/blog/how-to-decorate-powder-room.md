@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Powder Room: Stunning Ideas to Transform Small Spaces"
-description: "Your powder room is more than just a small bathroom—it’s a chance to make a big impression. Imagine your guests stepping into a space that feels inviting, styli"
+title: 'How to Decorate Powder Room: Stunning Ideas to Transform Small Spaces'
+description: Your powder room is more than just a small bathroom—it’s a chance to
+  make a big impression. Imagine your guests stepping into a space that feels inviting,
+  styli
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-powder-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-powder-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your powder room is more than just a small bathroom—it’s a chance to make a big impression. Imagine your guests stepping into a space that feels inviting, stylish, and thoughtfully designed.**

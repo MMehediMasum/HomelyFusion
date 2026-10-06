@@ -1,10 +1,14 @@
 ---
-title: "Fall Cinnamon Stick Candle DIY: Cozy, Easy, and Budget-Friendly Ideas"
-description: "Imagine filling your home with the warm, cozy scent of cinnamon as the leaves change outside. You can create this inviting atmosphere yourself with a simple Fal"
+title: 'Fall Cinnamon Stick Candle DIY: Cozy, Easy, and Budget-Friendly Ideas'
+description: Imagine filling your home with the warm, cozy scent of cinnamon as the
+  leaves change outside. You can create this inviting atmosphere yourself with a simple
+  Fal
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cinnamon-stick-candle-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-cinnamon-stick-candle-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine filling your home with the warm, cozy scent of cinnamon as the leaves change outside. You can create this inviting atmosphere yourself with a simple Fall Cinnamon Stick Candle DIY.**

@@ -1,10 +1,14 @@
 ---
-title: "What Size Bathroom Mirror for 30 Inch Vanity: Perfect Fit Guide"
-description: "Choosing the right bathroom mirror for your 30-inch vanity can change the entire look and feel of your space. You want a mirror that fits perfectly, looks styli"
+title: 'What Size Bathroom Mirror for 30 Inch Vanity: Perfect Fit Guide'
+description: Choosing the right bathroom mirror for your 30-inch vanity can change
+  the entire look and feel of your space. You want a mirror that fits perfectly, looks
+  styli
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-30-inch-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-30-inch-vanity&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right bathroom mirror for your 30-inch vanity can change the entire look and feel of your space. You want a mirror that fits perfectly, looks stylish, and adds just the right amount of light and depth to your bathroom.**

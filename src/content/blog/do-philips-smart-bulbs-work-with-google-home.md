@@ -1,10 +1,14 @@
 ---
-title: "Do Philips Smart Bulbs Work With Google Home: Ultimate Guide"
-description: "Are you thinking about upgrading your home lighting with Philips smart bulbs but aren’t sure if they’ll work with your Google Home? You want your smart devices "
+title: 'Do Philips Smart Bulbs Work With Google Home: Ultimate Guide'
+description: 'Are you thinking about upgrading your home lighting with Philips smart
+  bulbs but aren’t sure if they’ll work with your Google Home? You want your smart
+  devices '
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-philips-smart-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=do-philips-smart-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you thinking about upgrading your home lighting with Philips smart bulbs but aren’t sure if they’ll work with your Google Home? You want your smart devices to connect seamlessly, making your life easier, not more complicated.**

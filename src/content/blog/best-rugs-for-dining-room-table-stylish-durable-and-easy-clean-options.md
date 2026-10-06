@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dining Room Table: Stylish, Durable, and Easy-Clean Options"
-description: "Choosing the best rug for your dining room table can enhance comfort and style. The right rug protects floors and defines your dining space beautifully. A dinin"
+title: 'Best Rugs for Dining Room Table: Stylish, Durable, and Easy-Clean Options'
+description: Choosing the best rug for your dining room table can enhance comfort
+  and style. The right rug protects floors and defines your dining space beautifully.
+  A dinin
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dining-room-table-stylish-durable-and-easy-clean-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dining-room-table-stylish-durable-and-easy-clean-options&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your dining room table can enhance comfort and style. The right rug protects floors and defines your dining space beautifully.**

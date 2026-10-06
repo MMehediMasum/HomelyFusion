@@ -1,10 +1,14 @@
 ---
-title: "How to Create a Gallery Wall With Frames: Stunning Ideas Made Easy"
-description: "Are you looking to add a personal touch and style to your space? Creating a gallery wall with frames is an easy and effective way to do just that. Imagine walki"
+title: 'How to Create a Gallery Wall With Frames: Stunning Ideas Made Easy'
+description: Are you looking to add a personal touch and style to your space? Creating
+  a gallery wall with frames is an easy and effective way to do just that. Imagine
+  walki
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-a-gallery-wall-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-a-gallery-wall-with-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a personal touch and style to your space? Creating a gallery wall with frames is an easy and effective way to do just that.**

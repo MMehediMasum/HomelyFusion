@@ -1,10 +1,14 @@
 ---
-title: "What Size Rug for Living Room With a Sectional Sofa: Ultimate Guide"
-description: "Choosing the right rug size for your living room with a sectional sofa can completely transform the space. You want a rug that not only fits well but also ties "
+title: 'What Size Rug for Living Room With a Sectional Sofa: Ultimate Guide'
+description: 'Choosing the right rug size for your living room with a sectional sofa
+  can completely transform the space. You want a rug that not only fits well but also
+  ties '
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-rug-for-living-room-with-a-sectional-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=what-size-rug-for-living-room-with-a-sectional-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right rug size for your living room with a sectional sofa can completely transform the space. You want a rug that not only fits well but also ties your furniture together and makes the room feel cozy.**

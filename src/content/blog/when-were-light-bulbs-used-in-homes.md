@@ -1,10 +1,14 @@
 ---
-title: "When were Light Bulbs Used in Homes: The Bright History Revealed"
-description: "Have you ever wondered when light bulbs first lit up homes like yours? Imagine coming home to a bright, cozy room after dark — something we now take for granted"
+title: 'When were Light Bulbs Used in Homes: The Bright History Revealed'
+description: Have you ever wondered when light bulbs first lit up homes like yours?
+  Imagine coming home to a bright, cozy room after dark — something we now take for
+  granted
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-were-light-bulbs-used-in-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=when-were-light-bulbs-used-in-homes&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered when light bulbs first lit up homes like yours? Imagine coming home to a bright, cozy room after dark — something we now take for granted.**

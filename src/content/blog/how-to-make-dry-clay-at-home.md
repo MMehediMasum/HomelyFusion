@@ -1,10 +1,14 @@
 ---
-title: "How to Make Dry Clay at Home: Easy DIY Craft Recipe"
-description: "Have you ever wanted to create your own dry clay at home but didn’t know where to start? Making dry clay yourself is easier than you think, and it opens up a wo"
+title: 'How to Make Dry Clay at Home: Easy DIY Craft Recipe'
+description: Have you ever wanted to create your own dry clay at home but didn’t know
+  where to start? Making dry clay yourself is easier than you think, and it opens
+  up a wo
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-dry-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-dry-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own dry clay at home but didn’t know where to start? Making dry clay yourself is easier than you think, and it opens up a world of creative possibilities right at your fingertips.**

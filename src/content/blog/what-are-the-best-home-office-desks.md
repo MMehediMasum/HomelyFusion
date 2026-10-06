@@ -1,10 +1,14 @@
 ---
-title: "What are the Best Home Office Desks: Top Picks for Ultimate Comfort"
-description: "Finding the perfect home office desk can change the way you work every day. Your desk isn’t just a piece of furniture—it’s where ideas take shape, focus grows, "
+title: 'What are the Best Home Office Desks: Top Picks for Ultimate Comfort'
+description: 'Finding the perfect home office desk can change the way you work every
+  day. Your desk isn’t just a piece of furniture—it’s where ideas take shape, focus
+  grows, '
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-best-home-office-desks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-best-home-office-desks&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect home office desk can change the way you work every day. Your desk isn’t just a piece of furniture—it’s where ideas take shape, focus grows, and productivity soars.**

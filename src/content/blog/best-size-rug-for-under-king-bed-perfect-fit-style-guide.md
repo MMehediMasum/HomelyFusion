@@ -1,10 +1,14 @@
 ---
-title: "Best Size Rug for Under King Bed: Perfect Fit & Style Guide"
-description: "Choosing the best size rug for under a king bed enhances comfort and style. The right rug anchors the room and protects your floor. A rug under a king bed shoul"
+title: 'Best Size Rug for Under King Bed: Perfect Fit & Style Guide'
+description: Choosing the best size rug for under a king bed enhances comfort and
+  style. The right rug anchors the room and protects your floor. A rug under a king
+  bed shoul
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-under-king-bed-perfect-fit-style-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-under-king-bed-perfect-fit-style-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for under a king bed enhances comfort and style. The right rug anchors the room and protects your floor.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Christmas Wreath at Home: Easy DIY Festive Guide"
-description: "Are you ready to add a personal touch to your holiday decorations? Making a Christmas wreath at home is easier than you think, and it brings a warm, festive fee"
+title: 'How to Make Christmas Wreath at Home: Easy DIY Festive Guide'
+description: Are you ready to add a personal touch to your holiday decorations? Making
+  a Christmas wreath at home is easier than you think, and it brings a warm, festive
+  fee
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-christmas-wreath-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-christmas-wreath-at-home&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your holiday decorations? Making a Christmas wreath at home is easier than you think, and it brings a warm, festive feeling to your space.**

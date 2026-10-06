@@ -1,10 +1,14 @@
 ---
-title: "Flooring Shop Essentials: Top Interlocking and Peel & Stick Floor Tiles"
-description: "Finding the right flooring can transform any space, making it both functional and appealing. Whether you need durable tiles for high-traffic areas or stylish op"
+title: 'Flooring Shop Essentials: Top Interlocking and Peel & Stick Floor Tiles'
+description: Finding the right flooring can transform any space, making it both functional
+  and appealing. Whether you need durable tiles for high-traffic areas or stylish
+  op
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-shop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-shop&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the right flooring can transform any space, making it both functional and appealing. Whether you need durable tiles for high-traffic areas or stylish options for a cozy feel, there's a perfect fit for every room.**

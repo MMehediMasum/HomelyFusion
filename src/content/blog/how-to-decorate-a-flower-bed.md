@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Flower Bed: Stunning Tips for a Vibrant Garden"
-description: "Are you ready to transform your garden into a colorful paradise? Decorating a flower bed is easier than you think, and it can completely change the look of your"
+title: 'How to Decorate a Flower Bed: Stunning Tips for a Vibrant Garden'
+description: Are you ready to transform your garden into a colorful paradise? Decorating
+  a flower bed is easier than you think, and it can completely change the look of
+  your
 pubDate: 2025-10-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-flower-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-flower-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your garden into a colorful paradise? Decorating a flower bed is easier than you think, and it can completely change the look of your outdoor space.**

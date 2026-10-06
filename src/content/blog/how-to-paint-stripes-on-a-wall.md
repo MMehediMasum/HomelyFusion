@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Stripes on a Wall: Easy Steps for Stunning Results"
-description: "Want to transform your room with a bold, stylish look? Painting stripes on a wall is an easy way to add personality and charm to any space. But if you’re worrie"
+title: 'How to Paint Stripes on a Wall: Easy Steps for Stunning Results'
+description: Want to transform your room with a bold, stylish look? Painting stripes
+  on a wall is an easy way to add personality and charm to any space. But if you’re
+  worrie
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-stripes-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-stripes-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to transform your room with a bold, stylish look? Painting stripes on a wall is an easy way to add personality and charm to any space.**

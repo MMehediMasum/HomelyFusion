@@ -1,10 +1,14 @@
 ---
-title: "Can You Replace Bathroom Vanity Doors: Easy DIY Guide to Upgrade"
-description: "Are your bathroom vanity doors looking worn out or outdated? You might be wondering if you really need to replace the entire vanity or if swapping just the door"
+title: 'Can You Replace Bathroom Vanity Doors: Easy DIY Guide to Upgrade'
+description: Are your bathroom vanity doors looking worn out or outdated? You might
+  be wondering if you really need to replace the entire vanity or if swapping just
+  the door
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-vanity-doors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-vanity-doors&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are your bathroom vanity doors looking worn out or outdated? You might be wondering if you really need to replace the entire vanity or if swapping just the doors is enough.**

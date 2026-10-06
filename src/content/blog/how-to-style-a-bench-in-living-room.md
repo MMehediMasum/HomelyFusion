@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Bench in Living Room: Stunning Ideas for Every Space"
-description: "Your living room bench can be more than just a place to sit. It can be a stunning focal point that adds personality and comfort to your space. But how do you st"
+title: 'How to Style a Bench in Living Room: Stunning Ideas for Every Space'
+description: Your living room bench can be more than just a place to sit. It can be
+  a stunning focal point that adds personality and comfort to your space. But how
+  do you st
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-bench-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-bench-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room bench can be more than just a place to sit. It can be a stunning focal point that adds personality and comfort to your space.**

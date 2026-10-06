@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Large Bathroom Mirror: Easy DIY Ideas for Stunning Results"
-description: "Looking to give your bathroom a fresh, stylish upgrade? Framing a large bathroom mirror is one of the easiest and most effective ways to transform your space in"
+title: 'How to Frame Large Bathroom Mirror: Easy DIY Ideas for Stunning Results'
+description: Looking to give your bathroom a fresh, stylish upgrade? Framing a large
+  bathroom mirror is one of the easiest and most effective ways to transform your
+  space in
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-large-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-large-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to give your bathroom a fresh, stylish upgrade? Framing a large bathroom mirror is one of the easiest and most effective ways to transform your space instantly.**

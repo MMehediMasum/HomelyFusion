@@ -1,10 +1,14 @@
 ---
-title: "Cupcakes And Cashmere Table Runner: Elegant Styles for Every Occasion"
-description: "Cupcakes and Cashmere's table runner adds charm to any dining setup. It's a stylish piece for home decor enthusiasts. This table runner perfectly blends style a"
+title: 'Cupcakes And Cashmere Table Runner: Elegant Styles for Every Occasion'
+description: Cupcakes and Cashmere's table runner adds charm to any dining setup.
+  It's a stylish piece for home decor enthusiasts. This table runner perfectly blends
+  style a
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-table-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=cupcakes-and-cashmere-table-runner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Cupcakes and Cashmere's table runner adds charm to any dining setup. It's a stylish piece for home decor enthusiasts.**

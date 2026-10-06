@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Small Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Are you tired of your cramped bathroom and want a stylish, functional vanity that fits just right? Building a small bathroom vanity yourself might seem tricky, "
+title: 'How to Build a Small Bathroom Vanity: Easy Steps for Stunning Results'
+description: 'Are you tired of your cramped bathroom and want a stylish, functional
+  vanity that fits just right? Building a small bathroom vanity yourself might seem
+  tricky, '
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-small-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-small-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your cramped bathroom and want a stylish, functional vanity that fits just right? Building a small bathroom vanity yourself might seem tricky, but it’s easier than you think.**

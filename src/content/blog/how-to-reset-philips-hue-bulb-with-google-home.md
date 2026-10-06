@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Philips Hue Bulb With Google Home: Easy Step-by-Step Guide"
-description: "Are you struggling to reset your Philips Hue bulb using Google Home? It can be frustrating when your smart lighting isn’t responding the way you want. But don’t"
+title: 'How to Reset Philips Hue Bulb With Google Home: Easy Step-by-Step Guide'
+description: Are you struggling to reset your Philips Hue bulb using Google Home?
+  It can be frustrating when your smart lighting isn’t responding the way you want.
+  But don’t
 pubDate: 2026-04-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-philips-hue-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-philips-hue-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you struggling to reset your Philips Hue bulb using Google Home? It can be frustrating when your smart lighting isn’t responding the way you want.**

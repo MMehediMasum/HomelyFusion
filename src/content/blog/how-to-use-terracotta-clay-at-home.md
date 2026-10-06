@@ -1,10 +1,13 @@
 ---
-title: "How to Use Terracotta Clay at Home: Creative & Easy DIY Ideas"
-description: "Are you curious about how to bring a natural, creative touch into your home? Terracotta clay is a simple, versatile material that you can use to make beautiful "
+title: 'How to Use Terracotta Clay at Home: Creative & Easy DIY Ideas'
+description: 'Are you curious about how to bring a natural, creative touch into your
+  home? Terracotta clay is a simple, versatile material that you can use to make beautiful '
 pubDate: 2026-03-28
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-terracotta-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-terracotta-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you curious about how to bring a natural, creative touch into your home? Terracotta clay is a simple, versatile material that you can use to make beautiful and useful items right where you live.**

@@ -1,10 +1,14 @@
 ---
-title: "Bp Home Embroidered Wall Art: Stunning Floral Decor for Every Room"
-description: "Embroidered wall art adds charm and personality to any space. It combines creativity with warmth, enhancing home aesthetics effortlessly. Explore a variety of e"
+title: 'Bp Home Embroidered Wall Art: Stunning Floral Decor for Every Room'
+description: Embroidered wall art adds charm and personality to any space. It combines
+  creativity with warmth, enhancing home aesthetics effortlessly. Explore a variety
+  of e
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bp-home-embroidered-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=bp-home-embroidered-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Embroidered wall art adds charm and personality to any space. It combines creativity with warmth, enhancing home aesthetics effortlessly.**

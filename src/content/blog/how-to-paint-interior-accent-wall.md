@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Interior Accent Wall: Easy Steps for Stunning Results"
-description: "Are you ready to transform your room without a full makeover? Painting an interior accent wall is one of the easiest and most impactful ways to refresh your spa"
+title: 'How to Paint Interior Accent Wall: Easy Steps for Stunning Results'
+description: Are you ready to transform your room without a full makeover? Painting
+  an interior accent wall is one of the easiest and most impactful ways to refresh
+  your spa
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-interior-accent-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-interior-accent-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your room without a full makeover? Painting an interior accent wall is one of the easiest and most impactful ways to refresh your space.**

@@ -1,10 +1,14 @@
 ---
-title: "What is Votive Candles: Meaning, Uses & Spiritual Benefits"
-description: "Have you ever noticed small candles glowing softly in churches or on altars and wondered what makes them special? These are votive candles, and they carry more "
+title: 'What is Votive Candles: Meaning, Uses & Spiritual Benefits'
+description: 'Have you ever noticed small candles glowing softly in churches or on
+  altars and wondered what makes them special? These are votive candles, and they
+  carry more '
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-votive-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=what-is-votive-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever noticed small candles glowing softly in churches or on altars and wondered what makes them special? These are votive candles, and they carry more meaning than just light.**

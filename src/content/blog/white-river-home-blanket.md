@@ -1,10 +1,14 @@
 ---
-title: "White River Home Blanket: Cozy, Stylish Throws for Ultimate Comfort"
-description: "Experience the perfect blend of style and comfort with the White River Home Blanket collection. These blankets offer warmth and elegance. The White River Home B"
+title: 'White River Home Blanket: Cozy, Stylish Throws for Ultimate Comfort'
+description: Experience the perfect blend of style and comfort with the White River
+  Home Blanket collection. These blankets offer warmth and elegance. The White River
+  Home B
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=white-river-home-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=white-river-home-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Experience the perfect blend of style and comfort with the White River Home Blanket collection. These blankets offer warmth and elegance.**

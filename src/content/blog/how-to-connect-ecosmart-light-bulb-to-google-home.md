@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Ecosmart Light Bulb to Google Home: Easy Guide"
-description: "Are you ready to control your Ecosmart light bulb with just your voice? Connecting your Ecosmart bulb to Google Home can make your daily routine easier and smar"
+title: 'How to Connect Ecosmart Light Bulb to Google Home: Easy Guide'
+description: Are you ready to control your Ecosmart light bulb with just your voice?
+  Connecting your Ecosmart bulb to Google Home can make your daily routine easier
+  and smar
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-ecosmart-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-ecosmart-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to control your Ecosmart light bulb with just your voice? Connecting your Ecosmart bulb to Google Home can make your daily routine easier and smarter.**

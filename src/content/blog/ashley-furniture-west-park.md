@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ashley Furniture West Park: Stylish Farmhouse & French Country Furniture Picks"
 description: "Ashley Furniture West Park offers a variety of stylish and functional home furniture. Their collection blends classic designs with modern features for everyday "
 pubDate: 2025-10-20

@@ -1,10 +1,14 @@
 ---
-title: "Diy Halloween Party Snacks: Spooky, Easy, and Delicious Ideas"
-description: "Are you ready to make your Halloween party unforgettable? Your guests will love these easy and fun DIY Halloween party snacks that you can whip up in no time. I"
+title: 'Diy Halloween Party Snacks: Spooky, Easy, and Delicious Ideas'
+description: Are you ready to make your Halloween party unforgettable? Your guests
+  will love these easy and fun DIY Halloween party snacks that you can whip up in
+  no time. I
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-halloween-party-snacks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=diy-halloween-party-snacks&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Halloween party unforgettable? Your guests will love these easy and fun DIY Halloween party snacks that you can whip up in no time.**

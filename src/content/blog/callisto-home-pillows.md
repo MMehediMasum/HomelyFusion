@@ -1,10 +1,14 @@
 ---
-title: "Callisto Home Pillows: Stylish Velvet and Chenille Covers for Cozy Decor"
-description: "Callisto Home Pillows offer a wide range of stylish and comfortable pillow covers. These covers fit various pillow sizes and add charm to any room. Pillow cover"
+title: 'Callisto Home Pillows: Stylish Velvet and Chenille Covers for Cozy Decor'
+description: Callisto Home Pillows offer a wide range of stylish and comfortable pillow
+  covers. These covers fit various pillow sizes and add charm to any room. Pillow
+  cover
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=callisto-home-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=callisto-home-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Callisto Home Pillows offer a wide range of stylish and comfortable pillow covers. These covers fit various pillow sizes and add charm to any room.**

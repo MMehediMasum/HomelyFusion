@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Childrens Room: Educational, Soft, and Fun Play Mats"
-description: "Choosing the best rug for a children’s room can make playtime safer and more fun. A good rug adds comfort, learning, and style to any kid’s space. A children’s "
+title: 'Best Rug for Childrens Room: Educational, Soft, and Fun Play Mats'
+description: 'Choosing the best rug for a children’s room can make playtime safer
+  and more fun. A good rug adds comfort, learning, and style to any kid’s space. A
+  children’s '
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-childrens-room-educational-soft-and-fun-play-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-childrens-room-educational-soft-and-fun-play-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for a children’s room can make playtime safer and more fun. A good rug adds comfort, learning, and style to any kid’s space.**

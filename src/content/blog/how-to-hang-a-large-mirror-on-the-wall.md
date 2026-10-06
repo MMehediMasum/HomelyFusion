@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Large Mirror on the Wall: Easy Steps for Stunning Decor"
-description: "Hanging a large mirror on your wall might seem tricky, but with the right steps, you can do it safely and beautifully. Imagine how much light and space a big mi"
+title: 'How to Hang a Large Mirror on the Wall: Easy Steps for Stunning Decor'
+description: Hanging a large mirror on your wall might seem tricky, but with the right
+  steps, you can do it safely and beautifully. Imagine how much light and space a
+  big mi
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-large-mirror-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-large-mirror-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a large mirror on your wall might seem tricky, but with the right steps, you can do it safely and beautifully. Imagine how much light and space a big mirror can add to your room.**

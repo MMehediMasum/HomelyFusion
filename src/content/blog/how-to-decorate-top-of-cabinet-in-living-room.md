@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Top of Cabinet in Living Room: Stunning Ideas"
-description: "Have you ever looked at the top of your living room cabinets and felt like something was missing? That empty space can be a hidden gem for adding style and pers"
+title: 'How to Decorate Top of Cabinet in Living Room: Stunning Ideas'
+description: Have you ever looked at the top of your living room cabinets and felt
+  like something was missing? That empty space can be a hidden gem for adding style
+  and pers
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-top-of-cabinet-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-top-of-cabinet-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked at the top of your living room cabinets and felt like something was missing? That empty space can be a hidden gem for adding style and personality to your home.**

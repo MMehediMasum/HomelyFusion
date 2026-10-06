@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Spooky Drink Recipes: Wickedly Delicious & Easy Ideas"
 description: "Are you ready to make your Halloween party unforgettable? Imagine serving drinks that not only taste amazing but also add a spooky twist to your celebration. Wh"
 pubDate: 2025-12-28

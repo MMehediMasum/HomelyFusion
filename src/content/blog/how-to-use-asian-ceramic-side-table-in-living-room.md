@@ -1,10 +1,13 @@
 ---
-title: "How to Use Asian Ceramic Side Table in Living Room: Stylish Tips"
-description: "Are you looking for a simple way to add style and function to your living room? An Asian ceramic side table might be just what you need. These beautiful pieces "
+title: 'How to Use Asian Ceramic Side Table in Living Room: Stylish Tips'
+description: 'Are you looking for a simple way to add style and function to your living
+  room? An Asian ceramic side table might be just what you need. These beautiful pieces '
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-asian-ceramic-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-asian-ceramic-side-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking for a simple way to add style and function to your living room? An Asian ceramic side table might be just what you need.**

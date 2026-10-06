@@ -1,10 +1,14 @@
 ---
-title: "Interior Decoration Wall Ideas: Stunning Metal, Wooden, and Acrylic Designs"
-description: "Interior decoration walls transform plain spaces into inviting, stylish areas. Choosing the right wall decor adds personality and warmth to any room. Walls offe"
+title: 'Interior Decoration Wall Ideas: Stunning Metal, Wooden, and Acrylic Designs'
+description: Interior decoration walls transform plain spaces into inviting, stylish
+  areas. Choosing the right wall decor adds personality and warmth to any room. Walls
+  offe
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-decoration-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-decoration-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Interior decoration walls transform plain spaces into inviting, stylish areas. Choosing the right wall decor adds personality and warmth to any room.**

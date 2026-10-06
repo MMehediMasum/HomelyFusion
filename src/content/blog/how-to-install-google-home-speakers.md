@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home Speakers: Easy Steps for Quick Setup"
 description: "Are you ready to bring your home to life with smart sound? Installing Google Home speakers is easier than you think, and once set up, they can change how you co"
 pubDate: 2026-04-28

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Apple Stuffing Recipe: Irresistible & Easy Delight"
 description: "Are you looking to make your Thanksgiving dinner extra special this year? Imagine the warm, comforting aroma of a delicious apple stuffing filling your kitchen—"
 pubDate: 2026-01-03

@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Pumpkin Centerpiece DIY: Easy, Charming Autumn Decor Ideas"
-description: "Looking to add a warm, cozy touch to your home this fall? A rustic pumpkin centerpiece is just what you need to bring that perfect autumn vibe to your table. Yo"
+title: 'Fall Rustic Pumpkin Centerpiece DIY: Easy, Charming Autumn Decor Ideas'
+description: Looking to add a warm, cozy touch to your home this fall? A rustic pumpkin
+  centerpiece is just what you need to bring that perfect autumn vibe to your table.
+  Yo
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-pumpkin-centerpiece-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-pumpkin-centerpiece-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a warm, cozy touch to your home this fall? A rustic pumpkin centerpiece is just what you need to bring that perfect autumn vibe to your table.**

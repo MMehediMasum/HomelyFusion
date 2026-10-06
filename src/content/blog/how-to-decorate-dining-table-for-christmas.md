@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Dining Table for Christmas: Stunning Festive Ideas"
-description: "Your dining table is the heart of holiday gatherings, where laughter, stories, and delicious meals come together. But have you ever wondered how to make your ta"
+title: 'How to Decorate Dining Table for Christmas: Stunning Festive Ideas'
+description: Your dining table is the heart of holiday gatherings, where laughter,
+  stories, and delicious meals come together. But have you ever wondered how to make
+  your ta
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-dining-table-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-dining-table-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your dining table is the heart of holiday gatherings, where laughter, stories, and delicious meals come together. But have you ever wondered how to make your table look as magical as the season feels?**

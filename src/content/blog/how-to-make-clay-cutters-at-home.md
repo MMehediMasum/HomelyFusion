@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Cutters at Home: Easy DIY Guide for Beginners"
-description: "Are you ready to create your own unique clay cutters without spending a fortune? Making clay cutters at home is easier than you think, and it gives you full con"
+title: 'How to Make Clay Cutters at Home: Easy DIY Guide for Beginners'
+description: Are you ready to create your own unique clay cutters without spending
+  a fortune? Making clay cutters at home is easier than you think, and it gives you
+  full con
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-cutters-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-cutters-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create your own unique clay cutters without spending a fortune? Making clay cutters at home is easier than you think, and it gives you full control over the shapes and sizes you want.**

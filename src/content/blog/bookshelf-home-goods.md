@@ -1,10 +1,14 @@
 ---
-title: "Bookshelf Home Goods: Top Stylish Storage Solutions for Every Room"
-description: "Bookshelf home goods offer practical storage and stylish display options for any room. They keep books, CDs, and movies organized while enhancing home decor. Ch"
+title: 'Bookshelf Home Goods: Top Stylish Storage Solutions for Every Room'
+description: Bookshelf home goods offer practical storage and stylish display options
+  for any room. They keep books, CDs, and movies organized while enhancing home decor.
+  Ch
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bookshelf-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=bookshelf-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Bookshelf home goods offer practical storage and stylish display options for any room. They keep books, CDs, and movies organized while enhancing home decor.**

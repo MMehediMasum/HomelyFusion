@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Vertical Stripes on a Wall: Easy Steps for Stunning Results"
-description: "Are you ready to transform your room with a simple yet striking design? Painting vertical stripes on your wall is one of the easiest ways to add height, style, "
+title: 'How to Paint Vertical Stripes on a Wall: Easy Steps for Stunning Results'
+description: 'Are you ready to transform your room with a simple yet striking design?
+  Painting vertical stripes on your wall is one of the easiest ways to add height,
+  style, '
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-vertical-stripes-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-vertical-stripes-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your room with a simple yet striking design? Painting vertical stripes on your wall is one of the easiest ways to add height, style, and personality to any space.**

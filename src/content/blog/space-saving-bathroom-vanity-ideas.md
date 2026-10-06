@@ -1,10 +1,14 @@
 ---
-title: "Space Saving Bathroom Vanity Ideas: Clever Designs for Small Spaces"
-description: "Is your bathroom feeling cramped and cluttered? You’re not alone. Finding the perfect bathroom vanity that fits your space without sacrificing style can be a re"
+title: 'Space Saving Bathroom Vanity Ideas: Clever Designs for Small Spaces'
+description: Is your bathroom feeling cramped and cluttered? You’re not alone. Finding
+  the perfect bathroom vanity that fits your space without sacrificing style can be
+  a re
 pubDate: 2025-08-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=space-saving-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=space-saving-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom feeling cramped and cluttered? You’re not alone.**

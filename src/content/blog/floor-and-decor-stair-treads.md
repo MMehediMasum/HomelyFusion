@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Stair Treads: Top Non-Slip Options for Safety & Style"
-description: "Floor and Decor stair treads provide safety and style for your home. They offer a variety of options to suit different needs. For homeowners seeking safety and "
+title: 'Floor And Decor Stair Treads: Top Non-Slip Options for Safety & Style'
+description: 'Floor and Decor stair treads provide safety and style for your home.
+  They offer a variety of options to suit different needs. For homeowners seeking
+  safety and '
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-stair-treads&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-stair-treads&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor stair treads provide safety and style for your home. They offer a variety of options to suit different needs.**

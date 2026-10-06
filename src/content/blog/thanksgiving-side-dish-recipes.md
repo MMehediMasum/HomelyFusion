@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Side Dish Recipes: Irresistible Ideas to Impress Guests"
 description: "Thanksgiving is just around the corner, and you want your meal to be unforgettable. But let’s be honest—main dishes get all the attention, while side dishes oft"
 pubDate: 2026-01-15

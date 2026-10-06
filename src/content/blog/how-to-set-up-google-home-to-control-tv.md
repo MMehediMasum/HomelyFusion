@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Google Home to Control Tv: Easy Step-by-Step Guide"
 description: "Imagine sitting comfortably on your couch and controlling your TV with just your voice. No more fumbling for the remote or missing your favorite shows while sea"
 pubDate: 2025-10-29

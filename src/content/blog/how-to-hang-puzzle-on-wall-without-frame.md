@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Puzzle on Wall Without Frame: Easy DIY Tricks"
-description: "Have you ever finished a puzzle and wondered how to show it off without buying a frame? Hanging your puzzle on the wall without a frame can be tricky, but it’s "
+title: 'How to Hang Puzzle on Wall Without Frame: Easy DIY Tricks'
+description: 'Have you ever finished a puzzle and wondered how to show it off without
+  buying a frame? Hanging your puzzle on the wall without a frame can be tricky, but
+  it’s '
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-puzzle-on-wall-without-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-puzzle-on-wall-without-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever finished a puzzle and wondered how to show it off without buying a frame? Hanging your puzzle on the wall without a frame can be tricky, but it’s easier than you think.**

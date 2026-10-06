@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Your Sofa in Living Room: Expert Tips for Perfect Placement"
-description: "Where you place your sofa can change the whole feel of your living room. It’s not just about fitting a piece of furniture; it’s about creating a space where you"
+title: 'Where to Put Your Sofa in Living Room: Expert Tips for Perfect Placement'
+description: Where you place your sofa can change the whole feel of your living room.
+  It’s not just about fitting a piece of furniture; it’s about creating a space where
+  you
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-your-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-your-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Where you place your sofa can change the whole feel of your living room. It’s not just about fitting a piece of furniture; it’s about creating a space where you feel comfortable, relaxed, and connected.**

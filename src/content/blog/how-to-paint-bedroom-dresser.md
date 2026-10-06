@@ -1,10 +1,13 @@
 ---
-title: "How to Paint Bedroom Dresser: Easy Steps for a Stunning Makeover"
-description: "Looking to give your bedroom a fresh new look without spending a fortune? Painting your bedroom dresser is one of the easiest and most rewarding ways to transfo"
+title: 'How to Paint Bedroom Dresser: Easy Steps for a Stunning Makeover'
+description: Looking to give your bedroom a fresh new look without spending a fortune?
+  Painting your bedroom dresser is one of the easiest and most rewarding ways to transfo
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to give your bedroom a fresh new look without spending a fortune? Painting your bedroom dresser is one of the easiest and most rewarding ways to transform your space.**

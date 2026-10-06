@@ -1,10 +1,14 @@
 ---
-title: "Do 2 Sofas in Living Room Have to Match? Stylish Tips Revealed"
-description: "Are you wondering if your two sofas in the living room have to match? You’re not alone. Many people struggle with this question when trying to create a cozy and"
+title: Do 2 Sofas in Living Room Have to Match? Stylish Tips Revealed
+description: Are you wondering if your two sofas in the living room have to match?
+  You’re not alone. Many people struggle with this question when trying to create
+  a cozy and
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-2-sofas-in-living-room-have-to-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=do-2-sofas-in-living-room-have-to-match&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if your two sofas in the living room have to match? You’re not alone.**

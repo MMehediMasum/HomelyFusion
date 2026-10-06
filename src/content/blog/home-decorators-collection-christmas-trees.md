@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Christmas Trees: Transform Your Space with Festive Elegance"
-description: "Home Decorators Collection Christmas Trees offer a wide selection of beautiful artificial trees. These trees bring festive spirit and charm to any home during t"
+title: 'Home Decorators Collection Christmas Trees: Transform Your Space with Festive
+  Elegance'
+description: Home Decorators Collection Christmas Trees offer a wide selection of
+  beautiful artificial trees. These trees bring festive spirit and charm to any home
+  during t
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-trees&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Decorators Collection Christmas Trees offer a wide selection of beautiful artificial trees. These trees bring festive spirit and charm to any home during the holidays.**

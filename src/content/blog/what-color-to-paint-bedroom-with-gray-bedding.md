@@ -1,10 +1,14 @@
 ---
-title: "What Color to Paint Bedroom With Gray Bedding: Stunning Ideas Revealed"
-description: "Choosing the perfect color to paint your bedroom when you have gray bedding can feel tricky. You want your space to look cozy, stylish, and balanced. But how do"
+title: 'What Color to Paint Bedroom With Gray Bedding: Stunning Ideas Revealed'
+description: Choosing the perfect color to paint your bedroom when you have gray bedding
+  can feel tricky. You want your space to look cozy, stylish, and balanced. But how
+  do
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-with-gray-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-with-gray-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect color to paint your bedroom when you have gray bedding can feel tricky. You want your space to look cozy, stylish, and balanced.**

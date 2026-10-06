@@ -1,10 +1,14 @@
 ---
-title: "What Size Bed for Guest Bedroom: Ultimate Guide to Perfect Comfort"
-description: "Choosing the right bed size for your guest bedroom can feel tricky. You want your guests to be comfortable, but you also need to make the most of your space. Ho"
+title: 'What Size Bed for Guest Bedroom: Ultimate Guide to Perfect Comfort'
+description: Choosing the right bed size for your guest bedroom can feel tricky. You
+  want your guests to be comfortable, but you also need to make the most of your space.
+  Ho
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-for-guest-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-for-guest-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bed size for your guest bedroom can feel tricky. You want your guests to be comfortable, but you also need to make the most of your space.**

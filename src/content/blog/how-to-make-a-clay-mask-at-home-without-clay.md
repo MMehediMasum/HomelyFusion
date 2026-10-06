@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Clay Mask at Home Without Clay: Easy DIY Glow"
 description: "Have you ever wanted to treat your skin to a refreshing clay mask but don’t have any clay at home? Don’t worry—you can still make a powerful, natural mask with "
 pubDate: 2025-10-15

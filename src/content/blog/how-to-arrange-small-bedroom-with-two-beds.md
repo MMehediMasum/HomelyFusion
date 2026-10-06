@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Small Bedroom With Two Beds: Smart Space Hacks"
-description: "Struggling to fit two beds into your small bedroom without making it look cramped? You’re not alone. Finding the perfect balance between comfort and space can f"
+title: 'How to Arrange Small Bedroom With Two Beds: Smart Space Hacks'
+description: Struggling to fit two beds into your small bedroom without making it
+  look cramped? You’re not alone. Finding the perfect balance between comfort and
+  space can f
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit two beds into your small bedroom without making it look cramped? You’re not alone.**

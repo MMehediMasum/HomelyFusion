@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate L Shaped Living Room: Stunning Ideas That Wow"
-description: "Your L shaped living room has so much potential, but figuring out how to decorate it can feel tricky. You want it to look cozy, stylish, and functional without "
+title: 'How to Decorate L Shaped Living Room: Stunning Ideas That Wow'
+description: 'Your L shaped living room has so much potential, but figuring out how
+  to decorate it can feel tricky. You want it to look cozy, stylish, and functional
+  without '
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-l-shaped-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-l-shaped-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your L shaped living room has so much potential, but figuring out how to decorate it can feel tricky. You want it to look cozy, stylish, and functional without wasting any space.**

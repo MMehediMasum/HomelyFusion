@@ -1,10 +1,14 @@
 ---
-title: "How to Hide Speaker Wires in Wall for Home Theater: Easy Steps"
-description: "You want your home theater to look sleek and clean, but those speaker wires can be a real eyesore. Seeing tangled cables running across your walls can ruin the "
+title: 'How to Hide Speaker Wires in Wall for Home Theater: Easy Steps'
+description: 'You want your home theater to look sleek and clean, but those speaker
+  wires can be a real eyesore. Seeing tangled cables running across your walls can
+  ruin the '
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-in-wall-for-home-theater&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-in-wall-for-home-theater&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **You want your home theater to look sleek and clean, but those speaker wires can be a real eyesore. Seeing tangled cables running across your walls can ruin the immersive experience you’re aiming for.**

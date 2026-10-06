@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Art Canvas: Stunning Personalized Decor Ideas for Every Room"
-description: "Home goods wall art canvas adds style and personality to any room. These canvases offer unique, easy ways to decorate your space. Canvas wall art brings photos "
+title: 'Home Goods Wall Art Canvas: Stunning Personalized Decor Ideas for Every Room'
+description: 'Home goods wall art canvas adds style and personality to any room. These
+  canvases offer unique, easy ways to decorate your space. Canvas wall art brings
+  photos '
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-art-canvas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-art-canvas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods wall art canvas adds style and personality to any room. These canvases offer unique, easy ways to decorate your space.**

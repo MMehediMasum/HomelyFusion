@@ -1,10 +1,14 @@
 ---
-title: "How to Fit King Bed in Small Bedroom: Smart Space-Saving Tips"
-description: "Struggling to fit a king bed in your small bedroom? You’re not alone. A king bed promises comfort and luxury, but its size can make your room feel cramped and c"
+title: 'How to Fit King Bed in Small Bedroom: Smart Space-Saving Tips'
+description: Struggling to fit a king bed in your small bedroom? You’re not alone.
+  A king bed promises comfort and luxury, but its size can make your room feel cramped
+  and c
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-king-bed-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-king-bed-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit a king bed in your small bedroom? You’re not alone.**

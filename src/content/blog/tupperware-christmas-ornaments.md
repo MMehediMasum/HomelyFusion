@@ -1,10 +1,14 @@
 ---
-title: "Tupperware Christmas Ornaments: Unique Holiday Decor Ideas for Festive Cheer"
-description: "Tupperware Christmas ornaments add charm to holiday decorations with unique designs and festive colors. These collectibles bring warmth and joy to any Christmas"
+title: 'Tupperware Christmas Ornaments: Unique Holiday Decor Ideas for Festive Cheer'
+description: Tupperware Christmas ornaments add charm to holiday decorations with
+  unique designs and festive colors. These collectibles bring warmth and joy to any
+  Christmas
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tupperware-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=tupperware-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Tupperware Christmas ornaments add charm to holiday decorations with unique designs and festive colors. These collectibles bring warmth and joy to any Christmas tree or display.**

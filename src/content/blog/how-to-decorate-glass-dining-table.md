@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Glass Dining Table: Stunning Ideas for Elegance"
-description: "Your glass dining table is more than just a place to eat—it’s a centerpiece that can transform your entire dining room. But how do you decorate it in a way that"
+title: 'How to Decorate Glass Dining Table: Stunning Ideas for Elegance'
+description: Your glass dining table is more than just a place to eat—it’s a centerpiece
+  that can transform your entire dining room. But how do you decorate it in a way
+  that
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-glass-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-glass-dining-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your glass dining table is more than just a place to eat—it’s a centerpiece that can transform your entire dining room. But how do you decorate it in a way that feels stylish without cluttering that clear, sleek surface?**

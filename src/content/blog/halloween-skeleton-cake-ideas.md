@@ -1,10 +1,13 @@
 ---
-title: "Halloween Skeleton Cake Ideas: Spooktacular Designs to Try Today"
-description: "Are you ready to wow your guests with a Halloween treat that’s both spooky and fun? Halloween skeleton cakes are the perfect way to bring a little eerie excitem"
+title: 'Halloween Skeleton Cake Ideas: Spooktacular Designs to Try Today'
+description: Are you ready to wow your guests with a Halloween treat that’s both spooky
+  and fun? Halloween skeleton cakes are the perfect way to bring a little eerie excitem
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-skeleton-cake-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-skeleton-cake-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to wow your guests with a Halloween treat that’s both spooky and fun? Halloween skeleton cakes are the perfect way to bring a little eerie excitement to your party table.**

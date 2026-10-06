@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Console to Xbox: Ultimate Guide for Gamers"
 description: "Are you ready to get the most out of your Xbox? Setting your home console is a simple step that can unlock great benefits like faster downloads, shared game lib"
 pubDate: 2025-09-12

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat Stainless Steel at Home: Easy DIY Guide"
 description: "Are you looking to improve the strength and durability of your stainless steel projects right at home? Knowing how to heat treat stainless steel can transform y"
 pubDate: 2026-03-29

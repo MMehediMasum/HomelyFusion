@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Small Bedroom With Queen Bed: Smart Space Hacks"
-description: "Struggling to fit a queen bed into your small bedroom without making it feel cramped? You’re not alone. Finding the perfect balance between comfort and space ca"
+title: 'How to Arrange Small Bedroom With Queen Bed: Smart Space Hacks'
+description: Struggling to fit a queen bed into your small bedroom without making
+  it feel cramped? You’re not alone. Finding the perfect balance between comfort and
+  space ca
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-small-bedroom-with-queen-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit a queen bed into your small bedroom without making it feel cramped? You’re not alone.**

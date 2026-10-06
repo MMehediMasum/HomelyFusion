@@ -1,10 +1,14 @@
 ---
-title: "How to Place Wall Decals: Easy Steps for Perfect Results"
-description: "Are you ready to transform your space without spending a fortune or making a big mess? Wall decals are the perfect way to add personality and style to any room."
+title: 'How to Place Wall Decals: Easy Steps for Perfect Results'
+description: Are you ready to transform your space without spending a fortune or making
+  a big mess? Wall decals are the perfect way to add personality and style to any
+  room.
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-wall-decals&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-wall-decals&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space without spending a fortune or making a big mess? Wall decals are the perfect way to add personality and style to any room.**

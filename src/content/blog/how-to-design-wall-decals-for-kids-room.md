@@ -1,10 +1,14 @@
 ---
-title: "How to Design Wall Decals for Kids Room: Creative Ideas That Inspire"
-description: "Are you looking to add a splash of fun and creativity to your child’s room? Designing wall decals for kids’ rooms is a simple and exciting way to transform any "
+title: 'How to Design Wall Decals for Kids Room: Creative Ideas That Inspire'
+description: 'Are you looking to add a splash of fun and creativity to your child’s
+  room? Designing wall decals for kids’ rooms is a simple and exciting way to transform
+  any '
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-wall-decals-for-kids-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-wall-decals-for-kids-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a splash of fun and creativity to your child’s room? Designing wall decals for kids’ rooms is a simple and exciting way to transform any space into a magical place.**

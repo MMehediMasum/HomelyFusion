@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Wool Blazer at Home: Easy Steps for Perfect Care"
 description: "Wool blazers are a stylish and versatile addition to your wardrobe, but cleaning them can feel tricky. You might worry about shrinking, stretching, or ruining t"
 pubDate: 2025-09-23

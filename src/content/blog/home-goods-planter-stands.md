@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Planter Stands: Stylish Solutions for Indoor and Outdoor Plants"
-description: "Home goods planter stands offer stylish and practical ways to display your plants. They keep your pots organized and add charm to any space. Plant stands come i"
+title: 'Home Goods Planter Stands: Stylish Solutions for Indoor and Outdoor Plants'
+description: Home goods planter stands offer stylish and practical ways to display
+  your plants. They keep your pots organized and add charm to any space. Plant stands
+  come i
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-planter-stands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-planter-stands&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods planter stands offer stylish and practical ways to display your plants. They keep your pots organized and add charm to any space.**

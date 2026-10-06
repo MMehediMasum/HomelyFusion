@@ -1,10 +1,14 @@
 ---
-title: "How Much are Bathroom Vanities: Ultimate Cost Guide Revealed"
-description: "Are you planning to upgrade your bathroom and wondering, “How much are bathroom vanities?” You’re not alone. Choosing the right vanity can transform your space,"
+title: 'How Much are Bathroom Vanities: Ultimate Cost Guide Revealed'
+description: Are you planning to upgrade your bathroom and wondering, “How much are
+  bathroom vanities?” You’re not alone. Choosing the right vanity can transform your
+  space,
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-are-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-much-are-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom and wondering, “How much are bathroom vanities?” You’re not alone. Choosing the right vanity can transform your space, but the price tag can sometimes feel confusing or overwhelming.**

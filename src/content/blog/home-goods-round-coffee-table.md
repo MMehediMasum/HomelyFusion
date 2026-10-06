@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Round Coffee Table: Stylish Storage and Modern Design Ideas"
-description: "A round coffee table adds style and function to any living room. It fits well in small or large spaces and offers handy storage options. Round coffee tables bri"
+title: 'Home Goods Round Coffee Table: Stylish Storage and Modern Design Ideas'
+description: A round coffee table adds style and function to any living room. It fits
+  well in small or large spaces and offers handy storage options. Round coffee tables
+  bri
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-round-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-round-coffee-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A round coffee table adds style and function to any living room. It fits well in small or large spaces and offers handy storage options.**

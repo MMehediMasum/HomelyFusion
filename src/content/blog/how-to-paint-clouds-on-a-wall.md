@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Clouds on a Wall: Easy Steps for Stunning Results"
-description: "Have you ever wanted to bring a touch of magic to your walls? Painting clouds can transform any room into a dreamy, peaceful space. Imagine looking up and feeli"
+title: 'How to Paint Clouds on a Wall: Easy Steps for Stunning Results'
+description: Have you ever wanted to bring a touch of magic to your walls? Painting
+  clouds can transform any room into a dreamy, peaceful space. Imagine looking up
+  and feeli
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-clouds-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-clouds-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to bring a touch of magic to your walls? Painting clouds can transform any room into a dreamy, peaceful space.**

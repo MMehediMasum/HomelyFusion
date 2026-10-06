@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Lamps Home Goods: Elegant Lighting for Stylish Living Spaces"
-description: "Ralph Lauren lamps offer a touch of elegance and style to any home decor. Discover a collection that blends classic design with modern functionality. Ralph Laur"
+title: 'Ralph Lauren Lamps Home Goods: Elegant Lighting for Stylish Living Spaces'
+description: Ralph Lauren lamps offer a touch of elegance and style to any home decor.
+  Discover a collection that blends classic design with modern functionality. Ralph
+  Laur
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Ralph Lauren lamps offer a touch of elegance and style to any home decor. Discover a collection that blends classic design with modern functionality.**

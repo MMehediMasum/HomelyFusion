@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Galvanize Steel at Home: Easy DIY Guide to Rustproofing"
 description: "Have you ever wondered if you can galvanize steel right at home? If you’re looking to protect your steel projects from rust and corrosion without spending a for"
 pubDate: 2026-03-08

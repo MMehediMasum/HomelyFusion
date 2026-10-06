@@ -1,10 +1,13 @@
 ---
-title: "Do Taper Candles Drip: Expert Tips to Prevent Messy Wax"
-description: "Have you ever lit a taper candle and noticed wax dripping down the sides? It can be frustrating, messy, and even ruin your beautiful setup. You might be wonderi"
+title: 'Do Taper Candles Drip: Expert Tips to Prevent Messy Wax'
+description: Have you ever lit a taper candle and noticed wax dripping down the sides?
+  It can be frustrating, messy, and even ruin your beautiful setup. You might be wonderi
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-taper-candles-drip&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=do-taper-candles-drip&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever lit a taper candle and noticed wax dripping down the sides? It can be frustrating, messy, and even ruin your beautiful setup.**

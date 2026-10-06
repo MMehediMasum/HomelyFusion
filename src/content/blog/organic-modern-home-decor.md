@@ -1,10 +1,14 @@
 ---
-title: "Organic Modern Home Decor: Stylish Storage, Lighting, and Rustic Accents"
-description: "Organic modern home decor blends natural materials with sleek design for a cozy, stylish living space. This trend celebrates simplicity and warmth by using eart"
+title: 'Organic Modern Home Decor: Stylish Storage, Lighting, and Rustic Accents'
+description: Organic modern home decor blends natural materials with sleek design
+  for a cozy, stylish living space. This trend celebrates simplicity and warmth by
+  using eart
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=organic-modern-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=organic-modern-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Organic modern home decor blends natural materials with sleek design for a cozy, stylish living space. This trend celebrates simplicity and warmth by using earthy textures and minimalist aesthetics.**

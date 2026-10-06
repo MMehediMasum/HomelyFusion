@@ -1,10 +1,14 @@
 ---
-title: "Tommy Bahama Candles: Ultimate Tropical Scents for Relaxing Home Ambiance"
-description: "Tommy Bahama candles capture the essence of island life. These candles bring tropical scents into your home. Tommy Bahama candles offer a tropical escape throug"
+title: 'Tommy Bahama Candles: Ultimate Tropical Scents for Relaxing Home Ambiance'
+description: Tommy Bahama candles capture the essence of island life. These candles
+  bring tropical scents into your home. Tommy Bahama candles offer a tropical escape
+  throug
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-bahama-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=tommy-bahama-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tommy Bahama candles capture the essence of island life. These candles bring tropical scents into your home.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Flooring: Top Durable Tiles and Mats for Every Room"
-description: "Discover the world of Floor and Decor flooring, where versatility meets style. Explore diverse flooring options for every space. Floor and Decor offers a wide r"
+title: 'Floor And Decor Flooring: Top Durable Tiles and Mats for Every Room'
+description: Discover the world of Floor and Decor flooring, where versatility meets
+  style. Explore diverse flooring options for every space. Floor and Decor offers
+  a wide r
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the world of Floor and Decor flooring, where versatility meets style. Explore diverse flooring options for every space.**

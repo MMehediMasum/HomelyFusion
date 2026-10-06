@@ -1,10 +1,14 @@
 ---
-title: "Is Twin Bed Too Small for Guest Bedroom? Expert Size Guide"
-description: "Are you wondering if a twin bed is too small for your guest bedroom? Choosing the right bed size can make a big difference in how comfortable your guests feel. "
+title: Is Twin Bed Too Small for Guest Bedroom? Expert Size Guide
+description: 'Are you wondering if a twin bed is too small for your guest bedroom?
+  Choosing the right bed size can make a big difference in how comfortable your guests
+  feel. '
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-twin-bed-too-small-for-guest-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=is-twin-bed-too-small-for-guest-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if a twin bed is too small for your guest bedroom? Choosing the right bed size can make a big difference in how comfortable your guests feel.**

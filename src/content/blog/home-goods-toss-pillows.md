@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Toss Pillows: Stylish Comfort for Sofa, Bed, and Couch"
-description: "Toss pillows add style and comfort to any space, enhancing the decor of your home effortlessly. Discover how these simple accessories can transform your living "
+title: 'Home Goods Toss Pillows: Stylish Comfort for Sofa, Bed, and Couch'
+description: 'Toss pillows add style and comfort to any space, enhancing the decor
+  of your home effortlessly. Discover how these simple accessories can transform your
+  living '
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-toss-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-toss-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Toss pillows add style and comfort to any space, enhancing the decor of your home effortlessly. Discover how these simple accessories can transform your living area into a cozy retreat.**

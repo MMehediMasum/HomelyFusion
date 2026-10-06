@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange a Sectional Sofa in a Living Room: Expert Tips"
-description: "Are you struggling to find the perfect spot for your sectional sofa? Arranging a sectional in your living room can feel tricky, but it doesn’t have to be. The w"
+title: 'How to Arrange a Sectional Sofa in a Living Room: Expert Tips'
+description: Are you struggling to find the perfect spot for your sectional sofa?
+  Arranging a sectional in your living room can feel tricky, but it doesn’t have to
+  be. The w
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-a-sectional-sofa-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-a-sectional-sofa-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your sectional sofa? Arranging a sectional in your living room can feel tricky, but it doesn’t have to be.**

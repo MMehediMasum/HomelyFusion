@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bedside Tables: Stylish Storage Solutions for Every Bedroom"
-description: "Home goods bedside tables combine style and function to keep your bedroom neat and organized. These tables offer storage, charging ports, and a cozy look. Choos"
+title: 'Home Goods Bedside Tables: Stylish Storage Solutions for Every Bedroom'
+description: Home goods bedside tables combine style and function to keep your bedroom
+  neat and organized. These tables offer storage, charging ports, and a cozy look.
+  Choos
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bedside-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bedside-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods bedside tables combine style and function to keep your bedroom neat and organized. These tables offer storage, charging ports, and a cozy look.**

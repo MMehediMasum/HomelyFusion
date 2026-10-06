@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcovers for Camelback Sofa: Top Stretch, Plush, and Durable Picks"
-description: "Choosing the best slipcover for your Camelback sofa helps protect it and refresh its look. Slipcovers fit snugly and keep your sofa clean and stylish. Camelback"
+title: 'Best Slipcovers for Camelback Sofa: Top Stretch, Plush, and Durable Picks'
+description: Choosing the best slipcover for your Camelback sofa helps protect it
+  and refresh its look. Slipcovers fit snugly and keep your sofa clean and stylish.
+  Camelback
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-camelback-sofa-top-stretch-plush-and-durable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-camelback-sofa-top-stretch-plush-and-durable-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best slipcover for your Camelback sofa helps protect it and refresh its look. Slipcovers fit snugly and keep your sofa clean and stylish.**

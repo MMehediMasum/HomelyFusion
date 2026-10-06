@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Lantern: Stunning Ideas to Brighten Your Space"
-description: "Looking to add a warm, magical glow to your home or outdoor space? Decorating a lantern is a simple way to bring charm and personality to any setting. Whether y"
+title: 'How to Decorate a Lantern: Stunning Ideas to Brighten Your Space'
+description: Looking to add a warm, magical glow to your home or outdoor space? Decorating
+  a lantern is a simple way to bring charm and personality to any setting. Whether
+  y
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-lantern&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-lantern&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking to add a warm, magical glow to your home or outdoor space? Decorating a lantern is a simple way to bring charm and personality to any setting.**

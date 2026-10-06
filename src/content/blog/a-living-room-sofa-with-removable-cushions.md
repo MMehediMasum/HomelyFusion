@@ -1,10 +1,14 @@
 ---
-title: "A Living Room Sofa With Removable Cushions: Ultimate Comfort & Style"
-description: "Imagine sinking into your living room sofa after a long day, knowing you can easily remove the cushions to clean or rearrange them. A living room sofa with remo"
+title: 'A Living Room Sofa With Removable Cushions: Ultimate Comfort & Style'
+description: Imagine sinking into your living room sofa after a long day, knowing
+  you can easily remove the cushions to clean or rearrange them. A living room sofa
+  with remo
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-living-room-sofa-with-removable-cushions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=a-living-room-sofa-with-removable-cushions&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine sinking into your living room sofa after a long day, knowing you can easily remove the cushions to clean or rearrange them. A living room sofa with removable cushions gives you that kind of freedom and comfort.**

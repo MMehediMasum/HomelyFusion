@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Lanterns at Home: Stunning Spots to Illuminate Your Space"
-description: "Are you wondering where to place lanterns at home to create the perfect cozy atmosphere? Lanterns are more than just light sources—they add warmth, style, and c"
+title: 'Where to Place Lanterns at Home: Stunning Spots to Illuminate Your Space'
+description: Are you wondering where to place lanterns at home to create the perfect
+  cozy atmosphere? Lanterns are more than just light sources—they add warmth, style,
+  and c
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-lanterns-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-lanterns-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering where to place lanterns at home to create the perfect cozy atmosphere? Lanterns are more than just light sources—they add warmth, style, and charm to any space.**

@@ -1,10 +1,14 @@
 ---
-title: "Holiday Home Decorations Ideas: Rustic Signs and Cozy Seasonal Accents"
-description: "Transform your home into a festive haven with these delightful holiday decoration ideas. Discover the charm of seasonal decor that suits every celebration. Deco"
+title: 'Holiday Home Decorations Ideas: Rustic Signs and Cozy Seasonal Accents'
+description: Transform your home into a festive haven with these delightful holiday
+  decoration ideas. Discover the charm of seasonal decor that suits every celebration.
+  Deco
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-decorations-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-decorations-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Transform your home into a festive haven with these delightful holiday decoration ideas. Discover the charm of seasonal decor that suits every celebration.**

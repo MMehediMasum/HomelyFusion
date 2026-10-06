@@ -1,10 +1,14 @@
 ---
-title: "Can Votive Candles Float: Surprising Facts You Must Know"
-description: "Have you ever wondered if votive candles can float on water? If you’re planning a special event or just want to add a unique touch to your home decor, this ques"
+title: 'Can Votive Candles Float: Surprising Facts You Must Know'
+description: Have you ever wondered if votive candles can float on water? If you’re
+  planning a special event or just want to add a unique touch to your home decor,
+  this ques
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-votive-candles-float&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=can-votive-candles-float&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if votive candles can float on water? If you’re planning a special event or just want to add a unique touch to your home decor, this question might be on your mind.**

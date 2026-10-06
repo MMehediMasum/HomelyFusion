@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Go Home With a Foley Bulb Induction? Essential Facts!"
 description: "Are you wondering if you can go home after a Foley bulb induction? This question is on many minds when facing labor induction. You want to know what to expect a"
 pubDate: 2025-08-31

@@ -1,10 +1,14 @@
 ---
-title: "Interior Wall Art: Transform Your Home with Stunning Modern Designs"
-description: "Interior wall art adds personality and style to any room. It transforms plain walls into eye-catching focal points. Choosing the right wall art can change the f"
+title: 'Interior Wall Art: Transform Your Home with Stunning Modern Designs'
+description: Interior wall art adds personality and style to any room. It transforms
+  plain walls into eye-catching focal points. Choosing the right wall art can change
+  the f
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Interior wall art adds personality and style to any room. It transforms plain walls into eye-catching focal points.**

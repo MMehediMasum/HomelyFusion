@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Woven Baskets: Stylish Storage Solutions for Every Room"
-description: "Woven baskets offer versatile storage solutions for every room in your home. They blend functionality with aesthetic appeal effortlessly. Whether organizing toy"
+title: 'Home Goods Woven Baskets: Stylish Storage Solutions for Every Room'
+description: Woven baskets offer versatile storage solutions for every room in your
+  home. They blend functionality with aesthetic appeal effortlessly. Whether organizing
+  toy
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-woven-baskets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-woven-baskets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Woven baskets offer versatile storage solutions for every room in your home. They blend functionality with aesthetic appeal effortlessly.**

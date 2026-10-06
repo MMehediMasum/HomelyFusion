@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Edible Clay at Home: Easy, Safe, and Fun Recipe"
 description: "Have you ever wanted to create fun, colorful shapes that you can actually eat? Making edible clay at home is easier than you think, and it opens up a world of c"
 pubDate: 2025-10-15

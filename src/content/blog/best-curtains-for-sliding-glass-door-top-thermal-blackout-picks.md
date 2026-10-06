@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Sliding Glass Door: Top Thermal Blackout Picks"
-description: "Choosing the best curtains for sliding glass doors enhances privacy and controls light effectively. These curtains also add style and improve energy efficiency "
+title: 'Best Curtains for Sliding Glass Door: Top Thermal Blackout Picks'
+description: 'Choosing the best curtains for sliding glass doors enhances privacy
+  and controls light effectively. These curtains also add style and improve energy
+  efficiency '
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-sliding-glass-door-top-thermal-blackout-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-sliding-glass-door-top-thermal-blackout-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for sliding glass doors enhances privacy and controls light effectively. These curtains also add style and improve energy efficiency in your home.**

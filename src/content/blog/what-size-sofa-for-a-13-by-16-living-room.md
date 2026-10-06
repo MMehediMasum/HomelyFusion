@@ -1,10 +1,14 @@
 ---
-title: "What Size Sofa for a 13 by 16 Living Room: Perfect Fit Guide"
-description: "Choosing the right sofa for your 13 by 16 living room can feel tricky. You want a piece that fits perfectly without crowding the space or looking too small. Ima"
+title: 'What Size Sofa for a 13 by 16 Living Room: Perfect Fit Guide'
+description: Choosing the right sofa for your 13 by 16 living room can feel tricky.
+  You want a piece that fits perfectly without crowding the space or looking too small.
+  Ima
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-sofa-for-a-13-by-16-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-sofa-for-a-13-by-16-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa for your 13 by 16 living room can feel tricky. You want a piece that fits perfectly without crowding the space or looking too small.**

@@ -1,10 +1,14 @@
 ---
-title: "What is Style of Bedroom Dresser: Ultimate Guide to Chic Designs"
-description: "Have you ever walked into a bedroom and instantly felt calm, organized, and inspired? Much of that feeling comes from the style of the bedroom dresser you choos"
+title: 'What is Style of Bedroom Dresser: Ultimate Guide to Chic Designs'
+description: Have you ever walked into a bedroom and instantly felt calm, organized,
+  and inspired? Much of that feeling comes from the style of the bedroom dresser you
+  choos
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-style-of-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-is-style-of-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever walked into a bedroom and instantly felt calm, organized, and inspired? Much of that feeling comes from the style of the bedroom dresser you choose.**

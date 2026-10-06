@@ -1,10 +1,14 @@
 ---
-title: "Best Color Rug for Gray Couch: Stylish Picks to Elevate Your Space"
-description: "Choosing the best color rug for a gray couch can enhance your living room’s look. The right rug adds warmth and style without clashing with your furniture. Gray"
+title: 'Best Color Rug for Gray Couch: Stylish Picks to Elevate Your Space'
+description: Choosing the best color rug for a gray couch can enhance your living
+  room’s look. The right rug adds warmth and style without clashing with your furniture.
+  Gray
 pubDate: 2025-10-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-rug-for-gray-couch-stylish-picks-to-elevate-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-color-rug-for-gray-couch-stylish-picks-to-elevate-your-space&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best color rug for a gray couch can enhance your living room’s look. The right rug adds warmth and style without clashing with your furniture.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Grapes at Home: Easy DIY Sweet Treat"
 description: "Have you ever wished you could enjoy the sweet, fluffy taste of cotton candy in a healthy, natural way? What if you could make that magic happen right in your o"
 pubDate: 2026-04-16

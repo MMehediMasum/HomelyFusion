@@ -1,10 +1,14 @@
 ---
-title: "2XL Furniture And Home Decor: Stylish Essentials for Every Living Space"
-description: "2XL Furniture and Home Decor offers exquisite pieces for every home. Discover unique statues, wall art, and stylish furniture covers. Explore the world of 2XL F"
+title: '2XL Furniture And Home Decor: Stylish Essentials for Every Living Space'
+description: 2XL Furniture and Home Decor offers exquisite pieces for every home.
+  Discover unique statues, wall art, and stylish furniture covers. Explore the world
+  of 2XL F
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=2xl-furniture-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=2xl-furniture-and-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **2XL Furniture and Home Decor offers exquisite pieces for every home. Discover unique statues, wall art, and stylish furniture covers.**

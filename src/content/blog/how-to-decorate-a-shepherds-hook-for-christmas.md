@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Shepherd'S Hook for Christmas: Stunning Ideas"
-description: "Are you looking to add a special touch to your outdoor Christmas decorations? Decorating a shepherd’s hook is a simple and charming way to brighten your yard or"
+title: 'How to Decorate a Shepherd''S Hook for Christmas: Stunning Ideas'
+description: Are you looking to add a special touch to your outdoor Christmas decorations?
+  Decorating a shepherd’s hook is a simple and charming way to brighten your yard
+  or
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-shepherds-hook-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-shepherds-hook-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a special touch to your outdoor Christmas decorations? Decorating a shepherd’s hook is a simple and charming way to brighten your yard or porch this holiday season.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Baby Nursery: Soft, Safe, and Stylish Play Mats"
-description: "Choosing the best rugs for a baby nursery helps create a safe and cozy space for your little one. Soft, washable, and non-slip rugs make playtime comfortable an"
+title: 'Best Rugs for Baby Nursery: Soft, Safe, and Stylish Play Mats'
+description: Choosing the best rugs for a baby nursery helps create a safe and cozy
+  space for your little one. Soft, washable, and non-slip rugs make playtime comfortable
+  an
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-baby-nursery-soft-safe-and-stylish-play-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-baby-nursery-soft-safe-and-stylish-play-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for a baby nursery helps create a safe and cozy space for your little one. Soft, washable, and non-slip rugs make playtime comfortable and worry-free.**

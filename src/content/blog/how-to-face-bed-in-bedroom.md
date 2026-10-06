@@ -1,10 +1,14 @@
 ---
-title: "How to Face Bed in Bedroom: Expert Tips for Perfect Alignment"
-description: "How you position your bed in your bedroom can change everything—from how restful your sleep is to how comfortable and inviting your space feels. You might not r"
+title: 'How to Face Bed in Bedroom: Expert Tips for Perfect Alignment'
+description: How you position your bed in your bedroom can change everything—from
+  how restful your sleep is to how comfortable and inviting your space feels. You
+  might not r
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-face-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-face-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **How you position your bed in your bedroom can change everything—from how restful your sleep is to how comfortable and inviting your space feels. You might not realize it, but the direction your bed faces affects your mood, energy, and even your daily productivity.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Bedroom Ceiling: Top Stylish and Smart Fixtures Reviewed"
-description: "Choosing the best lighting for your bedroom ceiling sets the room’s mood and improves comfort. Good ceiling lights brighten the space while matching your style."
+title: 'Best Lighting for Bedroom Ceiling: Top Stylish and Smart Fixtures Reviewed'
+description: Choosing the best lighting for your bedroom ceiling sets the room’s mood
+  and improves comfort. Good ceiling lights brighten the space while matching your
+  style.
 pubDate: 2025-12-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-bedroom-ceiling-top-stylish-and-smart-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-bedroom-ceiling-top-stylish-and-smart-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your bedroom ceiling sets the room’s mood and improves comfort. Good ceiling lights brighten the space while matching your style.**

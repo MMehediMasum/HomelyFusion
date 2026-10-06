@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Nitride Steel at Home: Easy Steps for Stronger Metal"
 description: "Are you looking to make your steel parts stronger and more durable without spending a fortune? Nitride steel at home, and you can boost hardness, wear resistanc"
 pubDate: 2026-02-08

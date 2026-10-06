@@ -1,10 +1,14 @@
 ---
-title: "Can Old Bedroom Dresser Cause Skin Issues? Shocking Truth Revealed"
-description: "Have you ever wondered if your old bedroom dresser could be more than just a piece of furniture? What if it’s quietly affecting your skin without you even reali"
+title: Can Old Bedroom Dresser Cause Skin Issues? Shocking Truth Revealed
+description: Have you ever wondered if your old bedroom dresser could be more than
+  just a piece of furniture? What if it’s quietly affecting your skin without you
+  even reali
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-old-bedroom-dresser-cause-skin-issues&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=can-old-bedroom-dresser-cause-skin-issues&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your old bedroom dresser could be more than just a piece of furniture? What if it’s quietly affecting your skin without you even realizing it?**

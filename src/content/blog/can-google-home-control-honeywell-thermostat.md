@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Google Home Control Honeywell Thermostat? Ultimate Guide!"
 description: "Are you wondering if your Google Home can control your Honeywell thermostat? Imagine adjusting the temperature in your home without lifting a finger—just by spe"
 pubDate: 2025-10-15

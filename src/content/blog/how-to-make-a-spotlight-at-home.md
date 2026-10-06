@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Spotlight at Home: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to add a bright, focused light to your room but didn’t want to spend a lot of money? Making a spotlight at home is easier than you think. W"
+title: 'How to Make a Spotlight at Home: Easy DIY Guide for Beginners'
+description: Have you ever wanted to add a bright, focused light to your room but
+  didn’t want to spend a lot of money? Making a spotlight at home is easier than you
+  think. W
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-spotlight-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-spotlight-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted to add a bright, focused light to your room but didn’t want to spend a lot of money? Making a spotlight at home is easier than you think.**

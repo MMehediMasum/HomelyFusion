@@ -1,10 +1,14 @@
 ---
-title: "Online Home Furniture Store: Top Stylish Storage & Decor Solutions"
-description: "Discover the perfect blend of style and functionality at an online home furniture store. Transform your space with ease. Online home furniture stores offer a co"
+title: 'Online Home Furniture Store: Top Stylish Storage & Decor Solutions'
+description: Discover the perfect blend of style and functionality at an online home
+  furniture store. Transform your space with ease. Online home furniture stores offer
+  a co
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=online-home-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=online-home-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the perfect blend of style and functionality at an online home furniture store. Transform your space with ease.**

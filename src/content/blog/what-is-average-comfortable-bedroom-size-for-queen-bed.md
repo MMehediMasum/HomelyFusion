@@ -1,10 +1,13 @@
 ---
-title: "What is Average Comfortable Bedroom Size for Queen Bed: Ideal Space Guide"
-description: "Are you planning to buy a queen bed but unsure how much space you actually need? Finding the right bedroom size is key to making your room feel cozy, comfortabl"
+title: 'What is Average Comfortable Bedroom Size for Queen Bed: Ideal Space Guide'
+description: Are you planning to buy a queen bed but unsure how much space you actually
+  need? Finding the right bedroom size is key to making your room feel cozy, comfortabl
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-average-comfortable-bedroom-size-for-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-average-comfortable-bedroom-size-for-queen-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to buy a queen bed but unsure how much space you actually need? Finding the right bedroom size is key to making your room feel cozy, comfortable, and easy to move around in.**

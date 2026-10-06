@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Trees: Top Artificial Plants to Elevate Your Indoor Decor"
-description: "Home goods trees bring nature’s beauty indoors without the hassle of care. These lifelike artificial trees brighten any space with lasting greenery. Artificial "
+title: 'Home Goods Trees: Top Artificial Plants to Elevate Your Indoor Decor'
+description: 'Home goods trees bring nature’s beauty indoors without the hassle of
+  care. These lifelike artificial trees brighten any space with lasting greenery.
+  Artificial '
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-trees&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods trees bring nature’s beauty indoors without the hassle of care. These lifelike artificial trees brighten any space with lasting greenery.**

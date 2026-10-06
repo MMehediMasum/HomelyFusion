@@ -1,10 +1,13 @@
 ---
-title: "How to Install Wall Panels: Easy Steps for Stunning Results"
-description: "Are you looking to transform your space quickly and affordably? Installing wall panels might be the perfect solution. Imagine giving your walls a fresh, stylish"
+title: 'How to Install Wall Panels: Easy Steps for Stunning Results'
+description: Are you looking to transform your space quickly and affordably? Installing
+  wall panels might be the perfect solution. Imagine giving your walls a fresh, stylish
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space quickly and affordably? Installing wall panels might be the perfect solution.**

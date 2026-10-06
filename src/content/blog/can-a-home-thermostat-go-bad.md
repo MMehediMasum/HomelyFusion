@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Home Thermostat Go Bad: Signs You Must Know Now"
 description: "Have you ever wondered if your home thermostat can go bad? You rely on it every day to keep your home comfortable, but what happens when it stops working right?"
 pubDate: 2026-04-09

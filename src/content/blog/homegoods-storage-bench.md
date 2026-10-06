@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Storage Bench: Stylish Seating with Hidden Storage Solutions"
-description: "Discover the perfect blend of style and functionality with a homegoods storage bench. These benches offer versatile storage solutions for every room. Homegoods "
+title: 'Homegoods Storage Bench: Stylish Seating with Hidden Storage Solutions'
+description: 'Discover the perfect blend of style and functionality with a homegoods
+  storage bench. These benches offer versatile storage solutions for every room. Homegoods '
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-storage-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-storage-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Discover the perfect blend of style and functionality with a homegoods storage bench. These benches offer versatile storage solutions for every room.**

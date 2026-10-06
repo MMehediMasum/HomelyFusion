@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Decor for Bedroom: Stylish Mirrors, Lights, and Unique Organizers"
-description: "Choosing the best wall decor for your bedroom can transform the space into a cozy, stylish retreat. Simple additions make a big difference in how your room feel"
+title: 'Best Wall Decor for Bedroom: Stylish Mirrors, Lights, and Unique Organizers'
+description: Choosing the best wall decor for your bedroom can transform the space
+  into a cozy, stylish retreat. Simple additions make a big difference in how your
+  room feel
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-decor-for-bedroom-stylish-mirrors-lights-and-unique-organizers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-decor-for-bedroom-stylish-mirrors-lights-and-unique-organizers&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best wall decor for your bedroom can transform the space into a cozy, stylish retreat. Simple additions make a big difference in how your room feels and looks.**

@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Wall Cabinet Ideas: Stylish Storage Solutions for Every Bath"
-description: "Looking to transform your bathroom without a full renovation? A bathroom wall cabinet is the perfect solution to add style and storage in one simple step. Imagi"
+title: 'Bathroom Wall Cabinet Ideas: Stylish Storage Solutions for Every Bath'
+description: Looking to transform your bathroom without a full renovation? A bathroom
+  wall cabinet is the perfect solution to add style and storage in one simple step.
+  Imagi
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-wall-cabinet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-wall-cabinet-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking to transform your bathroom without a full renovation? A bathroom wall cabinet is the perfect solution to add style and storage in one simple step.**

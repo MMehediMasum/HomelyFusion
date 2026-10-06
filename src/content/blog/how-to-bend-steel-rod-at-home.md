@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Rod at Home: Easy & Safe DIY Techniques"
 description: "Have you ever needed to bend a steel rod but didn’t know where to start? Whether you're working on a DIY project or fixing something around your home, bending s"
 pubDate: 2026-04-06

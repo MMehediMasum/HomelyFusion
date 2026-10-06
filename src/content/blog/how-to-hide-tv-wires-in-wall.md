@@ -1,10 +1,14 @@
 ---
-title: "How to Hide Tv Wires in Wall: Easy Tricks for a Clean Look"
-description: "Are you tired of seeing messy TV wires ruining the sleek look of your living room? Wires hanging down can distract from your beautiful setup and make your space"
+title: 'How to Hide Tv Wires in Wall: Easy Tricks for a Clean Look'
+description: Are you tired of seeing messy TV wires ruining the sleek look of your
+  living room? Wires hanging down can distract from your beautiful setup and make
+  your space
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-tv-wires-in-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-tv-wires-in-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of seeing messy TV wires ruining the sleek look of your living room? Wires hanging down can distract from your beautiful setup and make your space feel cluttered.**

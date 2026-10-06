@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Dining Room: Top Washable, Non-Slip, Stylish Area Rugs"
-description: "Choosing the best rug for a dining room enhances comfort and style. It also protects floors from spills and scratches. A dining room rug must handle heavy traff"
+title: 'Best Rug for Dining Room: Top Washable, Non-Slip, Stylish Area Rugs'
+description: Choosing the best rug for a dining room enhances comfort and style. It
+  also protects floors from spills and scratches. A dining room rug must handle heavy
+  traff
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-dining-room-top-washable-non-slip-stylish-area-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-dining-room-top-washable-non-slip-stylish-area-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for a dining room enhances comfort and style. It also protects floors from spills and scratches.**

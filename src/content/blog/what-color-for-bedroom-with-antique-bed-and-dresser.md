@@ -1,10 +1,14 @@
 ---
-title: "What Color for Bedroom With Antique Bed And Dresser: Timeless Elegance Tips"
-description: "Choosing the perfect color for your bedroom can transform the entire space, especially when you have a beautiful antique bed and dresser. You want a color that "
+title: 'What Color for Bedroom With Antique Bed And Dresser: Timeless Elegance Tips'
+description: 'Choosing the perfect color for your bedroom can transform the entire
+  space, especially when you have a beautiful antique bed and dresser. You want a
+  color that '
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-for-bedroom-with-antique-bed-and-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=what-color-for-bedroom-with-antique-bed-and-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect color for your bedroom can transform the entire space, especially when you have a beautiful antique bed and dresser. You want a color that highlights these timeless pieces without overwhelming them.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Foyer Table: Stunning Ideas to Impress Guests"
-description: "Your foyer table is the first thing guests see when they enter your home. It’s more than just a piece of furniture—it’s a chance to make a great first impressio"
+title: 'How to Decorate a Foyer Table: Stunning Ideas to Impress Guests'
+description: Your foyer table is the first thing guests see when they enter your home.
+  It’s more than just a piece of furniture—it’s a chance to make a great first impressio
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-foyer-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-foyer-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your foyer table is the first thing guests see when they enter your home. It’s more than just a piece of furniture—it’s a chance to make a great first impression.**

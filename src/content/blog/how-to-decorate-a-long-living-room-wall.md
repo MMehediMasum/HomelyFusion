@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Living Room Wall: Stunning Ideas That Wow"
-description: "Your long living room wall can feel like a challenge. It’s easy to let it stay empty or cluttered, leaving your space feeling unfinished or overwhelming. But wh"
+title: 'How to Decorate a Long Living Room Wall: Stunning Ideas That Wow'
+description: Your long living room wall can feel like a challenge. It’s easy to let
+  it stay empty or cluttered, leaving your space feeling unfinished or overwhelming.
+  But wh
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-living-room-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-living-room-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your long living room wall can feel like a challenge. It’s easy to let it stay empty or cluttered, leaving your space feeling unfinished or overwhelming.**

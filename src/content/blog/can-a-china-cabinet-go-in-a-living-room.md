@@ -1,10 +1,14 @@
 ---
-title: "Can a China Cabinet Go in a Living Room: Stunning Decor Ideas"
-description: "Are you wondering if a China cabinet can fit perfectly in your living room? You might think it belongs only in the dining room, but what if it could add style a"
+title: 'Can a China Cabinet Go in a Living Room: Stunning Decor Ideas'
+description: Are you wondering if a China cabinet can fit perfectly in your living
+  room? You might think it belongs only in the dining room, but what if it could add
+  style a
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-china-cabinet-go-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=can-a-china-cabinet-go-in-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if a China cabinet can fit perfectly in your living room? You might think it belongs only in the dining room, but what if it could add style and function right where you relax and entertain?**

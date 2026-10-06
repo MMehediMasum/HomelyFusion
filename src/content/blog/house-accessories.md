@@ -1,10 +1,14 @@
 ---
-title: "House Accessories That Transform Your Home with Style and Function"
-description: "House accessories add style and function to any room in your home. They help create a cozy, organized, and inviting space. Small items like bathroom rugs, decor"
+title: House Accessories That Transform Your Home with Style and Function
+description: House accessories add style and function to any room in your home. They
+  help create a cozy, organized, and inviting space. Small items like bathroom rugs,
+  decor
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=house-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- House Accessories
+heroImage: https://tse1.mm.bing.net/th?q=house-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **House accessories add style and function to any room in your home. They help create a cozy, organized, and inviting space.**

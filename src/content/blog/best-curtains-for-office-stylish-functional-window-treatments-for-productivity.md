@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Office: Stylish, Functional Window Treatments for Productivity"
-description: "Choosing the best curtains for office spaces improves comfort and boosts productivity. Curtains control light, add privacy, and enhance décor. Office curtains m"
+title: 'Best Curtains for Office: Stylish, Functional Window Treatments for Productivity'
+description: Choosing the best curtains for office spaces improves comfort and boosts
+  productivity. Curtains control light, add privacy, and enhance décor. Office curtains
+  m
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-office-stylish-functional-window-treatments-for-productivity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-office-stylish-functional-window-treatments-for-productivity&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for office spaces improves comfort and boosts productivity. Curtains control light, add privacy, and enhance décor.**

@@ -1,10 +1,14 @@
 ---
-title: "Cool Living Room Accessories to Transform Your Space with Style"
-description: "Cool living room accessories add style and comfort without clutter. They brighten your space and make everyday life easier. Choosing the right accessories can t"
+title: Cool Living Room Accessories to Transform Your Space with Style
+description: Cool living room accessories add style and comfort without clutter. They
+  brighten your space and make everyday life easier. Choosing the right accessories
+  can t
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cool-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cool living room accessories add style and comfort without clutter. They brighten your space and make everyday life easier.**

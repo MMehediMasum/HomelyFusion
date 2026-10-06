@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Plants for Outdoors: Top UV Resistant Faux Greenery Picks"
-description: "Artificial plants add lasting beauty to outdoor spaces without much care. They stay green and vibrant in sun and rain. Choosing the best artificial plants for o"
+title: 'Best Artificial Plants for Outdoors: Top UV Resistant Faux Greenery Picks'
+description: Artificial plants add lasting beauty to outdoor spaces without much care.
+  They stay green and vibrant in sun and rain. Choosing the best artificial plants
+  for o
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-plants-for-outdoors-top-uv-resistant-faux-greenery-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-plants-for-outdoors-top-uv-resistant-faux-greenery-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial plants add lasting beauty to outdoor spaces without much care. They stay green and vibrant in sun and rain.**

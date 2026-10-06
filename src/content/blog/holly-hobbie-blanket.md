@@ -1,10 +1,14 @@
 ---
-title: "Holly Hobbie Blanket: Ultra-Soft Comfort for Cozy Home Relaxation"
-description: "The Holly Hobbie Blanket offers cozy warmth and charming design for any room. Its soft fleece fabric makes it perfect for relaxing at home or on the go. This bl"
+title: 'Holly Hobbie Blanket: Ultra-Soft Comfort for Cozy Home Relaxation'
+description: The Holly Hobbie Blanket offers cozy warmth and charming design for any
+  room. Its soft fleece fabric makes it perfect for relaxing at home or on the go.
+  This bl
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holly-hobbie-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=holly-hobbie-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Holly Hobbie Blanket offers cozy warmth and charming design for any room. Its soft fleece fabric makes it perfect for relaxing at home or on the go.**

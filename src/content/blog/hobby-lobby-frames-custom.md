@@ -1,10 +1,13 @@
 ---
-title: "Hobby Lobby Frames Custom: Unique Personalized Picture Frames for Every Occasion"
-description: "Hobby Lobby offers a wide range of custom frames to enhance your cherished memories. Whether you want wood, metal, or personalized engravings, there's something"
+title: 'Hobby Lobby Frames Custom: Unique Personalized Picture Frames for Every Occasion'
+description: Hobby Lobby offers a wide range of custom frames to enhance your cherished
+  memories. Whether you want wood, metal, or personalized engravings, there's something
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-frames-custom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-frames-custom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hobby Lobby offers a wide range of custom frames to enhance your cherished memories. Whether you want wood, metal, or personalized engravings, there's something for everyone.**

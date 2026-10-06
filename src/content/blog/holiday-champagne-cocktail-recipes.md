@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Champagne Cocktail Recipes: Festive & Sparkling Sips"
 description: "Looking to add sparkle and joy to your holiday celebrations? You’ve come to the right place. Holiday champagne cocktail recipes are the perfect way to impress y"
 pubDate: 2026-01-20

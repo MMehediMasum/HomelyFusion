@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Small Bedroom With Queen Bed: Smart Space Hacks"
-description: "Is your small bedroom feeling cramped with a queen bed taking up most of the space? You’re not alone, and the good news is, you can make your room feel bigger a"
+title: 'How to Organize Small Bedroom With Queen Bed: Smart Space Hacks'
+description: Is your small bedroom feeling cramped with a queen bed taking up most
+  of the space? You’re not alone, and the good news is, you can make your room feel
+  bigger a
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-small-bedroom-with-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-small-bedroom-with-queen-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your small bedroom feeling cramped with a queen bed taking up most of the space? You’re not alone, and the good news is, you can make your room feel bigger and more organized without moving or buying a smaller bed.**

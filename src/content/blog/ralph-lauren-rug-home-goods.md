@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Rug Home Goods: Stylish, Durable Rugs for Every Room"
-description: "Ralph Lauren rugs add style and comfort to any home space. Their designs blend classic charm with modern durability. Ralph Lauren rug home goods offer a variety"
+title: 'Ralph Lauren Rug Home Goods: Stylish, Durable Rugs for Every Room'
+description: Ralph Lauren rugs add style and comfort to any home space. Their designs
+  blend classic charm with modern durability. Ralph Lauren rug home goods offer a
+  variety
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-rug-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-rug-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Ralph Lauren rugs add style and comfort to any home space. Their designs blend classic charm with modern durability.**

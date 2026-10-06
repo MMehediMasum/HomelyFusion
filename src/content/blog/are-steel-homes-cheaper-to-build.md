@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Steel Homes Cheaper to Build: Uncover the True Cost Benefits"
 description: "Are you thinking about building a new home but worried about the costs? You might have heard about steel homes as an option, but are they really cheaper to buil"
 pubDate: 2026-04-04

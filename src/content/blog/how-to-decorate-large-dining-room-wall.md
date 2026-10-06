@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Large Dining Room Wall: Stunning Ideas That Impress"
-description: "Your large dining room wall is a blank canvas full of potential. But decorating it can feel overwhelming. How do you fill such a big space without making it loo"
+title: 'How to Decorate Large Dining Room Wall: Stunning Ideas That Impress'
+description: Your large dining room wall is a blank canvas full of potential. But
+  decorating it can feel overwhelming. How do you fill such a big space without making
+  it loo
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-large-dining-room-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-large-dining-room-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your large dining room wall is a blank canvas full of potential. But decorating it can feel overwhelming.**

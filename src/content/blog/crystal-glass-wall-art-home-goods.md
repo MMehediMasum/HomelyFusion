@@ -1,10 +1,13 @@
 ---
-title: "Crystal Glass Wall Art Home Goods: Stunning Decor Ideas for Every Room"
-description: "Crystal glass wall art adds elegance and charm to any home. It's a versatile decor choice for various spaces. Crystal glass wall art offers a unique way to enha"
+title: 'Crystal Glass Wall Art Home Goods: Stunning Decor Ideas for Every Room'
+description: Crystal glass wall art adds elegance and charm to any home. It's a versatile
+  decor choice for various spaces. Crystal glass wall art offers a unique way to enha
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=crystal-glass-wall-art-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=crystal-glass-wall-art-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Crystal glass wall art adds elegance and charm to any home. It's a versatile decor choice for various spaces.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Pit Fire Clay at Home: Easy Steps for Perfect Results"
-description: "Have you ever wanted to create your own pottery with that rich, natural clay right from your backyard? Learning how to pit fire clay at home can be a rewarding "
+title: 'How to Pit Fire Clay at Home: Easy Steps for Perfect Results'
+description: 'Have you ever wanted to create your own pottery with that rich, natural
+  clay right from your backyard? Learning how to pit fire clay at home can be a rewarding '
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pit-fire-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pit-fire-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own pottery with that rich, natural clay right from your backyard? Learning how to pit fire clay at home can be a rewarding experience that brings your creative projects to life.**

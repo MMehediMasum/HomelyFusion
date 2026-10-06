@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Bathroom Accessories: Stylish Storage and Organization Solutions"
-description: "Transforming your bathroom into an organized and stylish space can be simple with the right accessories. Homegoods offers a variety of bathroom essentials that "
+title: 'Homegoods Bathroom Accessories: Stylish Storage and Organization Solutions'
+description: 'Transforming your bathroom into an organized and stylish space can be
+  simple with the right accessories. Homegoods offers a variety of bathroom essentials
+  that '
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bathroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bathroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transforming your bathroom into an organized and stylish space can be simple with the right accessories. Homegoods offers a variety of bathroom essentials that blend functionality with design.**

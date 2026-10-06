@@ -1,10 +1,13 @@
 ---
-title: "How to Hang a Wall Hanging Tapestry: Easy Steps for Stunning Decor"
-description: "Are you ready to transform your space with a beautiful wall hanging tapestry but unsure where to start? Hanging a tapestry might seem tricky, but with the right"
+title: 'How to Hang a Wall Hanging Tapestry: Easy Steps for Stunning Decor'
+description: Are you ready to transform your space with a beautiful wall hanging tapestry
+  but unsure where to start? Hanging a tapestry might seem tricky, but with the right
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-hanging-tapestry&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-hanging-tapestry&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a beautiful wall hanging tapestry but unsure where to start? Hanging a tapestry might seem tricky, but with the right steps, you can easily turn any blank wall into a stunning focal point.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Full Length Mirror in Bedroom: Expert Tips & Ideas"
-description: "Where you place a full-length mirror in your bedroom can change the whole vibe of your space. It’s not just about finding a spot to see your outfit from head to"
+title: 'Where to Place Full Length Mirror in Bedroom: Expert Tips & Ideas'
+description: Where you place a full-length mirror in your bedroom can change the whole
+  vibe of your space. It’s not just about finding a spot to see your outfit from head
+  to
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-full-length-mirror-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-full-length-mirror-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Where you place a full-length mirror in your bedroom can change the whole vibe of your space. It’s not just about finding a spot to see your outfit from head to toe.**

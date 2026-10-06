@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Showroom: Top Picks for Stylish Home Flooring Decor"
 description: "A Floor and Decor showroom offers a wide range of flooring and home decor items. It provides customers with quality products for every room in the house. This s"
 pubDate: 2026-07-29

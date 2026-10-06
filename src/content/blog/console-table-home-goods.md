@@ -1,10 +1,13 @@
 ---
-title: "Console Table Home Goods: Stylish Storage and Charging Solutions for Entryways"
-description: "Console tables add style and functionality to any home. They offer convenient storage and enhance your living space. Console tables are versatile, fitting perfe"
+title: 'Console Table Home Goods: Stylish Storage and Charging Solutions for Entryways'
+description: Console tables add style and functionality to any home. They offer convenient
+  storage and enhance your living space. Console tables are versatile, fitting perfe
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=console-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=console-table-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Console tables add style and functionality to any home. They offer convenient storage and enhance your living space.**

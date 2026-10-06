@@ -1,10 +1,14 @@
 ---
-title: "How to Make Homemade Eggnog: Easy, Creamy & Festive Recipe"
-description: "Are you ready to create a creamy, rich treat that brings warmth to any holiday gathering? Making homemade eggnog is easier than you think, and once you try it, "
+title: 'How to Make Homemade Eggnog: Easy, Creamy & Festive Recipe'
+description: 'Are you ready to create a creamy, rich treat that brings warmth to any
+  holiday gathering? Making homemade eggnog is easier than you think, and once you
+  try it, '
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-homemade-eggnog&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-homemade-eggnog&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create a creamy, rich treat that brings warmth to any holiday gathering? Making homemade eggnog is easier than you think, and once you try it, you’ll never want to buy store-bought again.**

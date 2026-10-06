@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Wall Panels: Transform Your Space with Stylish 3D Tiles"
-description: "Floor and Decor wall panels offer easy ways to update your home's look. These panels add texture and style to any room quickly. Wall panels from Floor and Decor"
+title: 'Floor And Decor Wall Panels: Transform Your Space with Stylish 3D Tiles'
+description: Floor and Decor wall panels offer easy ways to update your home's look.
+  These panels add texture and style to any room quickly. Wall panels from Floor and
+  Decor
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-wall-panels&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor wall panels offer easy ways to update your home's look. These panels add texture and style to any room quickly.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Paint a Wall Corner: Expert Tips for a Flawless Finish"
-description: "Are you ready to give your room a fresh, new look? Painting a wall corner might seem tricky, but with the right steps, you can do it like a pro. Imagine transfo"
+title: 'How to Paint a Wall Corner: Expert Tips for a Flawless Finish'
+description: Are you ready to give your room a fresh, new look? Painting a wall corner
+  might seem tricky, but with the right steps, you can do it like a pro. Imagine transfo
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-corner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-corner&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your room a fresh, new look? Painting a wall corner might seem tricky, but with the right steps, you can do it like a pro.**

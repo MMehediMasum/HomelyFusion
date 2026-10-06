@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Scalloped Chair: Stylish Velvet Accent Chairs for Every Room"
-description: "Tj Maxx scalloped chairs offer stylish seating with unique curved designs. These chairs blend comfort and elegance for any room. Scalloped chairs at Tj Maxx com"
+title: 'Tj Maxx Scalloped Chair: Stylish Velvet Accent Chairs for Every Room'
+description: Tj Maxx scalloped chairs offer stylish seating with unique curved designs.
+  These chairs blend comfort and elegance for any room. Scalloped chairs at Tj Maxx
+  com
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-scalloped-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-scalloped-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Tj Maxx scalloped chairs offer stylish seating with unique curved designs. These chairs blend comfort and elegance for any room.**

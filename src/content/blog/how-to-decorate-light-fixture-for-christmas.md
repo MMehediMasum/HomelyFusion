@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Light Fixture for Christmas: Stunning Festive Ideas"
-description: "Are you ready to make your home shine brighter this Christmas? Decorating your light fixtures is one of the easiest ways to add a magical touch to your holiday "
+title: 'How to Decorate Light Fixture for Christmas: Stunning Festive Ideas'
+description: 'Are you ready to make your home shine brighter this Christmas? Decorating
+  your light fixtures is one of the easiest ways to add a magical touch to your holiday '
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-light-fixture-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-light-fixture-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your home shine brighter this Christmas? Decorating your light fixtures is one of the easiest ways to add a magical touch to your holiday décor.**

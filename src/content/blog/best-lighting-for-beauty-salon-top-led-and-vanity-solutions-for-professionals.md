@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Beauty Salon: Top LED and Vanity Solutions for Professionals"
-description: "Choosing the best lighting for a beauty salon boosts service quality and client comfort. Proper lighting helps professionals see details clearly and creates a w"
+title: 'Best Lighting for Beauty Salon: Top LED and Vanity Solutions for Professionals'
+description: Choosing the best lighting for a beauty salon boosts service quality
+  and client comfort. Proper lighting helps professionals see details clearly and
+  creates a w
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-beauty-salon-top-led-and-vanity-solutions-for-professionals&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-beauty-salon-top-led-and-vanity-solutions-for-professionals&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for a beauty salon boosts service quality and client comfort. Proper lighting helps professionals see details clearly and creates a welcoming space.**

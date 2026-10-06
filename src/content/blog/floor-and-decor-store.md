@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Store Finds: Stylish Home Essentials for Every Room"
-description: "Floor and Decor stores offer a vast selection of home improvement products. They focus on flooring, decor, and more. From mirrors to kitchen mats, these stores "
+title: 'Floor And Decor Store Finds: Stylish Home Essentials for Every Room'
+description: 'Floor and Decor stores offer a vast selection of home improvement products.
+  They focus on flooring, decor, and more. From mirrors to kitchen mats, these stores '
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor stores offer a vast selection of home improvement products. They focus on flooring, decor, and more.**

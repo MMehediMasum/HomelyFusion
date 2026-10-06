@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Custom Bathroom Vanity: Step-by-Step Guide"
-description: "Are you tired of searching for the perfect bathroom vanity that fits your style and space? What if you could create one yourself, tailored exactly to your needs"
+title: 'How to Build a Custom Bathroom Vanity: Step-by-Step Guide'
+description: Are you tired of searching for the perfect bathroom vanity that fits
+  your style and space? What if you could create one yourself, tailored exactly to
+  your needs
 pubDate: 2025-10-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-custom-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-custom-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of searching for the perfect bathroom vanity that fits your style and space? What if you could create one yourself, tailored exactly to your needs?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Large Blank Wall: Stunning Ideas That Transform"
-description: "Is your large blank wall staring back at you, feeling a bit too empty? You’re not alone. Filling that vast space can feel overwhelming, but it’s also a chance t"
+title: 'How to Decorate a Large Blank Wall: Stunning Ideas That Transform'
+description: Is your large blank wall staring back at you, feeling a bit too empty?
+  You’re not alone. Filling that vast space can feel overwhelming, but it’s also a
+  chance t
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-blank-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-blank-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your large blank wall staring back at you, feeling a bit too empty? You’re not alone.**

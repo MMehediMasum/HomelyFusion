@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Glass Tile Cleaning Tools for Sparkling Surfaces"
-description: "Floor and Decor glass tile offers a stylish and durable option for home surfaces. These tiles bring shine and easy cleaning to kitchens, bathrooms, and more. Gl"
+title: Floor And Decor Glass Tile Cleaning Tools for Sparkling Surfaces
+description: Floor and Decor glass tile offers a stylish and durable option for home
+  surfaces. These tiles bring shine and easy cleaning to kitchens, bathrooms, and
+  more. Gl
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-glass-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-glass-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor glass tile offers a stylish and durable option for home surfaces. These tiles bring shine and easy cleaning to kitchens, bathrooms, and more.**

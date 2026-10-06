@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Decorate Therapy Office: Create a Calm, Inviting Space"
 description: "Your therapy office is more than just a workspace—it’s a place where comfort, trust, and healing begin. How you decorate this space can deeply influence your cl"
 pubDate: 2025-09-13

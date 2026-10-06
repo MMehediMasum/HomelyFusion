@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 10X12: Stylish, Washable, and Stain-Resistant Area Rugs"
-description: "Home Goods Rugs 10x12 offer the perfect size for large rooms and open spaces. These rugs combine style, comfort, and easy care for everyday use. A 10x12 rug fit"
+title: 'Home Goods Rugs 10X12: Stylish, Washable, and Stain-Resistant Area Rugs'
+description: Home Goods Rugs 10x12 offer the perfect size for large rooms and open
+  spaces. These rugs combine style, comfort, and easy care for everyday use. A 10x12
+  rug fit
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-10x12&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-10x12&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Goods Rugs 10x12 offer the perfect size for large rooms and open spaces. These rugs combine style, comfort, and easy care for everyday use.**

@@ -1,10 +1,15 @@
 ---
-title: "Cheap Apartment Accessories: Stylish Storage and Kitchen Essentials Under Budget"
-description: "Decorating your apartment on a budget doesn't mean sacrificing style. Affordable accessories can transform your space effortlessly. Finding the right apartment "
+title: 'Cheap Apartment Accessories: Stylish Storage and Kitchen Essentials Under
+  Budget'
+description: 'Decorating your apartment on a budget doesn''t mean sacrificing style.
+  Affordable accessories can transform your space effortlessly. Finding the right
+  apartment '
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-apartment-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- House Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cheap-apartment-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorating your apartment on a budget doesn't mean sacrificing style. Affordable accessories can transform your space effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best String Lights for Bedroom to Create Cozy, Magical Ambiance"
-description: "String lights create a cozy, warm feel in any bedroom. They add soft lighting and charm without much effort. Choosing the best string lights for your bedroom ca"
+title: Best String Lights for Bedroom to Create Cozy, Magical Ambiance
+description: String lights create a cozy, warm feel in any bedroom. They add soft
+  lighting and charm without much effort. Choosing the best string lights for your
+  bedroom ca
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-string-lights-for-bedroom-to-create-cozy-magical-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-string-lights-for-bedroom-to-create-cozy-magical-ambiance&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **String lights create a cozy, warm feel in any bedroom. They add soft lighting and charm without much effort.**

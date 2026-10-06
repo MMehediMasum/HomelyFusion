@@ -1,10 +1,14 @@
 ---
-title: "Do Feit Bulbs Work With Google Home: Ultimate Smart Lighting Guide"
-description: "Are you thinking about upgrading your home lighting and wondering if Feit bulbs work with Google Home? You want smart lights that respond quickly and easily to "
+title: 'Do Feit Bulbs Work With Google Home: Ultimate Smart Lighting Guide'
+description: 'Are you thinking about upgrading your home lighting and wondering if
+  Feit bulbs work with Google Home? You want smart lights that respond quickly and
+  easily to '
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-feit-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=do-feit-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you thinking about upgrading your home lighting and wondering if Feit bulbs work with Google Home? You want smart lights that respond quickly and easily to your voice commands, making life simpler and more comfortable.**

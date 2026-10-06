@@ -1,10 +1,14 @@
 ---
-title: "Christmas Hot Chocolate Bar Setup: Ultimate Guide for Festive Fun"
-description: "Imagine creating a cozy spot at your holiday gathering where everyone can customize their own cup of warm, delicious hot chocolate. A Christmas Hot Chocolate Ba"
+title: 'Christmas Hot Chocolate Bar Setup: Ultimate Guide for Festive Fun'
+description: Imagine creating a cozy spot at your holiday gathering where everyone
+  can customize their own cup of warm, delicious hot chocolate. A Christmas Hot Chocolate
+  Ba
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-hot-chocolate-bar-setup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-hot-chocolate-bar-setup&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine creating a cozy spot at your holiday gathering where everyone can customize their own cup of warm, delicious hot chocolate. A Christmas Hot Chocolate Bar Setup is the perfect way to bring joy, laughter, and sweet memories to your celebration.**

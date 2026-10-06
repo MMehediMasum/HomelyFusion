@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate My Bedroom: Stunning Ideas for a Cozy Retreat"
-description: "Are you ready to transform your bedroom into a space that truly feels like your own? Decorating your bedroom isn’t just about picking colors or furniture—it’s a"
+title: 'How to Decorate My Bedroom: Stunning Ideas for a Cozy Retreat'
+description: Are you ready to transform your bedroom into a space that truly feels
+  like your own? Decorating your bedroom isn’t just about picking colors or furniture—it’s
+  a
 pubDate: 2025-10-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-my-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-my-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bedroom into a space that truly feels like your own? Decorating your bedroom isn’t just about picking colors or furniture—it’s about creating a place where you can relax, recharge, and be yourself.**

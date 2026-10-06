@@ -1,10 +1,14 @@
 ---
-title: "Can I Have All Recliners in My Living Room? Stylish Comfort Tips"
-description: "Have you ever wondered if you can fill your entire living room with recliners? Imagine sinking into comfort no matter where you sit, having every seat ready to "
+title: Can I Have All Recliners in My Living Room? Stylish Comfort Tips
+description: 'Have you ever wondered if you can fill your entire living room with
+  recliners? Imagine sinking into comfort no matter where you sit, having every seat
+  ready to '
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-have-all-recliners-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=can-i-have-all-recliners-in-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if you can fill your entire living room with recliners? Imagine sinking into comfort no matter where you sit, having every seat ready to relax your body after a long day.**

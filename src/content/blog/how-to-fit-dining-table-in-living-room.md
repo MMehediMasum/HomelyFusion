@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Dining Table in Living Room: Smart Space-Saving Tips"
-description: "Struggling to find the perfect spot for your dining table in your living room? You’re not alone. Many people face this challenge and worry about making the spac"
+title: 'How to Fit Dining Table in Living Room: Smart Space-Saving Tips'
+description: Struggling to find the perfect spot for your dining table in your living
+  room? You’re not alone. Many people face this challenge and worry about making the
+  spac
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-dining-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to find the perfect spot for your dining table in your living room? You’re not alone.**

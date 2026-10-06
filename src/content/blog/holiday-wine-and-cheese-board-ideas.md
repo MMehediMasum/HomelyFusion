@@ -1,10 +1,14 @@
 ---
-title: "Holiday Wine And Cheese Board Ideas: Stunning Pairings for Festive Cheers"
-description: "Looking to impress your guests this holiday season with a simple yet stunning wine and cheese board? You’ve come to the right place. Whether you’re hosting a co"
+title: 'Holiday Wine And Cheese Board Ideas: Stunning Pairings for Festive Cheers'
+description: Looking to impress your guests this holiday season with a simple yet
+  stunning wine and cheese board? You’ve come to the right place. Whether you’re hosting
+  a co
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-wine-and-cheese-board-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-wine-and-cheese-board-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to impress your guests this holiday season with a simple yet stunning wine and cheese board? You’ve come to the right place.**

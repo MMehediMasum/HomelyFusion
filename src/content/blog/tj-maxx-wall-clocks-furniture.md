@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Wall Clocks Furniture: Stylish Silent Clocks for Every Room"
-description: "Tj Maxx offers a diverse range of wall clocks that combine functionality with style. Perfect for any room in your home. Wall clocks from Tj Maxx cater to every "
+title: 'Tj Maxx Wall Clocks Furniture: Stylish Silent Clocks for Every Room'
+description: 'Tj Maxx offers a diverse range of wall clocks that combine functionality
+  with style. Perfect for any room in your home. Wall clocks from Tj Maxx cater to
+  every '
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-wall-clocks-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-wall-clocks-furniture&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Tj Maxx offers a diverse range of wall clocks that combine functionality with style. Perfect for any room in your home.**

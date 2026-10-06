@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate With a Black Couch: Stunning Style Tips"
-description: "A black couch is more than just a piece of furniture—it’s a bold statement that can transform your entire living space. But decorating around it can feel tricky"
+title: 'How to Decorate With a Black Couch: Stunning Style Tips'
+description: A black couch is more than just a piece of furniture—it’s a bold statement
+  that can transform your entire living space. But decorating around it can feel tricky
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-a-black-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-a-black-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A black couch is more than just a piece of furniture—it’s a bold statement that can transform your entire living space. But decorating around it can feel tricky if you’re not sure where to start.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With a Recliner: Stylish Tips Revealed"
-description: "Are you wondering how to make your living room both stylish and super comfortable? Adding a recliner is a fantastic way to create a cozy spot for relaxation. Bu"
+title: 'How to Decorate a Living Room With a Recliner: Stylish Tips Revealed'
+description: Are you wondering how to make your living room both stylish and super
+  comfortable? Adding a recliner is a fantastic way to create a cozy spot for relaxation.
+  Bu
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-recliner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-recliner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room both stylish and super comfortable? Adding a recliner is a fantastic way to create a cozy spot for relaxation.**

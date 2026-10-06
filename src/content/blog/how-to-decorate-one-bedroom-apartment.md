@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate One Bedroom Apartment: Stunning Small Space Ideas"
-description: "Living in a one-bedroom apartment can feel cozy, but decorating it the right way can make it truly shine. You want your space to be comfortable, stylish, and re"
+title: 'How to Decorate One Bedroom Apartment: Stunning Small Space Ideas'
+description: Living in a one-bedroom apartment can feel cozy, but decorating it the
+  right way can make it truly shine. You want your space to be comfortable, stylish,
+  and re
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-one-bedroom-apartment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-one-bedroom-apartment&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Living in a one-bedroom apartment can feel cozy, but decorating it the right way can make it truly shine. You want your space to be comfortable, stylish, and reflect your personality—all without feeling cramped.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reupholster a Living Room Chair Cushion: Easy DIY Guide"
-description: "Is your living room chair cushion looking worn out or outdated? You don’t need to buy a new one to give your space a fresh look. Reupholstering your chair cushi"
+title: 'How to Reupholster a Living Room Chair Cushion: Easy DIY Guide'
+description: Is your living room chair cushion looking worn out or outdated? You don’t
+  need to buy a new one to give your space a fresh look. Reupholstering your chair
+  cushi
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair-cushion&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair-cushion&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room chair cushion looking worn out or outdated? You don’t need to buy a new one to give your space a fresh look.**

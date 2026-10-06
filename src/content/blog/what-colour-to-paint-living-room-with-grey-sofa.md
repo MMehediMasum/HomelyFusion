@@ -1,10 +1,13 @@
 ---
-title: "What Colour to Paint Living Room With Grey Sofa: Stunning Ideas"
-description: "Choosing the right colour to paint your living room when you have a grey sofa can feel tricky. You want a space that feels cozy, stylish, and perfectly balanced"
+title: 'What Colour to Paint Living Room With Grey Sofa: Stunning Ideas'
+description: Choosing the right colour to paint your living room when you have a grey
+  sofa can feel tricky. You want a space that feels cozy, stylish, and perfectly balanced
 pubDate: 2026-03-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-to-paint-living-room-with-grey-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-to-paint-living-room-with-grey-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right colour to paint your living room when you have a grey sofa can feel tricky. You want a space that feels cozy, stylish, and perfectly balanced.**

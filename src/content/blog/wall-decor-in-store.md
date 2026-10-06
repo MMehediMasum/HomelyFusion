@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor in Store: Top Picks for Boho, Vintage, and Faux Plants"
-description: "Explore the world of wall decor to transform your space effortlessly. Discover unique and stylish options for every room. Wall decor plays a crucial role in enh"
+title: 'Wall Decor in Store: Top Picks for Boho, Vintage, and Faux Plants'
+description: Explore the world of wall decor to transform your space effortlessly.
+  Discover unique and stylish options for every room. Wall decor plays a crucial role
+  in enh
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-in-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-in-store&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Explore the world of wall decor to transform your space effortlessly. Discover unique and stylish options for every room.**

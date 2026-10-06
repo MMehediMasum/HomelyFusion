@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Christmas Stockings: Elegant Holiday Decor for Festive Homes"
-description: "Nicole Miller Christmas stockings bring a festive touch to your holiday decor. These stockings combine elegance and tradition beautifully. From cozy velvet to i"
+title: 'Nicole Miller Christmas Stockings: Elegant Holiday Decor for Festive Homes'
+description: Nicole Miller Christmas stockings bring a festive touch to your holiday
+  decor. These stockings combine elegance and tradition beautifully. From cozy velvet
+  to i
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-christmas-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stockings
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-christmas-stockings&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Nicole Miller Christmas stockings bring a festive touch to your holiday decor. These stockings combine elegance and tradition beautifully.**

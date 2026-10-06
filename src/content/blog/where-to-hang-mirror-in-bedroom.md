@@ -1,10 +1,14 @@
 ---
-title: "Where to Hang Mirror in Bedroom: Ultimate Spots for Style & Light"
-description: "Are you wondering where to hang a mirror in your bedroom to make the space feel bigger and brighter? Choosing the right spot isn’t just about decoration—it can "
+title: 'Where to Hang Mirror in Bedroom: Ultimate Spots for Style & Light'
+description: 'Are you wondering where to hang a mirror in your bedroom to make the
+  space feel bigger and brighter? Choosing the right spot isn’t just about decoration—it
+  can '
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-hang-mirror-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-hang-mirror-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you wondering where to hang a mirror in your bedroom to make the space feel bigger and brighter? Choosing the right spot isn’t just about decoration—it can change how your whole room feels and functions.**

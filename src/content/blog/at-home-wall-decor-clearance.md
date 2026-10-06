@@ -1,10 +1,14 @@
 ---
-title: "At Home Wall Decor Clearance: Top Rustic and Boho Finds for Your Space"
-description: "Discover great deals in the At Home Wall Decor Clearance. Refresh your space with stylish, affordable wall decorations today. This clearance offers a wide range"
+title: 'At Home Wall Decor Clearance: Top Rustic and Boho Finds for Your Space'
+description: Discover great deals in the At Home Wall Decor Clearance. Refresh your
+  space with stylish, affordable wall decorations today. This clearance offers a wide
+  range
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-wall-decor-clearance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-wall-decor-clearance&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover great deals in the At Home Wall Decor Clearance. Refresh your space with stylish, affordable wall decorations today.**

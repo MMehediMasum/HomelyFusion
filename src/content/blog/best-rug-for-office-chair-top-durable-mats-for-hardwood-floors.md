@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Office Chair: Top Durable Mats for Hardwood Floors"
-description: "Choosing the best rug for your office chair can protect your floor and improve comfort. A good chair mat also helps your chair roll smoothly. Office rugs come i"
+title: 'Best Rug for Office Chair: Top Durable Mats for Hardwood Floors'
+description: Choosing the best rug for your office chair can protect your floor and
+  improve comfort. A good chair mat also helps your chair roll smoothly. Office rugs
+  come i
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-office-chair-top-durable-mats-for-hardwood-floors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-office-chair-top-durable-mats-for-hardwood-floors&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the best rug for your office chair can protect your floor and improve comfort. A good chair mat also helps your chair roll smoothly.**

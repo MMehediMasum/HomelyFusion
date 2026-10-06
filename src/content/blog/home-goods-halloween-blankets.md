@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Halloween Blankets: Cozy, Spooky Throws for Festive Decor"
-description: "Home goods Halloween blankets add warmth and spooky charm to your home this fall. These cozy throws bring festive fun to sofas, beds, and living rooms. Hallowee"
+title: 'Home Goods Halloween Blankets: Cozy, Spooky Throws for Festive Decor'
+description: Home goods Halloween blankets add warmth and spooky charm to your home
+  this fall. These cozy throws bring festive fun to sofas, beds, and living rooms.
+  Hallowee
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-halloween-blankets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-halloween-blankets&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home goods Halloween blankets add warmth and spooky charm to your home this fall. These cozy throws bring festive fun to sofas, beds, and living rooms.**

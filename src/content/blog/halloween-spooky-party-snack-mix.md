@@ -1,10 +1,14 @@
 ---
-title: "Halloween Spooky Party Snack Mix: Irresistible Treats to Thrill"
-description: "Are you ready to take your Halloween party snacks to the next level? Imagine a mix that’s crunchy, sweet, salty, and packed with spooky fun—all in one bowl. You"
+title: 'Halloween Spooky Party Snack Mix: Irresistible Treats to Thrill'
+description: Are you ready to take your Halloween party snacks to the next level?
+  Imagine a mix that’s crunchy, sweet, salty, and packed with spooky fun—all in one
+  bowl. You
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-spooky-party-snack-mix&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-spooky-party-snack-mix&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to take your Halloween party snacks to the next level? Imagine a mix that’s crunchy, sweet, salty, and packed with spooky fun—all in one bowl.**

@@ -1,10 +1,14 @@
 ---
-title: "Thanksgiving Fall Harvest Centerpiece: Stunning Ideas to Impress Guests"
-description: "Are you ready to make your Thanksgiving table truly unforgettable? Your centerpiece is more than just decoration—it sets the mood for warmth, gratitude, and cel"
+title: 'Thanksgiving Fall Harvest Centerpiece: Stunning Ideas to Impress Guests'
+description: Are you ready to make your Thanksgiving table truly unforgettable? Your
+  centerpiece is more than just decoration—it sets the mood for warmth, gratitude,
+  and cel
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thanksgiving-fall-harvest-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=thanksgiving-fall-harvest-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Thanksgiving table truly unforgettable? Your centerpiece is more than just decoration—it sets the mood for warmth, gratitude, and celebration.**

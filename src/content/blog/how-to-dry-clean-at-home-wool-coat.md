@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean at Home Wool Coat: Easy Steps for Freshness"
 description: "You love your wool coat—it’s warm, stylish, and perfect for chilly days. But when it gets dirty, the thought of expensive dry cleaning bills can make you hesita"
 pubDate: 2025-11-19

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Mortar: Best Pre-Mixed Thin-Set Options for Tile Installation"
-description: "Floor and Decor offers a variety of mortar products for different tile and masonry needs. Their mortars provide strong adhesion and durability for home projects"
+title: 'Floor And Decor Mortar: Best Pre-Mixed Thin-Set Options for Tile Installation'
+description: Floor and Decor offers a variety of mortar products for different tile
+  and masonry needs. Their mortars provide strong adhesion and durability for home
+  projects
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-mortar&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-mortar&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a variety of mortar products for different tile and masonry needs. Their mortars provide strong adhesion and durability for home projects.**

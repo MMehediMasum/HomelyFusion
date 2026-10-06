@@ -1,10 +1,14 @@
 ---
-title: "Table Decor Home Ideas: Stylish Picks for Cozy Farmhouse Vibes"
-description: "Creating a captivating table decor can transform any space into a cozy and inviting environment. The right pieces add charm and elegance to your home. Decoratin"
+title: 'Table Decor Home Ideas: Stylish Picks for Cozy Farmhouse Vibes'
+description: Creating a captivating table decor can transform any space into a cozy
+  and inviting environment. The right pieces add charm and elegance to your home.
+  Decoratin
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-decor-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=table-decor-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a captivating table decor can transform any space into a cozy and inviting environment. The right pieces add charm and elegance to your home.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Stairwell: Stunning Ideas to Transform Your Space"
-description: "Your stairwell is more than just a passage between floors—it’s a chance to make a stunning first impression. But how do you turn this often-overlooked space int"
+title: 'How to Decorate a Stairwell: Stunning Ideas to Transform Your Space'
+description: Your stairwell is more than just a passage between floors—it’s a chance
+  to make a stunning first impression. But how do you turn this often-overlooked space
+  int
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-stairwell&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-stairwell&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your stairwell is more than just a passage between floors—it’s a chance to make a stunning first impression. But how do you turn this often-overlooked space into something beautiful and inviting?**

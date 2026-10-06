@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Outdoor Lighting: Stylish Solutions to Illuminate Your Space"
-description: "Outdoor lighting transforms spaces, adding charm and safety to your home's exterior. Home Decorators offers diverse options to enhance your outdoor areas. From "
+title: 'Home Decorators Outdoor Lighting: Stylish Solutions to Illuminate Your Space'
+description: 'Outdoor lighting transforms spaces, adding charm and safety to your
+  home''s exterior. Home Decorators offers diverse options to enhance your outdoor
+  areas. From '
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-outdoor-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-outdoor-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Outdoor lighting transforms spaces, adding charm and safety to your home's exterior. Home Decorators offers diverse options to enhance your outdoor areas.**

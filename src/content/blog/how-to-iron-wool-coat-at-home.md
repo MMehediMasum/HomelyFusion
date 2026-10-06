@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Iron Wool Coat at Home: Easy Steps for Perfect Care"
 description: "Your wool coat is a wardrobe favorite, but when wrinkles appear, it can lose its charm quickly. You might think ironing a wool coat at home is tricky or risky, "
 pubDate: 2026-04-05

@@ -1,10 +1,14 @@
 ---
-title: "Interior Decor Wall Ideas: Transform Your Space with Stylish Accents"
-description: "Transform your living space with stunning wall decor options. Explore diverse styles for a unique and inviting atmosphere. Wall decor plays a pivotal role in de"
+title: 'Interior Decor Wall Ideas: Transform Your Space with Stylish Accents'
+description: Transform your living space with stunning wall decor options. Explore
+  diverse styles for a unique and inviting atmosphere. Wall decor plays a pivotal
+  role in de
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-decor-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-decor-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living space with stunning wall decor options. Explore diverse styles for a unique and inviting atmosphere.**

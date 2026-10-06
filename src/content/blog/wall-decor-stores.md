@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Stores: Top Picks for Boho, Vintage, and Modern Styles"
-description: "Transform your space with beautiful wall decor. Discover unique items to enhance every room's ambiance. Wall decor stores offer a variety of creative options to"
+title: 'Wall Decor Stores: Top Picks for Boho, Vintage, and Modern Styles'
+description: Transform your space with beautiful wall decor. Discover unique items
+  to enhance every room's ambiance. Wall decor stores offer a variety of creative
+  options to
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-stores&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your space with beautiful wall decor. Discover unique items to enhance every room's ambiance.**

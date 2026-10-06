@@ -1,10 +1,14 @@
 ---
-title: "Christmas Frosted Glass Ornament DIY: Easy, Stunning Holiday Decor"
-description: "Are you ready to add a personal touch to your holiday decorations this year? Creating your own Christmas frosted glass ornaments is easier than you think—and th"
+title: 'Christmas Frosted Glass Ornament DIY: Easy, Stunning Holiday Decor'
+description: Are you ready to add a personal touch to your holiday decorations this
+  year? Creating your own Christmas frosted glass ornaments is easier than you think—and
+  th
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-frosted-glass-ornament-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-frosted-glass-ornament-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your holiday decorations this year? Creating your own Christmas frosted glass ornaments is easier than you think—and the result is stunning.**

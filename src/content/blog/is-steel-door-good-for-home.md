@@ -1,10 +1,14 @@
 ---
-title: "Is Steel Door Good for Home: Top Benefits You Can’t Ignore"
-description: "Are you wondering if a steel door is the right choice for your home? Choosing the perfect door is more than just picking a style—you want something strong, secu"
+title: 'Is Steel Door Good for Home: Top Benefits You Can’t Ignore'
+description: Are you wondering if a steel door is the right choice for your home?
+  Choosing the perfect door is more than just picking a style—you want something strong,
+  secu
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-steel-door-good-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=is-steel-door-good-for-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a steel door is the right choice for your home? Choosing the perfect door is more than just picking a style—you want something strong, secure, and long-lasting.**

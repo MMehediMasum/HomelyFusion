@@ -1,10 +1,14 @@
 ---
-title: "Best Projector Lights for Bedroom to Create Stunning Starry Ambiance"
-description: "Projector lights create a magical atmosphere in any bedroom. They offer relaxing visuals and soft lighting for sleep or play. Choosing the best projector light "
+title: Best Projector Lights for Bedroom to Create Stunning Starry Ambiance
+description: 'Projector lights create a magical atmosphere in any bedroom. They offer
+  relaxing visuals and soft lighting for sleep or play. Choosing the best projector
+  light '
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-projector-lights-for-bedroom-to-create-stunning-starry-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-projector-lights-for-bedroom-to-create-stunning-starry-ambiance&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Projector lights create a magical atmosphere in any bedroom. They offer relaxing visuals and soft lighting for sleep or play.**

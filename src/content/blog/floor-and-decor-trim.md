@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Trim: Top Flexible and Self-Adhesive Molding Solutions"
-description: "Floor and Decor trim offers practical solutions for finishing edges and protecting surfaces. These trims come in various styles, sizes, and materials to suit di"
+title: 'Floor And Decor Trim: Top Flexible and Self-Adhesive Molding Solutions'
+description: Floor and Decor trim offers practical solutions for finishing edges and
+  protecting surfaces. These trims come in various styles, sizes, and materials to
+  suit di
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-trim&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-trim&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor trim offers practical solutions for finishing edges and protecting surfaces. These trims come in various styles, sizes, and materials to suit different needs.**

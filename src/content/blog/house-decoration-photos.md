@@ -1,10 +1,14 @@
 ---
-title: "House Decoration Photos: Creative Ideas with Fun Photo Booth Props"
-description: "House decoration photos capture the beauty and style of your home’s interior and exterior. They inspire ideas for decorating rooms and special events. Photos of"
+title: 'House Decoration Photos: Creative Ideas with Fun Photo Booth Props'
+description: House decoration photos capture the beauty and style of your home’s interior
+  and exterior. They inspire ideas for decorating rooms and special events. Photos
+  of
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=house-decoration-photos&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=house-decoration-photos&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **House decoration photos capture the beauty and style of your home’s interior and exterior. They inspire ideas for decorating rooms and special events.**

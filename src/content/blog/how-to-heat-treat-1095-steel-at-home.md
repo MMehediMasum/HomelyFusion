@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat 1095 Steel at Home: Expert Tips Revealed"
 description: "If you’re working with 1095 steel, knowing how to heat treat it at home can transform your project from ordinary to exceptional. Heat treating sharpens your ste"
 pubDate: 2026-03-08

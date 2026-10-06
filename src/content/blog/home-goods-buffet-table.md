@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Buffet Table: Stylish Storage Solutions for Dining Room"
-description: "A home goods buffet table adds style and storage to any room. It combines function and design for your dining or living space. Buffet tables come in many sizes "
+title: 'Home Goods Buffet Table: Stylish Storage Solutions for Dining Room'
+description: 'A home goods buffet table adds style and storage to any room. It combines
+  function and design for your dining or living space. Buffet tables come in many
+  sizes '
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-buffet-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-buffet-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A home goods buffet table adds style and storage to any room. It combines function and design for your dining or living space.**

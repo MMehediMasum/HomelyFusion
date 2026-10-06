@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Bags at Home: Easy DIY Guide for Beginners"
 description: "Are you looking for a simple way to create your own stylish and eco-friendly cotton bags? Making cotton bags at home is easier than you think, and you don’t nee"
 pubDate: 2025-10-29

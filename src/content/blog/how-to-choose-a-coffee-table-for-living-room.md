@@ -1,10 +1,13 @@
 ---
-title: "How to Choose a Coffee Table for Living Room: Ultimate Style Guide"
-description: "Choosing the perfect coffee table for your living room can feel overwhelming. You want something that fits your style, matches your space, and serves your needs"
+title: 'How to Choose a Coffee Table for Living Room: Ultimate Style Guide'
+description: Choosing the perfect coffee table for your living room can feel overwhelming.
+  You want something that fits your style, matches your space, and serves your needs
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-a-coffee-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-a-coffee-table-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect coffee table for your living room can feel overwhelming. You want something that fits your style, matches your space, and serves your needs.**

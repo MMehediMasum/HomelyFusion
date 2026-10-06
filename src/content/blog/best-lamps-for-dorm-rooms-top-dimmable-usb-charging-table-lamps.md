@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Dorm Rooms: Top Dimmable USB Charging Table Lamps"
-description: "Choosing the best lamps for dorm rooms helps create a cozy and functional study space. Good lighting supports reading, relaxing, and charging devices easily. Do"
+title: 'Best Lamps for Dorm Rooms: Top Dimmable USB Charging Table Lamps'
+description: Choosing the best lamps for dorm rooms helps create a cozy and functional
+  study space. Good lighting supports reading, relaxing, and charging devices easily.
+  Do
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-dorm-rooms-top-dimmable-usb-charging-table-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-dorm-rooms-top-dimmable-usb-charging-table-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for dorm rooms helps create a cozy and functional study space. Good lighting supports reading, relaxing, and charging devices easily.**

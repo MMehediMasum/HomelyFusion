@@ -1,10 +1,14 @@
 ---
-title: "What Wood is Best for Bathroom Vanity: Top Durable Choices Revealed"
-description: "Choosing the right wood for your bathroom vanity can make a big difference in how your space looks and lasts. You want something that not only feels warm and st"
+title: 'What Wood is Best for Bathroom Vanity: Top Durable Choices Revealed'
+description: Choosing the right wood for your bathroom vanity can make a big difference
+  in how your space looks and lasts. You want something that not only feels warm and
+  st
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-wood-is-best-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=what-wood-is-best-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right wood for your bathroom vanity can make a big difference in how your space looks and lasts. You want something that not only feels warm and stylish but also stands up to moisture and daily wear.**

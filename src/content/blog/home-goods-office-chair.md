@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Office Chair: Ultimate Comfort with Ergonomic Lumbar Support"
-description: "Finding the perfect office chair can transform your workspace into a haven of comfort and productivity. A good chair supports your back and encourages proper po"
+title: 'Home Goods Office Chair: Ultimate Comfort with Ergonomic Lumbar Support'
+description: Finding the perfect office chair can transform your workspace into a
+  haven of comfort and productivity. A good chair supports your back and encourages
+  proper po
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-office-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-office-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect office chair can transform your workspace into a haven of comfort and productivity. A good chair supports your back and encourages proper posture.**

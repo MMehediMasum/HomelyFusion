@@ -1,10 +1,14 @@
 ---
-title: "Frame Decorations: Top Stylish Picture Frames to Elevate Your Home Decor"
-description: "Frame decorations add charm and character to any space. They enhance your photos and create a welcoming atmosphere. Whether you prefer rustic, vintage, or moder"
+title: 'Frame Decorations: Top Stylish Picture Frames to Elevate Your Home Decor'
+description: Frame decorations add charm and character to any space. They enhance
+  your photos and create a welcoming atmosphere. Whether you prefer rustic, vintage,
+  or moder
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frame-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=frame-decorations&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frame decorations add charm and character to any space. They enhance your photos and create a welcoming atmosphere.**

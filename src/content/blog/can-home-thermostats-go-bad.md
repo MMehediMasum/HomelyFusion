@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home Thermostats Go Bad: Signs, Causes, and Solutions"
 description: "Have you ever wondered if your home thermostat can stop working properly? You rely on it every day to keep your house comfortable, but what happens when it star"
 pubDate: 2026-04-03

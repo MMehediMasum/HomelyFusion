@@ -1,10 +1,14 @@
 ---
-title: "Living Room Frames: Top Stylish Sets for Stunning Wall Gallery Displays"
-description: "Living room frames add personality and warmth to your home walls. They showcase memories and enhance your living space’s style. Choosing the right picture frame"
+title: 'Living Room Frames: Top Stylish Sets for Stunning Wall Gallery Displays'
+description: Living room frames add personality and warmth to your home walls. They
+  showcase memories and enhance your living space’s style. Choosing the right picture
+  frame
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=living-room-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Living room frames add personality and warmth to your home walls. They showcase memories and enhance your living space’s style.**

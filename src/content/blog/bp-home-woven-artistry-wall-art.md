@@ -1,10 +1,14 @@
 ---
-title: "Bp Home Woven Artistry Wall Art: Stunning Boho Decor for Every Room"
-description: "Bp Home Woven Artistry Wall Art brings natural charm and texture to your walls. These handcrafted pieces add warmth and style to any space. Woven wall art creat"
+title: 'Bp Home Woven Artistry Wall Art: Stunning Boho Decor for Every Room'
+description: Bp Home Woven Artistry Wall Art brings natural charm and texture to your
+  walls. These handcrafted pieces add warmth and style to any space. Woven wall art
+  creat
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bp-home-woven-artistry-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=bp-home-woven-artistry-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bp Home Woven Artistry Wall Art brings natural charm and texture to your walls. These handcrafted pieces add warmth and style to any space.**

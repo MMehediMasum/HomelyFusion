@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor And More: Stylish Lamps, Mirrors, Vases, and Boho Accents"
-description: "Transform your living space with stylish and functional decor. Explore versatile options that enhance your home's aesthetics. Creating a cozy and appealing home"
+title: 'Floor Decor And More: Stylish Lamps, Mirrors, Vases, and Boho Accents'
+description: Transform your living space with stylish and functional decor. Explore
+  versatile options that enhance your home's aesthetics. Creating a cozy and appealing
+  home
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-and-more&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-and-more&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Transform your living space with stylish and functional decor. Explore versatile options that enhance your home's aesthetics.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Large Painting on Wall: Easy Steps for Perfect Display"
-description: "Hanging a large painting on your wall can feel tricky, but it doesn’t have to be. You want your artwork to stand out and bring life to your space, not fall down"
+title: 'How to Hang Large Painting on Wall: Easy Steps for Perfect Display'
+description: Hanging a large painting on your wall can feel tricky, but it doesn’t
+  have to be. You want your artwork to stand out and bring life to your space, not
+  fall down
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-large-painting-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-large-painting-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a large painting on your wall can feel tricky, but it doesn’t have to be. You want your artwork to stand out and bring life to your space, not fall down or look awkward.**

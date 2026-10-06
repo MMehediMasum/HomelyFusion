@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Home Gym: Top Smart and Bright Floor Lamps Reviewed"
-description: "Choosing the best lighting for a home gym boosts energy and focus during workouts. Proper lights improve safety and create a motivating workout space. Good ligh"
+title: 'Best Lighting for Home Gym: Top Smart and Bright Floor Lamps Reviewed'
+description: Choosing the best lighting for a home gym boosts energy and focus during
+  workouts. Proper lights improve safety and create a motivating workout space. Good
+  ligh
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-home-gym-top-smart-and-bright-floor-lamps-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-home-gym-top-smart-and-bright-floor-lamps-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for a home gym boosts energy and focus during workouts. Proper lights improve safety and create a motivating workout space.**

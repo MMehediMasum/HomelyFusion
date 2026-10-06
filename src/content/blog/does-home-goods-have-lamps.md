@@ -1,10 +1,14 @@
 ---
-title: "Does Home Goods Have Lamps: Discover Stylish Lighting Finds Today"
-description: "Are you searching for the perfect lamp to brighten up your space? You might be wondering, does Home Goods have lamps that fit your style and budget? Finding the"
+title: 'Does Home Goods Have Lamps: Discover Stylish Lighting Finds Today'
+description: Are you searching for the perfect lamp to brighten up your space? You
+  might be wondering, does Home Goods have lamps that fit your style and budget? Finding
+  the
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-home-goods-have-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=does-home-goods-have-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you searching for the perfect lamp to brighten up your space? You might be wondering, does Home Goods have lamps that fit your style and budget?**

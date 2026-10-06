@@ -1,10 +1,14 @@
 ---
-title: "Nightstand Home Goods: Top Charging Station Nightstands with Storage Solutions"
-description: "Nightstands are essential home goods that blend functionality with style. They offer storage, charging, and aesthetic appeal. A well-chosen nightstand can trans"
+title: 'Nightstand Home Goods: Top Charging Station Nightstands with Storage Solutions'
+description: Nightstands are essential home goods that blend functionality with style.
+  They offer storage, charging, and aesthetic appeal. A well-chosen nightstand can
+  trans
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nightstand-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=nightstand-home-goods&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Nightstands are essential home goods that blend functionality with style. They offer storage, charging, and aesthetic appeal.**

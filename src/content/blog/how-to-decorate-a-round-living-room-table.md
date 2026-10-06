@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Round Living Room Table: Stunning Style Tips"
-description: "Your round living room table is more than just a piece of furniture—it’s a centerpiece that can set the mood for your entire space. But decorating it can feel t"
+title: 'How to Decorate a Round Living Room Table: Stunning Style Tips'
+description: Your round living room table is more than just a piece of furniture—it’s
+  a centerpiece that can set the mood for your entire space. But decorating it can
+  feel t
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-round-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-round-living-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your round living room table is more than just a piece of furniture—it’s a centerpiece that can set the mood for your entire space. But decorating it can feel tricky.**

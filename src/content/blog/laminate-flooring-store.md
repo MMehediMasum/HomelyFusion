@@ -1,10 +1,14 @@
 ---
-title: "Laminate Flooring Store Essentials: Top Underlayments and Peel & Stick Tiles"
-description: "A laminate flooring store offers a wide range of products for your flooring needs. From underlayments to peel-and-stick tiles, find everything in one place. Cho"
+title: 'Laminate Flooring Store Essentials: Top Underlayments and Peel & Stick Tiles'
+description: A laminate flooring store offers a wide range of products for your flooring
+  needs. From underlayments to peel-and-stick tiles, find everything in one place.
+  Cho
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=laminate-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=laminate-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A laminate flooring store offers a wide range of products for your flooring needs. From underlayments to peel-and-stick tiles, find everything in one place.**

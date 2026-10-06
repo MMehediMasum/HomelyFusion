@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bathroom Wall: Stunning Ideas for a Fresh Look"
-description: "Your bathroom walls hold more potential than you might think. With the right touches, you can transform a plain space into a relaxing retreat or a stylish state"
+title: 'How to Decorate a Bathroom Wall: Stunning Ideas for a Fresh Look'
+description: Your bathroom walls hold more potential than you might think. With the
+  right touches, you can transform a plain space into a relaxing retreat or a stylish
+  state
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-wall&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom walls hold more potential than you might think. With the right touches, you can transform a plain space into a relaxing retreat or a stylish statement.**

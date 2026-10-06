@@ -1,10 +1,14 @@
 ---
-title: "Flooring Ideas: Easy DIY Peel and Stick Tiles for Stylish Spaces"
-description: "Transform your home with simple and stylish flooring ideas. Discover easy-to-use options for every room. Choosing the right flooring can change the look and fee"
+title: 'Flooring Ideas: Easy DIY Peel and Stick Tiles for Stylish Spaces'
+description: Transform your home with simple and stylish flooring ideas. Discover
+  easy-to-use options for every room. Choosing the right flooring can change the look
+  and fee
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=flooring-ideas&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Transform your home with simple and stylish flooring ideas. Discover easy-to-use options for every room.**

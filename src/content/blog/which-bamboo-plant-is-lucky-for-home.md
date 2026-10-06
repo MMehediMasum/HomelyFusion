@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Which Bamboo Plant is Lucky for Home: Top Picks for Prosperity"
 description: "Are you looking to bring more luck and positive energy into your home? Choosing the right bamboo plant could be the simple, natural way to do it. But with so ma"
 pubDate: 2026-02-08

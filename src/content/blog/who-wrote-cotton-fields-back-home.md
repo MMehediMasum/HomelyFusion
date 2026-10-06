@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Wrote Cotton Fields Back Home: Uncovering the Song’s True Author"
 description: "Have you ever found yourself humming the tune of \"Cotton Fields Back Home\" and wondered who actually wrote this timeless song? You’re not alone. This song carri"
 pubDate: 2026-02-08

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Diamond Pendant at Home: Easy & Sparkling Tips"
 description: "Your diamond pendant is more than just a piece of jewelry—it’s a sparkling symbol of your style and special moments. But over time, dirt and oils can dull its s"
 pubDate: 2026-04-23

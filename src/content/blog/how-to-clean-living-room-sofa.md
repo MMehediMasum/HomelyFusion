@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Living Room Sofa: Easy Steps for a Spotless Look"
-description: "Your living room sofa is more than just a piece of furniture—it’s where you relax, entertain guests, and spend quality time with family. But over time, spills, "
+title: 'How to Clean Living Room Sofa: Easy Steps for a Spotless Look'
+description: 'Your living room sofa is more than just a piece of furniture—it’s where
+  you relax, entertain guests, and spend quality time with family. But over time,
+  spills, '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room sofa is more than just a piece of furniture—it’s where you relax, entertain guests, and spend quality time with family. But over time, spills, dust, and everyday wear can make it look dull and dirty.**

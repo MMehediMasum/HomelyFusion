@@ -1,10 +1,14 @@
 ---
-title: "Best Track Lighting for Living Room: Top Modern Black Ceiling Spotlights"
-description: "Choosing the best track lighting for your living room enhances both style and function. Track lights offer flexible, focused illumination that brightens your sp"
+title: 'Best Track Lighting for Living Room: Top Modern Black Ceiling Spotlights'
+description: Choosing the best track lighting for your living room enhances both style
+  and function. Track lights offer flexible, focused illumination that brightens your
+  sp
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-track-lighting-for-living-room-top-modern-black-ceiling-spotlights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-track-lighting-for-living-room-top-modern-black-ceiling-spotlights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best track lighting for your living room enhances both style and function. Track lights offer flexible, focused illumination that brightens your space beautifully.**

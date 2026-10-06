@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home And Auto Ac Gauges the Same: Key Differences Revealed"
 description: "Are you wondering if the AC gauges you use at home are the same as the ones needed for your car? It’s a common question that many people face when dealing with "
 pubDate: 2026-04-12

@@ -1,10 +1,14 @@
 ---
-title: "Buffet Table Decor at Home: Elegant Greenery and Stylish Display Risers Ideas"
-description: "Transform your home buffet table into a stunning visual display with simple decor elements. Create a warm and inviting atmosphere effortlessly. Decorating a buf"
+title: 'Buffet Table Decor at Home: Elegant Greenery and Stylish Display Risers Ideas'
+description: Transform your home buffet table into a stunning visual display with
+  simple decor elements. Create a warm and inviting atmosphere effortlessly. Decorating
+  a buf
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=buffet-table-decor-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=buffet-table-decor-at-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Transform your home buffet table into a stunning visual display with simple decor elements. Create a warm and inviting atmosphere effortlessly.**

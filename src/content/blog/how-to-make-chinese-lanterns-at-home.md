@@ -1,10 +1,14 @@
 ---
-title: "How to Make Chinese Lanterns at Home: Easy DIY Guide to Brighten Your Space"
-description: "Are you looking to add a touch of magic and color to your home or celebration? Making Chinese lanterns at home is easier than you think, and it’s a fun way to b"
+title: 'How to Make Chinese Lanterns at Home: Easy DIY Guide to Brighten Your Space'
+description: Are you looking to add a touch of magic and color to your home or celebration?
+  Making Chinese lanterns at home is easier than you think, and it’s a fun way to
+  b
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-chinese-lanterns-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-chinese-lanterns-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a touch of magic and color to your home or celebration? Making Chinese lanterns at home is easier than you think, and it’s a fun way to bring light and charm to any space.**

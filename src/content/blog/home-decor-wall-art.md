@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Wall Art Ideas to Transform Your Living Space Instantly"
-description: "Home decor wall art adds personality and style to any room. It transforms plain walls into focal points with charm and color. Choosing the right wall art can re"
+title: Home Decor Wall Art Ideas to Transform Your Living Space Instantly
+description: Home decor wall art adds personality and style to any room. It transforms
+  plain walls into focal points with charm and color. Choosing the right wall art
+  can re
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home decor wall art adds personality and style to any room. It transforms plain walls into focal points with charm and color.**

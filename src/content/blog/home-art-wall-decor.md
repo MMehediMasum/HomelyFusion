@@ -1,10 +1,14 @@
 ---
-title: "Home Art Wall Decor Ideas to Transform Your Living Spaces Instantly"
-description: "Transform your home with captivating wall art decor. It adds personality and charm to any space effortlessly. Exploring different styles and materials can eleva"
+title: Home Art Wall Decor Ideas to Transform Your Living Spaces Instantly
+description: Transform your home with captivating wall art decor. It adds personality
+  and charm to any space effortlessly. Exploring different styles and materials can
+  eleva
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-art-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-art-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home with captivating wall art decor. It adds personality and charm to any space effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "What is Bedroom Dresser Armoire Called: Ultimate Guide Revealed"
-description: "Are you wondering what to call that large piece of furniture in your bedroom that combines drawers and hanging space? You might have heard different names and f"
+title: 'What is Bedroom Dresser Armoire Called: Ultimate Guide Revealed'
+description: Are you wondering what to call that large piece of furniture in your
+  bedroom that combines drawers and hanging space? You might have heard different
+  names and f
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-armoire-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-armoire-called&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering what to call that large piece of furniture in your bedroom that combines drawers and hanging space? You might have heard different names and felt a bit confused.**

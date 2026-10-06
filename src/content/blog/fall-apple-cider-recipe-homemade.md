@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Fall Apple Cider Recipe Homemade: Cozy & Delicious Guide"
 description: "There’s something magical about the taste of fresh apple cider in the fall. Imagine warming up with a cup of homemade apple cider that fills your home with the "
 pubDate: 2025-12-20

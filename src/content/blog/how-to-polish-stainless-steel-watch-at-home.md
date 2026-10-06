@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Polish Stainless Steel Watch at Home: Easy DIY Shine Tips"
 description: "Is your stainless steel watch looking dull or scratched? You don’t need to spend money on professional services to make it shine again. With a few simple steps "
 pubDate: 2026-02-24

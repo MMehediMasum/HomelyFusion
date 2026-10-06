@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange a Living Room With Two Recliners: Stylish & Cozy Ideas"
-description: "Are you wondering how to arrange a living room with two recliners without making the space feel cramped or awkward? You’re not alone. Recliners are perfect for "
+title: 'How to Arrange a Living Room With Two Recliners: Stylish & Cozy Ideas'
+description: 'Are you wondering how to arrange a living room with two recliners without
+  making the space feel cramped or awkward? You’re not alone. Recliners are perfect
+  for '
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-two-recliners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-two-recliners&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange a living room with two recliners without making the space feel cramped or awkward? You’re not alone.**

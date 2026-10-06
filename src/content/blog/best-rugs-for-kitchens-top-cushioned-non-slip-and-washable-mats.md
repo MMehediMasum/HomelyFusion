@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Kitchens: Top Cushioned, Non-Slip, and Washable Mats"
-description: "Choosing the right rug can make your kitchen safer and more comfortable. The best rugs for kitchens protect floors, reduce fatigue, and add style. Kitchens need"
+title: 'Best Rugs for Kitchens: Top Cushioned, Non-Slip, and Washable Mats'
+description: Choosing the right rug can make your kitchen safer and more comfortable.
+  The best rugs for kitchens protect floors, reduce fatigue, and add style. Kitchens
+  need
 pubDate: 2025-10-14
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-kitchens-top-cushioned-non-slip-and-washable-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-kitchens-top-cushioned-non-slip-and-washable-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug can make your kitchen safer and more comfortable. The best rugs for kitchens protect floors, reduce fatigue, and add style.**

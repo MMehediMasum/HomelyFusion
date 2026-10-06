@@ -1,10 +1,14 @@
 ---
-title: "Home Good Candles: Top Picks for Long-Lasting Fragrance and Freshness"
-description: "Home Good Candles bring warmth and fragrance to any space. They create a cozy and inviting atmosphere. Candles are more than just a source of light; they are a "
+title: 'Home Good Candles: Top Picks for Long-Lasting Fragrance and Freshness'
+description: 'Home Good Candles bring warmth and fragrance to any space. They create
+  a cozy and inviting atmosphere. Candles are more than just a source of light; they
+  are a '
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=home-good-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home Good Candles bring warmth and fragrance to any space. They create a cozy and inviting atmosphere.**

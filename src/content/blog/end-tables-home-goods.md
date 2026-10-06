@@ -1,10 +1,14 @@
 ---
-title: "End Tables Home Goods: Stylish Storage and Charging Solutions for Small Spaces"
-description: "End tables add both style and function to any living space. Home Goods offers a variety of end tables that fit small areas perfectly. These end tables provide u"
+title: 'End Tables Home Goods: Stylish Storage and Charging Solutions for Small Spaces'
+description: End tables add both style and function to any living space. Home Goods
+  offers a variety of end tables that fit small areas perfectly. These end tables
+  provide u
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=end-tables-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=end-tables-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **End tables add both style and function to any living space. Home Goods offers a variety of end tables that fit small areas perfectly.**

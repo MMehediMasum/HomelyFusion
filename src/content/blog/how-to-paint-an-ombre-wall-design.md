@@ -1,10 +1,14 @@
 ---
-title: "How to Paint an Ombre Wall Design: Stunning Tips for Beginners"
-description: "Are you ready to transform your space with a stunning ombre wall design? Imagine a wall that smoothly blends colors, creating a beautiful, eye-catching effect t"
+title: 'How to Paint an Ombre Wall Design: Stunning Tips for Beginners'
+description: Are you ready to transform your space with a stunning ombre wall design?
+  Imagine a wall that smoothly blends colors, creating a beautiful, eye-catching effect
+  t
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-an-ombre-wall-design&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ombre Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-an-ombre-wall-design&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a stunning ombre wall design? Imagine a wall that smoothly blends colors, creating a beautiful, eye-catching effect that brings life and personality to any room.**

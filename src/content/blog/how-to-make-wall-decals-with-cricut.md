@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wall Decals With Cricut: Easy DIY Guide for Beginners"
-description: "Are you ready to transform your walls without spending a fortune? Making your own wall decals with a Cricut machine is easier than you think. Imagine creating p"
+title: 'How to Make Wall Decals With Cricut: Easy DIY Guide for Beginners'
+description: Are you ready to transform your walls without spending a fortune? Making
+  your own wall decals with a Cricut machine is easier than you think. Imagine creating
+  p
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wall-decals-with-cricut&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wall-decals-with-cricut&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your walls without spending a fortune? Making your own wall decals with a Cricut machine is easier than you think.**

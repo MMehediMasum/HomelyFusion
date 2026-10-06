@@ -1,10 +1,14 @@
 ---
-title: "Best Size Rug for Bedroom: Choosing the Perfect 8x10 Washable Area Rug"
-description: "Choosing the best size rug for your bedroom can change the room’s look and feel. The right rug size creates comfort and balance around your bed. A rug that fits"
+title: 'Best Size Rug for Bedroom: Choosing the Perfect 8x10 Washable Area Rug'
+description: Choosing the best size rug for your bedroom can change the room’s look
+  and feel. The right rug size creates comfort and balance around your bed. A rug
+  that fits
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-bedroom-choosing-the-perfect-8x10-washable-area-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-bedroom-choosing-the-perfect-8x10-washable-area-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for your bedroom can change the room’s look and feel. The right rug size creates comfort and balance around your bed.**

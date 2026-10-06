@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Bedroom With Platform Bed Without Headboard: Stylish Tips"
-description: "Are you looking to create a stylish and cozy bedroom but don’t want the fuss of a headboard? Setting up a platform bed without a headboard can give your room a "
+title: 'How to Set Up Bedroom With Platform Bed Without Headboard: Stylish Tips'
+description: 'Are you looking to create a stylish and cozy bedroom but don’t want
+  the fuss of a headboard? Setting up a platform bed without a headboard can give
+  your room a '
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-bedroom-with-platform-bed-without-headboard&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-bedroom-with-platform-bed-without-headboard&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to create a stylish and cozy bedroom but don’t want the fuss of a headboard? Setting up a platform bed without a headboard can give your room a clean, modern look while saving space and adding flexibility.**

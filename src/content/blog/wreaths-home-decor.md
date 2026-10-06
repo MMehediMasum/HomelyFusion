@@ -1,10 +1,14 @@
 ---
-title: "Wreaths Home Decor Ideas to Refresh Your Front Door and Porch"
-description: "Wreaths add charm and warmth to any home space. They fit well on doors, walls, and windows all year round. Wreaths bring a natural, fresh look to home decor. Th"
+title: Wreaths Home Decor Ideas to Refresh Your Front Door and Porch
+description: Wreaths add charm and warmth to any home space. They fit well on doors,
+  walls, and windows all year round. Wreaths bring a natural, fresh look to home decor.
+  Th
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wreaths-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=wreaths-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Wreaths add charm and warmth to any home space. They fit well on doors, walls, and windows all year round.**

@@ -1,10 +1,14 @@
 ---
-title: "Better Homes And Gardens Decorative Pillow Ideas for Cozy Farmhouse Style"
-description: "Decorative pillows from Better Homes and Gardens add charm and style to any space. They elevate your home's ambiance effortlessly. Decorative pillows are a simp"
+title: Better Homes And Gardens Decorative Pillow Ideas for Cozy Farmhouse Style
+description: Decorative pillows from Better Homes and Gardens add charm and style
+  to any space. They elevate your home's ambiance effortlessly. Decorative pillows
+  are a simp
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=better-homes-and-gardens-decorative-pillow&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=better-homes-and-gardens-decorative-pillow&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative pillows from Better Homes and Gardens add charm and style to any space. They elevate your home's ambiance effortlessly.**

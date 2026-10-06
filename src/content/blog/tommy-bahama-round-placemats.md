@@ -1,10 +1,13 @@
 ---
-title: "Tommy Bahama Round Placemats: Stylish Nautical Decor for Every Table"
-description: "Tommy Bahama round placemats add style and function to any dining table. They bring a coastal, relaxed feel to your meal setting. These placemats blend natural "
+title: 'Tommy Bahama Round Placemats: Stylish Nautical Decor for Every Table'
+description: 'Tommy Bahama round placemats add style and function to any dining table.
+  They bring a coastal, relaxed feel to your meal setting. These placemats blend natural '
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-bahama-round-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=tommy-bahama-round-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Tommy Bahama round placemats add style and function to any dining table. They bring a coastal, relaxed feel to your meal setting.**

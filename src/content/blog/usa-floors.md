@@ -1,10 +1,14 @@
 ---
-title: "Usa Floors: Top-Rated Floor Rugs, Cleaners, and Protectors Reviewed"
-description: "Explore the diverse range of flooring products made in the USA. From floor rugs to cleaning solutions, these items offer quality and variety. USA-made floor pro"
+title: 'Usa Floors: Top-Rated Floor Rugs, Cleaners, and Protectors Reviewed'
+description: Explore the diverse range of flooring products made in the USA. From
+  floor rugs to cleaning solutions, these items offer quality and variety. USA-made
+  floor pro
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=usa-floors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=usa-floors&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Explore the diverse range of flooring products made in the USA. From floor rugs to cleaning solutions, these items offer quality and variety.**

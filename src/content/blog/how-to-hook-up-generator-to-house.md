@@ -1,10 +1,13 @@
 ---
-title: "How to Hook Up Generator to House: Easy Steps for Safe Power"
-description: "When the power goes out, having a generator ready can make all the difference. But do you know how to hook up a generator to your house safely and effectively? "
+title: 'How to Hook Up Generator to House: Easy Steps for Safe Power'
+description: 'When the power goes out, having a generator ready can make all the difference.
+  But do you know how to hook up a generator to your house safely and effectively? '
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-to-house&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-to-house&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **When the power goes out, having a generator ready can make all the difference. But do you know how to hook up a generator to your house safely and effectively?**

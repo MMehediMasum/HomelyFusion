@@ -1,10 +1,14 @@
 ---
-title: "Best Mood Lighting for Bedroom: Top Ambient Lights to Transform Your Space"
-description: "Choosing the best mood lighting for your bedroom sets the tone for rest and relaxation. The right lights create calm, cozy, and inviting spaces. Mood lighting h"
+title: 'Best Mood Lighting for Bedroom: Top Ambient Lights to Transform Your Space'
+description: Choosing the best mood lighting for your bedroom sets the tone for rest
+  and relaxation. The right lights create calm, cozy, and inviting spaces. Mood lighting
+  h
 pubDate: 2025-10-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mood-lighting-for-bedroom-top-ambient-lights-to-transform-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-mood-lighting-for-bedroom-top-ambient-lights-to-transform-your-space&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best mood lighting for your bedroom sets the tone for rest and relaxation. The right lights create calm, cozy, and inviting spaces.**

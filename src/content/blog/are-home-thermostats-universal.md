@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Thermostats Universal: Essential Facts You Must Know"
 description: "Have you ever wondered if your home thermostat can be swapped out for any other model without a hitch? Choosing the right thermostat isn’t just about looks—it a"
 pubDate: 2026-04-11

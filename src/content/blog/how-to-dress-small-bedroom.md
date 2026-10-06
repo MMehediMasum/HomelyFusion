@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Small Bedroom: Stylish Tips to Maximize Space"
-description: "Is your small bedroom feeling cramped and cluttered? You’re not alone, and the good news is—your cozy space can feel bigger and more inviting with the right cho"
+title: 'How to Dress Small Bedroom: Stylish Tips to Maximize Space'
+description: Is your small bedroom feeling cramped and cluttered? You’re not alone,
+  and the good news is—your cozy space can feel bigger and more inviting with the
+  right cho
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your small bedroom feeling cramped and cluttered? You’re not alone, and the good news is—your cozy space can feel bigger and more inviting with the right choices.**

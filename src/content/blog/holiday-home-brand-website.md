@@ -1,10 +1,14 @@
 ---
-title: "Holiday Home Brand Website: Top Collectible Toys and Jigsaw Puzzles Guide"
-description: "A holiday home brand website offers unique decor and gift ideas for festive seasons. It features a variety of puzzles, collectible toys, and artistic pieces. Th"
+title: 'Holiday Home Brand Website: Top Collectible Toys and Jigsaw Puzzles Guide'
+description: A holiday home brand website offers unique decor and gift ideas for festive
+  seasons. It features a variety of puzzles, collectible toys, and artistic pieces.
+  Th
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-brand-website&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-brand-website&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **A holiday home brand website offers unique decor and gift ideas for festive seasons. It features a variety of puzzles, collectible toys, and artistic pieces.**

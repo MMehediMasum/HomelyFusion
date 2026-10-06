@@ -1,10 +1,14 @@
 ---
-title: "Best Window Shades for Bedroom: Top Blackout and Cordless Options Reviewed"
-description: "Choosing the best window shades for your bedroom improves comfort and privacy. Blackout and room-darkening shades help block light and reduce noise. Bedroom win"
+title: 'Best Window Shades for Bedroom: Top Blackout and Cordless Options Reviewed'
+description: Choosing the best window shades for your bedroom improves comfort and
+  privacy. Blackout and room-darkening shades help block light and reduce noise. Bedroom
+  win
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-window-shades-for-bedroom-top-blackout-and-cordless-options-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=best-window-shades-for-bedroom-top-blackout-and-cordless-options-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best window shades for your bedroom improves comfort and privacy. Blackout and room-darkening shades help block light and reduce noise.**

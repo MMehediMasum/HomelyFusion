@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Egg Tree DIY: Stunning Spring Decor Ideas"
-description: "Are you looking for a fun and creative way to celebrate Easter this year? Imagine filling your home with bright, soft colors that instantly lift your mood. An E"
+title: 'Easter Pastel Egg Tree DIY: Stunning Spring Decor Ideas'
+description: Are you looking for a fun and creative way to celebrate Easter this year?
+  Imagine filling your home with bright, soft colors that instantly lift your mood.
+  An E
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-egg-tree-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-egg-tree-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a fun and creative way to celebrate Easter this year? Imagine filling your home with bright, soft colors that instantly lift your mood.**

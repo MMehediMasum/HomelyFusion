@@ -1,10 +1,14 @@
 ---
-title: "What is the Brightest Led Bulb for Home: Ultimate Brightness Guide"
-description: "Are you tired of dim lights that make your home feel dull and lifeless? Finding the brightest LED bulb for your home can transform your space instantly. Imagine"
+title: 'What is the Brightest Led Bulb for Home: Ultimate Brightness Guide'
+description: Are you tired of dim lights that make your home feel dull and lifeless?
+  Finding the brightest LED bulb for your home can transform your space instantly.
+  Imagine
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-brightest-led-bulb-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-brightest-led-bulb-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you tired of dim lights that make your home feel dull and lifeless? Finding the brightest LED bulb for your home can transform your space instantly.**

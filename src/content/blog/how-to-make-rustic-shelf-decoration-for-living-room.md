@@ -1,10 +1,14 @@
 ---
-title: "How to Make Rustic Shelf Decoration for Living Room: Easy DIY Ideas"
-description: "Are you looking to add a warm, cozy touch to your living room without spending a fortune? Creating a rustic shelf decoration is a simple and rewarding way to br"
+title: 'How to Make Rustic Shelf Decoration for Living Room: Easy DIY Ideas'
+description: Are you looking to add a warm, cozy touch to your living room without
+  spending a fortune? Creating a rustic shelf decoration is a simple and rewarding
+  way to br
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-rustic-shelf-decoration-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-rustic-shelf-decoration-for-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a warm, cozy touch to your living room without spending a fortune? Creating a rustic shelf decoration is a simple and rewarding way to bring charm and personality to your space.**

@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Storage Cabinets: Stylish Solutions for Organized Living Spaces"
-description: "Storage cabinets are essential for organizing your home. They offer space to store items neatly and accessibly. Choosing the right storage cabinet can transform"
+title: 'Home Goods Storage Cabinets: Stylish Solutions for Organized Living Spaces'
+description: Storage cabinets are essential for organizing your home. They offer space
+  to store items neatly and accessibly. Choosing the right storage cabinet can transform
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-storage-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-storage-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Storage cabinets are essential for organizing your home. They offer space to store items neatly and accessibly.**

@@ -1,10 +1,14 @@
 ---
-title: "At Home Store Furniture: Stylish, Functional Pieces for Every Room"
-description: "At Home Store Furniture offers practical and stylish pieces for every room. Their products combine function and comfort for daily living. This collection includ"
+title: 'At Home Store Furniture: Stylish, Functional Pieces for Every Room'
+description: At Home Store Furniture offers practical and stylish pieces for every
+  room. Their products combine function and comfort for daily living. This collection
+  includ
 pubDate: 2025-10-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-store-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-store-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **At Home Store Furniture offers practical and stylish pieces for every room. Their products combine function and comfort for daily living.**

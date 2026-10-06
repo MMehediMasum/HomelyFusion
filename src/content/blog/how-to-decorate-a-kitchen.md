@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen: Stunning Ideas for a Stylish Space"
-description: "Your kitchen is more than just a place to cook—it’s the heart of your home. Imagine stepping into a space that feels warm, inviting, and perfectly suited to you"
+title: 'How to Decorate a Kitchen: Stunning Ideas for a Stylish Space'
+description: Your kitchen is more than just a place to cook—it’s the heart of your
+  home. Imagine stepping into a space that feels warm, inviting, and perfectly suited
+  to you
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen is more than just a place to cook—it’s the heart of your home. Imagine stepping into a space that feels warm, inviting, and perfectly suited to your style.**

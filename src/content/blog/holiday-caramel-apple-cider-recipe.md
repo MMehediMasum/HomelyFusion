@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Caramel Apple Cider Recipe: Irresistible Festive Delight"
 description: "Imagine wrapping your hands around a warm cup filled with the perfect blend of sweet caramel and crisp apple cider. This Holiday Caramel Apple Cider Recipe isn’"
 pubDate: 2026-01-08

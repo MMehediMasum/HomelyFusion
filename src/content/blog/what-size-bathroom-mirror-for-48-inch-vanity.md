@@ -1,10 +1,13 @@
 ---
-title: "What Size Bathroom Mirror for 48 Inch Vanity: Perfect Fit Guide"
-description: "Choosing the right bathroom mirror for your 48-inch vanity can feel tricky. You want it to look perfect, fit well, and make your space feel bigger and brighter."
+title: 'What Size Bathroom Mirror for 48 Inch Vanity: Perfect Fit Guide'
+description: Choosing the right bathroom mirror for your 48-inch vanity can feel tricky.
+  You want it to look perfect, fit well, and make your space feel bigger and brighter.
 pubDate: 2025-08-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-48-inch-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bathroom-mirror-for-48-inch-vanity&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right bathroom mirror for your 48-inch vanity can feel tricky. You want it to look perfect, fit well, and make your space feel bigger and brighter.**

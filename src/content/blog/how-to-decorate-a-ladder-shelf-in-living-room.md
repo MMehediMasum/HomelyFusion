@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Ladder Shelf in Living Room: Stylish Tips & Tricks"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and express your style. A ladder shelf can be the perfect addition to bring personal"
+title: 'How to Decorate a Ladder Shelf in Living Room: Stylish Tips & Tricks'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and express your style. A ladder shelf can be the perfect addition to bring personal
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-ladder-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-ladder-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and express your style. A ladder shelf can be the perfect addition to bring personality and function to this area.**

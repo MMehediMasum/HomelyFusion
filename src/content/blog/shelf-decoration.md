@@ -1,10 +1,14 @@
 ---
-title: "Shelf Decoration Ideas: Top Picks for Stylish Home and Office Decor"
-description: "Shelf decoration adds style and personality to any room. Small items like plants, clocks, and sculptures make shelves lively and inviting. Decorating shelves ca"
+title: 'Shelf Decoration Ideas: Top Picks for Stylish Home and Office Decor'
+description: Shelf decoration adds style and personality to any room. Small items
+  like plants, clocks, and sculptures make shelves lively and inviting. Decorating
+  shelves ca
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shelf-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=shelf-decoration&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Shelf decoration adds style and personality to any room. Small items like plants, clocks, and sculptures make shelves lively and inviting.**

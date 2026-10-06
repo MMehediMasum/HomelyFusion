@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Peppermint Hot Cocoa Recipe: Irresistibly Cozy & Delicious"
 description: "Nothing beats the cozy feeling of a warm drink on a chilly holiday evening. If you want to add a little magic to your winter nights, this Holiday Peppermint Hot"
 pubDate: 2026-01-17

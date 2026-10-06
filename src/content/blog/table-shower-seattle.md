@@ -1,10 +1,14 @@
 ---
-title: "Table Shower Seattle: Vibrant Urban Art Shower Curtain for Stylish Bathrooms"
-description: "Discover the vibrant charm of Seattle with the Ambesonne Abstract Shower Curtain. This curtain brings art into your bathroom. This shower curtain features a col"
+title: 'Table Shower Seattle: Vibrant Urban Art Shower Curtain for Stylish Bathrooms'
+description: Discover the vibrant charm of Seattle with the Ambesonne Abstract Shower
+  Curtain. This curtain brings art into your bathroom. This shower curtain features
+  a col
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-shower-seattle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=table-shower-seattle&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the vibrant charm of Seattle with the Ambesonne Abstract Shower Curtain. This curtain brings art into your bathroom.**

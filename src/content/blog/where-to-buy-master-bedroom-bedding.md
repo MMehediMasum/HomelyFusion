@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Master Bedroom Bedding: Top Stores for Luxe Comfort"
-description: "Looking to refresh your master bedroom with new bedding but not sure where to start? Finding the perfect sheets, comforters, and pillows can feel overwhelming w"
+title: 'Where to Buy Master Bedroom Bedding: Top Stores for Luxe Comfort'
+description: Looking to refresh your master bedroom with new bedding but not sure
+  where to start? Finding the perfect sheets, comforters, and pillows can feel overwhelming
+  w
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-master-bedroom-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-master-bedroom-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to refresh your master bedroom with new bedding but not sure where to start? Finding the perfect sheets, comforters, and pillows can feel overwhelming with so many options out there.**

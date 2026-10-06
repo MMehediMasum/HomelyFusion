@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Walls: Stunning Ideas to Transform Your Space"
-description: "Your kitchen walls hold more potential than you might think. With the right touch, they can transform your cooking space from plain to personal, making every me"
+title: 'How to Decorate Kitchen Walls: Stunning Ideas to Transform Your Space'
+description: Your kitchen walls hold more potential than you might think. With the
+  right touch, they can transform your cooking space from plain to personal, making
+  every me
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-walls&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen walls hold more potential than you might think. With the right touch, they can transform your cooking space from plain to personal, making every meal feel special.**

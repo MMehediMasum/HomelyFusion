@@ -1,10 +1,14 @@
 ---
-title: "Ralph Lauren Rugs 10X14: Stylish, Durable Area Rugs for Every Room"
-description: "Ralph Lauren 10x14 rugs offer elegance and style for home decor. Perfect for living rooms, bedrooms, and offices. Discover the charm and versatility of Ralph La"
+title: 'Ralph Lauren Rugs 10X14: Stylish, Durable Area Rugs for Every Room'
+description: Ralph Lauren 10x14 rugs offer elegance and style for home decor. Perfect
+  for living rooms, bedrooms, and offices. Discover the charm and versatility of Ralph
+  La
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ralph-lauren-rugs-10x14&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=ralph-lauren-rugs-10x14&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Ralph Lauren 10x14 rugs offer elegance and style for home decor. Perfect for living rooms, bedrooms, and offices.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Cross Centerpiece Floral: Stunning Ideas to Brighten Your Table"
-description: "Looking to make your Easter celebration truly special? An Easter Cross Centerpiece Floral arrangement can be the perfect way to bring beauty and meaning to your"
+title: 'Easter Cross Centerpiece Floral: Stunning Ideas to Brighten Your Table'
+description: Looking to make your Easter celebration truly special? An Easter Cross
+  Centerpiece Floral arrangement can be the perfect way to bring beauty and meaning
+  to your
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-cross-centerpiece-floral&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-cross-centerpiece-floral&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to make your Easter celebration truly special? An Easter Cross Centerpiece Floral arrangement can be the perfect way to bring beauty and meaning to your table.**

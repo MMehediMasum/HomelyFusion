@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Wall Gallery: Stunning Tips for Perfect Display"
-description: "Are you staring at a blank wall wondering how to turn it into a stunning gallery? Arranging a wall gallery can feel tricky, but it doesn’t have to be. Imagine w"
+title: 'How to Arrange Wall Gallery: Stunning Tips for Perfect Display'
+description: Are you staring at a blank wall wondering how to turn it into a stunning
+  gallery? Arranging a wall gallery can feel tricky, but it doesn’t have to be. Imagine
+  w
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-wall-gallery&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-wall-gallery&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a blank wall wondering how to turn it into a stunning gallery? Arranging a wall gallery can feel tricky, but it doesn’t have to be.**

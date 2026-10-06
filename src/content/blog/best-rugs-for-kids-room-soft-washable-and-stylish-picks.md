@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Kids Room: Soft, Washable, and Stylish Picks"
-description: "Choosing the best rugs for kids' rooms helps create a cozy and safe space for children. Soft, washable, and colorful rugs add comfort and style to any play or s"
+title: 'Best Rugs for Kids Room: Soft, Washable, and Stylish Picks'
+description: Choosing the best rugs for kids' rooms helps create a cozy and safe space
+  for children. Soft, washable, and colorful rugs add comfort and style to any play
+  or s
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-kids-room-soft-washable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-kids-room-soft-washable-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for kids' rooms helps create a cozy and safe space for children. Soft, washable, and colorful rugs add comfort and style to any play or sleep area.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Dining Table Decor Home: Elevate Your Space with Rustic Elegance"
-description: "Wooden dining tables bring warmth and charm to any home. Decorating them enhances their natural beauty and creates a cozy atmosphere. Using wooden coasters, tra"
+title: 'Wooden Dining Table Decor Home: Elevate Your Space with Rustic Elegance'
+description: Wooden dining tables bring warmth and charm to any home. Decorating them
+  enhances their natural beauty and creates a cozy atmosphere. Using wooden coasters,
+  tra
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-dining-table-decor-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=wooden-dining-table-decor-home&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Wooden dining tables bring warmth and charm to any home. Decorating them enhances their natural beauty and creates a cozy atmosphere.**

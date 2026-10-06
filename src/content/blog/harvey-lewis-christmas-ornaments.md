@@ -1,10 +1,14 @@
 ---
-title: "Harvey Lewis Christmas Ornaments: Unique Holiday Decor for Every Tree"
-description: "Harvey Lewis Christmas ornaments add a special touch to your holiday decor. These ornaments are unique and beautifully crafted. Harvey Lewis Christmas ornaments"
+title: 'Harvey Lewis Christmas Ornaments: Unique Holiday Decor for Every Tree'
+description: Harvey Lewis Christmas ornaments add a special touch to your holiday
+  decor. These ornaments are unique and beautifully crafted. Harvey Lewis Christmas
+  ornaments
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=harvey-lewis-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=harvey-lewis-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Harvey Lewis Christmas ornaments add a special touch to your holiday decor. These ornaments are unique and beautifully crafted.**

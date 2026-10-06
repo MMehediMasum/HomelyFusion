@@ -1,10 +1,14 @@
 ---
-title: "Small Bathroom Cabinet Ideas: Creative Storage Solutions You’ll Love"
-description: "Struggling to find space for your bathroom essentials? Your small bathroom doesn’t have to feel cramped or cluttered. With the right cabinet ideas, you can maxi"
+title: 'Small Bathroom Cabinet Ideas: Creative Storage Solutions You’ll Love'
+description: Struggling to find space for your bathroom essentials? Your small bathroom
+  doesn’t have to feel cramped or cluttered. With the right cabinet ideas, you can
+  maxi
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=small-bathroom-cabinet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=small-bathroom-cabinet-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Struggling to find space for your bathroom essentials? Your small bathroom doesn’t have to feel cramped or cluttered.**

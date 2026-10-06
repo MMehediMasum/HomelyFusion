@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Frames on Wall Without Nails: Easy, Damage-Free Tips"
-description: "Want to decorate your walls without making holes? Hanging frames without nails is easier than you think. You can keep your walls clean and still showcase your f"
+title: 'How to Hang Frames on Wall Without Nails: Easy, Damage-Free Tips'
+description: Want to decorate your walls without making holes? Hanging frames without
+  nails is easier than you think. You can keep your walls clean and still showcase
+  your f
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-wall-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-wall-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to decorate your walls without making holes? Hanging frames without nails is easier than you think.**

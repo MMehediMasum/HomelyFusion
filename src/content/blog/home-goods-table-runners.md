@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Table Runners: Stylish Rustic Decor for Every Occasion"
-description: "Table runners add style and charm to any dining space. They protect surfaces and create a warm, inviting atmosphere. Home goods table runners come in many desig"
+title: 'Home Goods Table Runners: Stylish Rustic Decor for Every Occasion'
+description: Table runners add style and charm to any dining space. They protect surfaces
+  and create a warm, inviting atmosphere. Home goods table runners come in many desig
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-table-runners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-table-runners&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Table runners add style and charm to any dining space. They protect surfaces and create a warm, inviting atmosphere.**

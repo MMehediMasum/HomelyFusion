@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Theater System With HDMI: Ultimate Step-by-Step Guide"
 description: "Setting up your home theater system with HDMI can transform your living room into a cinematic experience. But if you’re unsure where to start, it might feel ove"
 pubDate: 2025-11-08

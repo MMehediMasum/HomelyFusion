@@ -1,10 +1,14 @@
 ---
-title: "Winnie the Pooh Desk Set: Charming Stationery for Fans and Collectors"
-description: "The Winnie the Pooh Desk Set brings charm and function to your workspace. It combines beloved characters with useful office supplies. This desk set includes a s"
+title: 'Winnie the Pooh Desk Set: Charming Stationery for Fans and Collectors'
+description: The Winnie the Pooh Desk Set brings charm and function to your workspace.
+  It combines beloved characters with useful office supplies. This desk set includes
+  a s
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=winnie-the-pooh-desk-set&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=winnie-the-pooh-desk-set&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **The Winnie the Pooh Desk Set brings charm and function to your workspace. It combines beloved characters with useful office supplies.**

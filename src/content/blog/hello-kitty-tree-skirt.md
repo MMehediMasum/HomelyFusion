@@ -1,10 +1,14 @@
 ---
-title: "Hello Kitty Tree Skirt: Perfect Pink Holiday Decor for Festive Cheer"
-description: "A Hello Kitty tree skirt adds charm to your holiday decorations. It creates a cozy and fun base for your Christmas tree. This festive skirt blends cute Hello Ki"
+title: 'Hello Kitty Tree Skirt: Perfect Pink Holiday Decor for Festive Cheer'
+description: A Hello Kitty tree skirt adds charm to your holiday decorations. It creates
+  a cozy and fun base for your Christmas tree. This festive skirt blends cute Hello
+  Ki
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hello-kitty-tree-skirt&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=hello-kitty-tree-skirt&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A Hello Kitty tree skirt adds charm to your holiday decorations. It creates a cozy and fun base for your Christmas tree.**

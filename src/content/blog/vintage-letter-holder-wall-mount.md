@@ -1,10 +1,14 @@
 ---
-title: "Vintage Letter Holder Wall Mount: Rustic Mail Organizer with Key Hooks"
-description: "A vintage letter holder wall mount adds style and order to any home. It keeps mail, keys, and small items neatly in one place. These wall-mounted organizers com"
+title: 'Vintage Letter Holder Wall Mount: Rustic Mail Organizer with Key Hooks'
+description: A vintage letter holder wall mount adds style and order to any home.
+  It keeps mail, keys, and small items neatly in one place. These wall-mounted organizers
+  com
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-letter-holder-wall-mount&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=vintage-letter-holder-wall-mount&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A vintage letter holder wall mount adds style and order to any home. It keeps mail, keys, and small items neatly in one place.**

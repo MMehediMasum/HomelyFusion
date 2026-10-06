@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Staten Island: Unique Wall Art to Elevate Your Space"
 description: "Staten Island offers a rich tapestry of art and decor for any space. Discover unique wall art pieces celebrating this vibrant borough. Elevate your home or offi"
 pubDate: 2026-07-13

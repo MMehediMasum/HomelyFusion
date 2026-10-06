@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Woolen Clothes at Home: Easy Steps for Perfect Care"
 description: "Woolen clothes are cozy, warm, and a must-have in your wardrobe, but washing them can feel tricky. You might worry about shrinking, stretching, or ruining your "
 pubDate: 2026-02-20

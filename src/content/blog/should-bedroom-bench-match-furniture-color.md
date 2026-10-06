@@ -1,10 +1,14 @@
 ---
-title: "Should Bedroom Bench Match Furniture Color: Expert Style Tips"
-description: "Are you wondering if your bedroom bench should match the color of your other furniture? This simple question can change the entire look and feel of your room. C"
+title: 'Should Bedroom Bench Match Furniture Color: Expert Style Tips'
+description: Are you wondering if your bedroom bench should match the color of your
+  other furniture? This simple question can change the entire look and feel of your
+  room. C
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bedroom-bench-match-furniture-color&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=should-bedroom-bench-match-furniture-color&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if your bedroom bench should match the color of your other furniture? This simple question can change the entire look and feel of your room.**

@@ -1,10 +1,14 @@
 ---
-title: "House Flooring Essentials: Top Tiles, Mats, and Cleaning Tools Reviewed"
-description: "House flooring shapes the look and feel of every room. Choosing the right floor can improve comfort and style. Selecting flooring involves more than just appear"
+title: 'House Flooring Essentials: Top Tiles, Mats, and Cleaning Tools Reviewed'
+description: House flooring shapes the look and feel of every room. Choosing the right
+  floor can improve comfort and style. Selecting flooring involves more than just
+  appear
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=house-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=house-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **House flooring shapes the look and feel of every room. Choosing the right floor can improve comfort and style.**

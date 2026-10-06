@@ -1,10 +1,14 @@
 ---
-title: "Halloween Spooky Ice Cube Ideas: Creepy Cool Drinks to Impress"
-description: "Are you ready to take your Halloween party to the next level? Imagine your drinks filled with eerie, spooky ice cubes that instantly grab attention and spark co"
+title: 'Halloween Spooky Ice Cube Ideas: Creepy Cool Drinks to Impress'
+description: Are you ready to take your Halloween party to the next level? Imagine
+  your drinks filled with eerie, spooky ice cubes that instantly grab attention and
+  spark co
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-spooky-ice-cube-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-spooky-ice-cube-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to take your Halloween party to the next level? Imagine your drinks filled with eerie, spooky ice cubes that instantly grab attention and spark conversations.**

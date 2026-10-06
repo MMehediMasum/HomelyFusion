@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Online: Top Stylish Picks for Cozy and Chic Home Decor"
-description: "Enhance your home with stylish accents. Discover versatile items that bring charm and functionality to every space. Decorating your home is a personal journey t"
+title: 'Home Accents Online: Top Stylish Picks for Cozy and Chic Home Decor'
+description: Enhance your home with stylish accents. Discover versatile items that
+  bring charm and functionality to every space. Decorating your home is a personal
+  journey t
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-online&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Enhance your home with stylish accents. Discover versatile items that bring charm and functionality to every space.**

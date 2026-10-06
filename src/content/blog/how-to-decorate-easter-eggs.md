@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Easter Eggs: Creative and Easy DIY Ideas"
-description: "Easter is just around the corner, and decorating Easter eggs is one of the most fun and creative ways to celebrate. But how do you make your eggs stand out and "
+title: 'How to Decorate Easter Eggs: Creative and Easy DIY Ideas'
+description: 'Easter is just around the corner, and decorating Easter eggs is one
+  of the most fun and creative ways to celebrate. But how do you make your eggs stand
+  out and '
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-easter-eggs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-easter-eggs&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Easter is just around the corner, and decorating Easter eggs is one of the most fun and creative ways to celebrate. But how do you make your eggs stand out and look amazing?**

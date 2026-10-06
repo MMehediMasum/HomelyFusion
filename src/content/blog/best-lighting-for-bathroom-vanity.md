@@ -1,10 +1,13 @@
 ---
-title: "Best Lighting for Bathroom Vanity: Brighten Your Space Perfectly"
-description: "When it comes to your bathroom, the right lighting can make all the difference—especially around your vanity. Imagine starting your day with clear, bright light"
+title: 'Best Lighting for Bathroom Vanity: Brighten Your Space Perfectly'
+description: When it comes to your bathroom, the right lighting can make all the difference—especially
+  around your vanity. Imagine starting your day with clear, bright light
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-bathroom-vanity&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When it comes to your bathroom, the right lighting can make all the difference—especially around your vanity. Imagine starting your day with clear, bright light that helps you see every detail, whether you’re applying makeup, shaving, or just getting ready.**

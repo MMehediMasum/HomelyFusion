@@ -1,10 +1,14 @@
 ---
-title: "Christmas Frosted Pinecone Centerpiece: Stunning Holiday Decor Ideas"
-description: "Imagine your holiday table glowing with a simple yet stunning touch that brings warmth and charm to your home. A Christmas Frosted Pinecone Centerpiece is just "
+title: 'Christmas Frosted Pinecone Centerpiece: Stunning Holiday Decor Ideas'
+description: 'Imagine your holiday table glowing with a simple yet stunning touch
+  that brings warmth and charm to your home. A Christmas Frosted Pinecone Centerpiece
+  is just '
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-frosted-pinecone-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-frosted-pinecone-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine your holiday table glowing with a simple yet stunning touch that brings warmth and charm to your home. A Christmas Frosted Pinecone Centerpiece is just what you need to create that cozy, festive feeling everyone will notice.**

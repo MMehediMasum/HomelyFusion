@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Xbox to Tv: Easy Steps for Instant Gaming Fun"
 description: "Looking to connect your Xbox to your TV but not sure where to start? You’re in the right place. Setting up your Xbox the right way can make all the difference i"
 pubDate: 2026-04-29

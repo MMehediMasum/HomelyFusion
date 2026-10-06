@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Lamps Home Goods: Stylish, Dimmable Lamps with USB Charging Ports"
-description: "Bedroom lamps add comfort and style to any room. They offer soft lighting and useful features for daily life. Choosing the right bedroom lamp improves your spac"
+title: 'Bedroom Lamps Home Goods: Stylish, Dimmable Lamps with USB Charging Ports'
+description: Bedroom lamps add comfort and style to any room. They offer soft lighting
+  and useful features for daily life. Choosing the right bedroom lamp improves your
+  spac
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Bedroom lamps add comfort and style to any room. They offer soft lighting and useful features for daily life.**

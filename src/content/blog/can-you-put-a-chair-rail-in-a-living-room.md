@@ -1,10 +1,13 @@
 ---
-title: "Can You Put a Chair Rail in a Living Room: Stylish Ideas Revealed"
-description: "Have you ever wondered if adding a chair rail to your living room could transform the space? You might think chair rails are only for dining rooms or hallways, "
+title: 'Can You Put a Chair Rail in a Living Room: Stylish Ideas Revealed'
+description: 'Have you ever wondered if adding a chair rail to your living room could
+  transform the space? You might think chair rails are only for dining rooms or hallways, '
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-chair-rail-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-chair-rail-in-a-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if adding a chair rail to your living room could transform the space? You might think chair rails are only for dining rooms or hallways, but they can actually bring style and function to your living room too.**

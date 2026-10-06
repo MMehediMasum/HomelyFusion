@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Day Room Decoration Ideas: Stunning & Romantic Touches"
-description: "Looking to make your space feel extra special this Valentine’s Day? Your room can be more than just a place to relax—it can set the perfect mood for love and co"
+title: 'Valentine’S Day Room Decoration Ideas: Stunning & Romantic Touches'
+description: Looking to make your space feel extra special this Valentine’s Day? Your
+  room can be more than just a place to relax—it can set the perfect mood for love
+  and co
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-day-room-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=valentines-day-room-decoration-ideas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to make your space feel extra special this Valentine’s Day? Your room can be more than just a place to relax—it can set the perfect mood for love and connection.**

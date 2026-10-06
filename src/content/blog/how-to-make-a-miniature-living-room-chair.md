@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Miniature Living Room Chair: Easy DIY Guide"
-description: "Have you ever wanted to create something tiny but full of charm for your dollhouse or craft project? Making a miniature living room chair is easier than you thi"
+title: 'How to Make a Miniature Living Room Chair: Easy DIY Guide'
+description: Have you ever wanted to create something tiny but full of charm for your
+  dollhouse or craft project? Making a miniature living room chair is easier than
+  you thi
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-miniature-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-miniature-living-room-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to create something tiny but full of charm for your dollhouse or craft project? Making a miniature living room chair is easier than you think, and it’s a fun way to add a personal touch to your space.**

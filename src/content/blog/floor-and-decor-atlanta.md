@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Atlanta: Top Home Accents and Sports Fans’ Must-Haves"
 description: "Floor And Decor Atlanta offers a wide range of home decor and flooring products inspired by the city’s spirit. From rugs to wall art, it brings Atlanta’s charm "
 pubDate: 2026-08-04

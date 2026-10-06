@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Sengled Light Bulb With Google Home: Easy Guide"
-description: "Are you ready to make your home smarter and lighting easier to control? Setting up your Sengled light bulb with Google Home is simpler than you might think. Ima"
+title: 'How to Set Up Sengled Light Bulb With Google Home: Easy Guide'
+description: Are you ready to make your home smarter and lighting easier to control?
+  Setting up your Sengled light bulb with Google Home is simpler than you might think.
+  Ima
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-sengled-light-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-sengled-light-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and lighting easier to control? Setting up your Sengled light bulb with Google Home is simpler than you might think.**

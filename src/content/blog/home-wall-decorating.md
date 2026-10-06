@@ -1,10 +1,14 @@
 ---
-title: "Home Wall Decorating Ideas: Rustic Signs, Mirrors & Stylish Key Holders"
-description: "Transforming your home walls can breathe new life into any space. Discover creative wall decorations that add charm and personality. Decorating walls is an art "
+title: 'Home Wall Decorating Ideas: Rustic Signs, Mirrors & Stylish Key Holders'
+description: 'Transforming your home walls can breathe new life into any space. Discover
+  creative wall decorations that add charm and personality. Decorating walls is an
+  art '
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decorating&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decorating&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transforming your home walls can breathe new life into any space. Discover creative wall decorations that add charm and personality.**

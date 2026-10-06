@@ -1,10 +1,14 @@
 ---
-title: "Wall Store Custom Neon Signs and Unique Vintage Wall Decor Ideas"
-description: "Discover the perfect blend of style and personality with unique wall decor items from Wall Store. Transform your spaces effortlessly with these stunning pieces."
+title: Wall Store Custom Neon Signs and Unique Vintage Wall Decor Ideas
+description: Discover the perfect blend of style and personality with unique wall
+  decor items from Wall Store. Transform your spaces effortlessly with these stunning
+  pieces.
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=wall-store&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover the perfect blend of style and personality with unique wall decor items from Wall Store. Transform your spaces effortlessly with these stunning pieces.**

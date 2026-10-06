@@ -1,10 +1,14 @@
 ---
-title: "How to Wash a Wool Area Rug at Home: Easy & Effective Steps"
-description: "Your wool area rug adds warmth and style to your home, but cleaning it can feel like a challenge. You might worry about damaging the fibers or shrinking the rug"
+title: 'How to Wash a Wool Area Rug at Home: Easy & Effective Steps'
+description: Your wool area rug adds warmth and style to your home, but cleaning it
+  can feel like a challenge. You might worry about damaging the fibers or shrinking
+  the rug
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-a-wool-area-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-a-wool-area-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool area rug adds warmth and style to your home, but cleaning it can feel like a challenge. You might worry about damaging the fibers or shrinking the rug.**

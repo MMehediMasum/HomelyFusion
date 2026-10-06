@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy End Tables for Living Room: Top Stylish Picks 2025"
-description: "Are you looking to add the perfect end table to your living room? Finding the right piece can make your space feel complete, organized, and stylish. But with so"
+title: 'Where to Buy End Tables for Living Room: Top Stylish Picks 2025'
+description: Are you looking to add the perfect end table to your living room? Finding
+  the right piece can make your space feel complete, organized, and stylish. But with
+  so
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-end-tables-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-end-tables-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add the perfect end table to your living room? Finding the right piece can make your space feel complete, organized, and stylish.**

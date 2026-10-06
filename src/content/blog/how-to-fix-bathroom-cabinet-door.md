@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Bathroom Cabinet Door: Easy DIY Repair Tips"
-description: "Is your bathroom cabinet door squeaking, misaligned, or refusing to close properly? It’s frustrating when something so simple disrupts your daily routine. But d"
+title: 'How to Fix Bathroom Cabinet Door: Easy DIY Repair Tips'
+description: Is your bathroom cabinet door squeaking, misaligned, or refusing to close
+  properly? It’s frustrating when something so simple disrupts your daily routine.
+  But d
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-bathroom-cabinet-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-bathroom-cabinet-door&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Is your bathroom cabinet door squeaking, misaligned, or refusing to close properly? It’s frustrating when something so simple disrupts your daily routine.**

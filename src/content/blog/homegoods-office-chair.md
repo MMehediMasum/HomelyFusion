@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Office Chair: Ergonomic Comfort and Adjustable Support Guide"
-description: "Homegoods office chairs offer comfort and support for long work hours. They come in many styles, sizes, and features to suit different needs. Choosing the right"
+title: 'Homegoods Office Chair: Ergonomic Comfort and Adjustable Support Guide'
+description: Homegoods office chairs offer comfort and support for long work hours.
+  They come in many styles, sizes, and features to suit different needs. Choosing
+  the right
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-office-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-office-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Homegoods office chairs offer comfort and support for long work hours. They come in many styles, sizes, and features to suit different needs.**

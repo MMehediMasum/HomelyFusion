@@ -1,10 +1,13 @@
 ---
-title: "Home Decorators Flooring Manufacturer: Top Stylish Flooring & Decor Ideas"
-description: "Home Decorators offers a wide range of quality flooring and decor products for every room. Their collection includes easy-to-install vinyl tiles, stylish rugs, "
+title: 'Home Decorators Flooring Manufacturer: Top Stylish Flooring & Decor Ideas'
+description: 'Home Decorators offers a wide range of quality flooring and decor products
+  for every room. Their collection includes easy-to-install vinyl tiles, stylish rugs, '
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-flooring-manufacturer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-flooring-manufacturer&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators offers a wide range of quality flooring and decor products for every room. Their collection includes easy-to-install vinyl tiles, stylish rugs, and elegant floor lamps.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Home Office: Top Motivational and Vintage Wall Art Ideas"
-description: "Wall decor can transform your home office into an inspiring and cozy space. Choosing the right art and accessories boosts focus and mood. Decorating a home offi"
+title: 'Wall Decor Home Office: Top Motivational and Vintage Wall Art Ideas'
+description: Wall decor can transform your home office into an inspiring and cozy
+  space. Choosing the right art and accessories boosts focus and mood. Decorating
+  a home offi
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-home-office&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor can transform your home office into an inspiring and cozy space. Choosing the right art and accessories boosts focus and mood.**

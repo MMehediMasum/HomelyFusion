@@ -1,10 +1,14 @@
 ---
-title: "How to Compliment Living Room With Chair: Stylish Tips & Tricks"
-description: "Your living room is the heart of your home, and the right chair can make all the difference. But how do you choose the perfect chair that not only fits your sty"
+title: 'How to Compliment Living Room With Chair: Stylish Tips & Tricks'
+description: Your living room is the heart of your home, and the right chair can make
+  all the difference. But how do you choose the perfect chair that not only fits your
+  sty
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-compliment-living-room-with-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-compliment-living-room-with-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and the right chair can make all the difference. But how do you choose the perfect chair that not only fits your style but also complements the entire space?**

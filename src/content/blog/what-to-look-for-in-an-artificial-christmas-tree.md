@@ -1,10 +1,14 @@
 ---
-title: "What to Look for in an Artificial Christmas Tree: Ultimate Buying Guide"
-description: "Are you ready to find the perfect artificial Christmas tree that feels just right for your home? Choosing the right tree can be tricky with so many options out "
+title: 'What to Look for in an Artificial Christmas Tree: Ultimate Buying Guide'
+description: 'Are you ready to find the perfect artificial Christmas tree that feels
+  just right for your home? Choosing the right tree can be tricky with so many options
+  out '
 pubDate: 2025-08-27
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-look-for-in-an-artificial-christmas-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=what-to-look-for-in-an-artificial-christmas-tree&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to find the perfect artificial Christmas tree that feels just right for your home? Choosing the right tree can be tricky with so many options out there.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Place Sectional Sofa in Living Room: Expert Tips & Tricks"
-description: "Are you struggling to find the perfect spot for your sectional sofa in your living room? You’re not alone. Placing a sectional can be tricky because it’s larger"
+title: 'How to Place Sectional Sofa in Living Room: Expert Tips & Tricks'
+description: Are you struggling to find the perfect spot for your sectional sofa in
+  your living room? You’re not alone. Placing a sectional can be tricky because it’s
+  larger
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-sectional-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-sectional-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your sectional sofa in your living room? You’re not alone.**

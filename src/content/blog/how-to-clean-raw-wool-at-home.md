@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Raw Wool at Home: Easy Steps for Perfect Results"
 description: "If you’ve ever wondered how to clean raw wool at home, you’re in the right place. Raw wool is beautiful but can be full of dirt, grease, and lanolin, making it "
 pubDate: 2026-03-13

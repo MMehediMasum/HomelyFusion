@@ -1,10 +1,14 @@
 ---
-title: "How Do I Make Clay at Home: Easy DIY Recipes for Beginners"
-description: "Have you ever wanted to create your own clay right at home? Making clay yourself is easier than you think, and it opens up a world of creativity without spendin"
+title: 'How Do I Make Clay at Home: Easy DIY Recipes for Beginners'
+description: Have you ever wanted to create your own clay right at home? Making clay
+  yourself is easier than you think, and it opens up a world of creativity without
+  spendin
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-make-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-make-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay right at home? Making clay yourself is easier than you think, and it opens up a world of creativity without spending much money.**

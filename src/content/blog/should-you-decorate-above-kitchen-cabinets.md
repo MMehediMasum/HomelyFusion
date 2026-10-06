@@ -1,10 +1,14 @@
 ---
-title: "Should You Decorate above Kitchen Cabinets? Expert Tips Revealed"
-description: "Have you ever looked at the space above your kitchen cabinets and wondered if you should decorate it? That empty gap can feel like a missed opportunity or a tri"
+title: Should You Decorate above Kitchen Cabinets? Expert Tips Revealed
+description: Have you ever looked at the space above your kitchen cabinets and wondered
+  if you should decorate it? That empty gap can feel like a missed opportunity or
+  a tri
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-you-decorate-above-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=should-you-decorate-above-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Have you ever looked at the space above your kitchen cabinets and wondered if you should decorate it? That empty gap can feel like a missed opportunity or a tricky spot to style.**

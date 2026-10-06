@@ -1,10 +1,14 @@
 ---
-title: "How to Install Freestanding Bathroom Vanity: Easy Step-by-Step Guide"
-description: "Are you ready to transform your bathroom with a stylish freestanding vanity? Installing one might seem tricky, but with the right steps, you can do it yourself "
+title: 'How to Install Freestanding Bathroom Vanity: Easy Step-by-Step Guide'
+description: 'Are you ready to transform your bathroom with a stylish freestanding
+  vanity? Installing one might seem tricky, but with the right steps, you can do it
+  yourself '
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-freestanding-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-freestanding-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom with a stylish freestanding vanity? Installing one might seem tricky, but with the right steps, you can do it yourself and save money.**

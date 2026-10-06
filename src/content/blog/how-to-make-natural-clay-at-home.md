@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Natural Clay at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wanted to create your own natural clay right at home? Making clay yourself is easier than you think, and it gives you a unique, hands-on experienc"
 pubDate: 2026-03-10

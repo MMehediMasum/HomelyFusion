@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton at Home: Easy DIY Steps for Beginners"
 description: "Have you ever wondered how cotton, the soft fabric we wear every day, is made? What if you could create your own cotton right at home? It might sound tricky, bu"
 pubDate: 2026-02-17

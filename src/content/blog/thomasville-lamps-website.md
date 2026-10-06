@@ -1,10 +1,14 @@
 ---
-title: "Thomasville Lamps Website: Discover Modern USB Charging Table Lamps Today"
-description: "The Thomasville Lamps website offers a wide range of stylish and functional lighting options. These lamps combine modern features with classic designs to fit an"
+title: 'Thomasville Lamps Website: Discover Modern USB Charging Table Lamps Today'
+description: The Thomasville Lamps website offers a wide range of stylish and functional
+  lighting options. These lamps combine modern features with classic designs to fit
+  an
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thomasville-lamps-website&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=thomasville-lamps-website&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **The Thomasville Lamps website offers a wide range of stylish and functional lighting options. These lamps combine modern features with classic designs to fit any room.**

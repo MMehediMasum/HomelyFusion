@@ -1,10 +1,14 @@
 ---
-title: "Home Bar Wall Decor Ideas to Elevate Your Stylish Entertaining Space"
-description: "Home bar wall decor adds personality and charm to your drinking space. It creates a cozy, inviting atmosphere for friends and family. Decorating your home bar w"
+title: Home Bar Wall Decor Ideas to Elevate Your Stylish Entertaining Space
+description: Home bar wall decor adds personality and charm to your drinking space.
+  It creates a cozy, inviting atmosphere for friends and family. Decorating your home
+  bar w
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-bar-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-bar-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home bar wall decor adds personality and charm to your drinking space. It creates a cozy, inviting atmosphere for friends and family.**

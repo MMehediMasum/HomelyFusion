@@ -1,10 +1,14 @@
 ---
-title: "Do Living Room End Tables Have to Match: Stylish Tips Revealed"
-description: "Are you wondering if your living room end tables need to match? You’re not alone. Many people struggle with this question when decorating their space. Should yo"
+title: 'Do Living Room End Tables Have to Match: Stylish Tips Revealed'
+description: Are you wondering if your living room end tables need to match? You’re
+  not alone. Many people struggle with this question when decorating their space.
+  Should yo
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-living-room-end-tables-have-to-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=do-living-room-end-tables-have-to-match&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if your living room end tables need to match? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Wool Braided Rug at Home: Easy & Effective Tips"
-description: "Your wool braided rug adds warmth and charm to any room. But over time, dirt, spills, and dust can dull its beauty. You might worry that cleaning it could damag"
+title: 'How to Clean a Wool Braided Rug at Home: Easy & Effective Tips'
+description: Your wool braided rug adds warmth and charm to any room. But over time,
+  dirt, spills, and dust can dull its beauty. You might worry that cleaning it could
+  damag
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-wool-braided-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-wool-braided-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool braided rug adds warmth and charm to any room. But over time, dirt, spills, and dust can dull its beauty.**

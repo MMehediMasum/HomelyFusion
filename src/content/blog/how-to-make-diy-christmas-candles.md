@@ -1,10 +1,14 @@
 ---
-title: "How to Make Diy Christmas Candles: Easy Steps for Festive Glow"
-description: "Are you ready to add a warm, personal touch to your holiday decorations? Making your own DIY Christmas candles is easier than you think, and it’s a fun way to f"
+title: 'How to Make Diy Christmas Candles: Easy Steps for Festive Glow'
+description: Are you ready to add a warm, personal touch to your holiday decorations?
+  Making your own DIY Christmas candles is easier than you think, and it’s a fun way
+  to f
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-diy-christmas-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-diy-christmas-candles&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a warm, personal touch to your holiday decorations? Making your own DIY Christmas candles is easier than you think, and it’s a fun way to fill your home with cozy scents that instantly bring festive cheer.**

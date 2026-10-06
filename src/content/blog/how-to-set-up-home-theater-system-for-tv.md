@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Home Theater System for TV: Ultimate Step-by-Step Guide"
 description: "Are you ready to transform your living room into a cinematic experience? Setting up a home theater system for your TV might seem tricky, but with the right step"
 pubDate: 2025-10-19

@@ -1,10 +1,14 @@
 ---
-title: "Unique Furniture And Decor: Stunning Scandinavian Sculptures and Boho Accents"
-description: "Unique furniture and decor bring personality to any space. They add charm and style beyond ordinary designs. Choosing distinctive pieces turns a simple room int"
+title: 'Unique Furniture And Decor: Stunning Scandinavian Sculptures and Boho Accents'
+description: Unique furniture and decor bring personality to any space. They add charm
+  and style beyond ordinary designs. Choosing distinctive pieces turns a simple room
+  int
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unique-furniture-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=unique-furniture-and-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Unique furniture and decor bring personality to any space. They add charm and style beyond ordinary designs.**

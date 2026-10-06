@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Handmade Jute Bags at Home: Easy Step-by-Step Guide"
 description: "Are you looking for a fun and creative way to make your own eco-friendly bags? Handmade jute bags are not only stylish but also kind to the environment. Imagine"
 pubDate: 2026-02-16

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Butcher Block: Top Solid Wood Countertops for DIY Projects"
-description: "Floor and Decor butcher block countertops offer a versatile and stylish solution for various home projects. These solid wood surfaces are perfect for DIY enthus"
+title: 'Floor And Decor Butcher Block: Top Solid Wood Countertops for DIY Projects'
+description: Floor and Decor butcher block countertops offer a versatile and stylish
+  solution for various home projects. These solid wood surfaces are perfect for DIY
+  enthus
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-butcher-block&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-butcher-block&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor butcher block countertops offer a versatile and stylish solution for various home projects. These solid wood surfaces are perfect for DIY enthusiasts looking to create custom kitchen islands, desks, or workbenches.**

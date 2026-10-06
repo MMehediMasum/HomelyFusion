@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Wall Sconces: Easy Steps for Stunning Lighting"
-description: "Are you ready to transform your space with stylish lighting that saves room and adds charm? Hanging wall sconces is easier than you think, and once you know the"
+title: 'How to Hang Wall Sconces: Easy Steps for Stunning Lighting'
+description: Are you ready to transform your space with stylish lighting that saves
+  room and adds charm? Hanging wall sconces is easier than you think, and once you
+  know the
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-wall-sconces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-wall-sconces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with stylish lighting that saves room and adds charm? Hanging wall sconces is easier than you think, and once you know the right steps, you can brighten up your home like a pro.**

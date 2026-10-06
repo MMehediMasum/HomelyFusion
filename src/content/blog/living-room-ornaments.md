@@ -1,10 +1,14 @@
 ---
-title: "Living Room Ornaments: Modern Sculptures to Elevate Your Home Decor"
-description: "Decorating your living room with ornaments can add charm and personality. Choosing the right pieces enhances your space's aesthetic. From elegant figurines to a"
+title: 'Living Room Ornaments: Modern Sculptures to Elevate Your Home Decor'
+description: Decorating your living room with ornaments can add charm and personality.
+  Choosing the right pieces enhances your space's aesthetic. From elegant figurines
+  to a
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=living-room-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorating your living room with ornaments can add charm and personality. Choosing the right pieces enhances your space's aesthetic.**

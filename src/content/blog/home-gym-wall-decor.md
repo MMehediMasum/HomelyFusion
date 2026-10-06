@@ -1,10 +1,14 @@
 ---
-title: "Home Gym Wall Decor Ideas to Inspire Your Fitness Space Transformation"
-description: "Creating an inspiring home gym starts with the right wall decor. It boosts motivation and enhances your workout space. Wall decor in a home gym sets the tone fo"
+title: Home Gym Wall Decor Ideas to Inspire Your Fitness Space Transformation
+description: Creating an inspiring home gym starts with the right wall decor. It boosts
+  motivation and enhances your workout space. Wall decor in a home gym sets the tone
+  fo
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-gym-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-gym-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating an inspiring home gym starts with the right wall decor. It boosts motivation and enhances your workout space.**

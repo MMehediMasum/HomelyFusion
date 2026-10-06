@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rugs for Rain: Durable Waterproof Patio and Camping Mats"
-description: "Choosing the best outdoor rugs for rain protects your patio and adds style. These rugs resist water and dry quickly to keep spaces clean and comfortable. Rain c"
+title: 'Best Outdoor Rugs for Rain: Durable Waterproof Patio and Camping Mats'
+description: Choosing the best outdoor rugs for rain protects your patio and adds
+  style. These rugs resist water and dry quickly to keep spaces clean and comfortable.
+  Rain c
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rain-durable-waterproof-patio-and-camping-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-rain-durable-waterproof-patio-and-camping-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best outdoor rugs for rain protects your patio and adds style. These rugs resist water and dry quickly to keep spaces clean and comfortable.**

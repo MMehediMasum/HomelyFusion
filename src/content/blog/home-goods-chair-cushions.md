@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Chair Cushions: Ultimate Comfort for Dining and Office Seats"
-description: "Home goods chair cushions add comfort and style to any seating area. They provide support and reduce pressure during long sitting sessions. Choosing the right c"
+title: 'Home Goods Chair Cushions: Ultimate Comfort for Dining and Office Seats'
+description: Home goods chair cushions add comfort and style to any seating area.
+  They provide support and reduce pressure during long sitting sessions. Choosing
+  the right c
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-chair-cushions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-chair-cushions&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Home goods chair cushions add comfort and style to any seating area. They provide support and reduce pressure during long sitting sessions.**

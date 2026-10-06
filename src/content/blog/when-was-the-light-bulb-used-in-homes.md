@@ -1,10 +1,14 @@
 ---
-title: "When was the Light Bulb Used in Homes: A Bright History Revealed"
-description: "Have you ever wondered when the light bulb first brightened up homes like yours? It’s hard to imagine life without electric light, but there was a time when peo"
+title: 'When was the Light Bulb Used in Homes: A Bright History Revealed'
+description: Have you ever wondered when the light bulb first brightened up homes
+  like yours? It’s hard to imagine life without electric light, but there was a time
+  when peo
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-was-the-light-bulb-used-in-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=when-was-the-light-bulb-used-in-homes&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered when the light bulb first brightened up homes like yours? It’s hard to imagine life without electric light, but there was a time when people relied on candles and oil lamps.**

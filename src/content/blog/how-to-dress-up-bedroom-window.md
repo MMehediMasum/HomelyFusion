@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Bedroom Window: Stylish Ideas to Transform Your Space"
-description: "Your bedroom window is more than just a source of light—it’s a chance to express your style and create a cozy, inviting space. But how do you dress it up in a w"
+title: 'How to Dress Up Bedroom Window: Stylish Ideas to Transform Your Space'
+description: Your bedroom window is more than just a source of light—it’s a chance
+  to express your style and create a cozy, inviting space. But how do you dress it
+  up in a w
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-window&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom window is more than just a source of light—it’s a chance to express your style and create a cozy, inviting space. But how do you dress it up in a way that feels just right?**

@@ -1,10 +1,13 @@
 ---
-title: "What'S the Best Shaped Desk for Home Office: Ultimate Guide"
-description: "Choosing the right desk can change everything about your home office. It’s not just about looks — the shape of your desk affects how comfortable and productive "
+title: 'What''S the Best Shaped Desk for Home Office: Ultimate Guide'
+description: 'Choosing the right desk can change everything about your home office.
+  It’s not just about looks — the shape of your desk affects how comfortable and productive '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=whats-the-best-shaped-desk-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=whats-the-best-shaped-desk-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right desk can change everything about your home office. It’s not just about looks — the shape of your desk affects how comfortable and productive you feel every day.**

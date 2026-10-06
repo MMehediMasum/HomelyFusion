@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Spice Tv Store: Your Ultimate Destination for Spice and Flavor Favorites"
 description: "Spice TV Store offers a wide range of shows and movies about spices, culture, and stories. It brings popular titles like Spice and Wolf and India Sweets and Spi"
 pubDate: 2026-06-09

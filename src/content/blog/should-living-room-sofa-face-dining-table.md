@@ -1,10 +1,14 @@
 ---
-title: "Should Living Room Sofa Face Dining Table: Expert Design Tips"
-description: "Are you wondering if your living room sofa should face the dining table? It’s a question that might seem simple but can change the entire feel of your home. The"
+title: 'Should Living Room Sofa Face Dining Table: Expert Design Tips'
+description: Are you wondering if your living room sofa should face the dining table?
+  It’s a question that might seem simple but can change the entire feel of your home.
+  The
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-living-room-sofa-face-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=should-living-room-sofa-face-dining-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if your living room sofa should face the dining table? It’s a question that might seem simple but can change the entire feel of your home.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Nickel Plate Steel at Home: Easy Steps for Shiny Results"
 description: "Are you looking to give your steel projects a shiny, durable finish without spending a fortune? Nickel plating steel at home is easier than you might think, and"
 pubDate: 2026-02-22

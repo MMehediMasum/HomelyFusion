@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Kitchen Sink Area: Top Non-Slip Absorbent Mats Reviewed"
-description: "Choosing the best rug for your kitchen sink area improves comfort and keeps floors dry. A good kitchen rug prevents slips and adds style. The kitchen sink area "
+title: 'Best Rug for Kitchen Sink Area: Top Non-Slip Absorbent Mats Reviewed'
+description: 'Choosing the best rug for your kitchen sink area improves comfort and
+  keeps floors dry. A good kitchen rug prevents slips and adds style. The kitchen
+  sink area '
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-kitchen-sink-area-top-non-slip-absorbent-mats-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-kitchen-sink-area-top-non-slip-absorbent-mats-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your kitchen sink area improves comfort and keeps floors dry. A good kitchen rug prevents slips and adds style.**

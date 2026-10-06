@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Cabinets: Stunning Ideas to Transform Your Space"
-description: "Your kitchen cabinets play a huge role in the look and feel of your entire kitchen. If they’re dull or outdated, your whole space can feel tired. But here’s the"
+title: 'How to Decorate Kitchen Cabinets: Stunning Ideas to Transform Your Space'
+description: Your kitchen cabinets play a huge role in the look and feel of your entire
+  kitchen. If they’re dull or outdated, your whole space can feel tired. But here’s
+  the
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen cabinets play a huge role in the look and feel of your entire kitchen. If they’re dull or outdated, your whole space can feel tired.**

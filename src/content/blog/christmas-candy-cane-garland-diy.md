@@ -1,10 +1,14 @@
 ---
-title: "Christmas Candy Cane Garland DIY: Easy Festive Decoration Ideas"
-description: "Are you looking to add a fun and festive touch to your holiday décor? A Christmas Candy Cane Garland DIY is the perfect way to brighten your home with a classic"
+title: 'Christmas Candy Cane Garland DIY: Easy Festive Decoration Ideas'
+description: Are you looking to add a fun and festive touch to your holiday décor?
+  A Christmas Candy Cane Garland DIY is the perfect way to brighten your home with
+  a classic
 pubDate: 2025-08-31
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-candy-cane-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=christmas-candy-cane-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a fun and festive touch to your holiday décor? A Christmas Candy Cane Garland DIY is the perfect way to brighten your home with a classic holiday symbol.**

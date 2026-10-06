@@ -1,10 +1,14 @@
 ---
-title: "How to Organize Bedroom Dresser: Simple Steps for Clutter-Free Bliss"
-description: "Is your bedroom dresser a cluttered mess that makes finding your favorite shirt a daily struggle? You’re not alone, and the good news is that organizing your dr"
+title: 'How to Organize Bedroom Dresser: Simple Steps for Clutter-Free Bliss'
+description: Is your bedroom dresser a cluttered mess that makes finding your favorite
+  shirt a daily struggle? You’re not alone, and the good news is that organizing your
+  dr
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bedroom dresser a cluttered mess that makes finding your favorite shirt a daily struggle? You’re not alone, and the good news is that organizing your dresser doesn’t have to be overwhelming.**

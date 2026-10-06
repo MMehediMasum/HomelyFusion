@@ -1,10 +1,13 @@
 ---
-title: "How Big Should Rug Runner Be for Twin Beds in Bedroom: Perfect Fit Guide"
-description: "Choosing the right rug runner for your twin beds can completely change the look and feel of your bedroom. But how big should the rug runner be to fit perfectly "
+title: 'How Big Should Rug Runner Be for Twin Beds in Bedroom: Perfect Fit Guide'
+description: 'Choosing the right rug runner for your twin beds can completely change
+  the look and feel of your bedroom. But how big should the rug runner be to fit perfectly '
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-rug-runner-be-for-twin-beds-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-rug-runner-be-for-twin-beds-in-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug runner for your twin beds can completely change the look and feel of your bedroom. But how big should the rug runner be to fit perfectly without overwhelming the space?**

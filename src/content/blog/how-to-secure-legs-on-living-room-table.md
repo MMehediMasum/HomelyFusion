@@ -1,10 +1,14 @@
 ---
-title: "How to Secure Legs on Living Room Table: Easy DIY Fixes"
-description: "Your living room table is more than just a piece of furniture—it’s the center of comfort and style in your home. But if the legs of your table aren’t secure, it"
+title: 'How to Secure Legs on Living Room Table: Easy DIY Fixes'
+description: Your living room table is more than just a piece of furniture—it’s the
+  center of comfort and style in your home. But if the legs of your table aren’t secure,
+  it
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-secure-legs-on-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-secure-legs-on-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture—it’s the center of comfort and style in your home. But if the legs of your table aren’t secure, it can wobble, feel unstable, or even cause accidents.**

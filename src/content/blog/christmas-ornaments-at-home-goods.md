@@ -1,10 +1,14 @@
 ---
-title: "Christmas Ornaments at Home Goods: Unique Picks for Festive Tree Decor"
-description: "Christmas Ornaments at Home Goods offer unique and delightful options for your holiday decor. This season, discover a variety of charming and whimsical decorati"
+title: 'Christmas Ornaments at Home Goods: Unique Picks for Festive Tree Decor'
+description: Christmas Ornaments at Home Goods offer unique and delightful options
+  for your holiday decor. This season, discover a variety of charming and whimsical
+  decorati
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-ornaments-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=christmas-ornaments-at-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas Ornaments at Home Goods offer unique and delightful options for your holiday decor. This season, discover a variety of charming and whimsical decorations to elevate your festive spirit.**

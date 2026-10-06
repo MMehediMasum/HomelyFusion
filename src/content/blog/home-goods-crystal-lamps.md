@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Crystal Lamps: Elegant Touch-Control LED Lamps for Bedrooms"
-description: "Crystal lamps add elegance and functionality to any home setting. They offer stylish lighting solutions that enhance room aesthetics. These lamps come in variou"
+title: 'Home Goods Crystal Lamps: Elegant Touch-Control LED Lamps for Bedrooms'
+description: Crystal lamps add elegance and functionality to any home setting. They
+  offer stylish lighting solutions that enhance room aesthetics. These lamps come
+  in variou
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-crystal-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-crystal-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Crystal lamps add elegance and functionality to any home setting. They offer stylish lighting solutions that enhance room aesthetics.**

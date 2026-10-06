@@ -1,10 +1,14 @@
 ---
-title: "What Color Bedding With Green Bedroom Walls: Stunning Color Combos"
-description: "Choosing the right bedding color for your green bedroom walls can feel tricky. You want your space to look cozy and stylish, but you’re unsure which colors will"
+title: 'What Color Bedding With Green Bedroom Walls: Stunning Color Combos'
+description: Choosing the right bedding color for your green bedroom walls can feel
+  tricky. You want your space to look cozy and stylish, but you’re unsure which colors
+  will
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-bedding-with-green-bedroom-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-bedding-with-green-bedroom-walls&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedding color for your green bedroom walls can feel tricky. You want your space to look cozy and stylish, but you’re unsure which colors will match perfectly.**

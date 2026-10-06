@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Clock Radios for Seniors: Easy-to-Use, Clear Display & Reliable Alarms"
 description: "Choosing the best clock radio for seniors helps improve daily routines and ensures timely wake-ups. These devices combine easy use with useful features like cle"
 pubDate: 2025-10-29

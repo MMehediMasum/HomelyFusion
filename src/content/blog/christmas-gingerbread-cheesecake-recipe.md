@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Gingerbread Cheesecake Recipe: Irresistibly Festive Delight"
 description: "Are you ready to make your holiday celebrations extra special this year? Imagine biting into a creamy cheesecake with the warm, spicy flavors of gingerbread mel"
 pubDate: 2025-12-21

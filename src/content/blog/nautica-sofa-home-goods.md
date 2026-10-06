@@ -1,10 +1,14 @@
 ---
-title: "Nautica Sofa Home Goods: Stylish Comfort for Modern Living Spaces"
-description: "Discover the perfect sofa for your space with Nautica Sofa Home Goods. Explore stylish, comfy options for every room. Choosing the right sofa can transform your"
+title: 'Nautica Sofa Home Goods: Stylish Comfort for Modern Living Spaces'
+description: Discover the perfect sofa for your space with Nautica Sofa Home Goods.
+  Explore stylish, comfy options for every room. Choosing the right sofa can transform
+  your
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-sofa-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=nautica-sofa-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the perfect sofa for your space with Nautica Sofa Home Goods. Explore stylish, comfy options for every room.**

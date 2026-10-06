@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Blanket: Cozy, Stylish Throws Perfect for Every Room Decor"
-description: "Home goods blankets add warmth and style to any living space. They come in many colors, sizes, and textures to fit your needs. A good blanket makes your home fe"
+title: 'Home Goods Blanket: Cozy, Stylish Throws Perfect for Every Room Decor'
+description: Home goods blankets add warmth and style to any living space. They come
+  in many colors, sizes, and textures to fit your needs. A good blanket makes your
+  home fe
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods blankets add warmth and style to any living space. They come in many colors, sizes, and textures to fit your needs.**

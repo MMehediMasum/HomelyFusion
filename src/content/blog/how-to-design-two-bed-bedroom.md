@@ -1,10 +1,13 @@
 ---
-title: "How to Design Two Bed Bedroom: Stylish Ideas for Cozy Spaces"
-description: "Are you struggling to make the most out of your two-bedroom space? Designing a two-bed bedroom might seem tricky, but with the right tips, you can create a cozy"
+title: 'How to Design Two Bed Bedroom: Stylish Ideas for Cozy Spaces'
+description: Are you struggling to make the most out of your two-bedroom space? Designing
+  a two-bed bedroom might seem tricky, but with the right tips, you can create a cozy
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-two-bed-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-two-bed-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to make the most out of your two-bedroom space? Designing a two-bed bedroom might seem tricky, but with the right tips, you can create a cozy, stylish, and functional room that fits your needs perfectly.**

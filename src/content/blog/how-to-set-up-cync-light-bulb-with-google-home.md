@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Cync Light Bulb With Google Home: Easy Step-by-Step Guide"
-description: "Are you ready to make your home smarter and more convenient? Setting up your Cync light bulb with Google Home is easier than you think. Imagine controlling your"
+title: 'How to Set Up Cync Light Bulb With Google Home: Easy Step-by-Step Guide'
+description: Are you ready to make your home smarter and more convenient? Setting
+  up your Cync light bulb with Google Home is easier than you think. Imagine controlling
+  your
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-cync-light-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-cync-light-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Setting up your Cync light bulb with Google Home is easier than you think.**

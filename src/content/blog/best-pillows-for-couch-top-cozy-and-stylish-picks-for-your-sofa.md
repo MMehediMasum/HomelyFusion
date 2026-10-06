@@ -1,10 +1,14 @@
 ---
-title: "Best Pillows for Couch: Top Cozy and Stylish Picks for Your Sofa"
-description: "Choosing the best pillows for your couch can improve comfort and style. The right pillows add a cozy feel and fresh look to any room. Couch pillows come in many"
+title: 'Best Pillows for Couch: Top Cozy and Stylish Picks for Your Sofa'
+description: Choosing the best pillows for your couch can improve comfort and style.
+  The right pillows add a cozy feel and fresh look to any room. Couch pillows come
+  in many
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pillows-for-couch-top-cozy-and-stylish-picks-for-your-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-pillows-for-couch-top-cozy-and-stylish-picks-for-your-sofa&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best pillows for your couch can improve comfort and style. The right pillows add a cozy feel and fresh look to any room.**

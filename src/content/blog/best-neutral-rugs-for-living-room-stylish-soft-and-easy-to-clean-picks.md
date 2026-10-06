@@ -1,10 +1,14 @@
 ---
-title: "Best Neutral Rugs for Living Room: Stylish, Soft, and Easy-to-Clean Picks"
-description: "Neutral rugs create a calm and cozy feeling in any living room. They blend well with many styles and colors. Choosing the best neutral rug can make your space l"
+title: 'Best Neutral Rugs for Living Room: Stylish, Soft, and Easy-to-Clean Picks'
+description: Neutral rugs create a calm and cozy feeling in any living room. They
+  blend well with many styles and colors. Choosing the best neutral rug can make your
+  space l
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-neutral-rugs-for-living-room-stylish-soft-and-easy-to-clean-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-neutral-rugs-for-living-room-stylish-soft-and-easy-to-clean-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Neutral rugs create a calm and cozy feeling in any living room. They blend well with many styles and colors.**

@@ -1,10 +1,14 @@
 ---
-title: "Tahari Christmas Stockings: Cozy Cable Knit Holiday Decor for Families"
-description: "Tahari Christmas stockings add a touch of elegance to your holiday decor. These stockings combine style with tradition for a festive look. Tahari Christmas stoc"
+title: 'Tahari Christmas Stockings: Cozy Cable Knit Holiday Decor for Families'
+description: Tahari Christmas stockings add a touch of elegance to your holiday decor.
+  These stockings combine style with tradition for a festive look. Tahari Christmas
+  stoc
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-christmas-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stockings
+heroImage: https://tse1.mm.bing.net/th?q=tahari-christmas-stockings&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Tahari Christmas stockings add a touch of elegance to your holiday decor. These stockings combine style with tradition for a festive look.**

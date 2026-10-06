@@ -1,10 +1,14 @@
 ---
-title: "Best Lamp for Nursery: Top Dimmable Touch Lamps with USB Charging"
-description: "Choosing the best lamp for a nursery creates a cozy and safe space for your baby. Proper lighting helps with nighttime feedings and soothes your little one. Nur"
+title: 'Best Lamp for Nursery: Top Dimmable Touch Lamps with USB Charging'
+description: Choosing the best lamp for a nursery creates a cozy and safe space for
+  your baby. Proper lighting helps with nighttime feedings and soothes your little
+  one. Nur
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamp-for-nursery-top-dimmable-touch-lamps-with-usb-charging&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamp-for-nursery-top-dimmable-touch-lamps-with-usb-charging&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamp for a nursery creates a cozy and safe space for your baby. Proper lighting helps with nighttime feedings and soothes your little one.**

@@ -1,10 +1,14 @@
 ---
-title: "Funky Room Accessories to Transform Your Bedroom into a Stylish Haven"
-description: "Funky room accessories add personality and charm to any space. They make your room feel lively and unique. Small details like floating shelves keep your bedside"
+title: Funky Room Accessories to Transform Your Bedroom into a Stylish Haven
+description: Funky room accessories add personality and charm to any space. They make
+  your room feel lively and unique. Small details like floating shelves keep your
+  bedside
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=funky-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=funky-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Funky room accessories add personality and charm to any space. They make your room feel lively and unique.**

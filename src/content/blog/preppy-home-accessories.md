@@ -1,10 +1,14 @@
 ---
-title: "Preppy Home Accessories: Chic Pink Decor for Stylish Living Spaces"
-description: "Preppy home accessories add charm and personality to any space. They bring bright colors and playful designs into your daily life. These accessories make your h"
+title: 'Preppy Home Accessories: Chic Pink Decor for Stylish Living Spaces'
+description: Preppy home accessories add charm and personality to any space. They
+  bring bright colors and playful designs into your daily life. These accessories
+  make your h
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=preppy-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=preppy-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Preppy home accessories add charm and personality to any space. They bring bright colors and playful designs into your daily life.**

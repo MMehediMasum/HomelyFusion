@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Coffee Table in Small Living Room: Expert Tips"
-description: "Struggling to fit a coffee table into your small living room without making it feel crowded? You’re not alone. Finding the perfect spot for your coffee table ca"
+title: 'How to Arrange Coffee Table in Small Living Room: Expert Tips'
+description: Struggling to fit a coffee table into your small living room without
+  making it feel crowded? You’re not alone. Finding the perfect spot for your coffee
+  table ca
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-coffee-table-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-coffee-table-in-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to fit a coffee table into your small living room without making it feel crowded? You’re not alone.**

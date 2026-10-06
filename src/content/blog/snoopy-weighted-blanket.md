@@ -1,10 +1,14 @@
 ---
-title: "Snoopy Weighted Blanket: Cozy Comfort with Peanuts Plush Charm"
-description: "The Snoopy weighted blanket combines comfort with the charm of the beloved Peanuts character. It offers a cozy, calming experience for all ages. This blanket fe"
+title: 'Snoopy Weighted Blanket: Cozy Comfort with Peanuts Plush Charm'
+description: The Snoopy weighted blanket combines comfort with the charm of the beloved
+  Peanuts character. It offers a cozy, calming experience for all ages. This blanket
+  fe
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-weighted-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-weighted-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Snoopy weighted blanket combines comfort with the charm of the beloved Peanuts character. It offers a cozy, calming experience for all ages.**

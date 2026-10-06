@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Childrens Bedroom: Creative Ideas for a Fun Space"
-description: "Are you ready to transform your child’s bedroom into a magical space where imagination runs wild and comfort meets fun? Decorating a child’s room isn’t just abo"
+title: 'How to Decorate Childrens Bedroom: Creative Ideas for a Fun Space'
+description: Are you ready to transform your child’s bedroom into a magical space
+  where imagination runs wild and comfort meets fun? Decorating a child’s room isn’t
+  just abo
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-childrens-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-childrens-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your child’s bedroom into a magical space where imagination runs wild and comfort meets fun? Decorating a child’s room isn’t just about picking pretty colors or cute furniture—it’s about creating a personal haven where your little one feels safe, happy, and inspired every day.**

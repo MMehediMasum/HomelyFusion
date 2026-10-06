@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Canvas Painting on Wall: Easy Steps for Perfect Display"
-description: "Hanging a canvas painting on your wall might seem simple, but getting it just right can transform your entire room. You want your artwork to catch the eye, stay"
+title: 'How to Hang Canvas Painting on Wall: Easy Steps for Perfect Display'
+description: Hanging a canvas painting on your wall might seem simple, but getting
+  it just right can transform your entire room. You want your artwork to catch the
+  eye, stay
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-canvas-painting-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-canvas-painting-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a canvas painting on your wall might seem simple, but getting it just right can transform your entire room. You want your artwork to catch the eye, stay secure, and look balanced.**

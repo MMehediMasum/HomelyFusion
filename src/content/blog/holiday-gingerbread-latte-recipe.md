@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Gingerbread Latte Recipe: Irresistible Festive Delight"
 description: "Are you ready to bring the cozy magic of the holidays right into your kitchen? Imagine sipping a warm, creamy latte that tastes just like your favorite gingerbr"
 pubDate: 2026-01-16

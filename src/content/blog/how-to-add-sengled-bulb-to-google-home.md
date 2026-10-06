@@ -1,10 +1,14 @@
 ---
-title: "How to Add Sengled Bulb to Google Home: Easy Setup Guide"
-description: "Are you ready to make your home smarter and more convenient? Adding your Sengled bulb to Google Home is easier than you think. Imagine controlling your lights w"
+title: 'How to Add Sengled Bulb to Google Home: Easy Setup Guide'
+description: Are you ready to make your home smarter and more convenient? Adding your
+  Sengled bulb to Google Home is easier than you think. Imagine controlling your lights
+  w
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-sengled-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-sengled-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Adding your Sengled bulb to Google Home is easier than you think.**

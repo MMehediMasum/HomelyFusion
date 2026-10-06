@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Long Island: Stylish Bamboo Boards & Unique Home Displays"
 description: "Floor And Decor Long Island offers unique home and kitchen items that blend style and function. This collection features bamboo boards, display stands, lighting"
 pubDate: 2026-08-06

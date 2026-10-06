@@ -1,10 +1,14 @@
 ---
-title: "How Do I Decorate a Living Room: Stunning Ideas to Transform Your Space"
-description: "How do you decorate a living room that feels both inviting and uniquely yours? Your living room is more than just a space—it’s where you relax, entertain, and c"
+title: 'How Do I Decorate a Living Room: Stunning Ideas to Transform Your Space'
+description: How do you decorate a living room that feels both inviting and uniquely
+  yours? Your living room is more than just a space—it’s where you relax, entertain,
+  and c
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-decorate-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-decorate-a-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **How do you decorate a living room that feels both inviting and uniquely yours? Your living room is more than just a space—it’s where you relax, entertain, and create memories.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom Using Pinch Pleat Comforter: Stylish Elegance Tips"
-description: "Are you looking to give your bedroom a fresh, stylish look without spending a fortune? Using a pinch pleat comforter could be the secret you didn’t know you nee"
+title: 'How to Dress Bedroom Using Pinch Pleat Comforter: Stylish Elegance Tips'
+description: Are you looking to give your bedroom a fresh, stylish look without spending
+  a fortune? Using a pinch pleat comforter could be the secret you didn’t know you
+  nee
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-using-pinch-pleat-comforter&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-using-pinch-pleat-comforter&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bedroom a fresh, stylish look without spending a fortune? Using a pinch pleat comforter could be the secret you didn’t know you needed.**

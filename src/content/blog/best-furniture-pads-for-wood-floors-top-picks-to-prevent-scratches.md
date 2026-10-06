@@ -1,10 +1,14 @@
 ---
-title: "Best Furniture Pads for Wood Floors: Top Picks to Prevent Scratches"
-description: "Protecting wood floors from scratches and dents is essential for lasting beauty. Furniture pads provide a simple, effective solution to keep floors safe. Wood f"
+title: 'Best Furniture Pads for Wood Floors: Top Picks to Prevent Scratches'
+description: Protecting wood floors from scratches and dents is essential for lasting
+  beauty. Furniture pads provide a simple, effective solution to keep floors safe.
+  Wood f
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-furniture-pads-for-wood-floors-top-picks-to-prevent-scratches&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-furniture-pads-for-wood-floors-top-picks-to-prevent-scratches&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Protecting wood floors from scratches and dents is essential for lasting beauty. Furniture pads provide a simple, effective solution to keep floors safe.**

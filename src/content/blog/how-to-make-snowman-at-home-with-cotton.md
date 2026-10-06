@@ -1,10 +1,14 @@
 ---
-title: "How to Make Snowman at Home With Cotton: Easy DIY Winter Fun"
-description: "Imagine bringing the magic of winter right into your home, no matter the season. You can create a charming snowman using simple cotton, and it’s easier than you"
+title: 'How to Make Snowman at Home With Cotton: Easy DIY Winter Fun'
+description: Imagine bringing the magic of winter right into your home, no matter
+  the season. You can create a charming snowman using simple cotton, and it’s easier
+  than you
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-snowman-at-home-with-cotton&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-snowman-at-home-with-cotton&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Imagine bringing the magic of winter right into your home, no matter the season. You can create a charming snowman using simple cotton, and it’s easier than you think!**

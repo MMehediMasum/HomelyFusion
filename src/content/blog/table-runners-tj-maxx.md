@@ -1,10 +1,14 @@
 ---
-title: "Table Runners Tj Maxx: Stylish Rustic Decor for Every Occasion"
-description: "Table runners at T.J. Maxx offer stylish and affordable options for every season. These runners add charm and warmth to your dining space effortlessly. T. J. Ma"
+title: 'Table Runners Tj Maxx: Stylish Rustic Decor for Every Occasion'
+description: Table runners at T.J. Maxx offer stylish and affordable options for every
+  season. These runners add charm and warmth to your dining space effortlessly. T.
+  J. Ma
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-runners-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=table-runners-tj-maxx&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Table runners at T.J. Maxx offer stylish and affordable options for every season. These runners add charm and warmth to your dining space effortlessly.**

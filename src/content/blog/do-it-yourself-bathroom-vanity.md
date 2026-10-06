@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Bathroom Vanity: Transform Your Space Easily"
-description: "Are you ready to transform your bathroom without spending a fortune? Building your own bathroom vanity is easier than you think, and it gives you full control o"
+title: 'Do It Yourself Bathroom Vanity: Transform Your Space Easily'
+description: Are you ready to transform your bathroom without spending a fortune?
+  Building your own bathroom vanity is easier than you think, and it gives you full
+  control o
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom without spending a fortune? Building your own bathroom vanity is easier than you think, and it gives you full control over style, size, and storage.**

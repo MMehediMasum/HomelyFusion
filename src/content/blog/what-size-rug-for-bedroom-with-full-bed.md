@@ -1,10 +1,14 @@
 ---
-title: "What Size Rug for Bedroom With Full Bed: Perfect Fit Guide"
-description: "Choosing the right rug size for your bedroom can change the entire feel of the space. If you have a full bed, you might wonder how big your rug should be to cre"
+title: 'What Size Rug for Bedroom With Full Bed: Perfect Fit Guide'
+description: Choosing the right rug size for your bedroom can change the entire feel
+  of the space. If you have a full bed, you might wonder how big your rug should be
+  to cre
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-full-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-full-bed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug size for your bedroom can change the entire feel of the space. If you have a full bed, you might wonder how big your rug should be to create comfort and style without overcrowding your room.**

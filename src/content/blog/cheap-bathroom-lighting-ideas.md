@@ -1,10 +1,14 @@
 ---
-title: "Cheap Bathroom Lighting Ideas: Brighten Up on a Budget"
-description: "Looking to brighten up your bathroom without breaking the bank? You’re in the right place. Your bathroom lighting can transform the entire space—making it feel "
+title: 'Cheap Bathroom Lighting Ideas: Brighten Up on a Budget'
+description: 'Looking to brighten up your bathroom without breaking the bank? You’re
+  in the right place. Your bathroom lighting can transform the entire space—making
+  it feel '
 pubDate: 2025-10-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-bathroom-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=cheap-bathroom-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to brighten up your bathroom without breaking the bank? You’re in the right place.**

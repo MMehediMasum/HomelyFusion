@@ -1,10 +1,14 @@
 ---
-title: "Fall Farmhouse Ladder Decor: Cozy Ideas to Transform Your Space"
-description: "Are you looking to add a warm, cozy touch to your home this season? Fall farmhouse ladder decor might be exactly what you need. Imagine a simple wooden ladder t"
+title: 'Fall Farmhouse Ladder Decor: Cozy Ideas to Transform Your Space'
+description: Are you looking to add a warm, cozy touch to your home this season? Fall
+  farmhouse ladder decor might be exactly what you need. Imagine a simple wooden ladder
+  t
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-farmhouse-ladder-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-farmhouse-ladder-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a warm, cozy touch to your home this season? Fall farmhouse ladder decor might be exactly what you need.**

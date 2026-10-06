@@ -1,10 +1,14 @@
 ---
-title: "What Sofa Goes With Turquoise Living Room Walls: Expert Picks"
-description: "Choosing the perfect sofa for your turquoise living room walls can feel tricky. You want a piece that not only fits your space but also enhances the vibrant col"
+title: 'What Sofa Goes With Turquoise Living Room Walls: Expert Picks'
+description: Choosing the perfect sofa for your turquoise living room walls can feel
+  tricky. You want a piece that not only fits your space but also enhances the vibrant
+  col
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-sofa-goes-with-turquoise-living-room-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=what-sofa-goes-with-turquoise-living-room-walls&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa for your turquoise living room walls can feel tricky. You want a piece that not only fits your space but also enhances the vibrant color around you.**

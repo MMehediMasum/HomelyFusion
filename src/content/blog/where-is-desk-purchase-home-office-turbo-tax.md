@@ -1,10 +1,13 @@
 ---
-title: "Where is Desk Purchase Home Office Turbo Tax: Ultimate Guide 2025"
-description: "Are you setting up your home office and wondering where to buy the perfect desk that fits your TurboTax setup? Finding the right desk can make a huge difference"
+title: 'Where is Desk Purchase Home Office Turbo Tax: Ultimate Guide 2025'
+description: Are you setting up your home office and wondering where to buy the perfect
+  desk that fits your TurboTax setup? Finding the right desk can make a huge difference
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-desk-purchase-home-office-turbo-tax&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=where-is-desk-purchase-home-office-turbo-tax&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you setting up your home office and wondering where to buy the perfect desk that fits your TurboTax setup? Finding the right desk can make a huge difference in how comfortable and productive you feel while managing your taxes at home.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Soup Recipe: Easy, Creamy & Delicious Delight"
 description: "Looking for a warm, comforting dish to make your Thanksgiving dinner extra special? Your search ends here with this easy and delicious Thanksgiving Pumpkin Soup"
 pubDate: 2025-12-31

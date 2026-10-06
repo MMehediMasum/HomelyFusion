@@ -1,10 +1,14 @@
 ---
-title: "3D Home Decor Wall Paper Ideas to Transform Your Living Space Instantly"
-description: "Transform your home with stunning 3D wallpapers. These decor pieces add depth and style to any room. 3D home decor wallpapers offer an easy way to enhance your "
+title: 3D Home Decor Wall Paper Ideas to Transform Your Living Space Instantly
+description: 'Transform your home with stunning 3D wallpapers. These decor pieces
+  add depth and style to any room. 3D home decor wallpapers offer an easy way to enhance
+  your '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=3d-home-decor-wall-paper&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=3d-home-decor-wall-paper&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home with stunning 3D wallpapers. These decor pieces add depth and style to any room.**

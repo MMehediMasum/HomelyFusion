@@ -1,10 +1,14 @@
 ---
-title: "How to Layout Sofas in Living Room: Expert Tips for Perfect Style"
-description: "Your living room sofa isn’t just a piece of furniture—it’s the heart of your space. How you arrange it can change the whole feel of your room, making it cozy, i"
+title: 'How to Layout Sofas in Living Room: Expert Tips for Perfect Style'
+description: Your living room sofa isn’t just a piece of furniture—it’s the heart
+  of your space. How you arrange it can change the whole feel of your room, making
+  it cozy, i
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-layout-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-layout-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room sofa isn’t just a piece of furniture—it’s the heart of your space. How you arrange it can change the whole feel of your room, making it cozy, inviting, and perfect for relaxing or entertaining.**

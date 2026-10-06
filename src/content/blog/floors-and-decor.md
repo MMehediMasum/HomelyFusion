@@ -1,10 +1,14 @@
 ---
-title: "Floors And Decor: Top Peel & Stick Vinyl Tiles and Stylish Home Accessories"
-description: "Floors and decor elements can transform your living space, adding style and functionality. Discover versatile options to enhance every room. Creating a beautifu"
+title: 'Floors And Decor: Top Peel & Stick Vinyl Tiles and Stylish Home Accessories'
+description: Floors and decor elements can transform your living space, adding style
+  and functionality. Discover versatile options to enhance every room. Creating a
+  beautifu
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floors-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=floors-and-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Floors and decor elements can transform your living space, adding style and functionality. Discover versatile options to enhance every room.**

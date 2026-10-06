@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Vanity Hardware Ideas: Stunning Upgrades for Every Style"
-description: "Your bathroom vanity hardware can transform the entire look of your space. Imagine swapping out old knobs and handles for fresh, stylish pieces that instantly l"
+title: 'Bathroom Vanity Hardware Ideas: Stunning Upgrades for Every Style'
+description: Your bathroom vanity hardware can transform the entire look of your space.
+  Imagine swapping out old knobs and handles for fresh, stylish pieces that instantly
+  l
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-vanity-hardware-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-vanity-hardware-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity hardware can transform the entire look of your space. Imagine swapping out old knobs and handles for fresh, stylish pieces that instantly lift your bathroom’s vibe.**

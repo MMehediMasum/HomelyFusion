@@ -1,10 +1,13 @@
 ---
-title: "How Much Does a Bathroom Vanity Cost: Ultimate Guide to Pricing"
-description: "Are you planning to upgrade your bathroom but unsure how much a bathroom vanity will cost? You’re not alone. Choosing the right vanity can make a big difference"
+title: 'How Much Does a Bathroom Vanity Cost: Ultimate Guide to Pricing'
+description: Are you planning to upgrade your bathroom but unsure how much a bathroom
+  vanity will cost? You’re not alone. Choosing the right vanity can make a big difference
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-a-bathroom-vanity-cost&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-a-bathroom-vanity-cost&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom but unsure how much a bathroom vanity will cost? You’re not alone.**

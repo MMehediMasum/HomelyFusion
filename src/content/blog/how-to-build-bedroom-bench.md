@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bedroom Bench: Easy Steps for a Stylish Upgrade"
-description: "Looking to add a touch of style and comfort to your bedroom? Building your own bedroom bench is easier than you think. Imagine having a cozy spot at the foot of"
+title: 'How to Build Bedroom Bench: Easy Steps for a Stylish Upgrade'
+description: Looking to add a touch of style and comfort to your bedroom? Building
+  your own bedroom bench is easier than you think. Imagine having a cozy spot at the
+  foot of
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to add a touch of style and comfort to your bedroom? Building your own bedroom bench is easier than you think.**

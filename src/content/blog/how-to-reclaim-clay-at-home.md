@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Reclaim Clay at Home: Easy Steps for Perfect Pottery"
 description: "Have you ever wondered what to do with leftover clay after a project? Instead of tossing it away, you can reclaim it right at home and save both money and mater"
 pubDate: 2026-02-16

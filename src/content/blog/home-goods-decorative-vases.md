@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Decorative Vases: Stylish Ceramic Sets for Every Room"
-description: "Decorative vases add charm and style to any home space. They enhance rooms like kitchens, bedrooms, and living areas with ease. Choosing the right decorative va"
+title: 'Home Goods Decorative Vases: Stylish Ceramic Sets for Every Room'
+description: Decorative vases add charm and style to any home space. They enhance
+  rooms like kitchens, bedrooms, and living areas with ease. Choosing the right decorative
+  va
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-decorative-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-decorative-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative vases add charm and style to any home space. They enhance rooms like kitchens, bedrooms, and living areas with ease.**

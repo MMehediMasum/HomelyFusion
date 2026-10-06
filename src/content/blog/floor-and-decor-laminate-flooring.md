@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Laminate Flooring: Easy DIY Ideas for Stylish Home Floors"
-description: "Floor and Decor laminate flooring offers stylish, durable options for many home spaces. This flooring suits kitchens, bedrooms, and living rooms with ease. Lami"
+title: 'Floor And Decor Laminate Flooring: Easy DIY Ideas for Stylish Home Floors'
+description: Floor and Decor laminate flooring offers stylish, durable options for
+  many home spaces. This flooring suits kitchens, bedrooms, and living rooms with
+  ease. Lami
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-laminate-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-laminate-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor laminate flooring offers stylish, durable options for many home spaces. This flooring suits kitchens, bedrooms, and living rooms with ease.**

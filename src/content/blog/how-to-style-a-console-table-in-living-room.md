@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Console Table in Living Room: Stunning Ideas"
-description: "Your living room says a lot about you, and the console table is the perfect spot to showcase your style. But how do you turn this simple piece of furniture into"
+title: 'How to Style a Console Table in Living Room: Stunning Ideas'
+description: Your living room says a lot about you, and the console table is the perfect
+  spot to showcase your style. But how do you turn this simple piece of furniture
+  into
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-console-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-console-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room says a lot about you, and the console table is the perfect spot to showcase your style. But how do you turn this simple piece of furniture into a stunning focal point?**

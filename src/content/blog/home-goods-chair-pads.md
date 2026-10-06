@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Chair Pads: Top Cushions for Comfort and Style"
-description: "Chair pads can transform your dining experience by adding comfort and style to your chairs. Various options cater to different needs and preferences. Choosing t"
+title: 'Home Goods Chair Pads: Top Cushions for Comfort and Style'
+description: Chair pads can transform your dining experience by adding comfort and
+  style to your chairs. Various options cater to different needs and preferences.
+  Choosing t
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-chair-pads&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-chair-pads&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Chair pads can transform your dining experience by adding comfort and style to your chairs. Various options cater to different needs and preferences.**

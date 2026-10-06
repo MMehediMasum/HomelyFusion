@@ -1,10 +1,14 @@
 ---
-title: "Can You Make Air Dry Clay at Home: Easy DIY Guide to Crafting"
-description: "Have you ever wanted to create beautiful crafts but didn’t have the right materials? What if you could make air dry clay right at home using simple ingredients "
+title: 'Can You Make Air Dry Clay at Home: Easy DIY Guide to Crafting'
+description: 'Have you ever wanted to create beautiful crafts but didn’t have the
+  right materials? What if you could make air dry clay right at home using simple
+  ingredients '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-make-air-dry-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=can-you-make-air-dry-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful crafts but didn’t have the right materials? What if you could make air dry clay right at home using simple ingredients you probably already have?**

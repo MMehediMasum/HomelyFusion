@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Tree Mural on Wall: Stunning Step-by-Step Guide"
-description: "Are you looking to transform a plain wall into a stunning work of art? Painting a tree mural on your wall is a creative way to bring nature inside and add a uni"
+title: 'How to Paint Tree Mural on Wall: Stunning Step-by-Step Guide'
+description: Are you looking to transform a plain wall into a stunning work of art?
+  Painting a tree mural on your wall is a creative way to bring nature inside and
+  add a uni
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-tree-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-tree-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform a plain wall into a stunning work of art? Painting a tree mural on your wall is a creative way to bring nature inside and add a unique touch to your space.**

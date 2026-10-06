@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Wall Corner Cleanly: Expert Tips for Flawless Edges"
-description: "Painting a wall corner cleanly can feel tricky, but it doesn’t have to be. If you’ve ever struggled with messy edges or paint bleeding onto the wrong side, you’"
+title: 'How to Paint a Wall Corner Cleanly: Expert Tips for Flawless Edges'
+description: Painting a wall corner cleanly can feel tricky, but it doesn’t have to
+  be. If you’ve ever struggled with messy edges or paint bleeding onto the wrong side,
+  you’
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-corner-cleanly&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-corner-cleanly&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Painting a wall corner cleanly can feel tricky, but it doesn’t have to be. If you’ve ever struggled with messy edges or paint bleeding onto the wrong side, you’re not alone.**

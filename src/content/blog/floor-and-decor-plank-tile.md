@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Plank Tile: Easy Peel & Stick Vinyl Flooring Solutions"
-description: "Floor and decor plank tiles offer a versatile and stylish solution for any room in your home. These tiles, with their easy installation and variety of designs, "
+title: 'Floor And Decor Plank Tile: Easy Peel & Stick Vinyl Flooring Solutions'
+description: 'Floor and decor plank tiles offer a versatile and stylish solution for
+  any room in your home. These tiles, with their easy installation and variety of
+  designs, '
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-plank-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-plank-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and decor plank tiles offer a versatile and stylish solution for any room in your home. These tiles, with their easy installation and variety of designs, are perfect for DIY enthusiasts.**

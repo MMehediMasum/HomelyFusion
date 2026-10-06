@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Harvest Salad Recipe: Fresh, Flavorful & Festive Ideas"
 description: "Looking for a fresh and delicious way to celebrate Thanksgiving? Your search ends here with this Thanksgiving Harvest Salad Recipe. Imagine a salad bursting wit"
 pubDate: 2025-09-22

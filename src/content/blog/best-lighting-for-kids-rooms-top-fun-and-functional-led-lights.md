@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Kids' Rooms: Top Fun and Functional LED Lights"
-description: "Choosing the best lighting for kids' rooms helps create a safe, fun, and cozy space. Good lighting supports play, study, and sleep routines. Kids’ rooms need li"
+title: 'Best Lighting for Kids'' Rooms: Top Fun and Functional LED Lights'
+description: Choosing the best lighting for kids' rooms helps create a safe, fun,
+  and cozy space. Good lighting supports play, study, and sleep routines. Kids’ rooms
+  need li
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-kids-rooms-top-fun-and-functional-led-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-kids-rooms-top-fun-and-functional-led-lights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for kids' rooms helps create a safe, fun, and cozy space. Good lighting supports play, study, and sleep routines.**

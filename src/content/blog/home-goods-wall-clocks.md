@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Clocks: Silent, Stylish, and Perfect for Every Room"
-description: "Home goods wall clocks combine style and function for any room. They help keep time while adding charm to your space. Wall clocks come in many designs and sizes"
+title: 'Home Goods Wall Clocks: Silent, Stylish, and Perfect for Every Room'
+description: Home goods wall clocks combine style and function for any room. They
+  help keep time while adding charm to your space. Wall clocks come in many designs
+  and sizes
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-clocks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-clocks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods wall clocks combine style and function for any room. They help keep time while adding charm to your space.**

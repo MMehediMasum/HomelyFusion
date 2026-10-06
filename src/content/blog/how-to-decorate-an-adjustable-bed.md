@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Adjustable Bed: Stylish Tips for Ultimate Comfort"
-description: "Are you wondering how to make your adjustable bed look as stylish as it feels? Decorating an adjustable bed can seem tricky at first. You want it to be comforta"
+title: 'How to Decorate an Adjustable Bed: Stylish Tips for Ultimate Comfort'
+description: Are you wondering how to make your adjustable bed look as stylish as
+  it feels? Decorating an adjustable bed can seem tricky at first. You want it to
+  be comforta
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-adjustable-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-adjustable-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how to make your adjustable bed look as stylish as it feels? Decorating an adjustable bed can seem tricky at first.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Place Bed in Bedroom Feng Shui: Ultimate Guide for Harmony"
 description: "Where you place your bed in your bedroom can change the way you feel every single day. Imagine waking up refreshed, calm, and full of energy just because your b"
 pubDate: 2025-11-03

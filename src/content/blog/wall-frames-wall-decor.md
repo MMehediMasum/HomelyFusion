@@ -1,10 +1,14 @@
 ---
-title: "Wall Frames Wall Decor: Stylish Black Picture Frame Sets for Stunning Galleries"
-description: "Wall frames add style and personality to any room. They highlight your favorite photos and artwork beautifully. Choosing the right wall frames can transform pla"
+title: 'Wall Frames Wall Decor: Stylish Black Picture Frame Sets for Stunning Galleries'
+description: Wall frames add style and personality to any room. They highlight your
+  favorite photos and artwork beautifully. Choosing the right wall frames can transform
+  pla
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-frames-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=wall-frames-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall frames add style and personality to any room. They highlight your favorite photos and artwork beautifully.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Paint the Wall Without Touching the Ceiling: Expert Tips"
-description: "Are you ready to give your walls a fresh new look but worried about accidentally painting the ceiling? You’re not alone. Keeping paint off the ceiling can be tr"
+title: 'How to Paint the Wall Without Touching the Ceiling: Expert Tips'
+description: Are you ready to give your walls a fresh new look but worried about accidentally
+  painting the ceiling? You’re not alone. Keeping paint off the ceiling can be tr
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-the-wall-without-touching-the-ceiling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-the-wall-without-touching-the-ceiling&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your walls a fresh new look but worried about accidentally painting the ceiling? You’re not alone.**

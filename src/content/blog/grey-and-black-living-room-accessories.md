@@ -1,10 +1,14 @@
 ---
-title: "Grey And Black Living Room Accessories to Elevate Your Modern Home Decor"
-description: "Grey and black living room accessories create a chic and modern atmosphere. These colors add elegance and sophistication effortlessly. Exploring stylish decor o"
+title: Grey And Black Living Room Accessories to Elevate Your Modern Home Decor
+description: Grey and black living room accessories create a chic and modern atmosphere.
+  These colors add elegance and sophistication effortlessly. Exploring stylish decor
+  o
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grey-and-black-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=grey-and-black-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Grey and black living room accessories create a chic and modern atmosphere. These colors add elegance and sophistication effortlessly.**

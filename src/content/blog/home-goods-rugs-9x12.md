@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 9X12: Stylish, Washable, Non-Slip Area Rugs for Every Room"
-description: "Finding the perfect rug can transform any room. A 9x12 area rug offers style and functionality for various spaces. Rugs measuring 9x12 feet provide an excellent"
+title: 'Home Goods Rugs 9X12: Stylish, Washable, Non-Slip Area Rugs for Every Room'
+description: Finding the perfect rug can transform any room. A 9x12 area rug offers
+  style and functionality for various spaces. Rugs measuring 9x12 feet provide an
+  excellent
 pubDate: 2026-06-06
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-9x12&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-9x12&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the perfect rug can transform any room. A 9x12 area rug offers style and functionality for various spaces.**

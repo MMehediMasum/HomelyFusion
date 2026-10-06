@@ -1,10 +1,14 @@
 ---
-title: "How to Build Bedroom Storage Cabinets Over Bed: Easy DIY Guide"
-description: "Are you tired of clutter taking over your bedroom? Imagine having extra storage right above your bed—keeping your space neat without sacrificing style. Building"
+title: 'How to Build Bedroom Storage Cabinets Over Bed: Easy DIY Guide'
+description: Are you tired of clutter taking over your bedroom? Imagine having extra
+  storage right above your bed—keeping your space neat without sacrificing style.
+  Building
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-storage-cabinets-over-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-storage-cabinets-over-bed&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of clutter taking over your bedroom? Imagine having extra storage right above your bed—keeping your space neat without sacrificing style.**

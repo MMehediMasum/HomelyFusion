@@ -1,10 +1,14 @@
 ---
-title: "Why is My Bathroom Mirror Rusting: Causes and Easy Fixes"
-description: "Have you noticed unsightly rust spots creeping onto your bathroom mirror? It’s frustrating to see your reflection marred by those stubborn orange stains. You mi"
+title: 'Why is My Bathroom Mirror Rusting: Causes and Easy Fixes'
+description: Have you noticed unsightly rust spots creeping onto your bathroom mirror?
+  It’s frustrating to see your reflection marred by those stubborn orange stains.
+  You mi
 pubDate: 2025-08-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-bathroom-mirror-rusting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-bathroom-mirror-rusting&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you noticed unsightly rust spots creeping onto your bathroom mirror? It’s frustrating to see your reflection marred by those stubborn orange stains.**

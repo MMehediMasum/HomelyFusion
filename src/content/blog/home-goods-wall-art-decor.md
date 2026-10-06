@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Art Decor Ideas to Transform Your Living Space"
-description: "Home goods wall art decor adds style and personality to any room. It transforms plain walls into attractive focal points quickly and easily. Choosing the right "
+title: Home Goods Wall Art Decor Ideas to Transform Your Living Space
+description: 'Home goods wall art decor adds style and personality to any room. It
+  transforms plain walls into attractive focal points quickly and easily. Choosing
+  the right '
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-art-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-art-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods wall art decor adds style and personality to any room. It transforms plain walls into attractive focal points quickly and easily.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Pie Recipe Easy: Simple, Delicious & Quick"
 description: "Are you ready to impress your family and friends this Thanksgiving with a dessert that’s both delicious and simple to make? Your search ends here. This easy Tha"
 pubDate: 2025-10-09

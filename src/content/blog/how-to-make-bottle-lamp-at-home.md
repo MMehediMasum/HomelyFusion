@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bottle Lamp at Home: Easy DIY Guide for Stylish Decor"
-description: "Have you ever looked at an empty bottle and wondered if it could become something beautiful? What if you could turn that simple bottle into a glowing lamp that "
+title: 'How to Make Bottle Lamp at Home: Easy DIY Guide for Stylish Decor'
+description: 'Have you ever looked at an empty bottle and wondered if it could become
+  something beautiful? What if you could turn that simple bottle into a glowing lamp
+  that '
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bottle-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bottle-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever looked at an empty bottle and wondered if it could become something beautiful? What if you could turn that simple bottle into a glowing lamp that lights up your room and adds a personal touch to your space?**

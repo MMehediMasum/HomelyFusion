@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Grey Walls: Top Picks for Style and Functionality"
-description: "Choosing the best curtains for grey walls can transform your room’s look and feel. Curtains add style, control light, and create a cozy atmosphere. Grey walls o"
+title: 'Best Curtains for Grey Walls: Top Picks for Style and Functionality'
+description: Choosing the best curtains for grey walls can transform your room’s look
+  and feel. Curtains add style, control light, and create a cozy atmosphere. Grey
+  walls o
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-grey-walls-top-picks-for-style-and-functionality&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-grey-walls-top-picks-for-style-and-functionality&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for grey walls can transform your room’s look and feel. Curtains add style, control light, and create a cozy atmosphere.**

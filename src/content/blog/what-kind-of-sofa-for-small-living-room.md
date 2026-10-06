@@ -1,10 +1,14 @@
 ---
-title: "What Kind of Sofa for Small Living Room: Top Space-Saving Picks"
-description: "Finding the perfect sofa for your small living room can feel like a puzzle. You want something comfy and stylish, but it also has to fit just right without crow"
+title: 'What Kind of Sofa for Small Living Room: Top Space-Saving Picks'
+description: Finding the perfect sofa for your small living room can feel like a puzzle.
+  You want something comfy and stylish, but it also has to fit just right without
+  crow
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-kind-of-sofa-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-kind-of-sofa-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect sofa for your small living room can feel like a puzzle. You want something comfy and stylish, but it also has to fit just right without crowding your space.**

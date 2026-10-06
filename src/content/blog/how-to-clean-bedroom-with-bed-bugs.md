@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Bedroom With Bed Bugs: Ultimate Guide to Eradicate Them Fast"
 description: "If you’ve discovered bed bugs in your bedroom, you know how stressful and frustrating it can be. These tiny pests are tough to get rid of, and they can turn you"
 pubDate: 2026-05-20

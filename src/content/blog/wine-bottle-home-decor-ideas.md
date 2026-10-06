@@ -1,10 +1,14 @@
 ---
-title: "Wine Bottle Home Decor Ideas: Creative Vintage Touches for Every Space"
-description: "Wine bottles add charm and style to home decor. They transform ordinary spaces into cozy, creative areas. Reusing wine bottles as decor brings warmth and person"
+title: 'Wine Bottle Home Decor Ideas: Creative Vintage Touches for Every Space'
+description: Wine bottles add charm and style to home decor. They transform ordinary
+  spaces into cozy, creative areas. Reusing wine bottles as decor brings warmth and
+  person
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wine-bottle-home-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=wine-bottle-home-decor-ideas&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Wine bottles add charm and style to home decor. They transform ordinary spaces into cozy, creative areas.**

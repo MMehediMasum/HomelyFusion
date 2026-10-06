@@ -1,10 +1,14 @@
 ---
-title: "Do Bedroom Nightstands Need to Match: Expert Style Tips Revealed"
-description: "When it comes to decorating your bedroom, you might wonder if your nightstands really need to match. Should they be identical pieces, or can mixing styles add m"
+title: 'Do Bedroom Nightstands Need to Match: Expert Style Tips Revealed'
+description: When it comes to decorating your bedroom, you might wonder if your nightstands
+  really need to match. Should they be identical pieces, or can mixing styles add
+  m
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-bedroom-nightstands-need-to-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=do-bedroom-nightstands-need-to-match&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When it comes to decorating your bedroom, you might wonder if your nightstands really need to match. Should they be identical pieces, or can mixing styles add more personality?**

@@ -1,10 +1,13 @@
 ---
-title: "How to Make White Clay at Home: Easy DIY Natural Recipe"
-description: "Have you ever wanted to create your own white clay right at home? Imagine having a natural, soft clay that’s perfect for crafting, skincare, or even art project"
+title: 'How to Make White Clay at Home: Easy DIY Natural Recipe'
+description: Have you ever wanted to create your own white clay right at home? Imagine
+  having a natural, soft clay that’s perfect for crafting, skincare, or even art project
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-white-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-white-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own white clay right at home? Imagine having a natural, soft clay that’s perfect for crafting, skincare, or even art projects—made with simple ingredients you probably already have.**

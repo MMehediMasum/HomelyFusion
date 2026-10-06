@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Refinishing Company: Essential Tools and Tips for Perfect Hardwood Floors"
 description: "Refinishing floors can bring new life to your home. It restores beauty and functionality with minimal effort. In this blog post, we explore the essentials of wo"
 pubDate: 2026-06-19

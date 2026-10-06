@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Charge My Home Ac Myself: DIY Tips to Save Money Safely"
 description: "Are you wondering if you can charge your home AC yourself and save money on service calls? It’s a question many homeowners ask when their air conditioner starts"
 pubDate: 2026-04-08

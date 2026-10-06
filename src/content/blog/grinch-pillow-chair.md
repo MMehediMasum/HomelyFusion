@@ -1,10 +1,14 @@
 ---
-title: "Grinch Pillow Chair: Cozy Holiday Decor for Festive Comfort and Style"
-description: "The Grinch Pillow Chair adds fun and comfort to any room this holiday season. It combines festive style with cozy support for relaxing moments. This unique pill"
+title: 'Grinch Pillow Chair: Cozy Holiday Decor for Festive Comfort and Style'
+description: The Grinch Pillow Chair adds fun and comfort to any room this holiday
+  season. It combines festive style with cozy support for relaxing moments. This unique
+  pill
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grinch-pillow-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=grinch-pillow-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Grinch Pillow Chair adds fun and comfort to any room this holiday season. It combines festive style with cozy support for relaxing moments.**

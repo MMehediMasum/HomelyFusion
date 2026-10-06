@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Wood Flooring Contractor Tips: Easy DIY Vinyl Peel and Stick Solutions"
 description: "Wood flooring contractors transform spaces with their expertise in installation and repair. They ensure durability and aesthetic appeal for your floors. Choosin"
 pubDate: 2026-06-19

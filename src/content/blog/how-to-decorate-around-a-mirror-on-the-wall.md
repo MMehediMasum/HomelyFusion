@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate around a Mirror on the Wall: Stunning Ideas"
-description: "Looking to make your mirror the star of your room? Decorating around a mirror on the wall can completely transform your space, adding style, depth, and personal"
+title: 'How to Decorate around a Mirror on the Wall: Stunning Ideas'
+description: Looking to make your mirror the star of your room? Decorating around
+  a mirror on the wall can completely transform your space, adding style, depth, and
+  personal
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-mirror-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-mirror-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to make your mirror the star of your room? Decorating around a mirror on the wall can completely transform your space, adding style, depth, and personality.**

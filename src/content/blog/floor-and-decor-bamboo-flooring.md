@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Bamboo Flooring: Stylish, Durable Rugs for Every Room"
-description: "Floor and Decor bamboo flooring offers a natural, eco-friendly option for home floors. It combines beauty, durability, and easy maintenance. Bamboo flooring is "
+title: 'Floor And Decor Bamboo Flooring: Stylish, Durable Rugs for Every Room'
+description: 'Floor and Decor bamboo flooring offers a natural, eco-friendly option
+  for home floors. It combines beauty, durability, and easy maintenance. Bamboo flooring
+  is '
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-bamboo-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-bamboo-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor bamboo flooring offers a natural, eco-friendly option for home floors. It combines beauty, durability, and easy maintenance.**

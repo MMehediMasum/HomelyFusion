@@ -1,10 +1,14 @@
 ---
-title: "Is Two Rustic Benches in Bedroom Too Much? Expert Tips Revealed"
-description: "Are you thinking about adding two rustic benches to your bedroom but wondering if it might be too much? You’re not alone. Choosing the right furniture can be tr"
+title: Is Two Rustic Benches in Bedroom Too Much? Expert Tips Revealed
+description: Are you thinking about adding two rustic benches to your bedroom but
+  wondering if it might be too much? You’re not alone. Choosing the right furniture
+  can be tr
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-two-rustic-benches-in-bedroom-too-much&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=is-two-rustic-benches-in-bedroom-too-much&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about adding two rustic benches to your bedroom but wondering if it might be too much? You’re not alone.**

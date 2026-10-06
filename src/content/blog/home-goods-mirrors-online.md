@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Mirrors Online: Stylish Full-Length Mirrors for Every Room"
-description: "Mirrors are essential for enhancing home decor and functionality. They add style and practicality to any space. Explore various types of mirrors available onlin"
+title: 'Home Goods Mirrors Online: Stylish Full-Length Mirrors for Every Room'
+description: Mirrors are essential for enhancing home decor and functionality. They
+  add style and practicality to any space. Explore various types of mirrors available
+  onlin
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-mirrors-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-mirrors-online&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors are essential for enhancing home decor and functionality. They add style and practicality to any space.**

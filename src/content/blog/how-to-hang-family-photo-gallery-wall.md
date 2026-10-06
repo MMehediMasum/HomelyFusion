@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Family Photo Gallery Wall: Stunning Tips Made Simple"
-description: "Creating a family photo gallery wall is one of the best ways to bring warmth and personality into your home. But if you’ve ever stood in front of a blank wall, "
+title: 'How to Hang Family Photo Gallery Wall: Stunning Tips Made Simple'
+description: 'Creating a family photo gallery wall is one of the best ways to bring
+  warmth and personality into your home. But if you’ve ever stood in front of a blank
+  wall, '
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-family-photo-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-family-photo-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating a family photo gallery wall is one of the best ways to bring warmth and personality into your home. But if you’ve ever stood in front of a blank wall, wondering where to start, you’re not alone.**

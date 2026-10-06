@@ -1,10 +1,14 @@
 ---
-title: "How to Add a Smart Bulb to Google Home: Quick & Easy Guide"
-description: "Are you ready to make your home smarter and more convenient? Adding a smart bulb to Google Home is easier than you think, and it can instantly change the way yo"
+title: 'How to Add a Smart Bulb to Google Home: Quick & Easy Guide'
+description: Are you ready to make your home smarter and more convenient? Adding a
+  smart bulb to Google Home is easier than you think, and it can instantly change
+  the way yo
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-a-smart-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-a-smart-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Adding a smart bulb to Google Home is easier than you think, and it can instantly change the way you control your lighting.**

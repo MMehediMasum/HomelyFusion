@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity Chair: Stylish Comfort for Your Makeup and Office Space"
-description: "Discovering the perfect vanity chair can transform your daily routine. It's not just about style but also comfort and functionality. Vanity chairs from Home Goo"
+title: 'Home Goods Vanity Chair: Stylish Comfort for Your Makeup and Office Space'
+description: Discovering the perfect vanity chair can transform your daily routine.
+  It's not just about style but also comfort and functionality. Vanity chairs from
+  Home Goo
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Discovering the perfect vanity chair can transform your daily routine. It's not just about style but also comfort and functionality.**

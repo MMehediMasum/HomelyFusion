@@ -1,10 +1,14 @@
 ---
-title: "How to Make Floating Lanterns at Home: Easy DIY Guide"
-description: "Have you ever watched floating lanterns drift gently across the water and wished you could create that magical moment yourself? Making floating lanterns at home"
+title: 'How to Make Floating Lanterns at Home: Easy DIY Guide'
+description: Have you ever watched floating lanterns drift gently across the water
+  and wished you could create that magical moment yourself? Making floating lanterns
+  at home
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-floating-lanterns-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-floating-lanterns-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever watched floating lanterns drift gently across the water and wished you could create that magical moment yourself? Making floating lanterns at home is easier than you think, and it can turn any evening into a special celebration.**

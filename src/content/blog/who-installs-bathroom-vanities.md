@@ -1,10 +1,14 @@
 ---
-title: "Who Installs Bathroom Vanities: Expert Tips for Perfect Setup"
-description: "Are you planning to upgrade your bathroom with a new vanity but wondering who should install it? Choosing the right person for this job is more important than y"
+title: 'Who Installs Bathroom Vanities: Expert Tips for Perfect Setup'
+description: Are you planning to upgrade your bathroom with a new vanity but wondering
+  who should install it? Choosing the right person for this job is more important
+  than y
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-installs-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=who-installs-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom with a new vanity but wondering who should install it? Choosing the right person for this job is more important than you might think.**

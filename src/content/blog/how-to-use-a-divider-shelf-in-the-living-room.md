@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Divider Shelf in the Living Room: Stylish Space Hacks"
-description: "Are you struggling to make the most of your living room space? A divider shelf might be the simple solution you need. It not only separates your room but also a"
+title: 'How to Use a Divider Shelf in the Living Room: Stylish Space Hacks'
+description: Are you struggling to make the most of your living room space? A divider
+  shelf might be the simple solution you need. It not only separates your room but
+  also a
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-divider-shelf-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-divider-shelf-in-the-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you struggling to make the most of your living room space? A divider shelf might be the simple solution you need.**

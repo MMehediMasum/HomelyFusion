@@ -1,10 +1,14 @@
 ---
-title: "Kitchen And Bathroom Flooring: Transform Your Space with These Essential Products"
-description: "Choosing the right flooring for kitchens and bathrooms impacts comfort, safety, and cleanliness. Durable, easy-to-clean mats and rugs protect floors and reduce "
+title: 'Kitchen And Bathroom Flooring: Transform Your Space with These Essential Products'
+description: 'Choosing the right flooring for kitchens and bathrooms impacts comfort,
+  safety, and cleanliness. Durable, easy-to-clean mats and rugs protect floors and
+  reduce '
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=kitchen-and-bathroom-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=kitchen-and-bathroom-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right flooring for kitchens and bathrooms impacts comfort, safety, and cleanliness. Durable, easy-to-clean mats and rugs protect floors and reduce fatigue during chores.**

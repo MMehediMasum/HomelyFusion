@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Get Cotton Out of Ear at Home: Easy and Safe Methods"
 description: "Have you ever tried cleaning your ears and accidentally pushed cotton deeper inside? It can feel uncomfortable and even a bit scary when cotton gets stuck in yo"
 pubDate: 2026-03-27

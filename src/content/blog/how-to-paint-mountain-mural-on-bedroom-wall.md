@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Mountain Mural on Bedroom Wall: Stunning DIY Guide"
-description: "Imagine waking up every day to a stunning mountain view—right on your bedroom wall. Painting a mountain mural might sound difficult, but with the right steps, y"
+title: 'How to Paint Mountain Mural on Bedroom Wall: Stunning DIY Guide'
+description: Imagine waking up every day to a stunning mountain view—right on your
+  bedroom wall. Painting a mountain mural might sound difficult, but with the right
+  steps, y
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-mountain-mural-on-bedroom-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-mountain-mural-on-bedroom-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine waking up every day to a stunning mountain view—right on your bedroom wall. Painting a mountain mural might sound difficult, but with the right steps, you can create a peaceful and inspiring space without being an expert artist.**

@@ -1,10 +1,14 @@
 ---
-title: "When were Gas Lamps Used in Homes: A Fascinating Historical Timeline"
-description: "Have you ever wondered when gas lamps first lit up homes and changed the way people lived? Imagine your evenings bathed in a soft, flickering glow instead of ha"
+title: 'When were Gas Lamps Used in Homes: A Fascinating Historical Timeline'
+description: Have you ever wondered when gas lamps first lit up homes and changed
+  the way people lived? Imagine your evenings bathed in a soft, flickering glow instead
+  of ha
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-were-gas-lamps-used-in-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=when-were-gas-lamps-used-in-homes&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered when gas lamps first lit up homes and changed the way people lived? Imagine your evenings bathed in a soft, flickering glow instead of harsh electric light.**

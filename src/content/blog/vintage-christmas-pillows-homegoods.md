@@ -1,10 +1,14 @@
 ---
-title: "Vintage Christmas Pillows Homegoods: Cozy Retro Decor for Festive Living Rooms"
-description: "Vintage Christmas pillows add charm and warmth to any home during the festive season. These decorative pieces bring nostalgia and style. As the holiday season a"
+title: 'Vintage Christmas Pillows Homegoods: Cozy Retro Decor for Festive Living Rooms'
+description: Vintage Christmas pillows add charm and warmth to any home during the
+  festive season. These decorative pieces bring nostalgia and style. As the holiday
+  season a
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-christmas-pillows-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=vintage-christmas-pillows-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Vintage Christmas pillows add charm and warmth to any home during the festive season. These decorative pieces bring nostalgia and style.**

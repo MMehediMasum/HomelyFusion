@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Night Stands: Stylish Storage and Charging Solutions for Bedrooms"
-description: "Home goods night stands blend style and function for any bedroom or living space. They offer storage, lighting, and charging options all in one compact design. "
+title: 'Home Goods Night Stands: Stylish Storage and Charging Solutions for Bedrooms'
+description: 'Home goods night stands blend style and function for any bedroom or
+  living space. They offer storage, lighting, and charging options all in one compact
+  design. '
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-night-stands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-night-stands&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods night stands blend style and function for any bedroom or living space. They offer storage, lighting, and charging options all in one compact design.**

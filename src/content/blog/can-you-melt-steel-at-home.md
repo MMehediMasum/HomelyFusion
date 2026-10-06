@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Melt Steel at Home: Ultimate DIY Guide Uncovered"
 description: "Have you ever wondered if you can melt steel right at home? It sounds like a bold idea, maybe even impossible. But what if you could turn solid steel into molte"
 pubDate: 2026-04-04

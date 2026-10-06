@@ -1,10 +1,13 @@
 ---
-title: "Modern Living Room Accessories to Elevate Your Home Decor Instantly"
-description: "Modern living room accessories can transform your space into a stylish haven. These pieces offer both function and flair. Creating a welcoming and contemporary "
+title: Modern Living Room Accessories to Elevate Your Home Decor Instantly
+description: 'Modern living room accessories can transform your space into a stylish
+  haven. These pieces offer both function and flair. Creating a welcoming and contemporary '
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=modern-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern living room accessories can transform your space into a stylish haven. These pieces offer both function and flair.**

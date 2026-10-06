@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Xbox As Primary: Ultimate Guide for Gamers"
 description: "Are you looking to get the most out of your Xbox without juggling multiple accounts or missing out on your favorite games? Setting your home Xbox as primary can"
 pubDate: 2026-04-29

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A New Home Ac Valhalla: Ultimate Guide to Settling Your Viking Legacy"
 description: "Are you ready to dive into a fresh adventure with A New Home AC Valhalla? Imagine stepping into a world where every decision shapes your destiny and every corne"
 pubDate: 2026-04-07

@@ -1,10 +1,14 @@
 ---
-title: "How to Float a Sofa in a Living Room: Expert Tips for Style"
-description: "Have you ever thought about changing the way your living room feels without buying new furniture? Floating a sofa—placing it away from the walls—can completely "
+title: 'How to Float a Sofa in a Living Room: Expert Tips for Style'
+description: 'Have you ever thought about changing the way your living room feels
+  without buying new furniture? Floating a sofa—placing it away from the walls—can
+  completely '
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-float-a-sofa-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-float-a-sofa-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever thought about changing the way your living room feels without buying new furniture? Floating a sofa—placing it away from the walls—can completely transform your space.**

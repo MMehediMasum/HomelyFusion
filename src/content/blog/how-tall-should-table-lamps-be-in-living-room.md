@@ -1,10 +1,14 @@
 ---
-title: "How Tall Should Table Lamps Be in Living Room: Expert Guide"
-description: "When it comes to lighting your living room, the right table lamp can make all the difference. But have you ever wondered how tall your table lamps should be? Ch"
+title: 'How Tall Should Table Lamps Be in Living Room: Expert Guide'
+description: When it comes to lighting your living room, the right table lamp can
+  make all the difference. But have you ever wondered how tall your table lamps should
+  be? Ch
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-should-table-lamps-be-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-should-table-lamps-be-in-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **When it comes to lighting your living room, the right table lamp can make all the difference. But have you ever wondered how tall your table lamps should be?**

@@ -1,10 +1,14 @@
 ---
-title: "Colorful Vases Home Decor: Brighten Your Space with Elegant Floral Arrangements"
-description: "Colorful vases add charm and life to any home decor. They brighten spaces and highlight floral arrangements beautifully. Using colorful vases in your home bring"
+title: 'Colorful Vases Home Decor: Brighten Your Space with Elegant Floral Arrangements'
+description: Colorful vases add charm and life to any home decor. They brighten spaces
+  and highlight floral arrangements beautifully. Using colorful vases in your home
+  bring
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=colorful-vases-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=colorful-vases-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Colorful vases add charm and life to any home decor. They brighten spaces and highlight floral arrangements beautifully.**

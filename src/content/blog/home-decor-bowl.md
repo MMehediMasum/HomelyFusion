@@ -1,10 +1,13 @@
 ---
-title: "Home Decor Bowl Ideas: Stylish Centerpieces to Elevate Your Space"
-description: "Home decor bowls add a stylish touch to any room. They serve both functional and aesthetic purposes in modern homes. Whether placed on a coffee table, entryway,"
+title: 'Home Decor Bowl Ideas: Stylish Centerpieces to Elevate Your Space'
+description: Home decor bowls add a stylish touch to any room. They serve both functional
+  and aesthetic purposes in modern homes. Whether placed on a coffee table, entryway,
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-bowl&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor bowls add a stylish touch to any room. They serve both functional and aesthetic purposes in modern homes.**

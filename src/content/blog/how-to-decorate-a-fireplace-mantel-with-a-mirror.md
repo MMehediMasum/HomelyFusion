@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Fireplace Mantel With a Mirror: Stunning Ideas"
-description: "Your fireplace mantel is more than just a shelf—it’s the heart of your living space. Decorating it with a mirror can instantly brighten your room, create a sens"
+title: 'How to Decorate a Fireplace Mantel With a Mirror: Stunning Ideas'
+description: Your fireplace mantel is more than just a shelf—it’s the heart of your
+  living space. Decorating it with a mirror can instantly brighten your room, create
+  a sens
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-fireplace-mantel-with-a-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-fireplace-mantel-with-a-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your fireplace mantel is more than just a shelf—it’s the heart of your living space. Decorating it with a mirror can instantly brighten your room, create a sense of depth, and add a stylish focal point.**

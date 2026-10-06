@@ -1,10 +1,14 @@
 ---
-title: "Frame for Living Room: Top Multi-Size Picture Frame Sets for Stylish Display"
-description: "Choosing the right frame for your living room can change the whole look of your space. Frames hold your memories and add style to your walls. A good frame set o"
+title: 'Frame for Living Room: Top Multi-Size Picture Frame Sets for Stylish Display'
+description: Choosing the right frame for your living room can change the whole look
+  of your space. Frames hold your memories and add style to your walls. A good frame
+  set o
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frame-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=frame-for-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right frame for your living room can change the whole look of your space. Frames hold your memories and add style to your walls.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Galaxy Design on Wall: Stunning Step-by-Step Guide"
-description: "Imagine turning your plain wall into a stunning galaxy full of stars, colors, and mystery. You don’t need to be an expert artist to create this amazing effect. "
+title: 'How to Paint a Galaxy Design on Wall: Stunning Step-by-Step Guide'
+description: 'Imagine turning your plain wall into a stunning galaxy full of stars,
+  colors, and mystery. You don’t need to be an expert artist to create this amazing
+  effect. '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-design-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-design-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine turning your plain wall into a stunning galaxy full of stars, colors, and mystery. You don’t need to be an expert artist to create this amazing effect.**

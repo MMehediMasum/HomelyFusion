@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Bathroom Vanity: Easy Steps for a Stunning Makeover"
-description: "Are you tired of your bathroom vanity looking dull and outdated? Imagine giving it a fresh, stylish makeover without spending a fortune on a new one. Painting y"
+title: 'How to Paint a Bathroom Vanity: Easy Steps for a Stunning Makeover'
+description: Are you tired of your bathroom vanity looking dull and outdated? Imagine
+  giving it a fresh, stylish makeover without spending a fortune on a new one. Painting
+  y
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your bathroom vanity looking dull and outdated? Imagine giving it a fresh, stylish makeover without spending a fortune on a new one.**

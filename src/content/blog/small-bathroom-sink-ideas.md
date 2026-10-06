@@ -1,10 +1,14 @@
 ---
-title: "Small Bathroom Sink Ideas: Stylish Solutions to Maximize Space"
-description: "Struggling to find the perfect sink for your small bathroom? You’re not alone. Choosing the right sink can transform your space, making it feel bigger and more "
+title: 'Small Bathroom Sink Ideas: Stylish Solutions to Maximize Space'
+description: 'Struggling to find the perfect sink for your small bathroom? You’re
+  not alone. Choosing the right sink can transform your space, making it feel bigger
+  and more '
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=small-bathroom-sink-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=small-bathroom-sink-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to find the perfect sink for your small bathroom? You’re not alone.**

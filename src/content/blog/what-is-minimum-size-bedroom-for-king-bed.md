@@ -1,10 +1,14 @@
 ---
-title: "What is Minimum Size Bedroom for King Bed: Ultimate Space Guide"
-description: "Are you thinking about fitting a king bed into your bedroom but unsure if your space is big enough? Choosing the right bed size is more than just comfort—it aff"
+title: 'What is Minimum Size Bedroom for King Bed: Ultimate Space Guide'
+description: Are you thinking about fitting a king bed into your bedroom but unsure
+  if your space is big enough? Choosing the right bed size is more than just comfort—it
+  aff
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-minimum-size-bedroom-for-king-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-minimum-size-bedroom-for-king-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about fitting a king bed into your bedroom but unsure if your space is big enough? Choosing the right bed size is more than just comfort—it affects how you move around, arrange furniture, and even relax in your room.**

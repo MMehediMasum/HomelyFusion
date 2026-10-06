@@ -1,10 +1,14 @@
 ---
-title: "How to Use Uvb Lamp for Vitiligo at Home: Effective Treatment Tips"
-description: "Are you looking for a way to manage vitiligo from the comfort of your home? Using a UVB lamp might be the solution you need. This treatment can help restore you"
+title: 'How to Use Uvb Lamp for Vitiligo at Home: Effective Treatment Tips'
+description: Are you looking for a way to manage vitiligo from the comfort of your
+  home? Using a UVB lamp might be the solution you need. This treatment can help restore
+  you
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-uvb-lamp-for-vitiligo-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-uvb-lamp-for-vitiligo-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking for a way to manage vitiligo from the comfort of your home? Using a UVB lamp might be the solution you need.**

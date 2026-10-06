@@ -1,10 +1,14 @@
 ---
-title: "What Beds are in Demand for Two Bedroom Airbnb: Top Picks Revealed"
-description: "Are you getting ready to set up your two-bedroom Airbnb and wondering what beds will attract more guests? Choosing the right beds can make a big difference in h"
+title: 'What Beds are in Demand for Two Bedroom Airbnb: Top Picks Revealed'
+description: Are you getting ready to set up your two-bedroom Airbnb and wondering
+  what beds will attract more guests? Choosing the right beds can make a big difference
+  in h
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-beds-are-in-demand-for-two-bedroom-airbnb&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=what-beds-are-in-demand-for-two-bedroom-airbnb&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you getting ready to set up your two-bedroom Airbnb and wondering what beds will attract more guests? Choosing the right beds can make a big difference in how comfortable your space feels and how often it gets booked.**

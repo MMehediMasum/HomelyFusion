@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Remove Tonsil Stones at Home With Cotton Swab: Easy & Safe Steps"
 description: "Do you often feel uncomfortable because of those small, stubborn bumps at the back of your throat? Tonsil stones can be annoying, causing bad breath and a scrat"
 pubDate: 2026-03-11

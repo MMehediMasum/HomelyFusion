@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Desks And Sofa in Living Room: Space-Saving Secrets"
-description: "Struggling to find the perfect spot for both your desk and sofa in your living room? You’re not alone. Balancing comfort and productivity in one space can feel "
+title: 'How to Fit Desks And Sofa in Living Room: Space-Saving Secrets'
+description: 'Struggling to find the perfect spot for both your desk and sofa in your
+  living room? You’re not alone. Balancing comfort and productivity in one space can
+  feel '
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-desks-and-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-desks-and-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to find the perfect spot for both your desk and sofa in your living room? You’re not alone.**

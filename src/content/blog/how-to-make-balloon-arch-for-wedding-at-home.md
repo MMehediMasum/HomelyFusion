@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch for Wedding at Home: Easy DIY Guide"
-description: "Are you dreaming of a stunning wedding decoration that will wow your guests without breaking the bank? Making a balloon arch at home is easier than you think, a"
+title: 'How to Make Balloon Arch for Wedding at Home: Easy DIY Guide'
+description: Are you dreaming of a stunning wedding decoration that will wow your
+  guests without breaking the bank? Making a balloon arch at home is easier than you
+  think, a
 pubDate: 2026-04-29
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-wedding-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-wedding-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you dreaming of a stunning wedding decoration that will wow your guests without breaking the bank? Making a balloon arch at home is easier than you think, and it adds a magical touch to your special day.**

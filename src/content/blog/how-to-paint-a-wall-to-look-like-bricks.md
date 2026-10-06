@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Wall to Look Like Bricks: Easy DIY Guide"
-description: "Have you ever wanted the charm of a brick wall without the hassle of real bricks? Painting your wall to look like bricks is a simple, affordable way to transfor"
+title: 'How to Paint a Wall to Look Like Bricks: Easy DIY Guide'
+description: Have you ever wanted the charm of a brick wall without the hassle of
+  real bricks? Painting your wall to look like bricks is a simple, affordable way
+  to transfor
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-to-look-like-bricks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-wall-to-look-like-bricks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted the charm of a brick wall without the hassle of real bricks? Painting your wall to look like bricks is a simple, affordable way to transform any space.**

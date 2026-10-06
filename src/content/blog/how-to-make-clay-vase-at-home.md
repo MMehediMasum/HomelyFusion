@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Vase at Home: Easy Steps for Stunning Decor"
-description: "Have you ever wanted to create something beautiful with your own hands? Making a clay vase at home is easier than you might think. Imagine turning simple clay i"
+title: 'How to Make Clay Vase at Home: Easy Steps for Stunning Decor'
+description: Have you ever wanted to create something beautiful with your own hands?
+  Making a clay vase at home is easier than you might think. Imagine turning simple
+  clay i
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-vase-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-vase-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Making a clay vase at home is easier than you might think.**

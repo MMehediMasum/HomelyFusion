@@ -1,10 +1,14 @@
 ---
-title: "Frame Decoration Ideas: Stylish Picture Frames to Elevate Your Home Decor"
-description: "Frame decoration adds style and personality to any space. It transforms simple photos into eye-catching displays. Frames come in many designs, colors, and mater"
+title: 'Frame Decoration Ideas: Stylish Picture Frames to Elevate Your Home Decor'
+description: Frame decoration adds style and personality to any space. It transforms
+  simple photos into eye-catching displays. Frames come in many designs, colors, and
+  mater
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frame-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=frame-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frame decoration adds style and personality to any space. It transforms simple photos into eye-catching displays.**

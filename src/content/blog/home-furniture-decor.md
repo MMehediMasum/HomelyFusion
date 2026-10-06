@@ -1,10 +1,14 @@
 ---
-title: "Home Furniture Decor: Stylish Shelves, Coasters & Lamps for Every Room"
-description: "Home furniture decor shapes your living space and reflects your style. Choosing the right pieces creates comfort and beauty in every room. Decorating your home "
+title: 'Home Furniture Decor: Stylish Shelves, Coasters & Lamps for Every Room'
+description: 'Home furniture decor shapes your living space and reflects your style.
+  Choosing the right pieces creates comfort and beauty in every room. Decorating your
+  home '
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-furniture-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=home-furniture-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home furniture decor shapes your living space and reflects your style. Choosing the right pieces creates comfort and beauty in every room.**

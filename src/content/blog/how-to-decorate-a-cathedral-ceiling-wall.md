@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Cathedral Ceiling Wall: Stunning Design Ideas"
-description: "Your cathedral ceiling wall is a stunning feature that can transform any room into a breathtaking space. But decorating it can feel overwhelming. How do you hig"
+title: 'How to Decorate a Cathedral Ceiling Wall: Stunning Design Ideas'
+description: Your cathedral ceiling wall is a stunning feature that can transform
+  any room into a breathtaking space. But decorating it can feel overwhelming. How
+  do you hig
 pubDate: 2025-10-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-cathedral-ceiling-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-cathedral-ceiling-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your cathedral ceiling wall is a stunning feature that can transform any room into a breathtaking space. But decorating it can feel overwhelming.**

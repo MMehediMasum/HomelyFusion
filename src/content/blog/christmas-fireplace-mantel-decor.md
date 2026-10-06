@@ -1,10 +1,14 @@
 ---
-title: "Christmas Fireplace Mantel Decor: Stunning Ideas to Wow Your Guests"
-description: "Your fireplace mantel is the heart of your home during the holiday season. Imagine it glowing with warm lights, sparkling ornaments, and cozy touches that insta"
+title: 'Christmas Fireplace Mantel Decor: Stunning Ideas to Wow Your Guests'
+description: Your fireplace mantel is the heart of your home during the holiday season.
+  Imagine it glowing with warm lights, sparkling ornaments, and cozy touches that
+  insta
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-fireplace-mantel-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-fireplace-mantel-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your fireplace mantel is the heart of your home during the holiday season. Imagine it glowing with warm lights, sparkling ornaments, and cozy touches that instantly bring Christmas magic into your space.**

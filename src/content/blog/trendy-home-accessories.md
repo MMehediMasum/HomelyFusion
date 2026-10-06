@@ -1,10 +1,14 @@
 ---
-title: "Trendy Home Accessories to Elevate Your Kitchen and Living Space"
-description: "Trendy home accessories add style and function to any space. They create a fresh, inviting look without much effort. Small details like dish drying mats, jewelr"
+title: Trendy Home Accessories to Elevate Your Kitchen and Living Space
+description: Trendy home accessories add style and function to any space. They create
+  a fresh, inviting look without much effort. Small details like dish drying mats,
+  jewelr
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=trendy-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=trendy-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Trendy home accessories add style and function to any space. They create a fresh, inviting look without much effort.**

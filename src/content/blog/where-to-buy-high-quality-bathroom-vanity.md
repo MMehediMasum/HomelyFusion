@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy High Quality Bathroom Vanity: Top Trusted Stores"
-description: "Looking for the perfect bathroom vanity can feel overwhelming. You want something stylish, durable, and fits your space just right. But where do you find high q"
+title: 'Where to Buy High Quality Bathroom Vanity: Top Trusted Stores'
+description: Looking for the perfect bathroom vanity can feel overwhelming. You want
+  something stylish, durable, and fits your space just right. But where do you find
+  high q
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-high-quality-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-high-quality-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for the perfect bathroom vanity can feel overwhelming. You want something stylish, durable, and fits your space just right.**

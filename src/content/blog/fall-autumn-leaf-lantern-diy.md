@@ -1,10 +1,14 @@
 ---
-title: "Fall Autumn Leaf Lantern DIY: Stunning Cozy Decor Ideas"
-description: "Imagine filling your home with the warm, cozy glow of autumn leaves—without spending a fortune. You can create your own fall autumn leaf lantern that brings the"
+title: 'Fall Autumn Leaf Lantern DIY: Stunning Cozy Decor Ideas'
+description: Imagine filling your home with the warm, cozy glow of autumn leaves—without
+  spending a fortune. You can create your own fall autumn leaf lantern that brings
+  the
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-autumn-leaf-lantern-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-autumn-leaf-lantern-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine filling your home with the warm, cozy glow of autumn leaves—without spending a fortune. You can create your own fall autumn leaf lantern that brings the magic of the season right to your doorstep.**

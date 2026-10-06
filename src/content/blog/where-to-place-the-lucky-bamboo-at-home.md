@@ -1,10 +1,14 @@
 ---
-title: "Where to Place the Lucky Bamboo at Home: Ultimate Feng Shui Tips"
-description: "Are you wondering where to place your lucky bamboo at home to bring the best energy and good fortune? The spot you choose can make a big difference in how this "
+title: 'Where to Place the Lucky Bamboo at Home: Ultimate Feng Shui Tips'
+description: 'Are you wondering where to place your lucky bamboo at home to bring
+  the best energy and good fortune? The spot you choose can make a big difference
+  in how this '
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-the-lucky-bamboo-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bamboo Plant Care
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-the-lucky-bamboo-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering where to place your lucky bamboo at home to bring the best energy and good fortune? The spot you choose can make a big difference in how this simple plant affects your space.**

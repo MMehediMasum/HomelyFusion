@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Stove at Home: Easy Steps for Eco-Friendly Cooking"
 description: "Are you looking for a simple way to save money and cook more efficiently? Making a clay stove at home is easier than you think, and it can change how you prepar"
 pubDate: 2026-03-27

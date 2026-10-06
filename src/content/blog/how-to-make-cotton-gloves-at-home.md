@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Gloves at Home: Easy DIY Craft Guide"
 description: "Have you ever needed a pair of cotton gloves but didn’t want to buy them? What if you could make your own, right at home? Making cotton gloves yourself is easie"
 pubDate: 2026-03-18

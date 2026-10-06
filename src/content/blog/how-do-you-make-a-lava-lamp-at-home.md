@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Lava Lamp at Home: Easy DIY Guide"
-description: "Have you ever wondered how to create your very own lava lamp at home? It’s easier than you think, and it’s a fun project that can brighten up any room. Imagine "
+title: 'How Do You Make a Lava Lamp at Home: Easy DIY Guide'
+description: 'Have you ever wondered how to create your very own lava lamp at home?
+  It’s easier than you think, and it’s a fun project that can brighten up any room.
+  Imagine '
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-lava-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lava Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-lava-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered how to create your very own lava lamp at home? It’s easier than you think, and it’s a fun project that can brighten up any room.**

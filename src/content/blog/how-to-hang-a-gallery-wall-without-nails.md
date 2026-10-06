@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Gallery Wall Without Nails: Easy Damage-Free Tips"
-description: "Want to create a stunning gallery wall but worried about putting holes in your walls? You’re not alone. Many people want to display their favorite photos and ar"
+title: 'How to Hang a Gallery Wall Without Nails: Easy Damage-Free Tips'
+description: Want to create a stunning gallery wall but worried about putting holes
+  in your walls? You’re not alone. Many people want to display their favorite photos
+  and ar
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-gallery-wall-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-gallery-wall-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to create a stunning gallery wall but worried about putting holes in your walls? You’re not alone.**

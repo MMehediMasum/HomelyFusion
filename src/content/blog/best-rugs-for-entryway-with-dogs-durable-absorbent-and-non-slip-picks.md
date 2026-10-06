@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Entryway With Dogs: Durable, Absorbent, and Non-Slip Picks"
-description: "Choosing the best rugs for entryways with dogs can keep your home clean and comfortable. These rugs trap dirt and dry wet paws quickly. Entryways often get mess"
+title: 'Best Rugs for Entryway With Dogs: Durable, Absorbent, and Non-Slip Picks'
+description: Choosing the best rugs for entryways with dogs can keep your home clean
+  and comfortable. These rugs trap dirt and dry wet paws quickly. Entryways often
+  get mess
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-entryway-with-dogs-durable-absorbent-and-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-entryway-with-dogs-durable-absorbent-and-non-slip-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for entryways with dogs can keep your home clean and comfortable. These rugs trap dirt and dry wet paws quickly.**

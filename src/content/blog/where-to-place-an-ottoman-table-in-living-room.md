@@ -1,10 +1,14 @@
 ---
-title: "Where to Place an Ottoman Table in Living Room: Expert Tips"
-description: "Are you wondering where to place an ottoman table in your living room to make the space both stylish and functional? Finding the perfect spot for this versatile"
+title: 'Where to Place an Ottoman Table in Living Room: Expert Tips'
+description: Are you wondering where to place an ottoman table in your living room
+  to make the space both stylish and functional? Finding the perfect spot for this
+  versatile
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-an-ottoman-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-an-ottoman-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to place an ottoman table in your living room to make the space both stylish and functional? Finding the perfect spot for this versatile piece can transform your room, making it cozier and more inviting.**

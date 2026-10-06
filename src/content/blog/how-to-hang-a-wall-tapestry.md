@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Wall Tapestry: Easy Tips for Stunning Decor"
-description: "Are you looking to add a splash of color and personality to your space without spending a fortune? Hanging a wall tapestry is one of the easiest and most creati"
+title: 'How to Hang a Wall Tapestry: Easy Tips for Stunning Decor'
+description: Are you looking to add a splash of color and personality to your space
+  without spending a fortune? Hanging a wall tapestry is one of the easiest and most
+  creati
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-tapestry&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-tapestry&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a splash of color and personality to your space without spending a fortune? Hanging a wall tapestry is one of the easiest and most creative ways to transform any room instantly.**

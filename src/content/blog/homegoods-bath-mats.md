@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Bath Mats: Soft, Absorbent, and Stylish Bathroom Essentials"
-description: "Bath mats are essential for a comfortable and safe bathroom experience. They provide softness and prevent slips. Choosing the right bath mat can enhance your ba"
+title: 'Homegoods Bath Mats: Soft, Absorbent, and Stylish Bathroom Essentials'
+description: Bath mats are essential for a comfortable and safe bathroom experience.
+  They provide softness and prevent slips. Choosing the right bath mat can enhance
+  your ba
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bath-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bath-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Bath mats are essential for a comfortable and safe bathroom experience. They provide softness and prevent slips.**

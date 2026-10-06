@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Bedroom Rug Be for Queen Bed: Perfect Size Guide"
-description: "Choosing the right rug size for your bedroom can completely change how your space feels and looks. If you have a queen bed, you might wonder how big your bedroo"
+title: 'How Big Should Bedroom Rug Be for Queen Bed: Perfect Size Guide'
+description: Choosing the right rug size for your bedroom can completely change how
+  your space feels and looks. If you have a queen bed, you might wonder how big your
+  bedroo
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-bedroom-rug-be-for-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-bedroom-rug-be-for-queen-bed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug size for your bedroom can completely change how your space feels and looks. If you have a queen bed, you might wonder how big your bedroom rug should be to create comfort and style without overwhelming the room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Straight Lines on a Wall: Easy Steps for Flawless Results"
-description: "Have you ever started painting your wall, only to end up with crooked lines that make the whole room look messy? You’re not alone. Painting straight lines can b"
+title: 'How to Paint Straight Lines on a Wall: Easy Steps for Flawless Results'
+description: Have you ever started painting your wall, only to end up with crooked
+  lines that make the whole room look messy? You’re not alone. Painting straight lines
+  can b
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-straight-lines-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-straight-lines-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever started painting your wall, only to end up with crooked lines that make the whole room look messy? You’re not alone.**

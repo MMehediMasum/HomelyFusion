@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home to Play Music: Ultimate Guide for Beginners"
 description: "Imagine walking into your room and instantly filling it with your favorite songs—without lifting a finger. With Google Home, you can turn this into your everyda"
 pubDate: 2026-04-29

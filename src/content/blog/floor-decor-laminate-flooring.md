@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Laminate Flooring Ideas to Transform Your Home Easily"
-description: "Floor Decor laminate flooring offers an easy way to refresh any room with style and durability. This flooring fits many spaces, from kitchens to classrooms. Lam"
+title: Floor Decor Laminate Flooring Ideas to Transform Your Home Easily
+description: Floor Decor laminate flooring offers an easy way to refresh any room
+  with style and durability. This flooring fits many spaces, from kitchens to classrooms.
+  Lam
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-laminate-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-laminate-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor laminate flooring offers an easy way to refresh any room with style and durability. This flooring fits many spaces, from kitchens to classrooms.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Float a Sofa in a Small Living Room: Expert Space-Saving Tips"
-description: "Struggling to make your small living room feel open and inviting? Floating a sofa—placing it away from walls—can completely transform your space. It might sound"
+title: 'How to Float a Sofa in a Small Living Room: Expert Space-Saving Tips'
+description: Struggling to make your small living room feel open and inviting? Floating
+  a sofa—placing it away from walls—can completely transform your space. It might
+  sound
 pubDate: 2026-02-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-float-a-sofa-in-a-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-float-a-sofa-in-a-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to make your small living room feel open and inviting? Floating a sofa—placing it away from walls—can completely transform your space.**

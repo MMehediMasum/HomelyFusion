@@ -1,10 +1,14 @@
 ---
-title: "Floor Covering Stores: Top Peel & Stick Tiles and Rugs for Every Room"
-description: "Floor covering stores offer a variety of options to enhance your home’s aesthetics and functionality. From peel and stick tiles to plush rugs, these stores prov"
+title: 'Floor Covering Stores: Top Peel & Stick Tiles and Rugs for Every Room'
+description: Floor covering stores offer a variety of options to enhance your home’s
+  aesthetics and functionality. From peel and stick tiles to plush rugs, these stores
+  prov
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-covering-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-covering-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor covering stores offer a variety of options to enhance your home’s aesthetics and functionality. From peel and stick tiles to plush rugs, these stores provide solutions for every room.**

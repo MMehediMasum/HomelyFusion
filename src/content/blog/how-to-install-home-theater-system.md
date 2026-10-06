@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Home Theater System: Step-by-Step Guide for Beginners"
 description: "Are you ready to transform your living room into an exciting home theater? Installing a home theater system might sound tricky, but with the right steps, you ca"
 pubDate: 2025-10-06

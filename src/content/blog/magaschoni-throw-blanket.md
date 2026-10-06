@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Throw Blanket: Ultimate Cozy Warmth for Your Sofa"
-description: "The Magaschoni Throw Blanket combines warmth and style in one soft, cozy package. It fits perfectly on any couch or bed, adding comfort and charm. This throw bl"
+title: 'Magaschoni Throw Blanket: Ultimate Cozy Warmth for Your Sofa'
+description: The Magaschoni Throw Blanket combines warmth and style in one soft, cozy
+  package. It fits perfectly on any couch or bed, adding comfort and charm. This throw
+  bl
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-throw-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-throw-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Magaschoni Throw Blanket combines warmth and style in one soft, cozy package. It fits perfectly on any couch or bed, adding comfort and charm.**

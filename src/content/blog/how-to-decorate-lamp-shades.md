@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Lamp Shades: Stunning DIY Ideas to Brighten Your Home"
-description: "Are you ready to give your room a fresh, unique look without spending a fortune? Decorating your lamp shades is a simple and fun way to add style and personalit"
+title: 'How to Decorate Lamp Shades: Stunning DIY Ideas to Brighten Your Home'
+description: Are you ready to give your room a fresh, unique look without spending
+  a fortune? Decorating your lamp shades is a simple and fun way to add style and
+  personalit
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-lamp-shades&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-lamp-shades&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you ready to give your room a fresh, unique look without spending a fortune? Decorating your lamp shades is a simple and fun way to add style and personality to any space.**

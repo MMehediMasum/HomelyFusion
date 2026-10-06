@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Polish Stainless Steel at Home: Easy Steps for a Shiny Finish"
 description: "Is your stainless steel looking dull or scratched? You don’t need expensive products or professional help to make it shine again. With a few simple steps and it"
 pubDate: 2026-03-01

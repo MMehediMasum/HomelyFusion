@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Entry Hall: Stunning Ideas to Impress Guests Instantly"
-description: "Your entry hall is the first thing guests see when they step into your home. It sets the tone for the entire space and shows your personal style right away. But"
+title: 'How to Decorate Entry Hall: Stunning Ideas to Impress Guests Instantly'
+description: Your entry hall is the first thing guests see when they step into your
+  home. It sets the tone for the entire space and shows your personal style right
+  away. But
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-entry-hall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-entry-hall&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your entry hall is the first thing guests see when they step into your home. It sets the tone for the entire space and shows your personal style right away.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Floor And Decor: Stylish Lamps, Mirrors, Vases, and Cozy Storage Solutions"
-description: "Home floor and decor items bring style and function to any living space. They create a cozy, attractive atmosphere with simple touches. Choosing the right floor"
+title: 'Home Floor And Decor: Stylish Lamps, Mirrors, Vases, and Cozy Storage Solutions'
+description: Home floor and decor items bring style and function to any living space.
+  They create a cozy, attractive atmosphere with simple touches. Choosing the right
+  floor
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-floor-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-floor-and-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home floor and decor items bring style and function to any living space. They create a cozy, attractive atmosphere with simple touches.**

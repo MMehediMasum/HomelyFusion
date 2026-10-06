@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Las Vegas: Ultimate Casino-Themed Party Essentials & Rug Ideas"
-description: "Floor decor in Las Vegas offers vibrant options for themed parties and home decoration. Transform any space with casino-themed decor. Las Vegas is known for its"
+title: 'Floor Decor Las Vegas: Ultimate Casino-Themed Party Essentials & Rug Ideas'
+description: Floor decor in Las Vegas offers vibrant options for themed parties and
+  home decoration. Transform any space with casino-themed decor. Las Vegas is known
+  for its
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-las-vegas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-las-vegas&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor decor in Las Vegas offers vibrant options for themed parties and home decoration. Transform any space with casino-themed decor.**

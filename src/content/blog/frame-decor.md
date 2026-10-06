@@ -1,10 +1,14 @@
 ---
-title: "Frame Decor Ideas: Elegant 5x7 and 8x10 Picture Frames for Every Style"
-description: "Frame decor adds personality to your home. It transforms spaces, making them feel inviting and unique. Whether you're showcasing family photos or art pieces, th"
+title: 'Frame Decor Ideas: Elegant 5x7 and 8x10 Picture Frames for Every Style'
+description: Frame decor adds personality to your home. It transforms spaces, making
+  them feel inviting and unique. Whether you're showcasing family photos or art pieces,
+  th
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frame-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=frame-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frame decor adds personality to your home. It transforms spaces, making them feel inviting and unique.**

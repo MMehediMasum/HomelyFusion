@@ -1,10 +1,14 @@
 ---
-title: "Brooks Brothers Outdoor Furniture Homegoods: Stylish Patio Sets and Care Kits"
-description: "Explore the world of Brooks Brothers Outdoor Furniture at Homegoods, where style meets comfort for your outdoor spaces. From wicker patio sets to teak care kits"
+title: 'Brooks Brothers Outdoor Furniture Homegoods: Stylish Patio Sets and Care Kits'
+description: Explore the world of Brooks Brothers Outdoor Furniture at Homegoods,
+  where style meets comfort for your outdoor spaces. From wicker patio sets to teak
+  care kits
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brooks-brothers-outdoor-furniture-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=brooks-brothers-outdoor-furniture-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Explore the world of Brooks Brothers Outdoor Furniture at Homegoods, where style meets comfort for your outdoor spaces. From wicker patio sets to teak care kits, discover essentials for every garden.**

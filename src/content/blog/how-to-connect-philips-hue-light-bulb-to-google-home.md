@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Philips Hue Light Bulb to Google Home: Easy Guide"
-description: "Imagine controlling your home lighting with just your voice. Connecting your Philips Hue light bulb to Google Home makes this possible, giving you convenience a"
+title: 'How to Connect Philips Hue Light Bulb to Google Home: Easy Guide'
+description: Imagine controlling your home lighting with just your voice. Connecting
+  your Philips Hue light bulb to Google Home makes this possible, giving you convenience
+  a
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-philips-hue-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-philips-hue-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home lighting with just your voice. Connecting your Philips Hue light bulb to Google Home makes this possible, giving you convenience and smart control like never before.**

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Scary Mask Craft Ideas: Spooktacular DIY Projects to Try"
-description: "Are you ready to make this Halloween unforgettable? Imagine wearing a mask that turns heads and sparks excitement wherever you go. Creating your own scary mask "
+title: 'Halloween Scary Mask Craft Ideas: Spooktacular DIY Projects to Try'
+description: 'Are you ready to make this Halloween unforgettable? Imagine wearing
+  a mask that turns heads and sparks excitement wherever you go. Creating your own
+  scary mask '
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-scary-mask-craft-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-scary-mask-craft-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make this Halloween unforgettable? Imagine wearing a mask that turns heads and sparks excitement wherever you go.**

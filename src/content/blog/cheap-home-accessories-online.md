@@ -1,10 +1,14 @@
 ---
-title: "Cheap Home Accessories Online: Stylish & Affordable Essentials for Every Room"
-description: "Finding affordable home accessories online can enhance your space without breaking the bank. From bathroom essentials to kitchen gadgets, these items add functi"
+title: 'Cheap Home Accessories Online: Stylish & Affordable Essentials for Every Room'
+description: Finding affordable home accessories online can enhance your space without
+  breaking the bank. From bathroom essentials to kitchen gadgets, these items add
+  functi
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-home-accessories-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cheap-home-accessories-online&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Finding affordable home accessories online can enhance your space without breaking the bank. From bathroom essentials to kitchen gadgets, these items add functionality and style.**

@@ -1,10 +1,14 @@
 ---
-title: "How Deep is Standard Bedroom Dresser: Ultimate Size Guide"
-description: "Are you wondering how much space a standard bedroom dresser really takes up? Knowing the typical depth of a dresser can help you plan your room better and avoid"
+title: 'How Deep is Standard Bedroom Dresser: Ultimate Size Guide'
+description: Are you wondering how much space a standard bedroom dresser really takes
+  up? Knowing the typical depth of a dresser can help you plan your room better and
+  avoid
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-deep-is-standard-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-deep-is-standard-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how much space a standard bedroom dresser really takes up? Knowing the typical depth of a dresser can help you plan your room better and avoid surprises when it arrives.**

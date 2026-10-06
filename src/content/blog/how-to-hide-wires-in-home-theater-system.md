@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hide Wires in Home Theater System: Easy & Clean Solutions"
 description: "Are tangled wires ruining the sleek look of your home theater? You’re not alone. Managing all those cables can feel like a never-ending battle, but it doesn’t h"
 pubDate: 2026-04-21

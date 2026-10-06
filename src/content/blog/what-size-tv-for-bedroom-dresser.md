@@ -1,10 +1,13 @@
 ---
-title: "What Size Tv for Bedroom Dresser: Ultimate Guide for Perfect Fit"
-description: "Choosing the right size TV for your bedroom dresser can make a big difference in your comfort and viewing experience. You want a screen that fits perfectly—not "
+title: 'What Size Tv for Bedroom Dresser: Ultimate Guide for Perfect Fit'
+description: 'Choosing the right size TV for your bedroom dresser can make a big difference
+  in your comfort and viewing experience. You want a screen that fits perfectly—not '
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-tv-for-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=what-size-tv-for-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right size TV for your bedroom dresser can make a big difference in your comfort and viewing experience. You want a screen that fits perfectly—not too big to overwhelm the space, and not too small to miss out on your favorite shows.**

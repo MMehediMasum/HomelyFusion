@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Keep Bed in Bedroom As Per Vastu: Ultimate Guide"
 description: "Are you wondering why your bedroom doesn’t feel as peaceful or restful as it should? The secret might be in how you place your bed. According to Vastu, the anci"
 pubDate: 2025-11-02

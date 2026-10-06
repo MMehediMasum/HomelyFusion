@@ -1,10 +1,14 @@
 ---
-title: "What Shape Coffee Table for 2 Sofa Living Room: Stylish Ideas"
-description: "Choosing the perfect coffee table for your 2 sofa living room can feel overwhelming. You want something that fits just right, looks stylish, and makes your spac"
+title: 'What Shape Coffee Table for 2 Sofa Living Room: Stylish Ideas'
+description: Choosing the perfect coffee table for your 2 sofa living room can feel
+  overwhelming. You want something that fits just right, looks stylish, and makes
+  your spac
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-shape-coffee-tale-for-2-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-shape-coffee-tale-for-2-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect coffee table for your 2 sofa living room can feel overwhelming. You want something that fits just right, looks stylish, and makes your space more inviting.**

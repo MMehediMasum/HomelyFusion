@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for Photoshoot: Top Softbox Kits for Studio Perfection"
 description: "Choosing the best lighting for a photoshoot shapes your images' quality and mood. Good lighting highlights details and creates a professional look. Photoshoot l"
 pubDate: 2025-11-09

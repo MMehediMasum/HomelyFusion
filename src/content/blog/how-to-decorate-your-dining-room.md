@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Dining Room: Stunning Ideas for Every Style"
-description: "Your dining room is more than just a place to eat – it’s where memories are made, conversations flow, and special moments happen. But how do you turn this space"
+title: 'How to Decorate Your Dining Room: Stunning Ideas for Every Style'
+description: Your dining room is more than just a place to eat – it’s where memories
+  are made, conversations flow, and special moments happen. But how do you turn this
+  space
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-dining-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-dining-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your dining room is more than just a place to eat – it’s where memories are made, conversations flow, and special moments happen. But how do you turn this space into something truly inviting and stylish?**

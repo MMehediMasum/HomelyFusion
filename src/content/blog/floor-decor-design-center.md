@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Design Center: Stunning Tall Vases to Elevate Any Room"
-description: "Floor Decor Design Center offers stylish and unique floor decor items to enhance any living space. Their collection features tall vases, pillows, sculptures, an"
+title: 'Floor Decor Design Center: Stunning Tall Vases to Elevate Any Room'
+description: Floor Decor Design Center offers stylish and unique floor decor items
+  to enhance any living space. Their collection features tall vases, pillows, sculptures,
+  an
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-design-center&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-design-center&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor Design Center offers stylish and unique floor decor items to enhance any living space. Their collection features tall vases, pillows, sculptures, and more.**

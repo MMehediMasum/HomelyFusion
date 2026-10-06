@@ -1,10 +1,14 @@
 ---
-title: "Best Track Lighting for Kitchen: Top Adjustable and Modern Fixtures Reviewed"
-description: "Choosing the best track lighting for your kitchen improves both style and function. Track lighting brightens work areas and adds a modern look. Track lighting o"
+title: 'Best Track Lighting for Kitchen: Top Adjustable and Modern Fixtures Reviewed'
+description: Choosing the best track lighting for your kitchen improves both style
+  and function. Track lighting brightens work areas and adds a modern look. Track
+  lighting o
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-track-lighting-for-kitchen-top-adjustable-and-modern-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-track-lighting-for-kitchen-top-adjustable-and-modern-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best track lighting for your kitchen improves both style and function. Track lighting brightens work areas and adds a modern look.**

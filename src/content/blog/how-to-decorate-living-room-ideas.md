@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Living Room Ideas: Stunning Tips for a Cozy Space"
-description: "Your living room is more than just a space; it’s where you relax, entertain, and create memories. But how do you turn this important room into a place that feel"
+title: 'How to Decorate Living Room Ideas: Stunning Tips for a Cozy Space'
+description: Your living room is more than just a space; it’s where you relax, entertain,
+  and create memories. But how do you turn this important room into a place that feel
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-ideas&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your living room is more than just a space; it’s where you relax, entertain, and create memories. But how do you turn this important room into a place that feels both stylish and comfortable?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Hardening Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create your own sculptures, decorations, or crafts but didn’t have the right materials? Making hardening clay at home is easier than you"
+title: 'How to Make Hardening Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create your own sculptures, decorations, or crafts
+  but didn’t have the right materials? Making hardening clay at home is easier than
+  you
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-hardening-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-hardening-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own sculptures, decorations, or crafts but didn’t have the right materials? Making hardening clay at home is easier than you think, and it can save you money while giving you full control over your projects.**

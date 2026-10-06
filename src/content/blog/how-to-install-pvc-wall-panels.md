@@ -1,10 +1,14 @@
 ---
-title: "How to Install Pvc Wall Panels: Easy Steps for a Stunning Makeover"
-description: "Looking to give your walls a fresh, stylish look without the hassle of messy paint or expensive renovations? You’re in the right place. Installing PVC wall pane"
+title: 'How to Install Pvc Wall Panels: Easy Steps for a Stunning Makeover'
+description: Looking to give your walls a fresh, stylish look without the hassle of
+  messy paint or expensive renovations? You’re in the right place. Installing PVC
+  wall pane
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-pvc-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-pvc-wall-panels&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to give your walls a fresh, stylish look without the hassle of messy paint or expensive renovations? You’re in the right place.**

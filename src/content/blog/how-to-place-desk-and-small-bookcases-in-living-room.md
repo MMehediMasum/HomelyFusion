@@ -1,10 +1,14 @@
 ---
-title: "How to Place Desk And Small Bookcases in Living Room: Expert Tips"
-description: "Are you struggling to find the perfect spot for your desk and small bookcases in your living room? You’re not alone. Balancing work, storage, and style in one s"
+title: 'How to Place Desk And Small Bookcases in Living Room: Expert Tips'
+description: Are you struggling to find the perfect spot for your desk and small bookcases
+  in your living room? You’re not alone. Balancing work, storage, and style in one
+  s
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-desk-and-small-bookcases-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-desk-and-small-bookcases-in-living-room&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to find the perfect spot for your desk and small bookcases in your living room? You’re not alone.**

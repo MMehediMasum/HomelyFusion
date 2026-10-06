@@ -1,10 +1,14 @@
 ---
-title: "Christmas Centerpiece With Candles: Stunning Ideas to Brighten Your Table"
-description: "When you think about Christmas decorations, what’s the first thing that comes to mind? For many, it’s the warm glow of candles that instantly creates a cozy and"
+title: 'Christmas Centerpiece With Candles: Stunning Ideas to Brighten Your Table'
+description: When you think about Christmas decorations, what’s the first thing that
+  comes to mind? For many, it’s the warm glow of candles that instantly creates a
+  cozy and
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-centerpiece-with-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-centerpiece-with-candles&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **When you think about Christmas decorations, what’s the first thing that comes to mind? For many, it’s the warm glow of candles that instantly creates a cozy and festive mood.**

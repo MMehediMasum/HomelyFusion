@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Studying: Top LED Desk Lamps for Focus and Comfort"
-description: "Choosing the best lighting for studying improves focus and reduces eye strain. Proper desk lamps create a comfortable and productive study space. Good lighting "
+title: 'Best Lighting for Studying: Top LED Desk Lamps for Focus and Comfort'
+description: 'Choosing the best lighting for studying improves focus and reduces eye
+  strain. Proper desk lamps create a comfortable and productive study space. Good
+  lighting '
 pubDate: 2025-10-04
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-studying-top-led-desk-lamps-for-focus-and-comfort&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-studying-top-led-desk-lamps-for-focus-and-comfort&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for studying improves focus and reduces eye strain. Proper desk lamps create a comfortable and productive study space.**

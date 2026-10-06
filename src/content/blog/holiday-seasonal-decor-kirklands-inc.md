@@ -1,10 +1,14 @@
 ---
-title: "Holiday Seasonal Decor Kirklands Inc: Unique Gnome & Wooden Plaques Ideas"
-description: "Kirklands Inc. offers a delightful range of holiday seasonal decor. Perfect for adding warmth and charm to your home. Their collection includes beautiful items "
+title: 'Holiday Seasonal Decor Kirklands Inc: Unique Gnome & Wooden Plaques Ideas'
+description: 'Kirklands Inc. offers a delightful range of holiday seasonal decor.
+  Perfect for adding warmth and charm to your home. Their collection includes beautiful
+  items '
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-seasonal-decor-kirklands-inc&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-seasonal-decor-kirklands-inc&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Kirklands Inc. offers a delightful range of holiday seasonal decor. Perfect for adding warmth and charm to your home.**

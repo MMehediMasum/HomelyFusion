@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Trifle Bowl: Elegant Glass Bowls for Stunning Dessert Displays"
-description: "Discover the perfect trifle bowl to elevate your desserts and salads. A stunning centerpiece for any occasion. Trifle bowls are versatile kitchen essentials tha"
+title: 'Home Goods Trifle Bowl: Elegant Glass Bowls for Stunning Dessert Displays'
+description: Discover the perfect trifle bowl to elevate your desserts and salads.
+  A stunning centerpiece for any occasion. Trifle bowls are versatile kitchen essentials
+  tha
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-trifle-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-trifle-bowl&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover the perfect trifle bowl to elevate your desserts and salads. A stunning centerpiece for any occasion.**

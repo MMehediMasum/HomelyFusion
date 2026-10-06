@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Kitchen: Top Non-Slip, Washable, and Stylish Picks"
-description: "Choosing the best area rugs for your kitchen improves comfort and style. The right rug protects floors and adds warmth to busy spaces. Kitchens need rugs that h"
+title: 'Best Area Rugs for Kitchen: Top Non-Slip, Washable, and Stylish Picks'
+description: Choosing the best area rugs for your kitchen improves comfort and style.
+  The right rug protects floors and adds warmth to busy spaces. Kitchens need rugs
+  that h
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-kitchen-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-kitchen-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rugs for your kitchen improves comfort and style. The right rug protects floors and adds warmth to busy spaces.**

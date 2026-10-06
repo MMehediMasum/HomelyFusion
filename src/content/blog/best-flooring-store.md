@@ -1,10 +1,14 @@
 ---
-title: "Best Flooring Store: Top Peel & Stick Tiles and Essential Floor Accessories"
-description: "Finding the best flooring store makes home upgrades simple and stress-free. Quality, style, and easy installation matter most. Choosing the right floor tiles ca"
+title: 'Best Flooring Store: Top Peel & Stick Tiles and Essential Floor Accessories'
+description: Finding the best flooring store makes home upgrades simple and stress-free.
+  Quality, style, and easy installation matter most. Choosing the right floor tiles
+  ca
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=best-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best flooring store makes home upgrades simple and stress-free. Quality, style, and easy installation matter most.**

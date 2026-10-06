@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Single Wood Chair in Living Room: Stylish Spot Ideas"
-description: "Are you wondering where to put that single wood chair in your living room to make the space feel cozy and stylish? You’re not alone. Finding the perfect spot fo"
+title: 'Where to Put Single Wood Chair in Living Room: Stylish Spot Ideas'
+description: Are you wondering where to put that single wood chair in your living
+  room to make the space feel cozy and stylish? You’re not alone. Finding the perfect
+  spot fo
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-single-wood-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-single-wood-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to put that single wood chair in your living room to make the space feel cozy and stylish? You’re not alone.**

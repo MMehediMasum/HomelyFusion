@@ -1,10 +1,14 @@
 ---
-title: "Is Quartz Good for Bathroom Vanity: Stunning Durability & Style"
-description: "Are you thinking about upgrading your bathroom vanity but unsure which countertop material to choose? Quartz might be the answer you’ve been looking for. It com"
+title: 'Is Quartz Good for Bathroom Vanity: Stunning Durability & Style'
+description: Are you thinking about upgrading your bathroom vanity but unsure which
+  countertop material to choose? Quartz might be the answer you’ve been looking for.
+  It com
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-quartz-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-quartz-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about upgrading your bathroom vanity but unsure which countertop material to choose? Quartz might be the answer you’ve been looking for.**

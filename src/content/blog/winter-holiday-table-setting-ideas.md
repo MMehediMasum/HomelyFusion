@@ -1,10 +1,14 @@
 ---
-title: "Winter Holiday Table Setting Ideas: Stunning Designs to Impress Guests"
-description: "Your winter holiday table is more than just a place to eat—it’s where memories are made. Imagine your guests’ eyes lighting up as they see a stunning table sett"
+title: 'Winter Holiday Table Setting Ideas: Stunning Designs to Impress Guests'
+description: Your winter holiday table is more than just a place to eat—it’s where
+  memories are made. Imagine your guests’ eyes lighting up as they see a stunning
+  table sett
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=winter-holiday-table-setting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=winter-holiday-table-setting-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your winter holiday table is more than just a place to eat—it’s where memories are made. Imagine your guests’ eyes lighting up as they see a stunning table setting that feels warm, festive, and inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dining Table: Stylish, Washable, Non-Slip Area Rugs Guide"
-description: "Choosing the best rug for your dining table enhances comfort and style. It also protects your floor from spills and scratches. Dining room rugs come in many sty"
+title: 'Best Rugs for Dining Table: Stylish, Washable, Non-Slip Area Rugs Guide'
+description: Choosing the best rug for your dining table enhances comfort and style.
+  It also protects your floor from spills and scratches. Dining room rugs come in
+  many sty
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dining-table-stylish-washable-non-slip-area-rugs-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dining-table-stylish-washable-non-slip-area-rugs-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your dining table enhances comfort and style. It also protects your floor from spills and scratches.**

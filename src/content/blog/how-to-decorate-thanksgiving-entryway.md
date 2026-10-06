@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Thanksgiving Entryway: Stunning Ideas to Impress Guests"
-description: "Your entryway is the first thing guests see when they arrive for Thanksgiving. It sets the mood and welcomes everyone with warmth and style. But how do you make"
+title: 'How to Decorate Thanksgiving Entryway: Stunning Ideas to Impress Guests'
+description: Your entryway is the first thing guests see when they arrive for Thanksgiving.
+  It sets the mood and welcomes everyone with warmth and style. But how do you make
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-thanksgiving-entryway&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-thanksgiving-entryway&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your entryway is the first thing guests see when they arrive for Thanksgiving. It sets the mood and welcomes everyone with warmth and style.**

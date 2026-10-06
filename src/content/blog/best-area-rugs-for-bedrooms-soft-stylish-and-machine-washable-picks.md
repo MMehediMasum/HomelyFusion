@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Bedrooms: Soft, Stylish, and Machine Washable Picks"
-description: "Choosing the best area rug for your bedroom adds warmth and style. The right rug feels soft underfoot and matches your room’s look. A bedroom rug creates comfor"
+title: 'Best Area Rugs for Bedrooms: Soft, Stylish, and Machine Washable Picks'
+description: Choosing the best area rug for your bedroom adds warmth and style. The
+  right rug feels soft underfoot and matches your room’s look. A bedroom rug creates
+  comfor
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-bedrooms-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-bedrooms-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug for your bedroom adds warmth and style. The right rug feels soft underfoot and matches your room’s look.**

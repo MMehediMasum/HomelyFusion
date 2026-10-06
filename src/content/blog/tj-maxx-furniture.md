@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Furniture: Stylish Accent Chairs and Tables for Every Room"
-description: "Tj Maxx offers a diverse range of stylish and affordable furniture options for every room in your home. From accent chairs to nightstands, their selection inclu"
+title: 'Tj Maxx Furniture: Stylish Accent Chairs and Tables for Every Room'
+description: Tj Maxx offers a diverse range of stylish and affordable furniture options
+  for every room in your home. From accent chairs to nightstands, their selection
+  inclu
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tj Maxx offers a diverse range of stylish and affordable furniture options for every room in your home. From accent chairs to nightstands, their selection includes pieces that blend comfort, function, and design seamlessly.**

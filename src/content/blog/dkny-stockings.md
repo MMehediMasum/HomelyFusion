@@ -1,10 +1,14 @@
 ---
-title: "Dkny Stockings: Ultimate Comfort and Style for Every Occasion"
-description: "DKNY stockings offer a versatile range of styles, perfect for every occasion. From sheer tights to control top options, there's something for everyone. These st"
+title: 'Dkny Stockings: Ultimate Comfort and Style for Every Occasion'
+description: DKNY stockings offer a versatile range of styles, perfect for every occasion.
+  From sheer tights to control top options, there's something for everyone. These
+  st
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-stockings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=dkny-stockings&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **DKNY stockings offer a versatile range of styles, perfect for every occasion. From sheer tights to control top options, there's something for everyone.**

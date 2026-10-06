@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Cranberry Apple Pie Recipe: Irresistibly Delicious & Easy"
 description: "Are you ready to wow your family this Thanksgiving with a dessert that’s both classic and refreshingly different? Imagine biting into a warm, flaky pie filled w"
 pubDate: 2025-12-25

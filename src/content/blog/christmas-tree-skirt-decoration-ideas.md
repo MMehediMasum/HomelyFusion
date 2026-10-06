@@ -1,10 +1,14 @@
 ---
-title: "Christmas Tree Skirt Decoration Ideas: Stunning Styles to Impress"
-description: "Your Christmas tree is the heart of your holiday decor, but have you ever stopped to think about the skirt underneath? That simple circle of fabric can make a h"
+title: 'Christmas Tree Skirt Decoration Ideas: Stunning Styles to Impress'
+description: Your Christmas tree is the heart of your holiday decor, but have you
+  ever stopped to think about the skirt underneath? That simple circle of fabric can
+  make a h
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-tree-skirt-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-tree-skirt-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your Christmas tree is the heart of your holiday decor, but have you ever stopped to think about the skirt underneath? That simple circle of fabric can make a huge difference in how your tree looks and feels.**

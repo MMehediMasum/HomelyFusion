@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Small Bathroom: Top Modern Vanity Fixtures in Black"
-description: "Choosing the best lighting for a small bathroom can make the space feel larger and brighter. Proper lighting improves both function and style in compact bathroo"
+title: 'Best Lighting for Small Bathroom: Top Modern Vanity Fixtures in Black'
+description: Choosing the best lighting for a small bathroom can make the space feel
+  larger and brighter. Proper lighting improves both function and style in compact
+  bathroo
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-small-bathroom-top-modern-vanity-fixtures-in-black&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-small-bathroom-top-modern-vanity-fixtures-in-black&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for a small bathroom can make the space feel larger and brighter. Proper lighting improves both function and style in compact bathrooms.**

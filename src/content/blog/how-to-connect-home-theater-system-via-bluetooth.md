@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System Via Bluetooth: Easy Step-by-Step Guide"
 description: "Are you tired of messy wires cluttering your living room? Connecting your home theater system via Bluetooth can free you from tangled cables and give you a clea"
 pubDate: 2026-04-20

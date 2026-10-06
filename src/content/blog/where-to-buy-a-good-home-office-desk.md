@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy a Good Home Office Desk: Top Trusted Stores Revealed"
-description: "Looking for the perfect home office desk can feel overwhelming. You want something that fits your space, matches your style, and helps you work better. But with"
+title: 'Where to Buy a Good Home Office Desk: Top Trusted Stores Revealed'
+description: Looking for the perfect home office desk can feel overwhelming. You want
+  something that fits your space, matches your style, and helps you work better. But
+  with
 pubDate: 2025-10-02
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-a-good-home-office-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-a-good-home-office-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Looking for the perfect home office desk can feel overwhelming. You want something that fits your space, matches your style, and helps you work better.**

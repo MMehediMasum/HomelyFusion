@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Bedroom Mirror: Stylish Ideas to Transform Your Space"
-description: "Your bedroom mirror is more than just a reflection—it's a chance to add style and personality to your space. But what if your mirror looks plain or outdated? Fr"
+title: 'How to Frame Bedroom Mirror: Stylish Ideas to Transform Your Space'
+description: Your bedroom mirror is more than just a reflection—it's a chance to add
+  style and personality to your space. But what if your mirror looks plain or outdated?
+  Fr
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-bedroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bedroom mirror is more than just a reflection—it's a chance to add style and personality to your space. But what if your mirror looks plain or outdated?**

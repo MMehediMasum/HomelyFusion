@@ -1,10 +1,14 @@
 ---
-title: "What are Bedroom Trunks And Chests: Ultimate Storage Solutions"
-description: "Have you ever wondered how to add both style and storage to your bedroom without cluttering the space? Bedroom trunks and chests might be the perfect solution y"
+title: 'What are Bedroom Trunks And Chests: Ultimate Storage Solutions'
+description: Have you ever wondered how to add both style and storage to your bedroom
+  without cluttering the space? Bedroom trunks and chests might be the perfect solution
+  y
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-bedroom-trunks-and-chests&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-are-bedroom-trunks-and-chests&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever wondered how to add both style and storage to your bedroom without cluttering the space? Bedroom trunks and chests might be the perfect solution you didn’t know you needed.**

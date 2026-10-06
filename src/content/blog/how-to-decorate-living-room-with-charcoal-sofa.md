@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Charcoal Sofa: Stylish & Cozy Ideas"
-description: "Your living room is where comfort meets style, and choosing the right sofa can change everything. A charcoal sofa is a powerful centerpiece that brings both ele"
+title: 'How to Decorate Living Room With Charcoal Sofa: Stylish & Cozy Ideas'
+description: Your living room is where comfort meets style, and choosing the right
+  sofa can change everything. A charcoal sofa is a powerful centerpiece that brings
+  both ele
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-charcoal-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-charcoal-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is where comfort meets style, and choosing the right sofa can change everything. A charcoal sofa is a powerful centerpiece that brings both elegance and versatility.**

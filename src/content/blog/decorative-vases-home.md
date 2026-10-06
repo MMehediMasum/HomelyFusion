@@ -1,10 +1,14 @@
 ---
-title: "Decorative Vases Home: Stylish Ceramic Sets for Modern Shelf Decor"
-description: "Decorative vases add style and charm to any home space. They brighten shelves, tables, and corners with simple beauty. Choosing the right vase can change how a "
+title: 'Decorative Vases Home: Stylish Ceramic Sets for Modern Shelf Decor'
+description: 'Decorative vases add style and charm to any home space. They brighten
+  shelves, tables, and corners with simple beauty. Choosing the right vase can change
+  how a '
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-vases-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=decorative-vases-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative vases add style and charm to any home space. They brighten shelves, tables, and corners with simple beauty.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Scented Candles for Summer to Refresh Your Home Ambiance"
-description: "Summer calls for fresh, light scents that brighten your home and mood. The best scented candles for summer bring cool, fruity, and beachy aromas indoors. Candle"
+title: Best Scented Candles for Summer to Refresh Your Home Ambiance
+description: Summer calls for fresh, light scents that brighten your home and mood.
+  The best scented candles for summer bring cool, fruity, and beachy aromas indoors.
+  Candle
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scented-candles-for-summer-to-refresh-your-home-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-scented-candles-for-summer-to-refresh-your-home-ambiance&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Summer calls for fresh, light scents that brighten your home and mood. The best scented candles for summer bring cool, fruity, and beachy aromas indoors.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Bedroom to Block Light and Boost Privacy"
-description: "Choosing the best curtains for your bedroom can improve comfort and style. Quality curtains block light, add privacy, and enhance room decor. Bedrooms need curt"
+title: Best Curtains for Bedroom to Block Light and Boost Privacy
+description: Choosing the best curtains for your bedroom can improve comfort and style.
+  Quality curtains block light, add privacy, and enhance room decor. Bedrooms need
+  curt
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-bedroom-to-block-light-and-boost-privacy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-bedroom-to-block-light-and-boost-privacy&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for your bedroom can improve comfort and style. Quality curtains block light, add privacy, and enhance room decor.**

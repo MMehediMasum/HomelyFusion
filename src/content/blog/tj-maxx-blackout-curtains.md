@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Blackout Curtains: Ultimate Guide to Thermal Insulated Drapes"
-description: "Tj Maxx blackout curtains offer a simple way to darken your room and save energy. These curtains block light and reduce noise effectively. Blackout curtains fro"
+title: 'Tj Maxx Blackout Curtains: Ultimate Guide to Thermal Insulated Drapes'
+description: Tj Maxx blackout curtains offer a simple way to darken your room and
+  save energy. These curtains block light and reduce noise effectively. Blackout curtains
+  fro
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-blackout-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-blackout-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx blackout curtains offer a simple way to darken your room and save energy. These curtains block light and reduce noise effectively.**

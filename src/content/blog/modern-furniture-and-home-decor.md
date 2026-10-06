@@ -1,10 +1,14 @@
 ---
-title: "Modern Furniture And Home Decor: Stylish Wooden Coasters & Unique Accents"
-description: "Modern furniture and home decor bring style and function together in living spaces. They offer simple, elegant touches for a fresh, updated look. Wooden coaster"
+title: 'Modern Furniture And Home Decor: Stylish Wooden Coasters & Unique Accents'
+description: Modern furniture and home decor bring style and function together in
+  living spaces. They offer simple, elegant touches for a fresh, updated look. Wooden
+  coaster
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-furniture-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=modern-furniture-and-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Modern furniture and home decor bring style and function together in living spaces. They offer simple, elegant touches for a fresh, updated look.**

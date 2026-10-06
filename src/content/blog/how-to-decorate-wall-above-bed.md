@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Wall above Bed: Stunning Ideas for Cozy Bedrooms"
-description: "Your bedroom is your sanctuary, and the wall above your bed is the perfect spot to make a statement. But how do you decorate it in a way that feels just right f"
+title: 'How to Decorate Wall above Bed: Stunning Ideas for Cozy Bedrooms'
+description: Your bedroom is your sanctuary, and the wall above your bed is the perfect
+  spot to make a statement. But how do you decorate it in a way that feels just right
+  f
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-wall-above-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-wall-above-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom is your sanctuary, and the wall above your bed is the perfect spot to make a statement. But how do you decorate it in a way that feels just right for you?**

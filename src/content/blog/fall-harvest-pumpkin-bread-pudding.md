@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Fall Harvest Pumpkin Bread Pudding: Irresistible Cozy Autumn Treat"
 description: "Imagine the warm, cozy aroma of pumpkin and spices filling your kitchen. You want a treat that’s simple to make but feels like a special celebration of fall. Th"
 pubDate: 2025-12-20

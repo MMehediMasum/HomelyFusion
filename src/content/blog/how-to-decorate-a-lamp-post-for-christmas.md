@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Lamp Post for Christmas: Stunning Festive Ideas"
-description: "Your lamp post can become the star of your Christmas decorations this year. Imagine your home glowing warmly, with a beautifully decorated lamp post welcoming g"
+title: 'How to Decorate a Lamp Post for Christmas: Stunning Festive Ideas'
+description: Your lamp post can become the star of your Christmas decorations this
+  year. Imagine your home glowing warmly, with a beautifully decorated lamp post welcoming
+  g
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-lamp-post-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-lamp-post-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your lamp post can become the star of your Christmas decorations this year. Imagine your home glowing warmly, with a beautifully decorated lamp post welcoming guests and spreading holiday cheer.**

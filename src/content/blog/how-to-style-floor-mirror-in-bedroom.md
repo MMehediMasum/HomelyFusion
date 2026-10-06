@@ -1,10 +1,14 @@
 ---
-title: "How to Style Floor Mirror in Bedroom: Stunning Ideas to Transform Space"
-description: "Your bedroom deserves more than just a mirror—it needs a statement piece that reflects your style and makes your space feel bigger and brighter. A floor mirror "
+title: 'How to Style Floor Mirror in Bedroom: Stunning Ideas to Transform Space'
+description: 'Your bedroom deserves more than just a mirror—it needs a statement piece
+  that reflects your style and makes your space feel bigger and brighter. A floor
+  mirror '
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-floor-mirror-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-floor-mirror-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bedroom deserves more than just a mirror—it needs a statement piece that reflects your style and makes your space feel bigger and brighter. A floor mirror can do just that, but how you style it can make all the difference.**

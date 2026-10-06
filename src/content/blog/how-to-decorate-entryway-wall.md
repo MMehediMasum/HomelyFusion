@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Entryway Wall: Stunning Ideas to Impress Guests"
-description: "Your entryway wall is the first thing you and your guests see when you walk in. It sets the tone for your entire home. But if it’s plain or cluttered, it can fe"
+title: 'How to Decorate Entryway Wall: Stunning Ideas to Impress Guests'
+description: Your entryway wall is the first thing you and your guests see when you
+  walk in. It sets the tone for your entire home. But if it’s plain or cluttered,
+  it can fe
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-entryway-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-entryway-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your entryway wall is the first thing you and your guests see when you walk in. It sets the tone for your entire home.**

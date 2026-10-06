@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wall Cabinets for Living Room: Easy DIY Guide"
-description: "Are you looking to add extra storage and style to your living room without spending a fortune? Building your own wall cabinets might be the perfect solution for"
+title: 'How to Build Wall Cabinets for Living Room: Easy DIY Guide'
+description: Are you looking to add extra storage and style to your living room without
+  spending a fortune? Building your own wall cabinets might be the perfect solution
+  for
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wall-cabinets-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wall-cabinets-for-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add extra storage and style to your living room without spending a fortune? Building your own wall cabinets might be the perfect solution for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Grinch Pillow Covers: Cozy and Festive Holiday Decor for Your Home"
-description: "Grinch pillow covers bring holiday cheer and style to your home decor. Discover unique designs to brighten your space. These Grinch-themed pillow covers are per"
+title: 'Grinch Pillow Covers: Cozy and Festive Holiday Decor for Your Home'
+description: Grinch pillow covers bring holiday cheer and style to your home decor.
+  Discover unique designs to brighten your space. These Grinch-themed pillow covers
+  are per
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grinch-pillow-covers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=grinch-pillow-covers&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Grinch pillow covers bring holiday cheer and style to your home decor. Discover unique designs to brighten your space.**

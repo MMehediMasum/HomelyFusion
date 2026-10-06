@@ -1,10 +1,14 @@
 ---
-title: "How to Style Living Room Side Tables: Chic Ideas for Every Space"
-description: "Your living room side tables are more than just furniture—they’re a chance to showcase your style and add personality to your space. But how do you make sure th"
+title: 'How to Style Living Room Side Tables: Chic Ideas for Every Space'
+description: Your living room side tables are more than just furniture—they’re a chance
+  to showcase your style and add personality to your space. But how do you make sure
+  th
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-living-room-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-living-room-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room side tables are more than just furniture—they’re a chance to showcase your style and add personality to your space. But how do you make sure they look great and feel inviting, without overcrowding or underwhelming the room?**

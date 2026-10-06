@@ -1,10 +1,14 @@
 ---
-title: "Valentine’S Flower Arrangement Ideas: Stunning Designs to Impress"
-description: "Looking to make this Valentine’s Day truly special? Your choice of flowers can say what words sometimes can’t. Whether you want to surprise your partner or brig"
+title: 'Valentine’S Flower Arrangement Ideas: Stunning Designs to Impress'
+description: Looking to make this Valentine’s Day truly special? Your choice of flowers
+  can say what words sometimes can’t. Whether you want to surprise your partner or
+  brig
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-flower-arrangement-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=valentines-flower-arrangement-ideas&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Looking to make this Valentine’s Day truly special? Your choice of flowers can say what words sometimes can’t.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Led Lights for Bedroom Ceiling to Brighten and Transform Your Space"
-description: "Choosing the best LED lights for your bedroom ceiling can improve comfort and style. The right lighting sets a cozy mood and brightens your space effectively. L"
+title: Best Led Lights for Bedroom Ceiling to Brighten and Transform Your Space
+description: Choosing the best LED lights for your bedroom ceiling can improve comfort
+  and style. The right lighting sets a cozy mood and brightens your space effectively.
+  L
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-led-lights-for-bedroom-ceiling-to-brighten-and-transform-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-led-lights-for-bedroom-ceiling-to-brighten-and-transform-your-space&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best LED lights for your bedroom ceiling can improve comfort and style. The right lighting sets a cozy mood and brightens your space effectively.**

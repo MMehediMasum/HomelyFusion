@@ -1,10 +1,13 @@
 ---
-title: "Best Floor Lamp for Puzzles: Bright, Adjustable, Eye-Caring Lighting Solutions"
-description: "Finding the best floor lamp for puzzles helps reduce eye strain and improves focus. Bright, adjustable lighting makes puzzle time more enjoyable and comfortable"
+title: 'Best Floor Lamp for Puzzles: Bright, Adjustable, Eye-Caring Lighting Solutions'
+description: Finding the best floor lamp for puzzles helps reduce eye strain and improves
+  focus. Bright, adjustable lighting makes puzzle time more enjoyable and comfortable
 pubDate: 2025-10-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamp-for-puzzles-bright-adjustable-eye-caring-lighting-solutions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamp-for-puzzles-bright-adjustable-eye-caring-lighting-solutions&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Finding the best floor lamp for puzzles helps reduce eye strain and improves focus. Bright, adjustable lighting makes puzzle time more enjoyable and comfortable.**

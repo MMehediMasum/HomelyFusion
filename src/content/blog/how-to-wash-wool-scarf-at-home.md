@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Wool Scarf at Home: Easy Steps for Perfect Care"
 description: "Your wool scarf is more than just an accessory—it’s your cozy companion on chilly days. But washing it can feel tricky. You might worry about shrinking, stretch"
 pubDate: 2026-02-28

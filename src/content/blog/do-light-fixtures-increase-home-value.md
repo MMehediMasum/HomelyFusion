@@ -1,10 +1,14 @@
 ---
-title: "Do Light Fixtures Increase Home Value: Boost Your Property’s Worth Today"
-description: "Are you wondering if upgrading your light fixtures can actually boost the value of your home? You might be surprised to learn how much impact something as simpl"
+title: 'Do Light Fixtures Increase Home Value: Boost Your Property’s Worth Today'
+description: Are you wondering if upgrading your light fixtures can actually boost
+  the value of your home? You might be surprised to learn how much impact something
+  as simpl
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-light-fixtures-increase-home-value&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=do-light-fixtures-increase-home-value&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering if upgrading your light fixtures can actually boost the value of your home? You might be surprised to learn how much impact something as simple as lighting can have on your home's appeal and price.**

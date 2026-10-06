@@ -1,10 +1,14 @@
 ---
-title: "Cheap Bathroom Vanity Ideas: Stylish Upgrades on a Budget"
-description: "Looking to upgrade your bathroom without breaking the bank? You’re in the right place. Your bathroom vanity is the centerpiece of the room, and finding affordab"
+title: 'Cheap Bathroom Vanity Ideas: Stylish Upgrades on a Budget'
+description: Looking to upgrade your bathroom without breaking the bank? You’re in
+  the right place. Your bathroom vanity is the centerpiece of the room, and finding
+  affordab
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=cheap-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom without breaking the bank? You’re in the right place.**

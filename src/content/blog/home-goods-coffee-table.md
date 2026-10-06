@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Coffee Table Ideas: Stylish Storage and Functional Designs"
-description: "A coffee table is more than a piece of furniture. It brings functionality and style to your living space. Whether you need storage or a centerpiece, a coffee ta"
+title: 'Home Goods Coffee Table Ideas: Stylish Storage and Functional Designs'
+description: A coffee table is more than a piece of furniture. It brings functionality
+  and style to your living space. Whether you need storage or a centerpiece, a coffee
+  ta
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-coffee-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A coffee table is more than a piece of furniture. It brings functionality and style to your living space.**

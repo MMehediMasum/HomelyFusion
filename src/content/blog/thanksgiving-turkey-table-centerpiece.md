@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Turkey Table Centerpiece: Stunning Ideas to Impress Guests"
 description: "Your Thanksgiving table is about to become the heart of your home, and the turkey centerpiece is the star of the show. Imagine your guests’ eyes lighting up as "
 pubDate: 2025-10-09

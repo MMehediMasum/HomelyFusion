@@ -1,10 +1,14 @@
 ---
-title: "Ornaments for Living Room: Elegant Modern Decor to Transform Your Space"
-description: "Ornaments add personality and charm to your living room. They create a warm and inviting atmosphere for family and guests. Decorative items like small bird stat"
+title: 'Ornaments for Living Room: Elegant Modern Decor to Transform Your Space'
+description: Ornaments add personality and charm to your living room. They create
+  a warm and inviting atmosphere for family and guests. Decorative items like small
+  bird stat
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornaments-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=ornaments-for-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Ornaments add personality and charm to your living room. They create a warm and inviting atmosphere for family and guests.**

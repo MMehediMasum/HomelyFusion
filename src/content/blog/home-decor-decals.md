@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Decals: Transform Your Space with Inspirational Wall Quotes"
-description: "Home decor decals offer a simple way to transform your living space. These decals add personality and warmth to any room. Wall decals provide an easy and afford"
+title: 'Home Decor Decals: Transform Your Space with Inspirational Wall Quotes'
+description: Home decor decals offer a simple way to transform your living space.
+  These decals add personality and warmth to any room. Wall decals provide an easy
+  and afford
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-decals&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-decals&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor decals offer a simple way to transform your living space. These decals add personality and warmth to any room.**

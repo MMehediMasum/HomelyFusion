@@ -1,10 +1,14 @@
 ---
-title: "Best Lamp for Reading in Bed: Top Clip-On Lights for Cozy Nights"
-description: "Choosing the best lamp for reading in bed improves comfort and protects your eyes. A good reading lamp offers adjustable brightness and color settings. Reading "
+title: 'Best Lamp for Reading in Bed: Top Clip-On Lights for Cozy Nights'
+description: 'Choosing the best lamp for reading in bed improves comfort and protects
+  your eyes. A good reading lamp offers adjustable brightness and color settings.
+  Reading '
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamp-for-reading-in-bed-top-clip-on-lights-for-cozy-nights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamp-for-reading-in-bed-top-clip-on-lights-for-cozy-nights&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamp for reading in bed improves comfort and protects your eyes. A good reading lamp offers adjustable brightness and color settings.**

@@ -1,10 +1,14 @@
 ---
-title: "How High is a Bathroom Vanity: Expert Guide to Perfect Height"
-description: "Have you ever wondered if your bathroom vanity is the right height for you? Getting this just right can make a big difference in your daily routine. Whether you"
+title: 'How High is a Bathroom Vanity: Expert Guide to Perfect Height'
+description: Have you ever wondered if your bathroom vanity is the right height for
+  you? Getting this just right can make a big difference in your daily routine. Whether
+  you
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-is-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-high-is-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your bathroom vanity is the right height for you? Getting this just right can make a big difference in your daily routine.**

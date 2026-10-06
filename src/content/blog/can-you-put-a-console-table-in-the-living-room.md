@@ -1,10 +1,14 @@
 ---
-title: "Can You Put a Console Table in the Living Room: Stylish Ideas"
-description: "Are you wondering if a console table can find a place in your living room? You might think it’s just for hallways or entryways, but the truth is, a console tabl"
+title: 'Can You Put a Console Table in the Living Room: Stylish Ideas'
+description: Are you wondering if a console table can find a place in your living
+  room? You might think it’s just for hallways or entryways, but the truth is, a console
+  tabl
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-console-table-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-console-table-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a console table can find a place in your living room? You might think it’s just for hallways or entryways, but the truth is, a console table can transform your living space in ways you didn’t expect.**

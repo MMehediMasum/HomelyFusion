@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Rugs 9X12: Soft, Washable, and Stylish Vintage Area Rugs"
-description: "Ashley Furniture offers a wide range of stylish 9x12 area rugs. These rugs blend functionality with design, perfect for various spaces. Rugs play a pivotal role"
+title: 'Ashley Furniture Rugs 9X12: Soft, Washable, and Stylish Vintage Area Rugs'
+description: Ashley Furniture offers a wide range of stylish 9x12 area rugs. These
+  rugs blend functionality with design, perfect for various spaces. Rugs play a pivotal
+  role
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-rugs-9x12&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-rugs-9x12&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Ashley Furniture offers a wide range of stylish 9x12 area rugs. These rugs blend functionality with design, perfect for various spaces.**

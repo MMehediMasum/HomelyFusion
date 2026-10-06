@@ -1,10 +1,14 @@
 ---
-title: "Best Clocks for Living Room: Silent, Stylish, and Modern Wall Clocks"
-description: "Choosing the best clock for your living room adds style and function to your space. A good clock keeps time quietly and matches your room’s decor. Clocks come i"
+title: 'Best Clocks for Living Room: Silent, Stylish, and Modern Wall Clocks'
+description: Choosing the best clock for your living room adds style and function
+  to your space. A good clock keeps time quietly and matches your room’s decor. Clocks
+  come i
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-clocks-for-living-room-silent-stylish-and-modern-wall-clocks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-clocks-for-living-room-silent-stylish-and-modern-wall-clocks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best clock for your living room adds style and function to your space. A good clock keeps time quietly and matches your room’s decor.**

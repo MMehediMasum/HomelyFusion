@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Boho Bedroom Chest: Stunning Ideas to Transform Your Space"
-description: "Your bedroom chest can be the perfect starting point to bring a cozy, boho vibe into your space. Imagine opening your chest and feeling inspired by its style ev"
+title: 'How to Decorate Boho Bedroom Chest: Stunning Ideas to Transform Your Space'
+description: Your bedroom chest can be the perfect starting point to bring a cozy,
+  boho vibe into your space. Imagine opening your chest and feeling inspired by its
+  style ev
 pubDate: 2026-05-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-boho-bedroom-chest&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-boho-bedroom-chest&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bedroom chest can be the perfect starting point to bring a cozy, boho vibe into your space. Imagine opening your chest and feeling inspired by its style every day.**

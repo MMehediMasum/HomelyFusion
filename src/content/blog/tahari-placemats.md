@@ -1,10 +1,14 @@
 ---
-title: "Tahari Placemats: Stylish, Durable Table Mats for Every Dining Occasion"
-description: "Tahari placemats bring style and functionality to your dining experience. They protect surfaces and enhance table settings. Looking to elevate your dining table"
+title: 'Tahari Placemats: Stylish, Durable Table Mats for Every Dining Occasion'
+description: Tahari placemats bring style and functionality to your dining experience.
+  They protect surfaces and enhance table settings. Looking to elevate your dining
+  table
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=tahari-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Tahari placemats bring style and functionality to your dining experience. They protect surfaces and enhance table settings.**

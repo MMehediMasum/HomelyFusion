@@ -1,10 +1,14 @@
 ---
-title: "Pink Ghost Blanket Homegoods: Cozy and Cute Halloween Decor Must-Have"
-description: "The Pink Ghost Blanket from Homegoods adds a cozy touch to your home this Halloween. It blends soft fabric with playful ghost designs in bright pink. These blan"
+title: 'Pink Ghost Blanket Homegoods: Cozy and Cute Halloween Decor Must-Have'
+description: The Pink Ghost Blanket from Homegoods adds a cozy touch to your home
+  this Halloween. It blends soft fabric with playful ghost designs in bright pink.
+  These blan
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pink-ghost-blanket-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=pink-ghost-blanket-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Pink Ghost Blanket from Homegoods adds a cozy touch to your home this Halloween. It blends soft fabric with playful ghost designs in bright pink.**

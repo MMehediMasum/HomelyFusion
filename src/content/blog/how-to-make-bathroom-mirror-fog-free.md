@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bathroom Mirror Fog Free: Easy Tips That Work Fast"
-description: "Have you ever stepped out of a hot shower, only to find your bathroom mirror completely fogged up? It’s frustrating when you can’t see your reflection clearly, "
+title: 'How to Make Bathroom Mirror Fog Free: Easy Tips That Work Fast'
+description: 'Have you ever stepped out of a hot shower, only to find your bathroom
+  mirror completely fogged up? It’s frustrating when you can’t see your reflection
+  clearly, '
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bathroom-mirror-fog-free&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bathroom-mirror-fog-free&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever stepped out of a hot shower, only to find your bathroom mirror completely fogged up? It’s frustrating when you can’t see your reflection clearly, especially when you’re rushing to get ready.**

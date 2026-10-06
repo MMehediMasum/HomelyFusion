@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Bathroom Mirror Desilvering: Easy DIY Fixes"
-description: "Is your bathroom mirror losing its shine and looking foggy around the edges? That annoying silver backing fading away is called desilvering, and it can make you"
+title: 'How to Repair Bathroom Mirror Desilvering: Easy DIY Fixes'
+description: Is your bathroom mirror losing its shine and looking foggy around the
+  edges? That annoying silver backing fading away is called desilvering, and it can
+  make you
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-mirror-desilvering&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-mirror-desilvering&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your bathroom mirror losing its shine and looking foggy around the edges? That annoying silver backing fading away is called desilvering, and it can make your mirror look old and damaged.**

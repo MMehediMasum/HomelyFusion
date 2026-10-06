@@ -1,10 +1,14 @@
 ---
-title: "Accent Home Decor: Transform Your Space with Unique Sculptures and Vases"
-description: "Accent home decor adds style and personality to any room. Small details can change the whole look quickly and easily. Choosing the right accent pieces brings wa"
+title: 'Accent Home Decor: Transform Your Space with Unique Sculptures and Vases'
+description: Accent home decor adds style and personality to any room. Small details
+  can change the whole look quickly and easily. Choosing the right accent pieces brings
+  wa
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=accent-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=accent-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Accent home decor adds style and personality to any room. Small details can change the whole look quickly and easily.**

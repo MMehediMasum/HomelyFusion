@@ -1,10 +1,14 @@
 ---
-title: "God Bless Our Home Wall Decor: Rustic Farmhouse Signs for Inspiration"
-description: "God Bless Our Home wall decor brings warmth and faith into any living space. These signs add a comforting, spiritual touch to your home’s atmosphere. Decorating"
+title: 'God Bless Our Home Wall Decor: Rustic Farmhouse Signs for Inspiration'
+description: God Bless Our Home wall decor brings warmth and faith into any living
+  space. These signs add a comforting, spiritual touch to your home’s atmosphere.
+  Decorating
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=god-bless-our-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=god-bless-our-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **God Bless Our Home wall decor brings warmth and faith into any living space. These signs add a comforting, spiritual touch to your home’s atmosphere.**

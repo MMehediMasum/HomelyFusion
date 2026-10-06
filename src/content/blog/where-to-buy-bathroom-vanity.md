@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bathroom Vanity: Top Stores for Stylish Finds"
-description: "Looking to upgrade your bathroom with a stylish vanity but not sure where to start? Finding the right place to buy a bathroom vanity can feel overwhelming with "
+title: 'Where to Buy Bathroom Vanity: Top Stores for Stylish Finds'
+description: 'Looking to upgrade your bathroom with a stylish vanity but not sure
+  where to start? Finding the right place to buy a bathroom vanity can feel overwhelming
+  with '
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom with a stylish vanity but not sure where to start? Finding the right place to buy a bathroom vanity can feel overwhelming with so many options out there.**

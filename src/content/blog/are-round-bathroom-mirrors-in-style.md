@@ -1,10 +1,14 @@
 ---
-title: "Are Round Bathroom Mirrors in Style: Trending Designs to Try Now"
-description: "Are round bathroom mirrors in style? If you’re wondering whether this classic shape still fits with modern bathroom designs, you’re in the right place. Your bat"
+title: 'Are Round Bathroom Mirrors in Style: Trending Designs to Try Now'
+description: Are round bathroom mirrors in style? If you’re wondering whether this
+  classic shape still fits with modern bathroom designs, you’re in the right place.
+  Your bat
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-round-bathroom-mirrors-in-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=are-round-bathroom-mirrors-in-style&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are round bathroom mirrors in style? If you’re wondering whether this classic shape still fits with modern bathroom designs, you’re in the right place.**

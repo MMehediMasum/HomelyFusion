@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Home Xbox As Default: Easy Steps for Ultimate Gaming"
 description: "Are you tired of signing in every time you want to play your favorite Xbox games? Setting your home Xbox as the default can change the way you game, making ever"
 pubDate: 2025-08-28

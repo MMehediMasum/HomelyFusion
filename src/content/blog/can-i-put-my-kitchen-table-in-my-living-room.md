@@ -1,10 +1,14 @@
 ---
-title: "Can I Put My Kitchen Table in My Living Room? Clever Tips!"
-description: "Are you wondering if you can put your kitchen table in your living room? Maybe your space feels tight, or you want a fresh look without buying new furniture. Mo"
+title: Can I Put My Kitchen Table in My Living Room? Clever Tips!
+description: Are you wondering if you can put your kitchen table in your living room?
+  Maybe your space feels tight, or you want a fresh look without buying new furniture.
+  Mo
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-put-my-kitchen-table-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-i-put-my-kitchen-table-in-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if you can put your kitchen table in your living room? Maybe your space feels tight, or you want a fresh look without buying new furniture.**

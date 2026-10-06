@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Dresser As a Bathroom Vanity: Stylish & Smart Ideas"
-description: "Looking to give your bathroom a fresh, stylish upgrade without spending a fortune? Using a dresser as a bathroom vanity might be the perfect solution for you. I"
+title: 'How to Use a Dresser As a Bathroom Vanity: Stylish & Smart Ideas'
+description: Looking to give your bathroom a fresh, stylish upgrade without spending
+  a fortune? Using a dresser as a bathroom vanity might be the perfect solution for
+  you. I
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-dresser-as-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-dresser-as-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to give your bathroom a fresh, stylish upgrade without spending a fortune? Using a dresser as a bathroom vanity might be the perfect solution for you.**

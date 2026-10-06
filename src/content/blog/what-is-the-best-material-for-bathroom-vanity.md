@@ -1,10 +1,13 @@
 ---
-title: "What is the Best Material for Bathroom Vanity: Ultimate Guide 2025"
-description: "Choosing the best material for your bathroom vanity can feel overwhelming. You want something that looks great, lasts long, and stands up to moisture and daily "
+title: 'What is the Best Material for Bathroom Vanity: Ultimate Guide 2025'
+description: 'Choosing the best material for your bathroom vanity can feel overwhelming.
+  You want something that looks great, lasts long, and stands up to moisture and daily '
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-material-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-material-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the best material for your bathroom vanity can feel overwhelming. You want something that looks great, lasts long, and stands up to moisture and daily use.**

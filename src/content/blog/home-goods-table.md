@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Table Ideas: Stylish and Functional Sets for Every Space"
-description: "A home goods table adds style and function to any living space. It fits perfectly in dining rooms, offices, or small apartments. Choosing the right table can im"
+title: 'Home Goods Table Ideas: Stylish and Functional Sets for Every Space'
+description: A home goods table adds style and function to any living space. It fits
+  perfectly in dining rooms, offices, or small apartments. Choosing the right table
+  can im
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A home goods table adds style and function to any living space. It fits perfectly in dining rooms, offices, or small apartments.**

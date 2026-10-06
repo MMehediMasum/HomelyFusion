@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Paintings on Wall: Easy Steps for Perfect Display"
-description: "Hanging paintings on your wall might seem simple, but getting it just right can change the entire look of your room. You want your art to stand out, but also bl"
+title: 'How to Hang Paintings on Wall: Easy Steps for Perfect Display'
+description: Hanging paintings on your wall might seem simple, but getting it just
+  right can change the entire look of your room. You want your art to stand out, but
+  also bl
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-paintings-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-paintings-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging paintings on your wall might seem simple, but getting it just right can change the entire look of your room. You want your art to stand out, but also blend perfectly with your space.**

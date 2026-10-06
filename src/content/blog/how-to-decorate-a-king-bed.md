@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a King Bed: Stunning Ideas for Luxurious Style"
-description: "Your king bed is more than just a place to sleep—it’s the centerpiece of your bedroom. How you decorate it can transform your entire space, making it cozy, styl"
+title: 'How to Decorate a King Bed: Stunning Ideas for Luxurious Style'
+description: Your king bed is more than just a place to sleep—it’s the centerpiece
+  of your bedroom. How you decorate it can transform your entire space, making it
+  cozy, styl
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-king-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-king-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your king bed is more than just a place to sleep—it’s the centerpiece of your bedroom. How you decorate it can transform your entire space, making it cozy, stylish, and inviting.**

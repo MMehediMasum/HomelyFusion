@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Bedroom Wall Frames: Stunning Ideas for Perfect Decor"
-description: "Your bedroom walls are a blank canvas waiting to come alive. But arranging wall frames can feel tricky—too cluttered, too sparse, or just not quite right. What "
+title: 'How to Arrange Bedroom Wall Frames: Stunning Ideas for Perfect Decor'
+description: 'Your bedroom walls are a blank canvas waiting to come alive. But arranging
+  wall frames can feel tricky—too cluttered, too sparse, or just not quite right.
+  What '
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-wall-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-bedroom-wall-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your bedroom walls are a blank canvas waiting to come alive. But arranging wall frames can feel tricky—too cluttered, too sparse, or just not quite right.**

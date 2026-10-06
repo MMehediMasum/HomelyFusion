@@ -1,10 +1,14 @@
 ---
-title: "Best Shrubs for Part Shade: Top Evergreen Plants for Vibrant Gardens"
-description: "Choosing the best shrubs for part shade can brighten up your garden with color and texture. These plants thrive in spots with limited sunlight but still need so"
+title: 'Best Shrubs for Part Shade: Top Evergreen Plants for Vibrant Gardens'
+description: Choosing the best shrubs for part shade can brighten up your garden with
+  color and texture. These plants thrive in spots with limited sunlight but still
+  need so
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shrubs-for-part-shade-top-evergreen-plants-for-vibrant-gardens&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=best-shrubs-for-part-shade-top-evergreen-plants-for-vibrant-gardens&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best shrubs for part shade can brighten up your garden with color and texture. These plants thrive in spots with limited sunlight but still need some light to grow well.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rugs for Pool Area: Top Durable and Stylish Picks"
-description: "Choosing the best outdoor rugs for your pool area enhances safety and style. These rugs resist water, dry quickly, and prevent slips. Outdoor rugs near pools mu"
+title: 'Best Outdoor Rugs for Pool Area: Top Durable and Stylish Picks'
+description: Choosing the best outdoor rugs for your pool area enhances safety and
+  style. These rugs resist water, dry quickly, and prevent slips. Outdoor rugs near
+  pools mu
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-pool-area-top-durable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rugs-for-pool-area-top-durable-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best outdoor rugs for your pool area enhances safety and style. These rugs resist water, dry quickly, and prevent slips.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Home Theater to TV: Simple Steps for Perfect Sound"
 description: "Are you ready to transform your living room into a movie theater? Connecting your home theater to your TV might seem tricky, but it doesn’t have to be. With the"
 pubDate: 2026-04-26

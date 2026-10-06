@@ -1,10 +1,14 @@
 ---
-title: "Household Ornaments: Top Festive Decorations to Elevate Your Home Decor"
-description: "Household ornaments add charm and personality to your living space. They make your home feel warm and inviting. From festive decorations to timeless keepsakes, "
+title: 'Household Ornaments: Top Festive Decorations to Elevate Your Home Decor'
+description: 'Household ornaments add charm and personality to your living space.
+  They make your home feel warm and inviting. From festive decorations to timeless
+  keepsakes, '
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=household-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=household-ornaments&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Household ornaments add charm and personality to your living space. They make your home feel warm and inviting.**

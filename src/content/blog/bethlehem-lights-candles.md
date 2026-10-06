@@ -1,10 +1,14 @@
 ---
-title: "Bethlehem Lights Candles: Ultimate Guide to Realistic Flameless LED Options"
-description: "Bethlehem Lights Candles offer a diverse range of flameless, LED candles perfect for any occasion or decor. Each candle combines safety with elegance, making th"
+title: 'Bethlehem Lights Candles: Ultimate Guide to Realistic Flameless LED Options'
+description: Bethlehem Lights Candles offer a diverse range of flameless, LED candles
+  perfect for any occasion or decor. Each candle combines safety with elegance, making
+  th
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bethlehem-lights-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bethlehem-lights-candles&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Bethlehem Lights Candles offer a diverse range of flameless, LED candles perfect for any occasion or decor. Each candle combines safety with elegance, making them ideal for homes, weddings, and celebrations.**

@@ -1,10 +1,14 @@
 ---
-title: "Fall Acorn Garland Craft: Easy DIY Rustic Autumn Decor Ideas"
-description: "Looking for a simple and charming way to bring the warmth of fall into your home? Your search ends here with the Fall Acorn Garland Craft. This easy project let"
+title: 'Fall Acorn Garland Craft: Easy DIY Rustic Autumn Decor Ideas'
+description: Looking for a simple and charming way to bring the warmth of fall into
+  your home? Your search ends here with the Fall Acorn Garland Craft. This easy project
+  let
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-acorn-garland-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-acorn-garland-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a simple and charming way to bring the warmth of fall into your home? Your search ends here with the Fall Acorn Garland Craft.**

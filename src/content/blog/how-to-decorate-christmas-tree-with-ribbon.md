@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Christmas Tree With Ribbon: Stunning & Easy Tips"
-description: "Are you ready to transform your Christmas tree into a stunning centerpiece this holiday season? Decorating your tree with ribbon is one of the easiest and most "
+title: 'How to Decorate Christmas Tree With Ribbon: Stunning & Easy Tips'
+description: 'Are you ready to transform your Christmas tree into a stunning centerpiece
+  this holiday season? Decorating your tree with ribbon is one of the easiest and
+  most '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-christmas-tree-with-ribbon&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-christmas-tree-with-ribbon&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Christmas tree into a stunning centerpiece this holiday season? Decorating your tree with ribbon is one of the easiest and most beautiful ways to add color, texture, and a touch of elegance.**

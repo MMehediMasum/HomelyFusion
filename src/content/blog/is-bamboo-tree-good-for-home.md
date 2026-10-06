@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Bamboo Tree Good for Home: Surprising Benefits Revealed"
 description: "Are you thinking about adding a touch of nature to your home? You might have seen bamboo trees popping up in homes and wondered, \"Is bamboo tree good for home?\""
 pubDate: 2026-02-27

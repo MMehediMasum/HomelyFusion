@@ -1,10 +1,13 @@
 ---
-title: "Girly Room Accessories: Stylish Organizers and Cute Decor Ideas for Bedrooms"
-description: "Transform your space with girly room accessories that add charm and functionality. Discover delightful decor ideas for every girl's room. Creating a cozy and st"
+title: 'Girly Room Accessories: Stylish Organizers and Cute Decor Ideas for Bedrooms'
+description: Transform your space with girly room accessories that add charm and functionality.
+  Discover delightful decor ideas for every girl's room. Creating a cozy and st
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=girly-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=girly-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your space with girly room accessories that add charm and functionality. Discover delightful decor ideas for every girl's room.**

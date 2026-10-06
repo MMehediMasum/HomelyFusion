@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Sweet Potato Casserole Recipe: Irresistible & Easy Delight"
 description: "Are you ready to make your Thanksgiving dinner unforgettable? Your search for the perfect sweet potato casserole ends here. This recipe is simple, delicious, an"
 pubDate: 2026-01-13

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Mountain on a Wall: Easy Steps for Stunning Art"
-description: "Have you ever looked at a blank wall and wished you could turn it into something breathtaking? Imagine bringing the calm and beauty of a mountain right into you"
+title: 'How to Paint a Mountain on a Wall: Easy Steps for Stunning Art'
+description: Have you ever looked at a blank wall and wished you could turn it into
+  something breathtaking? Imagine bringing the calm and beauty of a mountain right
+  into you
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-mountain-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-mountain-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever looked at a blank wall and wished you could turn it into something breathtaking? Imagine bringing the calm and beauty of a mountain right into your room.**

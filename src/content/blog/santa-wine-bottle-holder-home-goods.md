@@ -1,10 +1,14 @@
 ---
-title: "Santa Wine Bottle Holder Home Goods: Festive Décor for Holiday Cheer"
-description: "Santa wine bottle holders add festive charm to your home decor this holiday season. These delightful holders combine function with holiday spirit. Celebrate Chr"
+title: 'Santa Wine Bottle Holder Home Goods: Festive Décor for Holiday Cheer'
+description: Santa wine bottle holders add festive charm to your home decor this holiday
+  season. These delightful holders combine function with holiday spirit. Celebrate
+  Chr
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=santa-wine-bottle-holder-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=santa-wine-bottle-holder-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Santa wine bottle holders add festive charm to your home decor this holiday season. These delightful holders combine function with holiday spirit.**

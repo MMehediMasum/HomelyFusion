@@ -1,10 +1,14 @@
 ---
-title: "Best Size Rug for Dorm Room: Choosing the Perfect Cozy Shaggy Carpet"
-description: "Choosing the best size rug for a dorm room can make the space cozy and stylish. A well-sized rug adds comfort and defines the room’s look. Dorm rooms are usuall"
+title: 'Best Size Rug for Dorm Room: Choosing the Perfect Cozy Shaggy Carpet'
+description: Choosing the best size rug for a dorm room can make the space cozy and
+  stylish. A well-sized rug adds comfort and defines the room’s look. Dorm rooms are
+  usuall
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-rug-for-dorm-room-choosing-the-perfect-cozy-shaggy-carpet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-size-rug-for-dorm-room-choosing-the-perfect-cozy-shaggy-carpet&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best size rug for a dorm room can make the space cozy and stylish. A well-sized rug adds comfort and defines the room’s look.**

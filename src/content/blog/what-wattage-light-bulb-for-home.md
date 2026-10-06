@@ -1,10 +1,14 @@
 ---
-title: "What Wattage Light Bulb for Home: Brighten Smartly and Save Energy"
-description: "Choosing the right wattage light bulb for your home can feel confusing. You want bright, comfortable lighting but also need to save energy and avoid high electr"
+title: 'What Wattage Light Bulb for Home: Brighten Smartly and Save Energy'
+description: Choosing the right wattage light bulb for your home can feel confusing.
+  You want bright, comfortable lighting but also need to save energy and avoid high
+  electr
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-wattage-light-bulb-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-wattage-light-bulb-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right wattage light bulb for your home can feel confusing. You want bright, comfortable lighting but also need to save energy and avoid high electricity bills.**

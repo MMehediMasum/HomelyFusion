@@ -1,10 +1,14 @@
 ---
-title: "How to Glaze Clay Pots at Home: Easy Steps for Stunning Results"
-description: "Have you ever looked at a plain clay pot and wished it had a beautiful, shiny finish? Glazing your clay pots at home can completely transform their look, making"
+title: 'How to Glaze Clay Pots at Home: Easy Steps for Stunning Results'
+description: Have you ever looked at a plain clay pot and wished it had a beautiful,
+  shiny finish? Glazing your clay pots at home can completely transform their look,
+  making
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-glaze-clay-pots-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pottery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-glaze-clay-pots-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever looked at a plain clay pot and wished it had a beautiful, shiny finish? Glazing your clay pots at home can completely transform their look, making them not just functional but also stunning pieces of art.**

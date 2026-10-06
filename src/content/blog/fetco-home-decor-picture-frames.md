@@ -1,10 +1,14 @@
 ---
-title: "Fetco Home Decor Picture Frames: Elegant Vintage Styles for Every Space"
-description: "Fetco Home Decor picture frames add charm and style to any room. They offer diverse designs for every taste and space. These frames come in many styles, like vi"
+title: 'Fetco Home Decor Picture Frames: Elegant Vintage Styles for Every Space'
+description: Fetco Home Decor picture frames add charm and style to any room. They
+  offer diverse designs for every taste and space. These frames come in many styles,
+  like vi
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fetco-home-decor-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=fetco-home-decor-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Fetco Home Decor picture frames add charm and style to any room. They offer diverse designs for every taste and space.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Interior Decorating Ideas: Stylish Scandinavian and Bohemian Wall Decor"
-description: "Home interior decorating ideas help transform any space into a cozy, stylish haven. Simple touches can brighten rooms and reflect your personality. Creating a w"
+title: 'Home Interior Decorating Ideas: Stylish Scandinavian and Bohemian Wall Decor'
+description: Home interior decorating ideas help transform any space into a cozy,
+  stylish haven. Simple touches can brighten rooms and reflect your personality. Creating
+  a w
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-decorating-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-decorating-ideas&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home interior decorating ideas help transform any space into a cozy, stylish haven. Simple touches can brighten rooms and reflect your personality.**

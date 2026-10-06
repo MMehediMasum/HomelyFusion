@@ -1,10 +1,14 @@
 ---
-title: "Our Home Sofa: Top Stylish and Comfortable Sectional Sofas for Living Rooms"
-description: "Our home sofa offers comfort and style for every living space. It fits apartments, dorms, and family rooms alike. Choosing the right sofa can change how you enj"
+title: 'Our Home Sofa: Top Stylish and Comfortable Sectional Sofas for Living Rooms'
+description: Our home sofa offers comfort and style for every living space. It fits
+  apartments, dorms, and family rooms alike. Choosing the right sofa can change how
+  you enj
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=our-home-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=our-home-sofa&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Our home sofa offers comfort and style for every living space. It fits apartments, dorms, and family rooms alike.**

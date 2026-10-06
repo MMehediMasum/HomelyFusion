@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Two Sofas in Small Living Room: Expert Tips"
-description: "Struggling to fit two sofas into your small living room without making it feel cramped? You’re not alone. Finding the perfect arrangement can transform your spa"
+title: 'How to Arrange Two Sofas in Small Living Room: Expert Tips'
+description: Struggling to fit two sofas into your small living room without making
+  it feel cramped? You’re not alone. Finding the perfect arrangement can transform
+  your spa
 pubDate: 2026-04-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofas-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofas-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit two sofas into your small living room without making it feel cramped? You’re not alone.**

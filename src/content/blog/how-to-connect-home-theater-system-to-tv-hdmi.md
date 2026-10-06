@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System to Tv Hdmi: Ultimate Step-by-Step Guide"
 description: "If you want to enjoy movies, music, and games with amazing sound right from your living room, connecting your home theater system to your TV using HDMI is the b"
 pubDate: 2025-10-15

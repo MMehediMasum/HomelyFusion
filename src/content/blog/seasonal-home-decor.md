@@ -1,10 +1,14 @@
 ---
-title: "Seasonal Home Decor: Transform Your Space with Interchangeable Wooden Signs"
-description: "Transform your home with seasonal decor that reflects the changing times of the year. Seasonal home decor offers versatility and charm. Decorating your home for"
+title: 'Seasonal Home Decor: Transform Your Space with Interchangeable Wooden Signs'
+description: Transform your home with seasonal decor that reflects the changing times
+  of the year. Seasonal home decor offers versatility and charm. Decorating your home
+  for
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=seasonal-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=seasonal-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your home with seasonal decor that reflects the changing times of the year. Seasonal home decor offers versatility and charm.**

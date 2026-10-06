@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Case Harden Steel at Home: Easy Steps for Durable Results"
 description: "Have you ever wanted to make your steel tools stronger and more durable right at home? Learning how to case harden steel can give your projects a tough, wear-re"
 pubDate: 2026-02-17

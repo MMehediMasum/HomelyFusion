@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Office Decorating: Transform Your Workspace Today!"
-description: "Your office space says a lot about you. It can boost your mood, spark creativity, and make your workday feel lighter. But decorating an office doesn’t have to b"
+title: 'Do It Yourself Office Decorating: Transform Your Workspace Today!'
+description: Your office space says a lot about you. It can boost your mood, spark
+  creativity, and make your workday feel lighter. But decorating an office doesn’t
+  have to b
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-office-decorating&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-office-decorating&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office space says a lot about you. It can boost your mood, spark creativity, and make your workday feel lighter.**

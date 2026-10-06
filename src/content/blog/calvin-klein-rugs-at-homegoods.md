@@ -1,10 +1,14 @@
 ---
-title: "Calvin Klein Rugs at Homegoods: Stylish, Modern, and Easy-Clean Options"
-description: "Calvin Klein rugs at Homegoods offer elegance and functionality for any space. Explore a variety of styles and sizes. Transform your home with Calvin Klein rugs"
+title: 'Calvin Klein Rugs at Homegoods: Stylish, Modern, and Easy-Clean Options'
+description: Calvin Klein rugs at Homegoods offer elegance and functionality for any
+  space. Explore a variety of styles and sizes. Transform your home with Calvin Klein
+  rugs
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=calvin-klein-rugs-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=calvin-klein-rugs-at-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Calvin Klein rugs at Homegoods offer elegance and functionality for any space. Explore a variety of styles and sizes.**

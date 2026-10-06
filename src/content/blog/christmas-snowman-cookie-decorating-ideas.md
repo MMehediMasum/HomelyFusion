@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Christmas Snowman Cookie Decorating Ideas: Fun & Festive Designs"
 description: "Are you ready to make your holiday season even sweeter? Decorating Christmas snowman cookies is a fun and creative way to bring joy to your kitchen. Whether you"
 pubDate: 2025-11-06

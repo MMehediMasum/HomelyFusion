@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Grout Color Guide: Perfect Matches for Seamless Tile Looks"
-description: "Choosing the right grout color can change the look of your Floor and Decor tiles. It affects style, cleanliness, and tile durability. Floor and Decor offers man"
+title: 'Floor And Decor Grout Color Guide: Perfect Matches for Seamless Tile Looks'
+description: Choosing the right grout color can change the look of your Floor and
+  Decor tiles. It affects style, cleanliness, and tile durability. Floor and Decor
+  offers man
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-grout-color&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-grout-color&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right grout color can change the look of your Floor and Decor tiles. It affects style, cleanliness, and tile durability.**

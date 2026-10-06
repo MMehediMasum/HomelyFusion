@@ -1,10 +1,14 @@
 ---
-title: "What Color Should Bedroom Nightstands Be: Expert Tips & Trends"
-description: "Choosing the right color for your bedroom nightstands might seem like a small detail, but it can change the entire mood of your space. Have you ever felt that y"
+title: 'What Color Should Bedroom Nightstands Be: Expert Tips & Trends'
+description: Choosing the right color for your bedroom nightstands might seem like
+  a small detail, but it can change the entire mood of your space. Have you ever felt
+  that y
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-should-bedroom-nightstands-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=what-color-should-bedroom-nightstands-be&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right color for your bedroom nightstands might seem like a small detail, but it can change the entire mood of your space. Have you ever felt that your bedroom doesn’t quite feel cozy or balanced?**

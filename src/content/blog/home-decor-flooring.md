@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Flooring Ideas to Elevate Your Living Space Instantly"
-description: "Flooring plays a key role in home decor, setting the tone for any room’s style. Choosing the right floor can enhance comfort, look, and functionality. This post"
+title: Home Decor Flooring Ideas to Elevate Your Living Space Instantly
+description: Flooring plays a key role in home decor, setting the tone for any room’s
+  style. Choosing the right floor can enhance comfort, look, and functionality. This
+  post
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring plays a key role in home decor, setting the tone for any room’s style. Choosing the right floor can enhance comfort, look, and functionality.**

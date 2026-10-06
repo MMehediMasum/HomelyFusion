@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Home Office: Stylish Linen Drapes for Privacy & Light Control"
-description: "Choosing the best curtains for your home office can improve comfort and productivity. Curtains control light, add privacy, and create a calm workspace. Selectin"
+title: 'Best Curtains for Home Office: Stylish Linen Drapes for Privacy & Light Control'
+description: Choosing the best curtains for your home office can improve comfort and
+  productivity. Curtains control light, add privacy, and create a calm workspace.
+  Selectin
 pubDate: 2025-09-28
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-home-office-stylish-linen-drapes-for-privacy-light-control&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-home-office-stylish-linen-drapes-for-privacy-light-control&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for your home office can improve comfort and productivity. Curtains control light, add privacy, and create a calm workspace.**

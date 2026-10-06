@@ -1,10 +1,13 @@
 ---
-title: "Discount Home Accents: Stylish Decor Ideas to Transform Your Living Space"
-description: "Discover stylish and affordable ways to refresh your space with discount home accents. These budget-friendly items add charm and comfort to any room. Decorating"
+title: 'Discount Home Accents: Stylish Decor Ideas to Transform Your Living Space'
+description: Discover stylish and affordable ways to refresh your space with discount
+  home accents. These budget-friendly items add charm and comfort to any room. Decorating
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=discount-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=discount-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Discover stylish and affordable ways to refresh your space with discount home accents. These budget-friendly items add charm and comfort to any room.**

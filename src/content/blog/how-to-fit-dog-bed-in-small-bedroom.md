@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Dog Bed in Small Bedroom: Smart Space-Saving Tips"
-description: "Finding space for your dog’s bed in a small bedroom can feel like a tricky puzzle. You want your furry friend to be comfortable without making your room feel cr"
+title: 'How to Fit Dog Bed in Small Bedroom: Smart Space-Saving Tips'
+description: Finding space for your dog’s bed in a small bedroom can feel like a tricky
+  puzzle. You want your furry friend to be comfortable without making your room feel
+  cr
 pubDate: 2026-05-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-dog-bed-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-dog-bed-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding space for your dog’s bed in a small bedroom can feel like a tricky puzzle. You want your furry friend to be comfortable without making your room feel cramped or cluttered.**

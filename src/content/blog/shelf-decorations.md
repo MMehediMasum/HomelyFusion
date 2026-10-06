@@ -1,10 +1,14 @@
 ---
-title: "Shelf Decorations: Top Picks for Stylish and Functional Home Accents"
-description: "Shelf decorations add charm and personality to any room. They make spaces feel cozy and stylish with simple touches. Choosing the right items for your shelves c"
+title: 'Shelf Decorations: Top Picks for Stylish and Functional Home Accents'
+description: Shelf decorations add charm and personality to any room. They make spaces
+  feel cozy and stylish with simple touches. Choosing the right items for your shelves
+  c
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shelf-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=shelf-decorations&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Shelf decorations add charm and personality to any room. They make spaces feel cozy and stylish with simple touches.**

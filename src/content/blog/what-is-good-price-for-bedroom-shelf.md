@@ -1,10 +1,14 @@
 ---
-title: "What is Good Price for Bedroom Shelf: Ultimate Buying Guide 2025"
-description: "Are you wondering what a good price for a bedroom shelf really is? Finding the right shelf that fits your space and budget can be tricky. You want something stu"
+title: 'What is Good Price for Bedroom Shelf: Ultimate Buying Guide 2025'
+description: Are you wondering what a good price for a bedroom shelf really is? Finding
+  the right shelf that fits your space and budget can be tricky. You want something
+  stu
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-good-price-for-bedroom-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-is-good-price-for-bedroom-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering what a good price for a bedroom shelf really is? Finding the right shelf that fits your space and budget can be tricky.**

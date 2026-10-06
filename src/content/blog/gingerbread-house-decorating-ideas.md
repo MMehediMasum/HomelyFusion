@@ -1,10 +1,14 @@
 ---
-title: "Gingerbread House Decorating Ideas: Creative Tips for Stunning Designs"
-description: "Are you ready to turn your gingerbread house into a showstopper this holiday season? Decorating a gingerbread house is more than just a fun activity—it’s a chan"
+title: 'Gingerbread House Decorating Ideas: Creative Tips for Stunning Designs'
+description: Are you ready to turn your gingerbread house into a showstopper this
+  holiday season? Decorating a gingerbread house is more than just a fun activity—it’s
+  a chan
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=gingerbread-house-decorating-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=gingerbread-house-decorating-ideas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to turn your gingerbread house into a showstopper this holiday season? Decorating a gingerbread house is more than just a fun activity—it’s a chance to unleash your creativity and bring your festive spirit to life.**

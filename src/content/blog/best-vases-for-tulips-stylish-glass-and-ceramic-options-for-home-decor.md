@@ -1,10 +1,14 @@
 ---
-title: "Best Vases for Tulips: Stylish Glass and Ceramic Options for Home Decor"
-description: "Choosing the best vase for tulips enhances their beauty and keeps them fresh longer. Different vase styles suit various home decors and occasions. Tulips are si"
+title: 'Best Vases for Tulips: Stylish Glass and Ceramic Options for Home Decor'
+description: Choosing the best vase for tulips enhances their beauty and keeps them
+  fresh longer. Different vase styles suit various home decors and occasions. Tulips
+  are si
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-vases-for-tulips-stylish-glass-and-ceramic-options-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-vases-for-tulips-stylish-glass-and-ceramic-options-for-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best vase for tulips enhances their beauty and keeps them fresh longer. Different vase styles suit various home decors and occasions.**

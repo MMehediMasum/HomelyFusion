@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Tile Flooring Showroom: Discover Stylish Peel & Stick Tiles for Any Room"
 description: "A tile flooring showroom offers a wide range of stylish and practical flooring options. It helps you find the perfect tiles for any room in your home. Choosing "
 pubDate: 2026-06-24

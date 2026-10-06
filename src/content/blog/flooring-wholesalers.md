@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Wholesalers: Top Picks for Elegant Pampas Grass & Vase Decor"
 description: "Flooring wholesalers supply a wide range of products for homes and businesses. They offer materials like pampas grass and large floor vases to enhance interior "
 pubDate: 2026-07-21

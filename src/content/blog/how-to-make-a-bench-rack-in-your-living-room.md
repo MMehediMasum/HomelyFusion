@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Bench Rack in Your Living Room: Stylish & Easy Guide"
-description: "Looking for a smart way to organize your living room without sacrificing style? Imagine having a bench rack that not only adds extra seating but also keeps your"
+title: 'How to Make a Bench Rack in Your Living Room: Stylish & Easy Guide'
+description: Looking for a smart way to organize your living room without sacrificing
+  style? Imagine having a bench rack that not only adds extra seating but also keeps
+  your
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-bench-rack-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-bench-rack-in-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for a smart way to organize your living room without sacrificing style? Imagine having a bench rack that not only adds extra seating but also keeps your space neat and clutter-free.**

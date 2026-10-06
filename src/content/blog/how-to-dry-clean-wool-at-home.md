@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dry Clean Wool at Home: Easy Steps for Perfect Care"
 description: "Wool clothes are cozy and stylish, but cleaning them can feel tricky. You might worry about shrinking, stretching, or damaging your favorite sweater. What if yo"
 pubDate: 2025-11-20

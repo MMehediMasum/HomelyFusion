@@ -1,10 +1,14 @@
 ---
-title: "Can You Clean a Wool Rug at Home: Easy Steps for Spotless Rugs"
-description: "Have you ever looked at your beautiful wool rug and wondered if you could clean it yourself without ruining it? Wool rugs add warmth and style to any room, but "
+title: 'Can You Clean a Wool Rug at Home: Easy Steps for Spotless Rugs'
+description: 'Have you ever looked at your beautiful wool rug and wondered if you
+  could clean it yourself without ruining it? Wool rugs add warmth and style to any
+  room, but '
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-clean-a-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=can-you-clean-a-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever looked at your beautiful wool rug and wondered if you could clean it yourself without ruining it? Wool rugs add warmth and style to any room, but they can also be tricky to care for.**

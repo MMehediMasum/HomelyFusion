@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Textured Mural on Wall: Expert Tips for Stunning Art"
-description: "Are you ready to transform your plain wall into a stunning work of art? Painting a textured mural on your wall can add depth, personality, and a unique touch to"
+title: 'How to Paint Textured Mural on Wall: Expert Tips for Stunning Art'
+description: Are you ready to transform your plain wall into a stunning work of art?
+  Painting a textured mural on your wall can add depth, personality, and a unique
+  touch to
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-textured-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-textured-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a stunning work of art? Painting a textured mural on your wall can add depth, personality, and a unique touch to any room.**

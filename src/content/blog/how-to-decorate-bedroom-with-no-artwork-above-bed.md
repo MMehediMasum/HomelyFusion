@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With No Artwork above Bed: Stunning Ideas"
-description: "Your bedroom should be a place where you feel calm and comfortable. But what if you don’t want to hang artwork above your bed? Maybe you find it too common, or "
+title: 'How to Decorate Bedroom With No Artwork above Bed: Stunning Ideas'
+description: 'Your bedroom should be a place where you feel calm and comfortable.
+  But what if you don’t want to hang artwork above your bed? Maybe you find it too
+  common, or '
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-no-artwork-above-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-no-artwork-above-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where you feel calm and comfortable. But what if you don’t want to hang artwork above your bed?**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Mirrored Bedroom Barn Door: Top Trusted Stores Revealed"
-description: "Are you looking to add style and function to your bedroom? A mirrored bedroom barn door could be exactly what you need. It’s a smart way to save space, brighten"
+title: 'Where to Buy Mirrored Bedroom Barn Door: Top Trusted Stores Revealed'
+description: Are you looking to add style and function to your bedroom? A mirrored
+  bedroom barn door could be exactly what you need. It’s a smart way to save space,
+  brighten
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-mirrored-bedroom-barn-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-mirrored-bedroom-barn-door&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add style and function to your bedroom? A mirrored bedroom barn door could be exactly what you need.**

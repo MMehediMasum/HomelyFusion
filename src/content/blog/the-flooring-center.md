@@ -1,10 +1,14 @@
 ---
-title: "The Flooring Center: Top Peel & Stick Vinyl Tiles for Easy DIY Floors"
-description: "Discover a world of flooring options with The Flooring Center. Transform your space with versatile, easy-to-install choices. The Flooring Center offers a divers"
+title: 'The Flooring Center: Top Peel & Stick Vinyl Tiles for Easy DIY Floors'
+description: Discover a world of flooring options with The Flooring Center. Transform
+  your space with versatile, easy-to-install choices. The Flooring Center offers a
+  divers
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-flooring-center&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=the-flooring-center&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover a world of flooring options with The Flooring Center. Transform your space with versatile, easy-to-install choices.**

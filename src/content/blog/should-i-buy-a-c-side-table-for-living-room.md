@@ -1,10 +1,14 @@
 ---
-title: "Should I Buy a C Side Table for Living Room: Stylish & Practical Choice"
-description: "Are you wondering if a C side table is the right choice for your living room? You might be thinking about style, space, and how practical it really is. Imagine "
+title: 'Should I Buy a C Side Table for Living Room: Stylish & Practical Choice'
+description: 'Are you wondering if a C side table is the right choice for your living
+  room? You might be thinking about style, space, and how practical it really is.
+  Imagine '
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-buy-a-c-side-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=should-i-buy-a-c-side-table-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a C side table is the right choice for your living room? You might be thinking about style, space, and how practical it really is.**

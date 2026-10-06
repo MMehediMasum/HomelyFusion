@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Design Services: Elevate Your Home with Stylish Floor Lamps"
-description: "Floor and decor design services offer a variety of stylish and functional home decor options. From floor lamps to vases, there's something for every taste and s"
+title: 'Floor And Decor Design Services: Elevate Your Home with Stylish Floor Lamps'
+description: Floor and decor design services offer a variety of stylish and functional
+  home decor options. From floor lamps to vases, there's something for every taste
+  and s
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-design-services&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-design-services&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and decor design services offer a variety of stylish and functional home decor options. From floor lamps to vases, there's something for every taste and style.**

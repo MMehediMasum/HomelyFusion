@@ -1,10 +1,14 @@
 ---
-title: "Arch Mantle Pillows: Stylish Knotted Cushions to Elevate Your Home Decor"
-description: "Arch mantle pillows add style and comfort to any living space. These unique cushions come in various shapes and textures to fit your decor. Decorative pillows e"
+title: 'Arch Mantle Pillows: Stylish Knotted Cushions to Elevate Your Home Decor'
+description: Arch mantle pillows add style and comfort to any living space. These
+  unique cushions come in various shapes and textures to fit your decor. Decorative
+  pillows e
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=arch-mantle-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=arch-mantle-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Arch mantle pillows add style and comfort to any living space. These unique cushions come in various shapes and textures to fit your decor.**

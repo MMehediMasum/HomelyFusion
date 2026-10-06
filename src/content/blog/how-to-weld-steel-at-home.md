@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Weld Steel at Home: Easy Steps for Perfect DIY Welding"
 description: "Are you ready to unlock a powerful skill that can transform your DIY projects? Learning how to weld steel at home gives you the freedom to build, fix, and creat"
 pubDate: 2026-03-03

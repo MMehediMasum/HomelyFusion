@@ -1,10 +1,14 @@
 ---
-title: "Best Scented Candles for Autumn: Cozy Scents to Warm Your Home"
-description: "Autumn scents bring warmth and comfort to any home. The best scented candles for autumn create a cozy, inviting atmosphere. As the leaves change color and the a"
+title: 'Best Scented Candles for Autumn: Cozy Scents to Warm Your Home'
+description: Autumn scents bring warmth and comfort to any home. The best scented
+  candles for autumn create a cozy, inviting atmosphere. As the leaves change color
+  and the a
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scented-candles-for-autumn-cozy-scents-to-warm-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-scented-candles-for-autumn-cozy-scents-to-warm-your-home&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Autumn scents bring warmth and comfort to any home. The best scented candles for autumn create a cozy, inviting atmosphere.**

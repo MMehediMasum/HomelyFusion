@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Painted Wall Without Removing Paint: Easy Expert Tips"
-description: "Your painted walls brighten up your home, but over time, dust, dirt, and stains can dull their look. You want to clean them without damaging the paint or causin"
+title: 'How to Clean a Painted Wall Without Removing Paint: Easy Expert Tips'
+description: Your painted walls brighten up your home, but over time, dust, dirt,
+  and stains can dull their look. You want to clean them without damaging the paint
+  or causin
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-painted-wall-without-removing-paint&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-painted-wall-without-removing-paint&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your painted walls brighten up your home, but over time, dust, dirt, and stains can dull their look. You want to clean them without damaging the paint or causing it to peel.**

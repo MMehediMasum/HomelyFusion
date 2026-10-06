@@ -1,10 +1,14 @@
 ---
-title: "What Do You Call the Living Room Table Decoration? Stylish Ideas!"
-description: "Have you ever wondered what to call the beautiful items you place on your living room table? Those small touches can change the whole feel of your space. Whethe"
+title: What Do You Call the Living Room Table Decoration? Stylish Ideas!
+description: Have you ever wondered what to call the beautiful items you place on
+  your living room table? Those small touches can change the whole feel of your space.
+  Whethe
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-the-living-room-table-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-the-living-room-table-decoration&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what to call the beautiful items you place on your living room table? Those small touches can change the whole feel of your space.**

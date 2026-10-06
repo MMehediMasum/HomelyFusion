@@ -1,10 +1,14 @@
 ---
-title: "Best Color Rug for Living Room: Top Vibrant Rugs to Brighten Your Space"
-description: "Choosing the best color rug for your living room can transform the space instantly. The right rug adds warmth, style, and comfort to your home. A rug’s color se"
+title: 'Best Color Rug for Living Room: Top Vibrant Rugs to Brighten Your Space'
+description: Choosing the best color rug for your living room can transform the space
+  instantly. The right rug adds warmth, style, and comfort to your home. A rug’s color
+  se
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-rug-for-living-room-top-vibrant-rugs-to-brighten-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-color-rug-for-living-room-top-vibrant-rugs-to-brighten-your-space&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color rug for your living room can transform the space instantly. The right rug adds warmth, style, and comfort to your home.**

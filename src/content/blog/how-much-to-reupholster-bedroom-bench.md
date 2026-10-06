@@ -1,10 +1,14 @@
 ---
-title: "How Much to Reupholster Bedroom Bench: Ultimate Cost Guide 2025"
-description: "Thinking about giving your bedroom bench a fresh new look? You’re probably wondering, “How much will it cost to reupholster this piece?” It’s a smart move to up"
+title: 'How Much to Reupholster Bedroom Bench: Ultimate Cost Guide 2025'
+description: Thinking about giving your bedroom bench a fresh new look? You’re probably
+  wondering, “How much will it cost to reupholster this piece?” It’s a smart move
+  to up
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-reupholster-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-reupholster-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about giving your bedroom bench a fresh new look? You’re probably wondering, “How much will it cost to reupholster this piece?” It’s a smart move to update your bench without buying new furniture.**

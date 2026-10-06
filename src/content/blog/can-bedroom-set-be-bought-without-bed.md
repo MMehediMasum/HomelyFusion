@@ -1,10 +1,14 @@
 ---
-title: "Can Bedroom Set Be Bought Without Bed: Smart Buying Tips Revealed"
-description: "Are you looking to refresh your bedroom but wondering if you can buy a bedroom set without the bed? Maybe you already have a bed you love, or you want to mix an"
+title: 'Can Bedroom Set Be Bought Without Bed: Smart Buying Tips Revealed'
+description: Are you looking to refresh your bedroom but wondering if you can buy
+  a bedroom set without the bed? Maybe you already have a bed you love, or you want
+  to mix an
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bedroom-set-be-bought-without-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=can-bedroom-set-be-bought-without-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to refresh your bedroom but wondering if you can buy a bedroom set without the bed? Maybe you already have a bed you love, or you want to mix and match pieces to fit your style.**

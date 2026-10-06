@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ashley Furniture Metairie: Top Stylish Sofas for Ultimate Comfort"
 description: "Ashley Furniture Metairie offers a wide range of stylish and comfortable sofas for every living room. Find options from casual to modern designs that fit your s"
 pubDate: 2026-07-10

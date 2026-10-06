@@ -1,10 +1,13 @@
 ---
-title: "How to Reapulster a Round Back Living Room Chair: Easy DIY Guide"
-description: "Is your round back living room chair looking tired or worn out? Reupholstering it can give your favorite seat a fresh new look without the cost of buying a new "
+title: 'How to Reapulster a Round Back Living Room Chair: Easy DIY Guide'
+description: 'Is your round back living room chair looking tired or worn out? Reupholstering
+  it can give your favorite seat a fresh new look without the cost of buying a new '
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reapulster-a-round-back-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reapulster-a-round-back-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your round back living room chair looking tired or worn out? Reupholstering it can give your favorite seat a fresh new look without the cost of buying a new one.**

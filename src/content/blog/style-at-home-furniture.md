@@ -1,10 +1,14 @@
 ---
-title: "Style at Home Furniture: Top Modern Desks and Classic Bedroom Sets Reviewed"
-description: "Creating a stylish home environment begins with choosing the right furniture. Style at Home Furniture offers a range of options to suit any taste. From sleek co"
+title: 'Style at Home Furniture: Top Modern Desks and Classic Bedroom Sets Reviewed'
+description: Creating a stylish home environment begins with choosing the right furniture.
+  Style at Home Furniture offers a range of options to suit any taste. From sleek
+  co
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=style-at-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=style-at-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating a stylish home environment begins with choosing the right furniture. Style at Home Furniture offers a range of options to suit any taste.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Google Home to Wifi: Easy Steps for Quick Setup"
 description: "Setting up your Google Home to connect to WiFi might seem tricky, but it doesn’t have to be. Imagine having your favorite music, news, and smart home controls r"
 pubDate: 2026-04-24

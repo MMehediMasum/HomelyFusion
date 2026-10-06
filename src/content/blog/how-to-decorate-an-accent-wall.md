@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Accent Wall: Stunning Ideas to Transform Your Space"
-description: "Are you looking to add a fresh, exciting touch to your room without a full makeover? Decorating an accent wall is one of the easiest and most effective ways to "
+title: 'How to Decorate an Accent Wall: Stunning Ideas to Transform Your Space'
+description: 'Are you looking to add a fresh, exciting touch to your room without
+  a full makeover? Decorating an accent wall is one of the easiest and most effective
+  ways to '
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-accent-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-accent-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a fresh, exciting touch to your room without a full makeover? Decorating an accent wall is one of the easiest and most effective ways to transform your space instantly.**

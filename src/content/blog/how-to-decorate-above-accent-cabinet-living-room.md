@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above Accent Cabinet Living Room: Stunning Ideas"
-description: "Your living room’s accent cabinet is more than just a storage spot—it’s a chance to showcase your style and make a statement. But decorating the space above it "
+title: 'How to Decorate above Accent Cabinet Living Room: Stunning Ideas'
+description: 'Your living room’s accent cabinet is more than just a storage spot—it’s
+  a chance to showcase your style and make a statement. But decorating the space above
+  it '
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-accent-cabinet-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-accent-cabinet-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room’s accent cabinet is more than just a storage spot—it’s a chance to showcase your style and make a statement. But decorating the space above it can feel tricky.**

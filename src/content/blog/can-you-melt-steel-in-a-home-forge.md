@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Melt Steel in a Home Forge: Ultimate DIY Guide"
 description: "Have you ever wondered if you can melt steel right in your own home forge? It’s a question that sparks curiosity and a bit of excitement. Imagine turning raw st"
 pubDate: 2026-03-25

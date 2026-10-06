@@ -1,10 +1,13 @@
 ---
-title: "Tahari Furniture Home Goods: Stylish Fluted Dressers and Storage Solutions"
-description: "Tahari Furniture offers versatile home goods that blend style with functionality. Their collection includes dressers, cabinets, and sideboards. Tahari Furniture"
+title: 'Tahari Furniture Home Goods: Stylish Fluted Dressers and Storage Solutions'
+description: Tahari Furniture offers versatile home goods that blend style with functionality.
+  Their collection includes dressers, cabinets, and sideboards. Tahari Furniture
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-furniture-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=tahari-furniture-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tahari Furniture offers versatile home goods that blend style with functionality. Their collection includes dressers, cabinets, and sideboards.**

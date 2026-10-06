@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Trays: Stylish and Functional Serving Solutions for Every Room"
-description: "Home goods trays add style and function to any room. They help organize, serve, and decorate with ease. Trays come in many shapes and materials like wood, bambo"
+title: 'Home Goods Trays: Stylish and Functional Serving Solutions for Every Room'
+description: Home goods trays add style and function to any room. They help organize,
+  serve, and decorate with ease. Trays come in many shapes and materials like wood,
+  bambo
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-trays&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-trays&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods trays add style and function to any room. They help organize, serve, and decorate with ease.**

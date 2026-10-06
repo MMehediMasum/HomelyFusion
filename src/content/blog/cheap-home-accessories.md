@@ -1,10 +1,13 @@
 ---
-title: "Cheap Home Accessories to Stylishly Organize and Decorate Your Space"
-description: "Transform your living space with affordable home accessories that add style and function. Discover budget-friendly options that elevate your decor effortlessly."
+title: Cheap Home Accessories to Stylishly Organize and Decorate Your Space
+description: Transform your living space with affordable home accessories that add
+  style and function. Discover budget-friendly options that elevate your decor effortlessly.
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cheap-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your living space with affordable home accessories that add style and function. Discover budget-friendly options that elevate your decor effortlessly.**

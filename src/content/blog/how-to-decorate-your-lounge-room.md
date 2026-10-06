@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Lounge Room: Stunning Ideas for Cozy Elegance"
-description: "Your lounge room is where you relax, entertain, and spend quality time with loved ones. But if it feels dull or cluttered, it can stop being the cozy space you "
+title: 'How to Decorate Your Lounge Room: Stunning Ideas for Cozy Elegance'
+description: 'Your lounge room is where you relax, entertain, and spend quality time
+  with loved ones. But if it feels dull or cluttered, it can stop being the cozy space
+  you '
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-lounge-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-lounge-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your lounge room is where you relax, entertain, and spend quality time with loved ones. But if it feels dull or cluttered, it can stop being the cozy space you deserve.**

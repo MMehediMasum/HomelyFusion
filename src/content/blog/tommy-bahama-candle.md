@@ -1,10 +1,14 @@
 ---
-title: "Tommy Bahama Candle: Experience Tropical Bliss with Luxury Soy Scents"
-description: "Tommy Bahama candles bring the relaxing scent of the islands into your home. These candles combine tropical fragrances with long-lasting soy wax for a soothing "
+title: 'Tommy Bahama Candle: Experience Tropical Bliss with Luxury Soy Scents'
+description: 'Tommy Bahama candles bring the relaxing scent of the islands into your
+  home. These candles combine tropical fragrances with long-lasting soy wax for a
+  soothing '
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-bahama-candle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=tommy-bahama-candle&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tommy Bahama candles bring the relaxing scent of the islands into your home. These candles combine tropical fragrances with long-lasting soy wax for a soothing experience.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Install Wall Mounted Bathroom Vanity: Easy Step-by-Step Guide"
-description: "Are you ready to upgrade your bathroom with a sleek, wall mounted vanity? Installing one can transform your space, making it look modern and freeing up valuable"
+title: 'How to Install Wall Mounted Bathroom Vanity: Easy Step-by-Step Guide'
+description: Are you ready to upgrade your bathroom with a sleek, wall mounted vanity?
+  Installing one can transform your space, making it look modern and freeing up valuable
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-mounted-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-mounted-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to upgrade your bathroom with a sleek, wall mounted vanity? Installing one can transform your space, making it look modern and freeing up valuable floor area.**

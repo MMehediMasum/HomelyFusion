@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Home Shadow Box: Elegant Display for Keepsakes and Memories"
-description: "The Nicole Miller Home Shadow Box offers a stylish way to display your cherished memories. It combines elegance with practical design for any room. This shadow "
+title: 'Nicole Miller Home Shadow Box: Elegant Display for Keepsakes and Memories'
+description: 'The Nicole Miller Home Shadow Box offers a stylish way to display your
+  cherished memories. It combines elegance with practical design for any room. This
+  shadow '
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-home-shadow-box&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-home-shadow-box&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **The Nicole Miller Home Shadow Box offers a stylish way to display your cherished memories. It combines elegance with practical design for any room.**

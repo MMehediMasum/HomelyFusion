@@ -1,10 +1,14 @@
 ---
-title: "How to Design a Gallery Wall: Stunning Tips for Perfect Style"
-description: "Are you looking to transform a blank wall into a stunning display that tells your story? Designing a gallery wall is the perfect way to showcase your favorite p"
+title: 'How to Design a Gallery Wall: Stunning Tips for Perfect Style'
+description: Are you looking to transform a blank wall into a stunning display that
+  tells your story? Designing a gallery wall is the perfect way to showcase your favorite
+  p
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-design-a-gallery-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-design-a-gallery-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform a blank wall into a stunning display that tells your story? Designing a gallery wall is the perfect way to showcase your favorite photos, art, and memories.**

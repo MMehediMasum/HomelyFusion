@@ -1,10 +1,14 @@
 ---
-title: "Homegood Wall Art Ideas: Transform Your Space with Modern Boho Decor"
-description: "Homegood wall art adds style and warmth to any room. It offers a variety of designs to fit different tastes and spaces. Choosing the right wall art can change t"
+title: 'Homegood Wall Art Ideas: Transform Your Space with Modern Boho Decor'
+description: Homegood wall art adds style and warmth to any room. It offers a variety
+  of designs to fit different tastes and spaces. Choosing the right wall art can change
+  t
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegood-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegood-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Homegood wall art adds style and warmth to any room. It offers a variety of designs to fit different tastes and spaces.**

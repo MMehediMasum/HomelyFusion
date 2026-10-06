@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Silver Pendant at Home: Easy & Effective Tips"
 description: "Is your silver pendant looking dull or tarnished? You don’t have to spend a fortune to bring back its shine. With simple items you already have at home, you can"
 pubDate: 2026-05-08

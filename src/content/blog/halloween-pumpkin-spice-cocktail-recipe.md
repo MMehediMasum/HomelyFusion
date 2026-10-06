@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Pumpkin Spice Cocktail Recipe: Irresistible Fall Sips"
 description: "Are you ready to add a spooky twist to your Halloween celebrations? Imagine sipping a warm, cozy cocktail that perfectly blends the rich flavors of pumpkin spic"
 pubDate: 2026-01-13

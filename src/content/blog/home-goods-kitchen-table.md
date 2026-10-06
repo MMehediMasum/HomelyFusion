@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Kitchen Table Sets: Stylish, Space-Saving Dining Solutions"
-description: "A well-chosen kitchen table can transform your dining area into a cozy and functional space. Whether for family dinners or casual brunches, the right table sets"
+title: 'Home Goods Kitchen Table Sets: Stylish, Space-Saving Dining Solutions'
+description: A well-chosen kitchen table can transform your dining area into a cozy
+  and functional space. Whether for family dinners or casual brunches, the right table
+  sets
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-kitchen-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-kitchen-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A well-chosen kitchen table can transform your dining area into a cozy and functional space. Whether for family dinners or casual brunches, the right table sets the stage for memorable gatherings.**

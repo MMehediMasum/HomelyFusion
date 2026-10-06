@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Accent Pillows: Stylish Throws to Transform Your Living Space"
-description: "Home decor accent pillows add style and comfort to any living space. These small cushions brighten rooms and create cozy vibes instantly. Accent pillows come in"
+title: 'Home Decor Accent Pillows: Stylish Throws to Transform Your Living Space'
+description: Home decor accent pillows add style and comfort to any living space.
+  These small cushions brighten rooms and create cozy vibes instantly. Accent pillows
+  come in
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-accent-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-accent-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor accent pillows add style and comfort to any living space. These small cushions brighten rooms and create cozy vibes instantly.**

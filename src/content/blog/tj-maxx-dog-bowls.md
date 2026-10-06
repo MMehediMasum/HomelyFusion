@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Dog Bowls: Durable, Stylish Picks for Your Pet’s Mealtime"
-description: "T.J. Maxx offers a variety of dog bowls catering to different needs and preferences. From sturdy plastic to sleek stainless steel, there’s a bowl for every pet."
+title: 'Tj Maxx Dog Bowls: Durable, Stylish Picks for Your Pet’s Mealtime'
+description: T.J. Maxx offers a variety of dog bowls catering to different needs and
+  preferences. From sturdy plastic to sleek stainless steel, there’s a bowl for every
+  pet.
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-dog-bowls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-dog-bowls&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **T.J. Maxx offers a variety of dog bowls catering to different needs and preferences. From sturdy plastic to sleek stainless steel, there’s a bowl for every pet.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Bedroom: Soft, Plush, and Washable Area Rugs Reviewed"
-description: "Choosing the best rugs for your bedroom adds warmth and style to your space. Soft, cozy rugs create comfort underfoot and improve room decor. A good bedroom rug"
+title: 'Best Rugs for Bedroom: Soft, Plush, and Washable Area Rugs Reviewed'
+description: Choosing the best rugs for your bedroom adds warmth and style to your
+  space. Soft, cozy rugs create comfort underfoot and improve room decor. A good bedroom
+  rug
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-bedroom-soft-plush-and-washable-area-rugs-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-bedroom-soft-plush-and-washable-area-rugs-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for your bedroom adds warmth and style to your space. Soft, cozy rugs create comfort underfoot and improve room decor.**

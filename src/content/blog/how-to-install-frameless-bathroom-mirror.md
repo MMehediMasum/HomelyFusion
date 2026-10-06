@@ -1,10 +1,14 @@
 ---
-title: "How to Install Frameless Bathroom Mirror: Easy Steps for a Sleek Look"
-description: "Are you ready to give your bathroom a sleek, modern look? Installing a frameless bathroom mirror can transform your space, making it feel bigger and brighter. B"
+title: 'How to Install Frameless Bathroom Mirror: Easy Steps for a Sleek Look'
+description: Are you ready to give your bathroom a sleek, modern look? Installing
+  a frameless bathroom mirror can transform your space, making it feel bigger and
+  brighter. B
 pubDate: 2026-01-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-frameless-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-frameless-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your bathroom a sleek, modern look? Installing a frameless bathroom mirror can transform your space, making it feel bigger and brighter.**

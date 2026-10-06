@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Shine Steel at Home: Easy Steps for a Brilliant Finish"
 description: "Do you want your steel items to look brand new without spending a fortune? Imagine bringing back that bright, shiny finish right at home with simple steps you c"
 pubDate: 2026-03-08

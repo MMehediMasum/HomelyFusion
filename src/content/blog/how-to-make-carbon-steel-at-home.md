@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Carbon Steel at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wondered how to make carbon steel right in your own home? Imagine crafting strong, durable steel with your own hands—steel that you can use for to"
 pubDate: 2026-02-13

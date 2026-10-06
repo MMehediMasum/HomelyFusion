@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Online Shopping: Top Picks for Stylish Home Flooring"
-description: "Shopping online for home décor is convenient and exciting. Floor and Decor offer a wide selection for every taste. Home decoration can transform a space, making"
+title: 'Floor And Decor Online Shopping: Top Picks for Stylish Home Flooring'
+description: Shopping online for home décor is convenient and exciting. Floor and
+  Decor offer a wide selection for every taste. Home decoration can transform a space,
+  making
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-online-shopping&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-online-shopping&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Shopping online for home décor is convenient and exciting. Floor and Decor offer a wide selection for every taste.**

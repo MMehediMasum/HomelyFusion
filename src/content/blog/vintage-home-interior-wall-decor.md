@@ -1,10 +1,14 @@
 ---
-title: "Vintage Home Interior Wall Decor: Timeless 3D Sculptures and Elegant Accents"
-description: "Vintage home interior wall decor adds charm and character to any living space. These timeless pieces bring warmth and style with classic designs. Choosing vinta"
+title: 'Vintage Home Interior Wall Decor: Timeless 3D Sculptures and Elegant Accents'
+description: Vintage home interior wall decor adds charm and character to any living
+  space. These timeless pieces bring warmth and style with classic designs. Choosing
+  vinta
 pubDate: 2025-10-12
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-home-interior-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=vintage-home-interior-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Vintage home interior wall decor adds charm and character to any living space. These timeless pieces bring warmth and style with classic designs.**

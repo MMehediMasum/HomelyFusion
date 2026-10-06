@@ -1,10 +1,13 @@
 ---
-title: "What Color Bedding Goes With Gray Bedroom Furniture: Stunning Ideas"
-description: "Choosing the right bedding color for your gray bedroom furniture can completely transform your space. You want your room to feel cozy, stylish, and balanced—but"
+title: 'What Color Bedding Goes With Gray Bedroom Furniture: Stunning Ideas'
+description: Choosing the right bedding color for your gray bedroom furniture can
+  completely transform your space. You want your room to feel cozy, stylish, and balanced—but
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-bedding-goes-with-gray-bedroom-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-bedding-goes-with-gray-bedroom-furniture&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedding color for your gray bedroom furniture can completely transform your space. You want your room to feel cozy, stylish, and balanced—but finding the perfect shade can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Shop: Transform Your Space with Stylish Boho and Modern Accents"
-description: "A wall decor shop offers a variety of items to brighten your home or office walls. It helps create a warm and inviting space with unique designs. This shop feat"
+title: 'Wall Decor Shop: Transform Your Space with Stylish Boho and Modern Accents'
+description: A wall decor shop offers a variety of items to brighten your home or
+  office walls. It helps create a warm and inviting space with unique designs. This
+  shop feat
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-shop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-shop&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A wall decor shop offers a variety of items to brighten your home or office walls. It helps create a warm and inviting space with unique designs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Rustic Bathroom Vanity: Easy Steps for Charm"
-description: "Are you dreaming of a bathroom that feels warm, inviting, and full of character? Building a rustic bathroom vanity could be exactly what your space needs. Imagi"
+title: 'How to Build a Rustic Bathroom Vanity: Easy Steps for Charm'
+description: Are you dreaming of a bathroom that feels warm, inviting, and full of
+  character? Building a rustic bathroom vanity could be exactly what your space needs.
+  Imagi
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-rustic-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-rustic-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of a bathroom that feels warm, inviting, and full of character? Building a rustic bathroom vanity could be exactly what your space needs.**

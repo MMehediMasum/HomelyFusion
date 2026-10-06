@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Wall Shelf: Stunning Ideas for Style"
-description: "Your living room wall shelf is more than just a place to store things—it’s a chance to show your style and make your space feel truly yours. But decorating it c"
+title: 'How to Decorate a Living Room Wall Shelf: Stunning Ideas for Style'
+description: Your living room wall shelf is more than just a place to store things—it’s
+  a chance to show your style and make your space feel truly yours. But decorating
+  it c
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room wall shelf is more than just a place to store things—it’s a chance to show your style and make your space feel truly yours. But decorating it can feel tricky.**

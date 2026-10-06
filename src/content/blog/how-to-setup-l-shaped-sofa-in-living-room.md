@@ -1,10 +1,14 @@
 ---
-title: "How to Setup L Shaped Sofa in Living Room: Expert Tips & Ideas"
-description: "Are you wondering how to make your living room look stylish and feel cozy at the same time? Setting up an L-shaped sofa might be the perfect solution. But arran"
+title: 'How to Setup L Shaped Sofa in Living Room: Expert Tips & Ideas'
+description: Are you wondering how to make your living room look stylish and feel
+  cozy at the same time? Setting up an L-shaped sofa might be the perfect solution.
+  But arran
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-setup-l-shaped-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-setup-l-shaped-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room look stylish and feel cozy at the same time? Setting up an L-shaped sofa might be the perfect solution.**

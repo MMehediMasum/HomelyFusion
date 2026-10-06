@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rug for Camping: Durable, Waterproof, and Stylish Picks"
-description: "Finding the best outdoor rug for camping makes your trip more comfortable and clean. Durable, waterproof rugs create a cozy space outside your tent or RV. Campi"
+title: 'Best Outdoor Rug for Camping: Durable, Waterproof, and Stylish Picks'
+description: Finding the best outdoor rug for camping makes your trip more comfortable
+  and clean. Durable, waterproof rugs create a cozy space outside your tent or RV.
+  Campi
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rug-for-camping-durable-waterproof-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rug-for-camping-durable-waterproof-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the best outdoor rug for camping makes your trip more comfortable and clean. Durable, waterproof rugs create a cozy space outside your tent or RV.**

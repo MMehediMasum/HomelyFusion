@@ -1,10 +1,14 @@
 ---
-title: "Frames for Room Decoration: Top Rustic and Vintage Photo Frame Sets"
-description: "Frames for room decoration add charm and personality to any space. They display memories and art beautifully on walls or tables. Choosing the right frames can t"
+title: 'Frames for Room Decoration: Top Rustic and Vintage Photo Frame Sets'
+description: Frames for room decoration add charm and personality to any space. They
+  display memories and art beautifully on walls or tables. Choosing the right frames
+  can t
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-for-room-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-for-room-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames for room decoration add charm and personality to any space. They display memories and art beautifully on walls or tables.**

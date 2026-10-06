@@ -1,10 +1,14 @@
 ---
-title: "Hampton Bay Rugs: Stylish, Durable Outdoor Rugs for Every Space"
-description: "Hampton Bay Rugs offer a versatile selection of stylish, durable area rugs for both indoor and outdoor spaces. These rugs are designed to enhance any room or pa"
+title: 'Hampton Bay Rugs: Stylish, Durable Outdoor Rugs for Every Space'
+description: Hampton Bay Rugs offer a versatile selection of stylish, durable area
+  rugs for both indoor and outdoor spaces. These rugs are designed to enhance any
+  room or pa
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hampton-bay-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=hampton-bay-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Hampton Bay Rugs offer a versatile selection of stylish, durable area rugs for both indoor and outdoor spaces. These rugs are designed to enhance any room or patio with their unique patterns and practical features.**

@@ -1,10 +1,14 @@
 ---
-title: "Should You Have 2 Console Tables in the Living Room? Expert Tips"
-description: "Are you wondering if having two console tables in your living room is a good idea? It’s a question that might seem simple but can make a big difference in how y"
+title: Should You Have 2 Console Tables in the Living Room? Expert Tips
+description: Are you wondering if having two console tables in your living room is
+  a good idea? It’s a question that might seem simple but can make a big difference
+  in how y
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-you-have-2-console-tables-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=should-you-have-2-console-tables-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if having two console tables in your living room is a good idea? It’s a question that might seem simple but can make a big difference in how your space looks and feels.**

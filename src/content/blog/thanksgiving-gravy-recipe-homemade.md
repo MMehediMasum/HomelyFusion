@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Gravy Recipe Homemade: Irresistibly Rich & Easy"
 description: "There’s nothing quite like the rich, savory taste of homemade gravy on Thanksgiving. If you want to take your holiday meal to the next level, this Thanksgiving "
 pubDate: 2026-01-06

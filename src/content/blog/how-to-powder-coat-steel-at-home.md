@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Powder Coat Steel at Home: Easy Steps for Perfect Finish"
 description: "Are you looking to give your steel projects a sleek, durable finish without spending a fortune? Powder coating steel at home is easier than you might think, and"
 pubDate: 2026-03-22

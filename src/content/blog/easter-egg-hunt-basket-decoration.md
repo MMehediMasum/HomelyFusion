@@ -1,10 +1,13 @@
 ---
-title: "Easter Egg Hunt Basket Decoration: Creative Ideas to Wow Kids"
-description: "Are you ready to make your Easter egg hunt extra special this year? Decorating your Easter egg hunt basket is a simple way to add fun and excitement for kids an"
+title: 'Easter Egg Hunt Basket Decoration: Creative Ideas to Wow Kids'
+description: Are you ready to make your Easter egg hunt extra special this year? Decorating
+  your Easter egg hunt basket is a simple way to add fun and excitement for kids an
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-egg-hunt-basket-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-egg-hunt-basket-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Easter egg hunt extra special this year? Decorating your Easter egg hunt basket is a simple way to add fun and excitement for kids and adults alike.**

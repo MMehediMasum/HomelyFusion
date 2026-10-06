@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Furniture Clothing: Top Sofa Slipcovers for Ultimate Couch Protection and Style"
 description: "Furniture clothing means covers designed to protect sofas and chairs from wear and dirt. These covers keep furniture clean and fresh for longer use. Sofa slipco"
 pubDate: 2026-06-11

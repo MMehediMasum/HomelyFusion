@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Couch Chair in Living Room: Stylish Tips for Comfort"
-description: "Are you struggling to find the perfect way to arrange your couch and chair in your living room? The right setup can transform your space, making it feel cozy, w"
+title: 'How to Arrange Couch Chair in Living Room: Stylish Tips for Comfort'
+description: Are you struggling to find the perfect way to arrange your couch and
+  chair in your living room? The right setup can transform your space, making it feel
+  cozy, w
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-couch-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-couch-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect way to arrange your couch and chair in your living room? The right setup can transform your space, making it feel cozy, welcoming, and stylish.**

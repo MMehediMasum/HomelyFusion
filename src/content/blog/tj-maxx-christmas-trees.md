@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Christmas Trees: Top Realistic and Pre-Lit Holiday Picks"
-description: "Tj Maxx offers a wide range of Christmas trees that fit every home and style. These trees mix quality, ease, and festive charm for the holiday season. Choosing "
+title: 'Tj Maxx Christmas Trees: Top Realistic and Pre-Lit Holiday Picks'
+description: 'Tj Maxx offers a wide range of Christmas trees that fit every home and
+  style. These trees mix quality, ease, and festive charm for the holiday season.
+  Choosing '
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-christmas-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-christmas-trees&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Tj Maxx offers a wide range of Christmas trees that fit every home and style. These trees mix quality, ease, and festive charm for the holiday season.**

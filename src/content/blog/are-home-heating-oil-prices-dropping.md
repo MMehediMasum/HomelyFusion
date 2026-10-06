@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Dropping: What You Need to Know Now"
 description: "Are you worried about how much you’ll pay to heat your home this season? You’re not alone. Home heating oil prices can feel like a mystery, changing unexpectedl"
 pubDate: 2026-04-09

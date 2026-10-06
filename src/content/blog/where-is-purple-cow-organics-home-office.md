@@ -1,10 +1,14 @@
 ---
-title: "Where is Purple Cow Organics Home Office: Discover the Location Now"
-description: "Are you curious about where Purple Cow Organics runs its magic from? Knowing the location of their home office can give you a clearer picture of the heart behin"
+title: 'Where is Purple Cow Organics Home Office: Discover the Location Now'
+description: Are you curious about where Purple Cow Organics runs its magic from?
+  Knowing the location of their home office can give you a clearer picture of the
+  heart behin
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-purple-cow-organics-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-is-purple-cow-organics-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you curious about where Purple Cow Organics runs its magic from? Knowing the location of their home office can give you a clearer picture of the heart behind your favorite organic products.**

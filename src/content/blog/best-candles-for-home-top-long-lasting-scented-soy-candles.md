@@ -1,10 +1,14 @@
 ---
-title: "Best Candles for Home: Top Long-Lasting Scented Soy Candles"
-description: "Candles create warmth and a cozy atmosphere in any home. Choosing the best candle can improve mood and refresh your space. Candles offer more than light; they b"
+title: 'Best Candles for Home: Top Long-Lasting Scented Soy Candles'
+description: Candles create warmth and a cozy atmosphere in any home. Choosing the
+  best candle can improve mood and refresh your space. Candles offer more than light;
+  they b
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-candles-for-home-top-long-lasting-scented-soy-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-candles-for-home-top-long-lasting-scented-soy-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Candles create warmth and a cozy atmosphere in any home. Choosing the best candle can improve mood and refresh your space.**

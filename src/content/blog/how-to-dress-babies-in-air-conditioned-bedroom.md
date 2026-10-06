@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Babies in Air Conditioned Bedroom: Ultimate Comfort Tips"
-description: "You want to keep your baby comfortable and safe, especially when the air conditioner is running. But how do you dress your little one in a cool room without mak"
+title: 'How to Dress Babies in Air Conditioned Bedroom: Ultimate Comfort Tips'
+description: You want to keep your baby comfortable and safe, especially when the
+  air conditioner is running. But how do you dress your little one in a cool room
+  without mak
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-babies-in-air-conditioned-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-babies-in-air-conditioned-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **You want to keep your baby comfortable and safe, especially when the air conditioner is running. But how do you dress your little one in a cool room without making them too cold or too warm?**

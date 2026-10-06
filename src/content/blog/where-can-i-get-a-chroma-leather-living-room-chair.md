@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get a Chroma Leather Living Room Chair: Top Picks"
-description: "Are you looking to add a stylish and comfortable touch to your living room? A Chroma leather living room chair might be exactly what you need. This chair combin"
+title: 'Where Can I Get a Chroma Leather Living Room Chair: Top Picks'
+description: Are you looking to add a stylish and comfortable touch to your living
+  room? A Chroma leather living room chair might be exactly what you need. This chair
+  combin
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-a-chroma-leather-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-a-chroma-leather-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to add a stylish and comfortable touch to your living room? A Chroma leather living room chair might be exactly what you need.**

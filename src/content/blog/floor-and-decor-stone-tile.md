@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Stone Tile: Top Peel & Stick Options for Stylish Floors"
-description: "Floor and Decor stone tiles offer a simple way to update your floors with style and durability. These tiles come in many colors and patterns to fit any room des"
+title: 'Floor And Decor Stone Tile: Top Peel & Stick Options for Stylish Floors'
+description: Floor and Decor stone tiles offer a simple way to update your floors
+  with style and durability. These tiles come in many colors and patterns to fit any
+  room des
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-stone-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-stone-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor stone tiles offer a simple way to update your floors with style and durability. These tiles come in many colors and patterns to fit any room design.**

@@ -1,10 +1,14 @@
 ---
-title: "Does Sutter Home Wine Have a Cork? Unveiling the Truth"
-description: "Are you curious about the little details that can make your wine experience better? If you’ve ever wondered, \"Does Sutter Home wine have a cork?\" You’re not alo"
+title: Does Sutter Home Wine Have a Cork? Unveiling the Truth
+description: Are you curious about the little details that can make your wine experience
+  better? If you’ve ever wondered, "Does Sutter Home wine have a cork?" You’re not
+  alo
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-sutter-home-wine-have-a-cork&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=does-sutter-home-wine-have-a-cork&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you curious about the little details that can make your wine experience better? If you’ve ever wondered, "Does Sutter Home wine have a cork?"**

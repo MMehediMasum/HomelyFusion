@@ -1,10 +1,13 @@
 ---
-title: "Calvin Heights Sectional: Ultimate Comfort with Modular Sleeper Sofa Design"
-description: "The Calvin Heights Sectional offers versatile seating with modern style. It fits well in living rooms needing comfort and space. This sectional sofa collection "
+title: 'Calvin Heights Sectional: Ultimate Comfort with Modular Sleeper Sofa Design'
+description: 'The Calvin Heights Sectional offers versatile seating with modern style.
+  It fits well in living rooms needing comfort and space. This sectional sofa collection '
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=calvin-heights-sectional&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=calvin-heights-sectional&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **The Calvin Heights Sectional offers versatile seating with modern style. It fits well in living rooms needing comfort and space.**

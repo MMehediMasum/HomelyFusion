@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Sofa With Pillows: Stunning Tips for Cozy Style"
-description: "Your sofa is more than just a place to sit—it’s the heart of your living room. But have you ever felt like it’s missing something? That’s where pillows come in."
+title: 'How to Decorate Sofa With Pillows: Stunning Tips for Cozy Style'
+description: Your sofa is more than just a place to sit—it’s the heart of your living
+  room. But have you ever felt like it’s missing something? That’s where pillows come
+  in.
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-sofa-with-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-sofa-with-pillows&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your sofa is more than just a place to sit—it’s the heart of your living room. But have you ever felt like it’s missing something?**

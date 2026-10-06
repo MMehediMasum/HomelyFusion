@@ -1,10 +1,14 @@
 ---
-title: "The Floor Store: Top Flooring Solutions and Accessories for Every Space"
-description: "Discover the best in floor solutions at The Floor Store. We offer a range of products to suit every need. From underlayments to floor protectors, The Floor Stor"
+title: 'The Floor Store: Top Flooring Solutions and Accessories for Every Space'
+description: Discover the best in floor solutions at The Floor Store. We offer a range
+  of products to suit every need. From underlayments to floor protectors, The Floor
+  Stor
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-floor-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=the-floor-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the best in floor solutions at The Floor Store. We offer a range of products to suit every need.**

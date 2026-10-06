@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Bedroom Chest of Drawers: Stylish & Practical Ideas"
-description: "Your bedroom chest of drawers is more than just a storage space—it’s a chance to show your style and keep your essentials close at hand. But what should you put"
+title: 'What to Put on Bedroom Chest of Drawers: Stylish & Practical Ideas'
+description: Your bedroom chest of drawers is more than just a storage space—it’s
+  a chance to show your style and keep your essentials close at hand. But what should
+  you put
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-bedroom-chest-of-drawers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-bedroom-chest-of-drawers&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom chest of drawers is more than just a storage space—it’s a chance to show your style and keep your essentials close at hand. But what should you put on it to make the most of this spot?**

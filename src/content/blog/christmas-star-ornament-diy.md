@@ -1,10 +1,14 @@
 ---
-title: "Christmas Star Ornament DIY: Easy Steps for Stunning Holiday Decor"
-description: "Are you ready to add a personal touch to your holiday decorations? Making your own Christmas star ornament is easier than you think—and it’s a fun way to bring "
+title: 'Christmas Star Ornament DIY: Easy Steps for Stunning Holiday Decor'
+description: 'Are you ready to add a personal touch to your holiday decorations? Making
+  your own Christmas star ornament is easier than you think—and it’s a fun way to
+  bring '
 pubDate: 2026-01-10
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-star-ornament-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-star-ornament-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a personal touch to your holiday decorations? Making your own Christmas star ornament is easier than you think—and it’s a fun way to bring warmth and sparkle to your home.**

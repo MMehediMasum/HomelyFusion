@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Living Room Shelf: Stunning Ideas to Inspire You"
-description: "Your living room shelf is more than just a place to store books or knick-knacks—it’s a powerful way to show your style and bring warmth to your space. But how d"
+title: 'How to Decorate a Living Room Shelf: Stunning Ideas to Inspire You'
+description: Your living room shelf is more than just a place to store books or knick-knacks—it’s
+  a powerful way to show your style and bring warmth to your space. But how d
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-shelf&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-shelf&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room shelf is more than just a place to store books or knick-knacks—it’s a powerful way to show your style and bring warmth to your space. But how do you turn a simple shelf into a stunning focal point that grabs attention and feels uniquely yours?**

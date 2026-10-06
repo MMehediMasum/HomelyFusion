@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Accent Stripes on Wall: Easy Steps for Stunning Results"
-description: "Are you looking to add a fresh, stylish touch to your room without a full makeover? Painting accent stripes on your wall is an easy and affordable way to transf"
+title: 'How to Paint Accent Stripes on Wall: Easy Steps for Stunning Results'
+description: Are you looking to add a fresh, stylish touch to your room without a
+  full makeover? Painting accent stripes on your wall is an easy and affordable way
+  to transf
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-accent-stripes-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Striped Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-accent-stripes-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a fresh, stylish touch to your room without a full makeover? Painting accent stripes on your wall is an easy and affordable way to transform any space.**

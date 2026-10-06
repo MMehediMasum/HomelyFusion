@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Carpet: Soft, Plush Rugs Perfect for Cozy Home Decor"
-description: "Floor And Decor Carpet offers a wide range of soft, stylish, and functional rugs for every room. Their carpets combine comfort, durability, and easy maintenance"
+title: 'Floor And Decor Carpet: Soft, Plush Rugs Perfect for Cozy Home Decor'
+description: Floor And Decor Carpet offers a wide range of soft, stylish, and functional
+  rugs for every room. Their carpets combine comfort, durability, and easy maintenance
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-carpet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-carpet&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor Carpet offers a wide range of soft, stylish, and functional rugs for every room. Their carpets combine comfort, durability, and easy maintenance.**

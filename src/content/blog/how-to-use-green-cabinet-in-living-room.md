@@ -1,10 +1,14 @@
 ---
-title: "How to Use Green Cabinet in Living Room: Stunning Style Tips"
-description: "Are you looking to add a fresh, stylish touch to your living room? Using a green cabinet can be the perfect way to bring life and personality to your space. But"
+title: 'How to Use Green Cabinet in Living Room: Stunning Style Tips'
+description: Are you looking to add a fresh, stylish touch to your living room? Using
+  a green cabinet can be the perfect way to bring life and personality to your space.
+  But
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-green-cabinet-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-green-cabinet-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a fresh, stylish touch to your living room? Using a green cabinet can be the perfect way to bring life and personality to your space.**

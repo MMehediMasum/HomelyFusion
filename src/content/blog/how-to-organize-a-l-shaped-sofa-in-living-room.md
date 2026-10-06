@@ -1,10 +1,14 @@
 ---
-title: "How to Organize a L Shaped Sofa in Living Room: Stylish Tips"
-description: "Is your living room feeling cramped or cluttered? Organizing an L-shaped sofa the right way can transform your space into a cozy and inviting haven. Imagine a l"
+title: 'How to Organize a L Shaped Sofa in Living Room: Stylish Tips'
+description: Is your living room feeling cramped or cluttered? Organizing an L-shaped
+  sofa the right way can transform your space into a cozy and inviting haven. Imagine
+  a l
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-organize-a-l-shaped-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-organize-a-l-shaped-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room feeling cramped or cluttered? Organizing an L-shaped sofa the right way can transform your space into a cozy and inviting haven.**

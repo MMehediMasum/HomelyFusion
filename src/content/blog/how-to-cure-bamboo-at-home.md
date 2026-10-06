@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cure Bamboo at Home: Easy Steps for Lasting Strength"
 description: "If you’re working with bamboo for a project, you know how important it is to cure it properly. Curing bamboo at home might sound tricky, but it’s easier than yo"
 pubDate: 2026-03-23

@@ -1,10 +1,14 @@
 ---
-title: "How to Build Storage Cabinets for Living Room: Easy DIY Guide"
-description: "Are you tired of clutter taking over your living room? Imagine having sleek, custom storage cabinets that not only organize your space but also add style and wa"
+title: 'How to Build Storage Cabinets for Living Room: Easy DIY Guide'
+description: Are you tired of clutter taking over your living room? Imagine having
+  sleek, custom storage cabinets that not only organize your space but also add style
+  and wa
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-storage-cabinets-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-storage-cabinets-for-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of clutter taking over your living room? Imagine having sleek, custom storage cabinets that not only organize your space but also add style and warmth.**

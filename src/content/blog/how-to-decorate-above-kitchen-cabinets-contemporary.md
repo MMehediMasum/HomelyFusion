@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above Kitchen Cabinets Contemporary: Stunning Ideas"
-description: "Are you looking to transform the space above your kitchen cabinets but don’t know where to start? Decorating this often overlooked area can completely change th"
+title: 'How to Decorate above Kitchen Cabinets Contemporary: Stunning Ideas'
+description: Are you looking to transform the space above your kitchen cabinets but
+  don’t know where to start? Decorating this often overlooked area can completely
+  change th
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets-contemporary&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets-contemporary&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you looking to transform the space above your kitchen cabinets but don’t know where to start? Decorating this often overlooked area can completely change the feel of your kitchen.**

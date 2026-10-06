@@ -1,10 +1,14 @@
 ---
-title: "How to Make Eraser at Home Without Clay: Easy DIY Guide"
-description: "Have you ever run out of an eraser at the most inconvenient time? What if you could make your own eraser right at home without using clay? Imagine having a quic"
+title: 'How to Make Eraser at Home Without Clay: Easy DIY Guide'
+description: Have you ever run out of an eraser at the most inconvenient time? What
+  if you could make your own eraser right at home without using clay? Imagine having
+  a quic
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-eraser-at-home-without-clay&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-eraser-at-home-without-clay&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever run out of an eraser at the most inconvenient time? What if you could make your own eraser right at home without using clay?**

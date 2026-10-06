@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Clearance Furniture: Top Rustic Shelves and Storage Deals"
-description: "Discover quality home goods clearance furniture at unbeatable prices. Find stylish, practical pieces to refresh your space affordably. This clearance event offe"
+title: 'Home Goods Clearance Furniture: Top Rustic Shelves and Storage Deals'
+description: Discover quality home goods clearance furniture at unbeatable prices.
+  Find stylish, practical pieces to refresh your space affordably. This clearance
+  event offe
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-clearance-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-clearance-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover quality home goods clearance furniture at unbeatable prices. Find stylish, practical pieces to refresh your space affordably.**

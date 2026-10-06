@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bathroom Cabinet: Stunning Ideas to Transform Space"
-description: "Your bathroom cabinet is more than just a storage space—it’s a chance to add personality and style to one of the most used rooms in your home. Imagine opening y"
+title: 'How to Decorate a Bathroom Cabinet: Stunning Ideas to Transform Space'
+description: Your bathroom cabinet is more than just a storage space—it’s a chance
+  to add personality and style to one of the most used rooms in your home. Imagine
+  opening y
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bathroom cabinet is more than just a storage space—it’s a chance to add personality and style to one of the most used rooms in your home. Imagine opening your cabinet and feeling a burst of freshness and charm every single day.**

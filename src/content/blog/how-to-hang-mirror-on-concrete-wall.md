@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Mirror on Concrete Wall: Easy Steps for a Secure Fix"
-description: "Hanging a mirror on a concrete wall might sound tricky, but it doesn’t have to be. If you’ve ever worried about damaging your walls or having your mirror fall, "
+title: 'How to Hang Mirror on Concrete Wall: Easy Steps for a Secure Fix'
+description: 'Hanging a mirror on a concrete wall might sound tricky, but it doesn’t
+  have to be. If you’ve ever worried about damaging your walls or having your mirror
+  fall, '
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-concrete-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-concrete-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a mirror on a concrete wall might sound tricky, but it doesn’t have to be. If you’ve ever worried about damaging your walls or having your mirror fall, you’re not alone.**

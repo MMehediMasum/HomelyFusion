@@ -1,10 +1,14 @@
 ---
-title: "Home Flooring Stores: Top Interlocking Mats and Vinyl Tiles for Every Room"
-description: "Choosing the right flooring for your home can be daunting. Home flooring stores offer a variety of options to explore. Home flooring stores provide diverse floo"
+title: 'Home Flooring Stores: Top Interlocking Mats and Vinyl Tiles for Every Room'
+description: Choosing the right flooring for your home can be daunting. Home flooring
+  stores offer a variety of options to explore. Home flooring stores provide diverse
+  floo
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right flooring for your home can be daunting. Home flooring stores offer a variety of options to explore.**

@@ -1,10 +1,14 @@
 ---
-title: "Can Two Benches Be in Bedroom: Stylish Ideas for Cozy Spaces"
-description: "Are you wondering if two benches can fit in your bedroom? You might think it’s tricky to add more furniture without making the space feel crowded. But what if t"
+title: 'Can Two Benches Be in Bedroom: Stylish Ideas for Cozy Spaces'
+description: Are you wondering if two benches can fit in your bedroom? You might think
+  it’s tricky to add more furniture without making the space feel crowded. But what
+  if t
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-two-benches-be-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=can-two-benches-be-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if two benches can fit in your bedroom? You might think it’s tricky to add more furniture without making the space feel crowded.**

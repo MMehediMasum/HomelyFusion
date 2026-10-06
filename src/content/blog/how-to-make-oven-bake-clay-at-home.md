@@ -1,10 +1,14 @@
 ---
-title: "How to Make Oven Bake Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create your own beautiful crafts but felt held back by expensive materials? What if you could make oven bake clay right at home, using s"
+title: 'How to Make Oven Bake Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create your own beautiful crafts but felt held
+  back by expensive materials? What if you could make oven bake clay right at home,
+  using s
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-oven-bake-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-oven-bake-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own beautiful crafts but felt held back by expensive materials? What if you could make oven bake clay right at home, using simple ingredients you probably already have?**

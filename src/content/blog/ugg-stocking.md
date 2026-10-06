@@ -1,10 +1,14 @@
 ---
-title: "Ugg Stocking Ideas: Cozy Cable Knit Christmas Stockings for Holiday Decor"
-description: "Ugg stockings bring warmth and style to your holiday decorations. These cozy stockings blend soft materials with festive designs. Choose from a variety of Ugg-i"
+title: 'Ugg Stocking Ideas: Cozy Cable Knit Christmas Stockings for Holiday Decor'
+description: Ugg stockings bring warmth and style to your holiday decorations. These
+  cozy stockings blend soft materials with festive designs. Choose from a variety
+  of Ugg-i
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ugg-stocking&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=ugg-stocking&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Ugg stockings bring warmth and style to your holiday decorations. These cozy stockings blend soft materials with festive designs.**

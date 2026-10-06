@@ -1,10 +1,14 @@
 ---
-title: "Wall Shelves Home Goods: Stylish Rustic Floating Shelves for Every Room"
-description: "Wall shelves are versatile and stylish additions to any home. They enhance storage while adding a touch of elegance. In today's homes, wall shelves serve both f"
+title: 'Wall Shelves Home Goods: Stylish Rustic Floating Shelves for Every Room'
+description: Wall shelves are versatile and stylish additions to any home. They enhance
+  storage while adding a touch of elegance. In today's homes, wall shelves serve both
+  f
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-shelves-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=wall-shelves-home-goods&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Wall shelves are versatile and stylish additions to any home. They enhance storage while adding a touch of elegance.**

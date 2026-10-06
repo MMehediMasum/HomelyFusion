@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Murals for Bedroom: Stunning Floral and Nature Wall Art Ideas"
-description: "Wall murals add personality and style to any bedroom. They transform plain walls into beautiful, inviting spaces. Choosing the right wall mural can change your "
+title: 'Best Wall Murals for Bedroom: Stunning Floral and Nature Wall Art Ideas'
+description: 'Wall murals add personality and style to any bedroom. They transform
+  plain walls into beautiful, inviting spaces. Choosing the right wall mural can change
+  your '
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-murals-for-bedroom-stunning-floral-and-nature-wall-art-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-murals-for-bedroom-stunning-floral-and-nature-wall-art-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall murals add personality and style to any bedroom. They transform plain walls into beautiful, inviting spaces.**

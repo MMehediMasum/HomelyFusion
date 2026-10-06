@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room End Tables: Stylish Tips & Ideas"
-description: "Your living room end tables are more than just places to set a drink. They hold the power to transform your space from ordinary to inviting. But how do you deco"
+title: 'How to Decorate Living Room End Tables: Stylish Tips & Ideas'
+description: Your living room end tables are more than just places to set a drink.
+  They hold the power to transform your space from ordinary to inviting. But how do
+  you deco
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-end-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-end-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room end tables are more than just places to set a drink. They hold the power to transform your space from ordinary to inviting.**

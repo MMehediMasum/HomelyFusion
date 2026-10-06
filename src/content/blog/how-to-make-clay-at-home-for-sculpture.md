@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay at Home for Sculpture: Easy DIY Recipe Guide"
-description: "Have you ever wanted to create your own sculptures but felt held back by the cost or availability of clay? Imagine being able to make your own clay right at hom"
+title: 'How to Make Clay at Home for Sculpture: Easy DIY Recipe Guide'
+description: Have you ever wanted to create your own sculptures but felt held back
+  by the cost or availability of clay? Imagine being able to make your own clay right
+  at hom
 pubDate: 2026-02-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-at-home-for-sculpture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-at-home-for-sculpture&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own sculptures but felt held back by the cost or availability of clay? Imagine being able to make your own clay right at home with simple ingredients you already have.**

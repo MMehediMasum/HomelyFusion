@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cast Steel at Home: Easy Steps for Perfect Results"
 description: "Have you ever wondered how to cast steel right in your own home? Imagine creating strong, custom metal pieces without needing a big factory or expensive tools. "
 pubDate: 2026-02-26

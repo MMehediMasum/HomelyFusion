@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decoration Shop: Stylish Rustic Decor Ideas for Every Room"
-description: "Discover a world of creativity at our Furniture Decoration Shop. Transform your space with unique and stylish pieces. Our shop offers a variety of decorative it"
+title: 'Furniture Decoration Shop: Stylish Rustic Decor Ideas for Every Room'
+description: Discover a world of creativity at our Furniture Decoration Shop. Transform
+  your space with unique and stylish pieces. Our shop offers a variety of decorative
+  it
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decoration-shop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decoration-shop&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover a world of creativity at our Furniture Decoration Shop. Transform your space with unique and stylish pieces.**

@@ -1,10 +1,14 @@
 ---
-title: "Are Roof Vents Needed on Mobile Home: Essential Benefits Explained"
-description: "Are you wondering if your mobile home really needs roof vents? You might think that vents are just an extra feature, but they play a crucial role in keeping you"
+title: 'Are Roof Vents Needed on Mobile Home: Essential Benefits Explained'
+description: Are you wondering if your mobile home really needs roof vents? You might
+  think that vents are just an extra feature, but they play a crucial role in keeping
+  you
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-roof-vents-needed-on-mobile-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=are-roof-vents-needed-on-mobile-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you wondering if your mobile home really needs roof vents? You might think that vents are just an extra feature, but they play a crucial role in keeping your home comfortable and safe.**

@@ -1,10 +1,14 @@
 ---
-title: "Sheffield Home Picture Frames: Stylish Gallery Wall Sets for Every Room"
-description: "Sheffield home picture frames add charm and style to your living space. They come in many sizes, colors, and designs to fit any decor. Picture frames from Sheff"
+title: 'Sheffield Home Picture Frames: Stylish Gallery Wall Sets for Every Room'
+description: Sheffield home picture frames add charm and style to your living space.
+  They come in many sizes, colors, and designs to fit any decor. Picture frames from
+  Sheff
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=sheffield-home-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=sheffield-home-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Sheffield home picture frames add charm and style to your living space. They come in many sizes, colors, and designs to fit any decor.**

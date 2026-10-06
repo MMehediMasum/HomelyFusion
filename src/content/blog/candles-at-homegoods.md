@@ -1,10 +1,15 @@
 ---
-title: "Candles at Homegoods: Illuminate Your Space with Vela Led Home Style Pilar Essencial"
-description: "Candles at HomeGoods add warmth and style to any room. The Vela Led Home Style Pilar Essencial offers a safe, elegant lighting choice. This LED candle looks lik"
+title: 'Candles at Homegoods: Illuminate Your Space with Vela Led Home Style Pilar
+  Essencial'
+description: Candles at HomeGoods add warmth and style to any room. The Vela Led Home
+  Style Pilar Essencial offers a safe, elegant lighting choice. This LED candle looks
+  lik
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=candles-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=candles-at-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Candles at HomeGoods add warmth and style to any room. The Vela Led Home Style Pilar Essencial offers a safe, elegant lighting choice.**

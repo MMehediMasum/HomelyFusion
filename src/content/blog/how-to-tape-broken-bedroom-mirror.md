@@ -1,10 +1,14 @@
 ---
-title: "How to Tape Broken Bedroom Mirror: Quick Fix Tips That Work"
-description: "Have you just discovered that your bedroom mirror is cracked or broken? It can feel overwhelming and unsafe, especially when sharp glass is involved. But don’t "
+title: 'How to Tape Broken Bedroom Mirror: Quick Fix Tips That Work'
+description: 'Have you just discovered that your bedroom mirror is cracked or broken?
+  It can feel overwhelming and unsafe, especially when sharp glass is involved. But
+  don’t '
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tape-broken-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tape-broken-bedroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you just discovered that your bedroom mirror is cracked or broken? It can feel overwhelming and unsafe, especially when sharp glass is involved.**

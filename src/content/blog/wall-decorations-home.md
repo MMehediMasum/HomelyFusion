@@ -1,10 +1,13 @@
 ---
-title: "Wall Decorations Home: Stylish Ideas with Butterflies, Shelves, and Greenery"
-description: "Transform your home with stunning wall decorations that add style and personality to any room. From 3D butterfly designs to rustic wood signs, these decorations"
+title: 'Wall Decorations Home: Stylish Ideas with Butterflies, Shelves, and Greenery'
+description: Transform your home with stunning wall decorations that add style and
+  personality to any room. From 3D butterfly designs to rustic wood signs, these decorations
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decorations-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decorations-home&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home with stunning wall decorations that add style and personality to any room. From 3D butterfly designs to rustic wood signs, these decorations offer a variety of choices for every taste.**

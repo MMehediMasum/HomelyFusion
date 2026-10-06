@@ -1,10 +1,14 @@
 ---
-title: "Thanksgiving Gratitude Jar Idea: Creative Ways to Share Thanks"
-description: "Looking for a simple way to make your Thanksgiving more meaningful? The Thanksgiving Gratitude Jar idea is perfect for you. It helps you and your loved ones foc"
+title: 'Thanksgiving Gratitude Jar Idea: Creative Ways to Share Thanks'
+description: Looking for a simple way to make your Thanksgiving more meaningful? The
+  Thanksgiving Gratitude Jar idea is perfect for you. It helps you and your loved
+  ones foc
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thanksgiving-gratitude-jar-idea&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=thanksgiving-gratitude-jar-idea&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a simple way to make your Thanksgiving more meaningful? The Thanksgiving Gratitude Jar idea is perfect for you.**

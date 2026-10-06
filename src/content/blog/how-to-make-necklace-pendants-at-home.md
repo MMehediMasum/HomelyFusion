@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Necklace Pendants at Home: Easy DIY Craft Ideas"
 description: "Have you ever wanted to create your own unique necklace pendants right at home? Imagine wearing jewelry that truly reflects your style and creativity. Making ne"
 pubDate: 2026-04-30

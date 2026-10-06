@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Work Office: Creative Ideas for Productivity Boost"
-description: "Your work office is more than just a place to get tasks done—it’s where your creativity flows and your focus sharpens. How your office looks can change the way "
+title: 'How to Decorate a Work Office: Creative Ideas for Productivity Boost'
+description: 'Your work office is more than just a place to get tasks done—it’s where
+  your creativity flows and your focus sharpens. How your office looks can change
+  the way '
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-work-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-work-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your work office is more than just a place to get tasks done—it’s where your creativity flows and your focus sharpens. How your office looks can change the way you feel and work every single day.**

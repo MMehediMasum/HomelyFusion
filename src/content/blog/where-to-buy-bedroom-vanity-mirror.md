@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bedroom Vanity Mirror: Top Trusted Stores Revealed"
-description: "Are you looking to add a touch of elegance and functionality to your bedroom? A bedroom vanity mirror is the perfect way to brighten your space and make your da"
+title: 'Where to Buy Bedroom Vanity Mirror: Top Trusted Stores Revealed'
+description: Are you looking to add a touch of elegance and functionality to your
+  bedroom? A bedroom vanity mirror is the perfect way to brighten your space and make
+  your da
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bedroom-vanity-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bedroom-vanity-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a touch of elegance and functionality to your bedroom? A bedroom vanity mirror is the perfect way to brighten your space and make your daily routine more enjoyable.**

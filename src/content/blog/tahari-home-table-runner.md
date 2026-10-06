@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Table Runner: Elegant Designs for Stylish Dining Decor"
-description: "Tahari Home table runners bring elegance and style to any dining setup. They offer versatile options for various themes and occasions. A table runner is a simpl"
+title: 'Tahari Home Table Runner: Elegant Designs for Stylish Dining Decor'
+description: Tahari Home table runners bring elegance and style to any dining setup.
+  They offer versatile options for various themes and occasions. A table runner is
+  a simpl
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-table-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-table-runner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tahari Home table runners bring elegance and style to any dining setup. They offer versatile options for various themes and occasions.**

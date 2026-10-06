@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Framed Photos on Wall: Easy Steps for Perfect Display"
-description: "Hanging framed photos on your wall might seem simple, but getting it just right can completely transform your space. You want your pictures to catch the eye, te"
+title: 'How to Hang Framed Photos on Wall: Easy Steps for Perfect Display'
+description: Hanging framed photos on your wall might seem simple, but getting it
+  just right can completely transform your space. You want your pictures to catch
+  the eye, te
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-framed-photos-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-framed-photos-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging framed photos on your wall might seem simple, but getting it just right can completely transform your space. You want your pictures to catch the eye, tell your story, and make your room feel like home.**

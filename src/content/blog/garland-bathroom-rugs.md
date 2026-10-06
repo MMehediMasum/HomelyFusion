@@ -1,10 +1,14 @@
 ---
-title: "Garland Bathroom Rugs: Soft, Stylish, and Ultra Plush Bath Sets"
-description: "Garland bathroom rugs offer a blend of style and functionality. They bring comfort and elegance to any bathroom space. Transform your bathroom into a cozy haven"
+title: 'Garland Bathroom Rugs: Soft, Stylish, and Ultra Plush Bath Sets'
+description: Garland bathroom rugs offer a blend of style and functionality. They
+  bring comfort and elegance to any bathroom space. Transform your bathroom into a
+  cozy haven
 pubDate: 2026-06-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=garland-bathroom-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=garland-bathroom-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Garland bathroom rugs offer a blend of style and functionality. They bring comfort and elegance to any bathroom space.**

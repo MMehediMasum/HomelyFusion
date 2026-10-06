@@ -1,10 +1,13 @@
 ---
-title: "Bathroom Strip Lighting Ideas: Brighten Your Space with Style"
-description: "Looking to transform your bathroom into a stylish, relaxing space? Bathroom strip lighting ideas can do just that—adding a modern touch while improving function"
+title: 'Bathroom Strip Lighting Ideas: Brighten Your Space with Style'
+description: Looking to transform your bathroom into a stylish, relaxing space? Bathroom
+  strip lighting ideas can do just that—adding a modern touch while improving function
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-strip-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-strip-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to transform your bathroom into a stylish, relaxing space? Bathroom strip lighting ideas can do just that—adding a modern touch while improving functionality.**

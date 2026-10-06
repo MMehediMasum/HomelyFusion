@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much is a Steel Building Home: Affordable, Durable, and Smart Choices"
 description: "Thinking about building a home that stands strong and lasts for years? You might be wondering, “How much is a steel building home?” It’s a smart question becaus"
 pubDate: 2026-02-15

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor for Living Room Table: Stylish Essentials to Elevate Your Space"
-description: "A living room table holds more than just items; it sets the room’s mood. Decorating it thoughtfully creates a warm and inviting space. Choosing the right decor "
+title: 'Home Decor for Living Room Table: Stylish Essentials to Elevate Your Space'
+description: 'A living room table holds more than just items; it sets the room’s mood.
+  Decorating it thoughtfully creates a warm and inviting space. Choosing the right
+  decor '
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-for-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-for-living-room-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A living room table holds more than just items; it sets the room’s mood. Decorating it thoughtfully creates a warm and inviting space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Curio Cabinet: Stunning Tips for Unique Displays"
-description: "Are you wondering how to make your curio cabinet stand out and truly reflect your style? Decorating a curio cabinet can turn a simple display case into a captiv"
+title: 'How to Decorate a Curio Cabinet: Stunning Tips for Unique Displays'
+description: Are you wondering how to make your curio cabinet stand out and truly
+  reflect your style? Decorating a curio cabinet can turn a simple display case into
+  a captiv
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-curio-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-curio-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering how to make your curio cabinet stand out and truly reflect your style? Decorating a curio cabinet can turn a simple display case into a captivating centerpiece in your room.**

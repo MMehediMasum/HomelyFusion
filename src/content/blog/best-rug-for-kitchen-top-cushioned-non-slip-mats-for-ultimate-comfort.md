@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Kitchen: Top Cushioned, Non-Slip Mats for Ultimate Comfort"
-description: "Choosing the best rug for your kitchen improves comfort and safety while cooking or cleaning. A good kitchen rug also adds style and protects your floor from sp"
+title: 'Best Rug for Kitchen: Top Cushioned, Non-Slip Mats for Ultimate Comfort'
+description: Choosing the best rug for your kitchen improves comfort and safety while
+  cooking or cleaning. A good kitchen rug also adds style and protects your floor
+  from sp
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-kitchen-top-cushioned-non-slip-mats-for-ultimate-comfort&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-kitchen-top-cushioned-non-slip-mats-for-ultimate-comfort&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your kitchen improves comfort and safety while cooking or cleaning. A good kitchen rug also adds style and protects your floor from spills and stains.**

@@ -1,10 +1,15 @@
 ---
-title: "Nicole Miller Home Placemats: Stylish, Durable Dining Essentials for Every Table"
-description: "Nicole Miller Home placemats offer stylish and practical solutions for your dining table. These placemats blend quality materials with elegant designs for every"
+title: 'Nicole Miller Home Placemats: Stylish, Durable Dining Essentials for Every
+  Table'
+description: Nicole Miller Home placemats offer stylish and practical solutions for
+  your dining table. These placemats blend quality materials with elegant designs
+  for every
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-home-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-home-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Nicole Miller Home placemats offer stylish and practical solutions for your dining table. These placemats blend quality materials with elegant designs for everyday use.**

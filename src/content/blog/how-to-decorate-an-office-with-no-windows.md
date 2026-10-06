@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Office With No Windows: Bright Ideas to Inspire"
-description: "Working in an office with no windows can feel dull and cramped. You might find yourself missing natural light and fresh air, which can affect your mood and prod"
+title: 'How to Decorate an Office With No Windows: Bright Ideas to Inspire'
+description: Working in an office with no windows can feel dull and cramped. You might
+  find yourself missing natural light and fresh air, which can affect your mood and
+  prod
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-with-no-windows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-with-no-windows&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Working in an office with no windows can feel dull and cramped. You might find yourself missing natural light and fresh air, which can affect your mood and productivity.**

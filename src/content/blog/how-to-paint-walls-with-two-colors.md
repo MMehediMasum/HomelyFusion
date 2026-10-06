@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Walls With Two Colors: Expert Tips for Stunning Results"
-description: "Are you ready to transform your space and add a splash of creativity to your walls? Painting your walls with two colors is a simple way to make your room stand "
+title: 'How to Paint Walls With Two Colors: Expert Tips for Stunning Results'
+description: 'Are you ready to transform your space and add a splash of creativity
+  to your walls? Painting your walls with two colors is a simple way to make your
+  room stand '
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-walls-with-two-colors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-walls-with-two-colors&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you ready to transform your space and add a splash of creativity to your walls? Painting your walls with two colors is a simple way to make your room stand out without breaking the bank.**

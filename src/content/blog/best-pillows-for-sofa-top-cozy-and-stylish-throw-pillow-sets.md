@@ -1,10 +1,14 @@
 ---
-title: "Best Pillows for Sofa: Top Cozy and Stylish Throw Pillow Sets"
-description: "Choosing the best pillows for your sofa can boost comfort and style in your living space. Soft, well-sized pillows create a cozy and inviting atmosphere. Sofa p"
+title: 'Best Pillows for Sofa: Top Cozy and Stylish Throw Pillow Sets'
+description: Choosing the best pillows for your sofa can boost comfort and style in
+  your living space. Soft, well-sized pillows create a cozy and inviting atmosphere.
+  Sofa p
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pillows-for-sofa-top-cozy-and-stylish-throw-pillow-sets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-pillows-for-sofa-top-cozy-and-stylish-throw-pillow-sets&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best pillows for your sofa can boost comfort and style in your living space. Soft, well-sized pillows create a cozy and inviting atmosphere.**

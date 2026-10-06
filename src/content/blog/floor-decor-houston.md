@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Houston: Top Stylish Rugs and Wall Art for Your Home"
-description: "Floor decor in Houston blends style and function for every home and office. From rugs to wall art, these pieces bring local charm indoors. Houston floor decor o"
+title: 'Floor Decor Houston: Top Stylish Rugs and Wall Art for Your Home'
+description: Floor decor in Houston blends style and function for every home and office.
+  From rugs to wall art, these pieces bring local charm indoors. Houston floor decor
+  o
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-houston&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-houston&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor decor in Houston blends style and function for every home and office. From rugs to wall art, these pieces bring local charm indoors.**

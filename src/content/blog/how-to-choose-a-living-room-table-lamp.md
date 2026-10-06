@@ -1,10 +1,14 @@
 ---
-title: "How to Choose a Living Room Table Lamp: Expert Tips for Style & Glow"
-description: "Choosing the perfect living room table lamp might seem simple, but it can change the entire feel of your space. You want a lamp that not only lights up your roo"
+title: 'How to Choose a Living Room Table Lamp: Expert Tips for Style & Glow'
+description: Choosing the perfect living room table lamp might seem simple, but it
+  can change the entire feel of your space. You want a lamp that not only lights up
+  your roo
 pubDate: 2026-02-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-a-living-room-table-lamp&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-a-living-room-table-lamp&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the perfect living room table lamp might seem simple, but it can change the entire feel of your space. You want a lamp that not only lights up your room but also matches your style and meets your needs.**

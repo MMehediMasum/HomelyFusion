@@ -1,10 +1,14 @@
 ---
-title: "How to Add Desk in Bedroom With Low Bed: Space-Saving Ideas"
-description: "Are you struggling to fit a desk into your bedroom without making it feel cramped? Especially if you have a low bed, finding the right spot and style for your w"
+title: 'How to Add Desk in Bedroom With Low Bed: Space-Saving Ideas'
+description: Are you struggling to fit a desk into your bedroom without making it
+  feel cramped? Especially if you have a low bed, finding the right spot and style
+  for your w
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-desk-in-bedroom-with-low-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-desk-in-bedroom-with-low-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to fit a desk into your bedroom without making it feel cramped? Especially if you have a low bed, finding the right spot and style for your workspace can be tricky.**

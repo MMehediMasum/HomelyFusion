@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Wool at Home: Easy Steps for Spotless Garments"
 description: "Wool is a cozy, soft fabric that many people love to wear and use at home. But cleaning wool can feel tricky, and you might worry about shrinking or damaging yo"
 pubDate: 2026-03-05

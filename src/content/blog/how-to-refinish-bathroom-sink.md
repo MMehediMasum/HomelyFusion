@@ -1,10 +1,14 @@
 ---
-title: "How to Refinish Bathroom Sink: Easy Steps for a Stunning Makeover"
-description: "Is your bathroom sink looking worn out, stained, or outdated? You don’t have to replace it to make it look brand new. Refinishing your bathroom sink is a smart,"
+title: 'How to Refinish Bathroom Sink: Easy Steps for a Stunning Makeover'
+description: Is your bathroom sink looking worn out, stained, or outdated? You don’t
+  have to replace it to make it look brand new. Refinishing your bathroom sink is
+  a smart,
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom sink looking worn out, stained, or outdated? You don’t have to replace it to make it look brand new.**

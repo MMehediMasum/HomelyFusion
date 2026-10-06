@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Office: Creative Ideas for Maximum Impact"
-description: "Is your small office feeling cramped or dull? You’re not alone. Decorating a small office can be tricky, but with the right ideas, you can turn your space into "
+title: 'How to Decorate a Small Office: Creative Ideas for Maximum Impact'
+description: 'Is your small office feeling cramped or dull? You’re not alone. Decorating
+  a small office can be tricky, but with the right ideas, you can turn your space
+  into '
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Is your small office feeling cramped or dull? You’re not alone.**

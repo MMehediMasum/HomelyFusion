@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room Furniture Couch Reclining Arm Chair: Ultimate Guide"
-description: "Are you struggling to arrange your living room furniture in a way that feels both cozy and functional? Placing your couch, reclining chair, and armchair just ri"
+title: 'How to Arrange Living Room Furniture Couch Reclining Arm Chair: Ultimate Guide'
+description: Are you struggling to arrange your living room furniture in a way that
+  feels both cozy and functional? Placing your couch, reclining chair, and armchair
+  just ri
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-furniture-couch-reclining-arm-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-furniture-couch-reclining-arm-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to arrange your living room furniture in a way that feels both cozy and functional? Placing your couch, reclining chair, and armchair just right can transform your space into a relaxing haven or a perfect spot for entertaining guests.**

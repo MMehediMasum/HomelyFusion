@@ -1,10 +1,14 @@
 ---
-title: "Modern Bathroom Sink Ideas: Stylish Designs to Transform Your Space"
-description: "Looking to give your bathroom a fresh, stylish upgrade? Your sink plays a bigger role than you might think. It’s not just a place to wash your hands—it sets the"
+title: 'Modern Bathroom Sink Ideas: Stylish Designs to Transform Your Space'
+description: Looking to give your bathroom a fresh, stylish upgrade? Your sink plays
+  a bigger role than you might think. It’s not just a place to wash your hands—it
+  sets the
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-bathroom-sink-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=modern-bathroom-sink-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to give your bathroom a fresh, stylish upgrade? Your sink plays a bigger role than you might think.**

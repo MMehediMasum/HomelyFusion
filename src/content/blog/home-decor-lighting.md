@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Lighting Ideas: Transform Your Space with Stylish LED Solutions"
-description: "Lighting transforms spaces, setting the mood and enhancing decor. The right lighting can make your home feel cozy and inviting. Exploring home decor lighting op"
+title: 'Home Decor Lighting Ideas: Transform Your Space with Stylish LED Solutions'
+description: Lighting transforms spaces, setting the mood and enhancing decor. The
+  right lighting can make your home feel cozy and inviting. Exploring home decor lighting
+  op
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lighting transforms spaces, setting the mood and enhancing decor. The right lighting can make your home feel cozy and inviting.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 10X14: Ultra Soft, Washable, Non-Slip Area Rugs"
-description: "Finding the perfect rug for your home can transform a space completely. Home Goods offers a wide range of 10x14 rugs. These rugs are not just large, but they al"
+title: 'Home Goods Rugs 10X14: Ultra Soft, Washable, Non-Slip Area Rugs'
+description: Finding the perfect rug for your home can transform a space completely.
+  Home Goods offers a wide range of 10x14 rugs. These rugs are not just large, but
+  they al
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-10x14&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-10x14&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the perfect rug for your home can transform a space completely. Home Goods offers a wide range of 10x14 rugs.**

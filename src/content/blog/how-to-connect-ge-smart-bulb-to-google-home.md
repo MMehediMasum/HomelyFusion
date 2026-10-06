@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Ge Smart Bulb to Google Home: Easy Step-by-Step Guide"
-description: "Want to control your GE Smart Bulb with just your voice? Connecting it to Google Home can make your lighting smarter and your life easier. Imagine turning your "
+title: 'How to Connect Ge Smart Bulb to Google Home: Easy Step-by-Step Guide'
+description: 'Want to control your GE Smart Bulb with just your voice? Connecting
+  it to Google Home can make your lighting smarter and your life easier. Imagine turning
+  your '
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-ge-smart-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-ge-smart-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Want to control your GE Smart Bulb with just your voice? Connecting it to Google Home can make your lighting smarter and your life easier.**

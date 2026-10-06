@@ -1,10 +1,15 @@
 ---
-title: "Side Table Strawberry Stool Homegoods: Cute, Functional, and Stylish Decor Ideas"
-description: "Discovering unique and charming side tables and stools can transform your living space. These pieces blend style with functionality. Side tables and stools add "
+title: 'Side Table Strawberry Stool Homegoods: Cute, Functional, and Stylish Decor
+  Ideas'
+description: 'Discovering unique and charming side tables and stools can transform
+  your living space. These pieces blend style with functionality. Side tables and
+  stools add '
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=side-table-strawberry-stool-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=side-table-strawberry-stool-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discovering unique and charming side tables and stools can transform your living space. These pieces blend style with functionality.**

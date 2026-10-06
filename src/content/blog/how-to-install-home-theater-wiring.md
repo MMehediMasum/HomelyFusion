@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Home Theater Wiring: Easy Steps for Perfect Sound"
 description: "Setting up your own home theater can transform movie nights into unforgettable experiences. But before you enjoy crystal-clear sound and stunning visuals, you n"
 pubDate: 2025-09-01

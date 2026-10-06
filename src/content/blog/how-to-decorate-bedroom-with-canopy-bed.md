@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Canopy Bed: Stunning Style Tips"
-description: "Your bedroom should be a place where you feel calm, cozy, and inspired. If you have a canopy bed or are thinking about adding one, you’re already halfway to cre"
+title: 'How to Decorate Bedroom With Canopy Bed: Stunning Style Tips'
+description: Your bedroom should be a place where you feel calm, cozy, and inspired.
+  If you have a canopy bed or are thinking about adding one, you’re already halfway
+  to cre
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-canopy-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-canopy-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where you feel calm, cozy, and inspired. If you have a canopy bed or are thinking about adding one, you’re already halfway to creating a stunning space.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Napkin Fold Decor: Easy DIY Ideas to Impress Guests"
-description: "Looking to add a fun and festive touch to your Easter table? The Easter Bunny Napkin Fold Decor is a simple and charming way to impress your guests and bring a "
+title: 'Easter Bunny Napkin Fold Decor: Easy DIY Ideas to Impress Guests'
+description: 'Looking to add a fun and festive touch to your Easter table? The Easter
+  Bunny Napkin Fold Decor is a simple and charming way to impress your guests and
+  bring a '
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-napkin-fold-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-napkin-fold-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a fun and festive touch to your Easter table? The Easter Bunny Napkin Fold Decor is a simple and charming way to impress your guests and bring a smile to everyone’s face.**

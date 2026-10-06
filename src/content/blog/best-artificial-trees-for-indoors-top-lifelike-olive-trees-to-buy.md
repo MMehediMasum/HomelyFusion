@@ -1,10 +1,13 @@
 ---
-title: "Best Artificial Trees for Indoors: Top Lifelike Olive Trees to Buy"
-description: "Artificial trees bring life and color to indoor spaces without the hassle of watering or sunlight. They create a fresh, green look that lasts all year. Choosing"
+title: 'Best Artificial Trees for Indoors: Top Lifelike Olive Trees to Buy'
+description: Artificial trees bring life and color to indoor spaces without the hassle
+  of watering or sunlight. They create a fresh, green look that lasts all year. Choosing
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-trees-for-indoors-top-lifelike-olive-trees-to-buy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-trees-for-indoors-top-lifelike-olive-trees-to-buy&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial trees bring life and color to indoor spaces without the hassle of watering or sunlight. They create a fresh, green look that lasts all year.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Search Bedroom Furniture for Bed Bugs: Expert Tips Revealed"
 description: "Are you worried that your bedroom furniture might be hiding bed bugs? Finding these tiny pests early can save you from a lot of discomfort and costly treatments"
 pubDate: 2026-05-19

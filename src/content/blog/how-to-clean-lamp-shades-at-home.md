@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Lamp Shades at Home: Easy Tips for Sparkling Results"
-description: "Your lamp shades brighten up your room, but over time, dust and dirt can dull their glow. Cleaning them might seem tricky, but it doesn’t have to be. Imagine ho"
+title: 'How to Clean Lamp Shades at Home: Easy Tips for Sparkling Results'
+description: Your lamp shades brighten up your room, but over time, dust and dirt
+  can dull their glow. Cleaning them might seem tricky, but it doesn’t have to be.
+  Imagine ho
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-lamp-shades-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-lamp-shades-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your lamp shades brighten up your room, but over time, dust and dirt can dull their glow. Cleaning them might seem tricky, but it doesn’t have to be.**

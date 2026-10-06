@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much Do Steel Building Homes Cost: Ultimate Price Guide 2025"
 description: "Are you thinking about building a home that stands strong and lasts for decades? Steel building homes are becoming a popular choice for many homeowners like you"
 pubDate: 2026-03-11

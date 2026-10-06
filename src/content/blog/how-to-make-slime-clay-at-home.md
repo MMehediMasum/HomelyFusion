@@ -1,10 +1,14 @@
 ---
-title: "How to Make Slime Clay at Home: Easy, Fun, and Safe Recipe"
-description: "Have you ever wanted a fun, squishy toy that you can make yourself? Making slime clay at home is easier than you think. It’s a cool way to relax, get creative, "
+title: 'How to Make Slime Clay at Home: Easy, Fun, and Safe Recipe'
+description: 'Have you ever wanted a fun, squishy toy that you can make yourself?
+  Making slime clay at home is easier than you think. It’s a cool way to relax, get
+  creative, '
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-slime-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-slime-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted a fun, squishy toy that you can make yourself? Making slime clay at home is easier than you think.**

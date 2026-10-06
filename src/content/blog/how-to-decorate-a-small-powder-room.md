@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Powder Room: Stunning Tips for Style"
-description: "Your small powder room doesn’t have to feel cramped or plain. With the right ideas, you can turn this tiny space into a stylish and welcoming spot that impresse"
+title: 'How to Decorate a Small Powder Room: Stunning Tips for Style'
+description: Your small powder room doesn’t have to feel cramped or plain. With the
+  right ideas, you can turn this tiny space into a stylish and welcoming spot that
+  impresse
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-powder-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-powder-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your small powder room doesn’t have to feel cramped or plain. With the right ideas, you can turn this tiny space into a stylish and welcoming spot that impresses every guest.**

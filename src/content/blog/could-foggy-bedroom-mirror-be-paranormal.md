@@ -1,10 +1,14 @@
 ---
-title: "Could Foggy Bedroom Mirror Be Paranormal: Unveiling Mysteries"
-description: "Have you ever noticed your bedroom mirror fogging up, even when there’s no steam or obvious reason? It can feel a bit unsettling, especially when it happens out"
+title: 'Could Foggy Bedroom Mirror Be Paranormal: Unveiling Mysteries'
+description: Have you ever noticed your bedroom mirror fogging up, even when there’s
+  no steam or obvious reason? It can feel a bit unsettling, especially when it happens
+  out
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=could-foggy-bedroom-mirror-be-paranormal&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=could-foggy-bedroom-mirror-be-paranormal&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever noticed your bedroom mirror fogging up, even when there’s no steam or obvious reason? It can feel a bit unsettling, especially when it happens out of the blue.**

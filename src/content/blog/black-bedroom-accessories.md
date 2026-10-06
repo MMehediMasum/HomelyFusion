@@ -1,10 +1,14 @@
 ---
-title: "Black Bedroom Accessories: Stylish Essentials for Modern Room Makeover"
-description: "Black bedroom accessories can transform your space, adding elegance and depth. They offer a sleek, modern touch while being functional. Choosing the right acces"
+title: 'Black Bedroom Accessories: Stylish Essentials for Modern Room Makeover'
+description: Black bedroom accessories can transform your space, adding elegance and
+  depth. They offer a sleek, modern touch while being functional. Choosing the right
+  acces
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=black-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Black bedroom accessories can transform your space, adding elegance and depth. They offer a sleek, modern touch while being functional.**

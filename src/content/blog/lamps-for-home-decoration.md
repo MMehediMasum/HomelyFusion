@@ -1,10 +1,14 @@
 ---
-title: "Lamps for Home Decoration: Stylish Table Lamps to Brighten Your Space"
-description: "Lamps add warmth and style to any room. They brighten spaces and enhance home decoration effortlessly. Choosing the right lamp can change how your home feels. L"
+title: 'Lamps for Home Decoration: Stylish Table Lamps to Brighten Your Space'
+description: Lamps add warmth and style to any room. They brighten spaces and enhance
+  home decoration effortlessly. Choosing the right lamp can change how your home feels.
+  L
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lamps-for-home-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=lamps-for-home-decoration&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lamps add warmth and style to any room. They brighten spaces and enhance home decoration effortlessly.**

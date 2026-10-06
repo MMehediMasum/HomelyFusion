@@ -1,10 +1,14 @@
 ---
-title: "Easter Spring Bunny Garland: Charming DIY Decor Ideas to Try"
-description: "Looking to add a fresh, cheerful touch to your home this Easter? Your decorations can make all the difference, and an Easter Spring Bunny Garland is just what y"
+title: 'Easter Spring Bunny Garland: Charming DIY Decor Ideas to Try'
+description: Looking to add a fresh, cheerful touch to your home this Easter? Your
+  decorations can make all the difference, and an Easter Spring Bunny Garland is just
+  what y
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-spring-bunny-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-spring-bunny-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a fresh, cheerful touch to your home this Easter? Your decorations can make all the difference, and an Easter Spring Bunny Garland is just what you need.**

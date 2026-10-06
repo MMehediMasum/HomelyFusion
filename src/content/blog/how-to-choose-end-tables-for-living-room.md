@@ -1,10 +1,14 @@
 ---
-title: "How to Choose End Tables for Living Room: Expert Tips & Ideas"
-description: "Choosing the perfect end tables for your living room might seem simple, but it can actually change the whole vibe of your space. You want tables that fit your s"
+title: 'How to Choose End Tables for Living Room: Expert Tips & Ideas'
+description: Choosing the perfect end tables for your living room might seem simple,
+  but it can actually change the whole vibe of your space. You want tables that fit
+  your s
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-end-tables-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-end-tables-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect end tables for your living room might seem simple, but it can actually change the whole vibe of your space. You want tables that fit your style, hold your essentials, and add comfort without clutter.**

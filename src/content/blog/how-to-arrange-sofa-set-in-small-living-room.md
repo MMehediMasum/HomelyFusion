@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofa Set in Small Living Room: Expert Tips & Tricks"
-description: "Struggling to fit your sofa set into a small living room without making it feel cramped? You’re not alone. Finding the perfect arrangement can transform your sp"
+title: 'How to Arrange Sofa Set in Small Living Room: Expert Tips & Tricks'
+description: Struggling to fit your sofa set into a small living room without making
+  it feel cramped? You’re not alone. Finding the perfect arrangement can transform
+  your sp
 pubDate: 2026-04-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-set-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-set-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit your sofa set into a small living room without making it feel cramped? You’re not alone.**

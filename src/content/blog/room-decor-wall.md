@@ -1,10 +1,13 @@
 ---
-title: "Room Decor Wall Ideas: Stylish LED Lights, Shelves, and Greenery Accents"
-description: "Room decor walls bring personality and warmth to any space. They transform plain walls into stylish, inviting areas with simple touches. Adding lights, shelves,"
+title: 'Room Decor Wall Ideas: Stylish LED Lights, Shelves, and Greenery Accents'
+description: Room decor walls bring personality and warmth to any space. They transform
+  plain walls into stylish, inviting areas with simple touches. Adding lights, shelves,
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=room-decor-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=room-decor-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Room decor walls bring personality and warmth to any space. They transform plain walls into stylish, inviting areas with simple touches.**

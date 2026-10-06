@@ -1,10 +1,14 @@
 ---
-title: "What Shape Mirror Looks Good above Bedroom Dresser: Stylish Ideas"
-description: "Choosing the right mirror shape to hang above your bedroom dresser can completely change the look and feel of your space. You want something that not only fits "
+title: 'What Shape Mirror Looks Good above Bedroom Dresser: Stylish Ideas'
+description: 'Choosing the right mirror shape to hang above your bedroom dresser can
+  completely change the look and feel of your space. You want something that not only
+  fits '
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-shape-mirror-looks-good-above-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-shape-mirror-looks-good-above-bedroom-dresser&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right mirror shape to hang above your bedroom dresser can completely change the look and feel of your space. You want something that not only fits your style but also makes your room feel brighter and more inviting.**

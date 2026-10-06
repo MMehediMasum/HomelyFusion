@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Cheap Bathroom Vanities: Top Affordable Picks Today"
-description: "Looking to upgrade your bathroom without emptying your wallet? Finding the perfect vanity that fits your style and budget can feel overwhelming. But what if you"
+title: 'Where to Buy Cheap Bathroom Vanities: Top Affordable Picks Today'
+description: Looking to upgrade your bathroom without emptying your wallet? Finding
+  the perfect vanity that fits your style and budget can feel overwhelming. But what
+  if you
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom without emptying your wallet? Finding the perfect vanity that fits your style and budget can feel overwhelming.**

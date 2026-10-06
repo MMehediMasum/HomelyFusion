@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Grow Hemp at Home: Easy Steps for Thriving Plants"
 description: "Are you curious about growing hemp at home but unsure where to start? You’re not alone. Growing hemp can be a rewarding way to produce your own natural fibers, "
 pubDate: 2026-03-19

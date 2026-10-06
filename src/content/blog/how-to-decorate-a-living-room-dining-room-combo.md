@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Dining Room Combo: Stylish Tips"
-description: "Are you struggling to find the perfect balance between style and function in your living room dining room combo? You’re not alone. Combining two important space"
+title: 'How to Decorate a Living Room Dining Room Combo: Stylish Tips'
+description: Are you struggling to find the perfect balance between style and function
+  in your living room dining room combo? You’re not alone. Combining two important
+  space
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-dining-room-combo&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-dining-room-combo&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you struggling to find the perfect balance between style and function in your living room dining room combo? You’re not alone.**

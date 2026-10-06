@@ -1,10 +1,13 @@
 ---
-title: "Best Ceiling Lights for Bedroom: Top Stylish and Dimmable Fixtures Reviewed"
-description: "Choosing the best ceiling lights for your bedroom sets the mood and improves comfort. Proper lighting creates a cozy and relaxing space to rest. Bedroom ceiling"
+title: 'Best Ceiling Lights for Bedroom: Top Stylish and Dimmable Fixtures Reviewed'
+description: Choosing the best ceiling lights for your bedroom sets the mood and improves
+  comfort. Proper lighting creates a cozy and relaxing space to rest. Bedroom ceiling
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ceiling-lights-for-bedroom-top-stylish-and-dimmable-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-ceiling-lights-for-bedroom-top-stylish-and-dimmable-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best ceiling lights for your bedroom sets the mood and improves comfort. Proper lighting creates a cozy and relaxing space to rest.**

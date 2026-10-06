@@ -1,10 +1,14 @@
 ---
-title: "At Home Store Vanity: Top Stylish Organizers for Makeup and Jewelry Storage"
-description: "At Home Store Vanity offers practical and stylish storage solutions for your makeup and jewelry. These organizers help keep your space neat and items easy to fi"
+title: 'At Home Store Vanity: Top Stylish Organizers for Makeup and Jewelry Storage'
+description: At Home Store Vanity offers practical and stylish storage solutions for
+  your makeup and jewelry. These organizers help keep your space neat and items easy
+  to fi
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-store-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=at-home-store-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **At Home Store Vanity offers practical and stylish storage solutions for your makeup and jewelry. These organizers help keep your space neat and items easy to find.**

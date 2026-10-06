@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Galaxy Wall: Stunning DIY Guide for Beginners"
-description: "Have you ever dreamed of turning your plain wall into a stunning galaxy that sparks awe and imagination? Painting a galaxy wall is easier than you think, and yo"
+title: 'How to Paint a Galaxy Wall: Stunning DIY Guide for Beginners'
+description: Have you ever dreamed of turning your plain wall into a stunning galaxy
+  that sparks awe and imagination? Painting a galaxy wall is easier than you think,
+  and yo
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever dreamed of turning your plain wall into a stunning galaxy that sparks awe and imagination? Painting a galaxy wall is easier than you think, and you don’t need to be an expert artist to create a breathtaking cosmic scene right in your home.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Purple Sofas: Stunning Style Tips"
-description: "Are you thinking about adding a splash of color to your living room? Purple sofas can bring a unique charm and elegance that instantly transforms your space. Bu"
+title: 'How to Decorate a Living Room With Purple Sofas: Stunning Style Tips'
+description: Are you thinking about adding a splash of color to your living room?
+  Purple sofas can bring a unique charm and elegance that instantly transforms your
+  space. Bu
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-purple-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-purple-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a splash of color to your living room? Purple sofas can bring a unique charm and elegance that instantly transforms your space.**

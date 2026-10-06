@@ -1,10 +1,14 @@
 ---
-title: "How to Add Wiz Bulb to Apple Home: Easy Steps for Smart Control"
-description: "Looking to make your home smarter and more convenient? Adding your Wiz Bulb to Apple Home is easier than you think. Imagine controlling your lights with just yo"
+title: 'How to Add Wiz Bulb to Apple Home: Easy Steps for Smart Control'
+description: Looking to make your home smarter and more convenient? Adding your Wiz
+  Bulb to Apple Home is easier than you think. Imagine controlling your lights with
+  just yo
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-wiz-bulb-to-apple-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-wiz-bulb-to-apple-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to make your home smarter and more convenient? Adding your Wiz Bulb to Apple Home is easier than you think.**

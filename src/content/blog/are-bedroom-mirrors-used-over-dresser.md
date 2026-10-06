@@ -1,10 +1,14 @@
 ---
-title: "Are Bedroom Mirrors Used Over Dresser: Stylish Tips & Benefits"
-description: "Have you ever wondered if placing a mirror over your bedroom dresser is more than just a design choice? What if this simple addition could change how your room "
+title: 'Are Bedroom Mirrors Used Over Dresser: Stylish Tips & Benefits'
+description: 'Have you ever wondered if placing a mirror over your bedroom dresser
+  is more than just a design choice? What if this simple addition could change how
+  your room '
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-bedroom-mirrors-used-over-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=are-bedroom-mirrors-used-over-dresser&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if placing a mirror over your bedroom dresser is more than just a design choice? What if this simple addition could change how your room feels and functions every day?**

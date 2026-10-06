@@ -1,10 +1,14 @@
 ---
-title: "Brooks Brothers Wine Glasses: Elegant Stemless Glassware for Every Occasion"
-description: "Brooks Brothers wine glasses add a touch of elegance to any occasion. They blend style with functionality, making them a perfect choice. These wine glasses cate"
+title: 'Brooks Brothers Wine Glasses: Elegant Stemless Glassware for Every Occasion'
+description: Brooks Brothers wine glasses add a touch of elegance to any occasion.
+  They blend style with functionality, making them a perfect choice. These wine glasses
+  cate
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brooks-brothers-wine-glasses&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wine Glasses
+heroImage: https://tse1.mm.bing.net/th?q=brooks-brothers-wine-glasses&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Brooks Brothers wine glasses add a touch of elegance to any occasion. They blend style with functionality, making them a perfect choice.**

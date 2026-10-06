@@ -1,10 +1,14 @@
 ---
-title: "Dining Room Table Home Goods: Stylish, Space-Saving Options for Every Kitchen"
-description: "Dining room tables shape your home’s gathering space. Choosing the right table adds comfort and style to mealtime. A dining room table must fit your space and n"
+title: 'Dining Room Table Home Goods: Stylish, Space-Saving Options for Every Kitchen'
+description: Dining room tables shape your home’s gathering space. Choosing the right
+  table adds comfort and style to mealtime. A dining room table must fit your space
+  and n
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dining-room-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=dining-room-table-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Dining room tables shape your home’s gathering space. Choosing the right table adds comfort and style to mealtime.**

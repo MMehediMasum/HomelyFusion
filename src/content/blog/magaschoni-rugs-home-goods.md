@@ -1,10 +1,15 @@
 ---
-title: "Magaschoni Rugs Home Goods: Stylish, Washable, Non-Slip Area Rugs for Every Room"
-description: "Magaschoni Rugs Home Goods offers a wide range of stylish, washable, and non-slip rugs. These rugs fit well in bedrooms, kitchens, living rooms, and offices. Fi"
+title: 'Magaschoni Rugs Home Goods: Stylish, Washable, Non-Slip Area Rugs for Every
+  Room'
+description: Magaschoni Rugs Home Goods offers a wide range of stylish, washable,
+  and non-slip rugs. These rugs fit well in bedrooms, kitchens, living rooms, and
+  offices. Fi
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-rugs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-rugs-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Magaschoni Rugs Home Goods offers a wide range of stylish, washable, and non-slip rugs. These rugs fit well in bedrooms, kitchens, living rooms, and offices.**

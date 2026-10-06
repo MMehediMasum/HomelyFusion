@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Color Case Harden Steel at Home: Easy DIY Techniques"
 description: "Are you looking to give your steel tools and parts a unique, colorful finish without spending a fortune? Coloring case hardened steel at home might sound tricky"
 pubDate: 2025-11-13

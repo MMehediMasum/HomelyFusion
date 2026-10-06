@@ -1,10 +1,14 @@
 ---
-title: "How to Refinish Bathroom Cabinet: Easy Steps for a Stunning Makeover"
-description: "Is your bathroom cabinet looking worn out or outdated? You don’t have to spend a fortune on a full remodel to give your space a fresh, new look. Refinishing you"
+title: 'How to Refinish Bathroom Cabinet: Easy Steps for a Stunning Makeover'
+description: Is your bathroom cabinet looking worn out or outdated? You don’t have
+  to spend a fortune on a full remodel to give your space a fresh, new look. Refinishing
+  you
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Is your bathroom cabinet looking worn out or outdated? You don’t have to spend a fortune on a full remodel to give your space a fresh, new look.**

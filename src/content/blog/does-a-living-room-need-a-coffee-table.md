@@ -1,10 +1,14 @@
 ---
-title: "Does a Living Room Need a Coffee Table: Essential Design Insights"
-description: "Have you ever wondered if your living room really needs a coffee table? It’s a question many people don’t think twice about, but the answer might surprise you. "
+title: 'Does a Living Room Need a Coffee Table: Essential Design Insights'
+description: 'Have you ever wondered if your living room really needs a coffee table?
+  It’s a question many people don’t think twice about, but the answer might surprise
+  you. '
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-living-room-need-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=does-a-living-room-need-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room really needs a coffee table? It’s a question many people don’t think twice about, but the answer might surprise you.**

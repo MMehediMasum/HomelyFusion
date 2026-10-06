@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Lighting: Top Modern Floor Lamps to Brighten Your Space"
-description: "Lighting plays a crucial role in setting the mood of a room. Floor lamps offer both functionality and style. Choosing the right floor lamp can transform your li"
+title: 'Floor And Decor Lighting: Top Modern Floor Lamps to Brighten Your Space'
+description: Lighting plays a crucial role in setting the mood of a room. Floor lamps
+  offer both functionality and style. Choosing the right floor lamp can transform
+  your li
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-lighting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-lighting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lighting plays a crucial role in setting the mood of a room. Floor lamps offer both functionality and style.**

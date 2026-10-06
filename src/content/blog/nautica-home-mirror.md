@@ -1,10 +1,14 @@
 ---
-title: "Nautica Home Mirror: Stunning Coastal Decor to Elevate Your Space"
-description: "Nautica Home Mirrors bring the charm of the sea into your living space. These mirrors blend coastal style with practical design. Each mirror features nautical t"
+title: 'Nautica Home Mirror: Stunning Coastal Decor to Elevate Your Space'
+description: Nautica Home Mirrors bring the charm of the sea into your living space.
+  These mirrors blend coastal style with practical design. Each mirror features nautical
+  t
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-home-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=nautica-home-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Nautica Home Mirrors bring the charm of the sea into your living space. These mirrors blend coastal style with practical design.**

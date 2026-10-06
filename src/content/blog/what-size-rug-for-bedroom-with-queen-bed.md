@@ -1,10 +1,13 @@
 ---
-title: "What Size Rug for Bedroom With Queen Bed: Ultimate Guide & Tips"
-description: "Choosing the right rug size for your bedroom with a queen bed can completely change the feel of the room. You want a rug that adds comfort, style, and balance—w"
+title: 'What Size Rug for Bedroom With Queen Bed: Ultimate Guide & Tips'
+description: Choosing the right rug size for your bedroom with a queen bed can completely
+  change the feel of the room. You want a rug that adds comfort, style, and balance—w
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-queen-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-queen-bed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug size for your bedroom with a queen bed can completely change the feel of the room. You want a rug that adds comfort, style, and balance—without overwhelming the space or looking too small.**

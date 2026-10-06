@@ -1,10 +1,14 @@
 ---
-title: "How to Make Pendant at Home: Easy Steps for Stunning Designs"
-description: "Have you ever wanted to create a beautiful pendant that shows off your style and creativity? Making a pendant at home is easier than you think, and it gives you"
+title: 'How to Make Pendant at Home: Easy Steps for Stunning Designs'
+description: Have you ever wanted to create a beautiful pendant that shows off your
+  style and creativity? Making a pendant at home is easier than you think, and it
+  gives you
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-pendant-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-pendant-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create a beautiful pendant that shows off your style and creativity? Making a pendant at home is easier than you think, and it gives you a chance to design something unique just for you.**

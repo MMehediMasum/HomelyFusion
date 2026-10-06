@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Rug for RV: Top Waterproof, Reversible Patio Mats"
-description: "Choosing the best outdoor rug for your RV enhances comfort and style during your travels. A good rug protects your space and adds a cozy feel outside your campe"
+title: 'Best Outdoor Rug for RV: Top Waterproof, Reversible Patio Mats'
+description: Choosing the best outdoor rug for your RV enhances comfort and style
+  during your travels. A good rug protects your space and adds a cozy feel outside
+  your campe
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-rug-for-rv-top-waterproof-reversible-patio-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-rug-for-rv-top-waterproof-reversible-patio-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best outdoor rug for your RV enhances comfort and style during your travels. A good rug protects your space and adds a cozy feel outside your camper.**

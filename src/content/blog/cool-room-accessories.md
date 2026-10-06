@@ -1,10 +1,14 @@
 ---
-title: "Cool Room Accessories to Transform Your Space with Style and Function"
-description: "Transform your space with cool room accessories that blend style and functionality. Elevate your room's atmosphere effortlessly. Creating a cozy and personalize"
+title: Cool Room Accessories to Transform Your Space with Style and Function
+description: Transform your space with cool room accessories that blend style and
+  functionality. Elevate your room's atmosphere effortlessly. Creating a cozy and
+  personalize
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cool-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your space with cool room accessories that blend style and functionality. Elevate your room's atmosphere effortlessly.**

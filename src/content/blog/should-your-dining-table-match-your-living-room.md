@@ -1,10 +1,14 @@
 ---
-title: "Should Your Dining Table Match Your Living Room? Expert Tips"
-description: "Have you ever wondered if your dining table should match your living room? It’s a question that can make decorating feel tricky. You want your space to look gre"
+title: Should Your Dining Table Match Your Living Room? Expert Tips
+description: Have you ever wondered if your dining table should match your living
+  room? It’s a question that can make decorating feel tricky. You want your space
+  to look gre
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-your-dining-table-match-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=should-your-dining-table-match-your-living-room&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever wondered if your dining table should match your living room? It’s a question that can make decorating feel tricky.**

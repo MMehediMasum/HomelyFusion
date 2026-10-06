@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Clay Pipe at Home: Easy Steps for Beginners"
 description: "Have you ever wanted to create something unique with your own hands? Making a clay pipe at home is easier than you might think, and it’s a fun way to tap into y"
 pubDate: 2026-03-20

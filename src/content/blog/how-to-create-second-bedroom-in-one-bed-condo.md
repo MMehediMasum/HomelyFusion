@@ -1,10 +1,14 @@
 ---
-title: "How to Create Second Bedroom in One Bed Condo: Smart Space Hacks"
-description: "Do you wish you had a second bedroom in your one-bedroom condo but feel stuck with limited space? You’re not alone. Creating an extra bedroom might seem impossi"
+title: 'How to Create Second Bedroom in One Bed Condo: Smart Space Hacks'
+description: Do you wish you had a second bedroom in your one-bedroom condo but feel
+  stuck with limited space? You’re not alone. Creating an extra bedroom might seem
+  impossi
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-second-bedroom-in-one-bed-condo&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-second-bedroom-in-one-bed-condo&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Do you wish you had a second bedroom in your one-bedroom condo but feel stuck with limited space? You’re not alone.**

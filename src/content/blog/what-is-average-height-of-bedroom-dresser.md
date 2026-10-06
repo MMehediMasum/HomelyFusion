@@ -1,10 +1,14 @@
 ---
-title: "What is Average Height of Bedroom Dresser: Essential Guide"
-description: "Are you wondering if your bedroom dresser is the right height for comfort and style? Knowing the average height of a bedroom dresser can make a big difference i"
+title: 'What is Average Height of Bedroom Dresser: Essential Guide'
+description: Are you wondering if your bedroom dresser is the right height for comfort
+  and style? Knowing the average height of a bedroom dresser can make a big difference
+  i
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-average-height-of-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-average-height-of-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if your bedroom dresser is the right height for comfort and style? Knowing the average height of a bedroom dresser can make a big difference in how your room looks and feels.**

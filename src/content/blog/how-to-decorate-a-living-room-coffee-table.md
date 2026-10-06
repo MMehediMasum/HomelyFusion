@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Coffee Table: Stunning Style Ideas"
-description: "Your living room coffee table is more than just a spot to set down your cup of coffee. It’s a focal point that can bring style, warmth, and personality to your "
+title: 'How to Decorate a Living Room Coffee Table: Stunning Style Ideas'
+description: 'Your living room coffee table is more than just a spot to set down your
+  cup of coffee. It’s a focal point that can bring style, warmth, and personality
+  to your '
 pubDate: 2026-02-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room coffee table is more than just a spot to set down your cup of coffee. It’s a focal point that can bring style, warmth, and personality to your entire space.**

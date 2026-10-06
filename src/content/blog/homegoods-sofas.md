@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Sofas: Top Cozy Sectionals and Convertible Couches for Living Rooms"
-description: "Homegoods offers a wide range of sofas that blend comfort and style. Discover options perfect for any living space. A sofa is more than a piece of furniture; it"
+title: 'Homegoods Sofas: Top Cozy Sectionals and Convertible Couches for Living Rooms'
+description: Homegoods offers a wide range of sofas that blend comfort and style.
+  Discover options perfect for any living space. A sofa is more than a piece of furniture;
+  it
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods offers a wide range of sofas that blend comfort and style. Discover options perfect for any living space.**

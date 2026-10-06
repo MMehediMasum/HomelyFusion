@@ -1,10 +1,14 @@
 ---
-title: "How to Secure Bathroom Vanity to Wall: Easy Steps for Lasting Stability"
-description: "Are you tired of your bathroom vanity wobbling or feeling unsafe? Securing your vanity to the wall is key to keeping it steady and protecting your investment. B"
+title: 'How to Secure Bathroom Vanity to Wall: Easy Steps for Lasting Stability'
+description: Are you tired of your bathroom vanity wobbling or feeling unsafe? Securing
+  your vanity to the wall is key to keeping it steady and protecting your investment.
+  B
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-secure-bathroom-vanity-to-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-secure-bathroom-vanity-to-wall&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your bathroom vanity wobbling or feeling unsafe? Securing your vanity to the wall is key to keeping it steady and protecting your investment.**

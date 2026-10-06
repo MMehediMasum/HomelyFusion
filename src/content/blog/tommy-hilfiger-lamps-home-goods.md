@@ -1,10 +1,14 @@
 ---
-title: "Tommy Hilfiger Lamps Home Goods: Stylish USB Table Lamps for Every Room"
-description: "Tommy Hilfiger lamps bring style and function to your home. These lamps blend modern design with practical features for every room. Tommy Hilfiger lamps and hom"
+title: 'Tommy Hilfiger Lamps Home Goods: Stylish USB Table Lamps for Every Room'
+description: Tommy Hilfiger lamps bring style and function to your home. These lamps
+  blend modern design with practical features for every room. Tommy Hilfiger lamps
+  and hom
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-hilfiger-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=tommy-hilfiger-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tommy Hilfiger lamps bring style and function to your home. These lamps blend modern design with practical features for every room.**

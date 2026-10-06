@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Material for Bathroom Sink: Ultimate Guide 2025"
-description: "Choosing the right material for your bathroom sink can feel overwhelming. After all, this small fixture plays a big role in your daily routine and the look of y"
+title: 'What is the Best Material for Bathroom Sink: Ultimate Guide 2025'
+description: Choosing the right material for your bathroom sink can feel overwhelming.
+  After all, this small fixture plays a big role in your daily routine and the look
+  of y
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-material-for-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-material-for-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right material for your bathroom sink can feel overwhelming. After all, this small fixture plays a big role in your daily routine and the look of your bathroom.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a Fixture in a Home: Essential Guide for Every Buyer"
-description: "Have you ever wondered what exactly a fixture in your home is? You might think it’s just another fancy word, but understanding fixtures can save you time, money"
+title: 'What is a Fixture in a Home: Essential Guide for Every Buyer'
+description: Have you ever wondered what exactly a fixture in your home is? You might
+  think it’s just another fancy word, but understanding fixtures can save you time,
+  money
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-fixture-in-a-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-fixture-in-a-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered what exactly a fixture in your home is? You might think it’s just another fancy word, but understanding fixtures can save you time, money, and even stress.**

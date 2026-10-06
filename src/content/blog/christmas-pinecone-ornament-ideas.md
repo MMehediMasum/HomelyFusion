@@ -1,10 +1,14 @@
 ---
-title: "Christmas Pinecone Ornament Ideas: Stunning DIY Decorations to Try"
-description: "Are you looking for a simple, charming way to add a personal touch to your Christmas tree this year? Christmas pinecone ornaments might be exactly what you need"
+title: 'Christmas Pinecone Ornament Ideas: Stunning DIY Decorations to Try'
+description: Are you looking for a simple, charming way to add a personal touch to
+  your Christmas tree this year? Christmas pinecone ornaments might be exactly what
+  you need
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-pinecone-ornament-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=christmas-pinecone-ornament-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple, charming way to add a personal touch to your Christmas tree this year? Christmas pinecone ornaments might be exactly what you need.**

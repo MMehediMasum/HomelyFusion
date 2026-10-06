@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Mural on a Bedroom Wall: Easy Steps for Stunning Art"
-description: "Are you ready to transform your bedroom into a personal masterpiece? Painting a mural on your bedroom wall can bring life, color, and personality to your space "
+title: 'How to Paint Mural on a Bedroom Wall: Easy Steps for Stunning Art'
+description: 'Are you ready to transform your bedroom into a personal masterpiece?
+  Painting a mural on your bedroom wall can bring life, color, and personality to
+  your space '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-mural-on-a-bedroom-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-mural-on-a-bedroom-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your bedroom into a personal masterpiece? Painting a mural on your bedroom wall can bring life, color, and personality to your space like nothing else.**

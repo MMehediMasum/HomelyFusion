@@ -1,10 +1,14 @@
 ---
-title: "What is the Living Room Table Called: Ultimate Guide to Names"
-description: "Have you ever stopped to wonder what the living room table you use every day is really called? You might think it’s just a table, but there’s actually a special"
+title: 'What is the Living Room Table Called: Ultimate Guide to Names'
+description: Have you ever stopped to wonder what the living room table you use every
+  day is really called? You might think it’s just a table, but there’s actually a
+  special
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-living-room-table-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-living-room-table-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever stopped to wonder what the living room table you use every day is really called? You might think it’s just a table, but there’s actually a special name for it.**

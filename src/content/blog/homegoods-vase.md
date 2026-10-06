@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Vase Ideas: Stylish Ceramic Centerpieces for Modern Home Decor"
-description: "Vases bring elegance and charm to any space. Homegoods offers diverse options to suit every style and setting. Decorating with vases can transform your home int"
+title: 'Homegoods Vase Ideas: Stylish Ceramic Centerpieces for Modern Home Decor'
+description: Vases bring elegance and charm to any space. Homegoods offers diverse
+  options to suit every style and setting. Decorating with vases can transform your
+  home int
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-vase&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-vase&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Vases bring elegance and charm to any space. Homegoods offers diverse options to suit every style and setting.**

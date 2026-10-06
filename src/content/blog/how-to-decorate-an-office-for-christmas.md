@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Office for Christmas: Festive Ideas That Inspire"
-description: "Are you ready to bring festive cheer into your workspace? Decorating your office for Christmas can boost your mood, spark creativity, and make every workday fee"
+title: 'How to Decorate an Office for Christmas: Festive Ideas That Inspire'
+description: Are you ready to bring festive cheer into your workspace? Decorating
+  your office for Christmas can boost your mood, spark creativity, and make every
+  workday fee
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring festive cheer into your workspace? Decorating your office for Christmas can boost your mood, spark creativity, and make every workday feel special.**

@@ -1,10 +1,14 @@
 ---
-title: "Broyhill Rugs at Homegoods: Stylish, Soft, and Non-Slip Bathroom Mats"
-description: "Broyhill rugs at HomeGoods offer style and comfort for any home. Discover beautiful designs that suit every room. Broyhill rugs are a great choice for stylish a"
+title: 'Broyhill Rugs at Homegoods: Stylish, Soft, and Non-Slip Bathroom Mats'
+description: Broyhill rugs at HomeGoods offer style and comfort for any home. Discover
+  beautiful designs that suit every room. Broyhill rugs are a great choice for stylish
+  a
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=broyhill-rugs-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=broyhill-rugs-at-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Broyhill rugs at HomeGoods offer style and comfort for any home. Discover beautiful designs that suit every room.**

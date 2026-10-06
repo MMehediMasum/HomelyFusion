@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Artificial Christmas Tree Branches: Easy DIY Tricks"
-description: "Is your artificial Christmas tree looking a little sad with bent or broken branches? Don’t worry—you don’t have to buy a new one or settle for a lopsided tree t"
+title: 'How to Fix Artificial Christmas Tree Branches: Easy DIY Tricks'
+description: Is your artificial Christmas tree looking a little sad with bent or broken
+  branches? Don’t worry—you don’t have to buy a new one or settle for a lopsided tree
+  t
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-artificial-christmas-tree-branches&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-artificial-christmas-tree-branches&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Is your artificial Christmas tree looking a little sad with bent or broken branches? Don’t worry—you don’t have to buy a new one or settle for a lopsided tree this holiday season.**

@@ -1,10 +1,14 @@
 ---
-title: "Should a Living Room Have a Coffee Table: Essential Style Tips"
-description: "Have you ever wondered if your living room really needs a coffee table? It might seem like a small detail, but this piece of furniture can change the entire fee"
+title: 'Should a Living Room Have a Coffee Table: Essential Style Tips'
+description: Have you ever wondered if your living room really needs a coffee table?
+  It might seem like a small detail, but this piece of furniture can change the entire
+  fee
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-a-living-room-have-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=should-a-living-room-have-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room really needs a coffee table? It might seem like a small detail, but this piece of furniture can change the entire feel and function of your space.**

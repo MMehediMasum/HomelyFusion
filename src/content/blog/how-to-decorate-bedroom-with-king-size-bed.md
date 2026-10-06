@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With King Size Bed: Stunning Style Tips"
-description: "Your bedroom should be a place where comfort meets style, especially when you have a king size bed taking center stage. But decorating around such a large piece"
+title: 'How to Decorate Bedroom With King Size Bed: Stunning Style Tips'
+description: Your bedroom should be a place where comfort meets style, especially
+  when you have a king size bed taking center stage. But decorating around such a
+  large piece
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-king-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-king-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where comfort meets style, especially when you have a king size bed taking center stage. But decorating around such a large piece can feel tricky.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Bamboo Plant Lucky for Home: Discover the Truth Today!"
 description: "Are you wondering if a bamboo plant could bring good luck into your home? Many people believe that bamboo isn’t just a beautiful decoration but also a powerful "
 pubDate: 2026-02-06

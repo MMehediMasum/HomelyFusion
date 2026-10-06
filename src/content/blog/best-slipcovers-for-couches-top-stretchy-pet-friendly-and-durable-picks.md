@@ -1,10 +1,13 @@
 ---
-title: "Best Slipcovers for Couches: Top Stretchy, Pet-Friendly, and Durable Picks"
-description: "Choosing the best slipcover for your couch protects it from pets, kids, and daily wear. Slipcovers also refresh your living room’s look quickly and affordably. "
+title: 'Best Slipcovers for Couches: Top Stretchy, Pet-Friendly, and Durable Picks'
+description: 'Choosing the best slipcover for your couch protects it from pets, kids,
+  and daily wear. Slipcovers also refresh your living room’s look quickly and affordably. '
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-couches-top-stretchy-pet-friendly-and-durable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-couches-top-stretchy-pet-friendly-and-durable-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best slipcover for your couch protects it from pets, kids, and daily wear. Slipcovers also refresh your living room’s look quickly and affordably.**

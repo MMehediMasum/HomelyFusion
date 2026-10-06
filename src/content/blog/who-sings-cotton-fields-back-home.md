@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Sings Cotton Fields Back Home: Discover the Iconic Voice"
 description: "Have you ever caught yourself humming the tune of \"Cotton Fields Back Home\" and wondered who actually sings it? You’re not alone. This song has a way of stickin"
 pubDate: 2026-02-10

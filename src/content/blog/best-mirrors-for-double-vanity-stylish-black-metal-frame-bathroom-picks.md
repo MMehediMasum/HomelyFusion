@@ -1,10 +1,14 @@
 ---
-title: "Best Mirrors for Double Vanity: Stylish Black Metal Frame Bathroom Picks"
-description: "Choosing the best mirrors for a double vanity can enhance both style and function in your bathroom. The right mirrors create balance and brighten the space effe"
+title: 'Best Mirrors for Double Vanity: Stylish Black Metal Frame Bathroom Picks'
+description: Choosing the best mirrors for a double vanity can enhance both style
+  and function in your bathroom. The right mirrors create balance and brighten the
+  space effe
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mirrors-for-double-vanity-stylish-black-metal-frame-bathroom-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=best-mirrors-for-double-vanity-stylish-black-metal-frame-bathroom-picks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best mirrors for a double vanity can enhance both style and function in your bathroom. The right mirrors create balance and brighten the space effectively.**

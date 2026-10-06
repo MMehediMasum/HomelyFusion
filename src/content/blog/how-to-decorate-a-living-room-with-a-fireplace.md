@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With a Fireplace: Cozy & Stylish Tips"
-description: "Your living room is more than just a space—it’s where memories are made, and a cozy fireplace can be its heart. But how do you decorate around it to make your r"
+title: 'How to Decorate a Living Room With a Fireplace: Cozy & Stylish Tips'
+description: Your living room is more than just a space—it’s where memories are made,
+  and a cozy fireplace can be its heart. But how do you decorate around it to make
+  your r
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-fireplace&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-a-fireplace&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your living room is more than just a space—it’s where memories are made, and a cozy fireplace can be its heart. But how do you decorate around it to make your room warm, inviting, and stylish?**

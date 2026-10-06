@@ -1,10 +1,14 @@
 ---
-title: "How to Extend Bathroom Vanity: Easy DIY Tips for More Space"
-description: "Is your bathroom feeling cramped and cluttered? Extending your bathroom vanity could be the simple solution you need to create more space and add style. Imagine"
+title: 'How to Extend Bathroom Vanity: Easy DIY Tips for More Space'
+description: Is your bathroom feeling cramped and cluttered? Extending your bathroom
+  vanity could be the simple solution you need to create more space and add style.
+  Imagine
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-extend-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-extend-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom feeling cramped and cluttered? Extending your bathroom vanity could be the simple solution you need to create more space and add style.**

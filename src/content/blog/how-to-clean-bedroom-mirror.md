@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bedroom Mirror: Easy Tips for a Sparkling Shine"
-description: "Is your bedroom mirror streaky, dusty, or smudged? You might not realize how much a dirty mirror can affect the whole look of your room and even your mood. But "
+title: 'How to Clean Bedroom Mirror: Easy Tips for a Sparkling Shine'
+description: 'Is your bedroom mirror streaky, dusty, or smudged? You might not realize
+  how much a dirty mirror can affect the whole look of your room and even your mood.
+  But '
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bedroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your bedroom mirror streaky, dusty, or smudged? You might not realize how much a dirty mirror can affect the whole look of your room and even your mood.**

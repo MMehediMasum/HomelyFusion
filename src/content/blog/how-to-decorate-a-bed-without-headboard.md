@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bed Without Headboard: Stunning Ideas That Wow"
-description: "Your bed is the centerpiece of your bedroom, but what if you don’t have a headboard? You might think your bed looks plain or unfinished. The good news is, you d"
+title: 'How to Decorate a Bed Without Headboard: Stunning Ideas That Wow'
+description: Your bed is the centerpiece of your bedroom, but what if you don’t have
+  a headboard? You might think your bed looks plain or unfinished. The good news is,
+  you d
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bed-without-headboard&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bed-without-headboard&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bed is the centerpiece of your bedroom, but what if you don’t have a headboard? You might think your bed looks plain or unfinished.**

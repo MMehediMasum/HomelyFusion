@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Large Bathroom Mirror: Easy Tips for a Streak-Free Shine"
-description: "Your large bathroom mirror is meant to shine and reflect your best self every day. But when streaks, spots, and smudges take over, it’s hard to feel that sparkl"
+title: 'How to Clean Large Bathroom Mirror: Easy Tips for a Streak-Free Shine'
+description: Your large bathroom mirror is meant to shine and reflect your best self
+  every day. But when streaks, spots, and smudges take over, it’s hard to feel that
+  sparkl
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-large-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-large-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your large bathroom mirror is meant to shine and reflect your best self every day. But when streaks, spots, and smudges take over, it’s hard to feel that sparkling confidence.**

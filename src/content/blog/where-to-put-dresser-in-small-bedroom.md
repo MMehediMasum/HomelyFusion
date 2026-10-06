@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Dresser in Small Bedroom: Smart Space-Saving Ideas"
-description: "Struggling to find the perfect spot for your dresser in a small bedroom? You’re not alone. When space is tight, every inch counts, and placing your dresser in t"
+title: 'Where to Put Dresser in Small Bedroom: Smart Space-Saving Ideas'
+description: Struggling to find the perfect spot for your dresser in a small bedroom?
+  You’re not alone. When space is tight, every inch counts, and placing your dresser
+  in t
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-dresser-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-dresser-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to find the perfect spot for your dresser in a small bedroom? You’re not alone.**

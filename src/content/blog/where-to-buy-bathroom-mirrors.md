@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bathroom Mirrors: Top Stores for Stylish Finds"
-description: "Looking for the perfect bathroom mirror can feel overwhelming. You want something that fits your style, size, and budget without endless searching. But where do"
+title: 'Where to Buy Bathroom Mirrors: Top Stores for Stylish Finds'
+description: Looking for the perfect bathroom mirror can feel overwhelming. You want
+  something that fits your style, size, and budget without endless searching. But
+  where do
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking for the perfect bathroom mirror can feel overwhelming. You want something that fits your style, size, and budget without endless searching.**

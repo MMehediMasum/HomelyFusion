@@ -1,10 +1,13 @@
 ---
-title: "Best Lighting for Bathrooms: Top Modern Vanity Lights to Brighten Spaces"
-description: "Choosing the best lighting for bathrooms improves both function and style. Proper bathroom lights brighten your space and create a relaxing atmosphere. Bathroom"
+title: 'Best Lighting for Bathrooms: Top Modern Vanity Lights to Brighten Spaces'
+description: Choosing the best lighting for bathrooms improves both function and style.
+  Proper bathroom lights brighten your space and create a relaxing atmosphere. Bathroom
 pubDate: 2025-10-07
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-bathrooms-top-modern-vanity-lights-to-brighten-spaces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-bathrooms-top-modern-vanity-lights-to-brighten-spaces&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for bathrooms improves both function and style. Proper bathroom lights brighten your space and create a relaxing atmosphere.**

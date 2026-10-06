@@ -1,10 +1,14 @@
 ---
-title: "How to Measure for a Bathroom Mirror: Easy Steps for Perfect Fit"
-description: "Choosing the right bathroom mirror starts with one simple step: measuring correctly. If you get this wrong, your new mirror might look awkward or not fit at all"
+title: 'How to Measure for a Bathroom Mirror: Easy Steps for Perfect Fit'
+description: 'Choosing the right bathroom mirror starts with one simple step: measuring
+  correctly. If you get this wrong, your new mirror might look awkward or not fit
+  at all'
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-measure-for-a-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-measure-for-a-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right bathroom mirror starts with one simple step: measuring correctly. If you get this wrong, your new mirror might look awkward or not fit at all.**

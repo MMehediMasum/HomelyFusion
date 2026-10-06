@@ -1,10 +1,14 @@
 ---
-title: "Lamp Shades at Home Goods: Stylish Linen Shades for Every Room"
-description: "Lampshades at Home Goods offer a wide variety of stylish and functional options for your home. From elegant drum lampshades to classic bell shapes, each piece p"
+title: 'Lamp Shades at Home Goods: Stylish Linen Shades for Every Room'
+description: Lampshades at Home Goods offer a wide variety of stylish and functional
+  options for your home. From elegant drum lampshades to classic bell shapes, each
+  piece p
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lamp-shades-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=lamp-shades-at-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Lampshades at Home Goods offer a wide variety of stylish and functional options for your home. From elegant drum lampshades to classic bell shapes, each piece promises to enhance your space with its unique charm.**

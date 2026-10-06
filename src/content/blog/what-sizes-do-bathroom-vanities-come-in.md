@@ -1,10 +1,14 @@
 ---
-title: "What Sizes Do Bathroom Vanities Come in: Ultimate Guide & Tips"
-description: "Are you planning to upgrade your bathroom but unsure about the right vanity size? Choosing the perfect bathroom vanity size can make a huge difference in how yo"
+title: 'What Sizes Do Bathroom Vanities Come in: Ultimate Guide & Tips'
+description: Are you planning to upgrade your bathroom but unsure about the right
+  vanity size? Choosing the perfect bathroom vanity size can make a huge difference
+  in how yo
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-sizes-do-bathroom-vanities-come-in&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=what-sizes-do-bathroom-vanities-come-in&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to upgrade your bathroom but unsure about the right vanity size? Choosing the perfect bathroom vanity size can make a huge difference in how your space looks and feels.**

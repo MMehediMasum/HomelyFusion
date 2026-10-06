@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Four Poster Bed: Stunning Style Tips"
-description: "Your bedroom is more than just a place to sleep—it’s your personal sanctuary. If you have a four poster bed, you already have a stunning centerpiece that can tr"
+title: 'How to Decorate Bedroom With Four Poster Bed: Stunning Style Tips'
+description: Your bedroom is more than just a place to sleep—it’s your personal sanctuary.
+  If you have a four poster bed, you already have a stunning centerpiece that can
+  tr
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-four-poster-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-four-poster-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom is more than just a place to sleep—it’s your personal sanctuary. If you have a four poster bed, you already have a stunning centerpiece that can transform your space.**

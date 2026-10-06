@@ -1,10 +1,14 @@
 ---
-title: "What Desk Should I Buy for My Home Office: Top Picks for Comfort"
-description: "Choosing the right desk for your home office can change the way you work every day. You want something that fits your space, feels comfortable, and helps you st"
+title: 'What Desk Should I Buy for My Home Office: Top Picks for Comfort'
+description: Choosing the right desk for your home office can change the way you work
+  every day. You want something that fits your space, feels comfortable, and helps
+  you st
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-desk-should-i-buy-for-my-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=what-desk-should-i-buy-for-my-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right desk for your home office can change the way you work every day. You want something that fits your space, feels comfortable, and helps you stay organized.**

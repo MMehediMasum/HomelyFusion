@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Feature Wall: Stunning Ideas to Transform Your Space"
-description: "Are you looking to transform a plain wall into the star of your room? Decorating a feature wall can instantly add character and style to your space without a co"
+title: 'How to Decorate a Feature Wall: Stunning Ideas to Transform Your Space'
+description: Are you looking to transform a plain wall into the star of your room?
+  Decorating a feature wall can instantly add character and style to your space without
+  a co
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-feature-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-feature-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform a plain wall into the star of your room? Decorating a feature wall can instantly add character and style to your space without a complete makeover.**

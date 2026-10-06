@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Popcorn Snack Mix Recipe: Easy, Delicious & Festive!"
 description: "Looking for a snack that’s both festive and fun to make? Your holiday gatherings deserve a treat that’s easy, tasty, and full of holiday cheer. This Holiday Pop"
 pubDate: 2025-08-30

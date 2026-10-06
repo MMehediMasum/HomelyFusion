@@ -1,10 +1,14 @@
 ---
-title: "Best Led Lights for Bedroom: Top Stylish & Functional Picks"
-description: "Choosing the best LED lights can transform your bedroom into a cozy and relaxing space. The right lighting sets the mood and improves comfort for rest and activ"
+title: 'Best Led Lights for Bedroom: Top Stylish & Functional Picks'
+description: Choosing the best LED lights can transform your bedroom into a cozy and
+  relaxing space. The right lighting sets the mood and improves comfort for rest and
+  activ
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-led-lights-for-bedroom-top-stylish-functional-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-led-lights-for-bedroom-top-stylish-functional-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best LED lights can transform your bedroom into a cozy and relaxing space. The right lighting sets the mood and improves comfort for rest and activities.**

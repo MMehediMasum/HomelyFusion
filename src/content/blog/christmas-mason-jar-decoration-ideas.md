@@ -1,10 +1,14 @@
 ---
-title: "Christmas Mason Jar Decoration Ideas: Stunning DIY Holiday Crafts"
-description: "Looking for a simple yet charming way to bring holiday magic into your home? Christmas mason jar decoration ideas are just what you need. These easy projects le"
+title: 'Christmas Mason Jar Decoration Ideas: Stunning DIY Holiday Crafts'
+description: Looking for a simple yet charming way to bring holiday magic into your
+  home? Christmas mason jar decoration ideas are just what you need. These easy projects
+  le
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-mason-jar-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-mason-jar-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a simple yet charming way to bring holiday magic into your home? Christmas mason jar decoration ideas are just what you need.**

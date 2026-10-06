@@ -1,10 +1,14 @@
 ---
-title: "A Living Room Table: Stylish Designs to Transform Your Space"
-description: "Your living room table is more than just a piece of furniture. It’s where you gather with family, enjoy your morning coffee, and showcase your style. Choosing t"
+title: 'A Living Room Table: Stylish Designs to Transform Your Space'
+description: Your living room table is more than just a piece of furniture. It’s where
+  you gather with family, enjoy your morning coffee, and showcase your style. Choosing
+  t
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room table is more than just a piece of furniture. It’s where you gather with family, enjoy your morning coffee, and showcase your style.**

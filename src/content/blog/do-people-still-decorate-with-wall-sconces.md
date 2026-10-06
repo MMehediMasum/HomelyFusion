@@ -1,10 +1,14 @@
 ---
-title: "Do People Still Decorate With Wall Sconces? Timeless Style Trends"
-description: "Are wall sconces still a thing when it comes to decorating your space? You might wonder if these classic light fixtures have lost their charm or if they can act"
+title: Do People Still Decorate With Wall Sconces? Timeless Style Trends
+description: Are wall sconces still a thing when it comes to decorating your space?
+  You might wonder if these classic light fixtures have lost their charm or if they
+  can act
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-people-still-decorate-with-wall-sconces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=do-people-still-decorate-with-wall-sconces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are wall sconces still a thing when it comes to decorating your space? You might wonder if these classic light fixtures have lost their charm or if they can actually add a unique touch to your home.**

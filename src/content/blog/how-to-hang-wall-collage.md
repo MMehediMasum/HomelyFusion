@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Wall Collage: Easy Steps for Stunning Decor"
-description: "Are you looking to transform your empty wall into a stunning display of memories and art? Hanging a wall collage is a simple way to add personality and style to"
+title: 'How to Hang Wall Collage: Easy Steps for Stunning Decor'
+description: Are you looking to transform your empty wall into a stunning display
+  of memories and art? Hanging a wall collage is a simple way to add personality and
+  style to
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-wall-collage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-wall-collage&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your empty wall into a stunning display of memories and art? Hanging a wall collage is a simple way to add personality and style to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Largest Bathroom Vanity Size: Ultimate Guide & Tips"
-description: "Are you wondering how big your bathroom vanity can really get? Choosing the right size vanity is more than just fitting it into your space—it shapes how comfort"
+title: 'What is the Largest Bathroom Vanity Size: Ultimate Guide & Tips'
+description: Are you wondering how big your bathroom vanity can really get? Choosing
+  the right size vanity is more than just fitting it into your space—it shapes how
+  comfort
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-largest-bathroom-vanity-size&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-largest-bathroom-vanity-size&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how big your bathroom vanity can really get? Choosing the right size vanity is more than just fitting it into your space—it shapes how comfortable and functional your bathroom feels every day.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Apartment: Top Wireless & Smart LED Solutions Reviewed"
-description: "Choosing the best lighting can change how your apartment feels and looks. Good lights make small spaces bright and cozy. Apartment lighting must save space and "
+title: 'Best Lighting for Apartment: Top Wireless & Smart LED Solutions Reviewed'
+description: 'Choosing the best lighting can change how your apartment feels and looks.
+  Good lights make small spaces bright and cozy. Apartment lighting must save space
+  and '
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-apartment-top-wireless-smart-led-solutions-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-apartment-top-wireless-smart-led-solutions-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting can change how your apartment feels and looks. Good lights make small spaces bright and cozy.**

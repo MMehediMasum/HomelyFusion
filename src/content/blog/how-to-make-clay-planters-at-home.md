@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Planters at Home: Easy DIY Guide for Beginners"
-description: "Are you looking for a fun and creative way to add a personal touch to your home garden? Making clay planters at home is easier than you might think. With just a"
+title: 'How to Make Clay Planters at Home: Easy DIY Guide for Beginners'
+description: Are you looking for a fun and creative way to add a personal touch to
+  your home garden? Making clay planters at home is easier than you might think. With
+  just a
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-planters-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-planters-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your home garden? Making clay planters at home is easier than you might think.**

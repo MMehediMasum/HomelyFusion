@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Luxury Vinyl Plank: Top Cleaners and DIY Flooring Picks"
-description: "Floor And Decor Luxury Vinyl Plank offers stylish and durable flooring options for any home. These planks combine easy installation with realistic wood looks. L"
+title: 'Floor And Decor Luxury Vinyl Plank: Top Cleaners and DIY Flooring Picks'
+description: Floor And Decor Luxury Vinyl Plank offers stylish and durable flooring
+  options for any home. These planks combine easy installation with realistic wood
+  looks. L
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-luxury-vinyl-plank&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-luxury-vinyl-plank&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor Luxury Vinyl Plank offers stylish and durable flooring options for any home. These planks combine easy installation with realistic wood looks.**

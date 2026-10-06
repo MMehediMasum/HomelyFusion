@@ -1,10 +1,14 @@
 ---
-title: "Where Should Mirror Be Placed in Bedroom: Expert Tips for Perfect Placement"
-description: "Where should a mirror be placed in your bedroom? It’s a simple question, but the answer can change the way your room feels and functions every day. The right mi"
+title: 'Where Should Mirror Be Placed in Bedroom: Expert Tips for Perfect Placement'
+description: Where should a mirror be placed in your bedroom? It’s a simple question,
+  but the answer can change the way your room feels and functions every day. The right
+  mi
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-mirror-be-placed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-should-mirror-be-placed-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Where should a mirror be placed in your bedroom? It’s a simple question, but the answer can change the way your room feels and functions every day.**

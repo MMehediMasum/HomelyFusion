@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Framed Bathroom Mirrors: Top Stylish Picks Revealed"
-description: "Looking to add a touch of style and function to your bathroom? Finding the perfect framed bathroom mirror can transform your space instantly. But where do you s"
+title: 'Where to Buy Framed Bathroom Mirrors: Top Stylish Picks Revealed'
+description: Looking to add a touch of style and function to your bathroom? Finding
+  the perfect framed bathroom mirror can transform your space instantly. But where
+  do you s
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-framed-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-framed-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking to add a touch of style and function to your bathroom? Finding the perfect framed bathroom mirror can transform your space instantly.**

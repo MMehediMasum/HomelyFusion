@@ -1,10 +1,14 @@
 ---
-title: "Lighting Home Decorators Collection: Stylish Fixtures to Brighten Your Space"
-description: "The Lighting Home Decorators Collection offers stylish and practical lighting solutions for every room. These fixtures blend design and function to brighten you"
+title: 'Lighting Home Decorators Collection: Stylish Fixtures to Brighten Your Space'
+description: The Lighting Home Decorators Collection offers stylish and practical
+  lighting solutions for every room. These fixtures blend design and function to brighten
+  you
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lighting-home-decorators-collection&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=lighting-home-decorators-collection&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **The Lighting Home Decorators Collection offers stylish and practical lighting solutions for every room. These fixtures blend design and function to brighten your home beautifully.**

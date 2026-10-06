@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Bedrooms: Soft, Stylish, and Machine Washable Picks"
-description: "Choosing the best rugs for bedrooms adds comfort and style to your space. Rugs create warmth, reduce noise, and enhance bedroom decor effortlessly. A soft, cozy"
+title: 'Best Rugs for Bedrooms: Soft, Stylish, and Machine Washable Picks'
+description: Choosing the best rugs for bedrooms adds comfort and style to your space.
+  Rugs create warmth, reduce noise, and enhance bedroom decor effortlessly. A soft,
+  cozy
 pubDate: 2025-12-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-bedrooms-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-bedrooms-soft-stylish-and-machine-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for bedrooms adds comfort and style to your space. Rugs create warmth, reduce noise, and enhance bedroom decor effortlessly.**

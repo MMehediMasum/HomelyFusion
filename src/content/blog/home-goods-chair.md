@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Chair: Top Ergonomic Picks for Comfort and Style"
-description: "Finding the perfect chair can transform your home office into a comfortable and productive space. Whether you need ergonomic support for long hours or a stylish"
+title: 'Home Goods Chair: Top Ergonomic Picks for Comfort and Style'
+description: Finding the perfect chair can transform your home office into a comfortable
+  and productive space. Whether you need ergonomic support for long hours or a stylish
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect chair can transform your home office into a comfortable and productive space. Whether you need ergonomic support for long hours or a stylish addition to your living room, home goods chairs offer diverse options.**

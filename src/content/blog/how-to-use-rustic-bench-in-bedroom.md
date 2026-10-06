@@ -1,10 +1,14 @@
 ---
-title: "How to Use Rustic Bench in Bedroom: Stylish Ideas to Transform Space"
-description: "Looking to add a warm, inviting touch to your bedroom? A rustic bench might be exactly what you need. It’s more than just a seat—it can transform your space, ad"
+title: 'How to Use Rustic Bench in Bedroom: Stylish Ideas to Transform Space'
+description: Looking to add a warm, inviting touch to your bedroom? A rustic bench
+  might be exactly what you need. It’s more than just a seat—it can transform your
+  space, ad
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-rustic-bench-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-rustic-bench-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to add a warm, inviting touch to your bedroom? A rustic bench might be exactly what you need.**

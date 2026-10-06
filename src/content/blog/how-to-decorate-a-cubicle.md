@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Cubicle: Creative Ideas to Boost Your Workspace"
-description: "Your cubicle is more than just a workspace—it’s your personal zone where creativity and productivity come alive. But if it feels dull or uninspiring, it can hol"
+title: 'How to Decorate a Cubicle: Creative Ideas to Boost Your Workspace'
+description: Your cubicle is more than just a workspace—it’s your personal zone where
+  creativity and productivity come alive. But if it feels dull or uninspiring, it
+  can hol
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-cubicle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-cubicle&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your cubicle is more than just a workspace—it’s your personal zone where creativity and productivity come alive. But if it feels dull or uninspiring, it can hold you back.**

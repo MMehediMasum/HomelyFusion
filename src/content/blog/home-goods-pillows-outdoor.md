@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pillows Outdoor: Stylish Waterproof Cushions for Patio Comfort"
-description: "Outdoor pillows add comfort and style to your patio or garden. These pillows resist water and brighten any outdoor space. Choosing the right outdoor pillows mak"
+title: 'Home Goods Pillows Outdoor: Stylish Waterproof Cushions for Patio Comfort'
+description: Outdoor pillows add comfort and style to your patio or garden. These
+  pillows resist water and brighten any outdoor space. Choosing the right outdoor
+  pillows mak
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pillows-outdoor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pillows-outdoor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Outdoor pillows add comfort and style to your patio or garden. These pillows resist water and brighten any outdoor space.**

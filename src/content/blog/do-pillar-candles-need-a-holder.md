@@ -1,10 +1,14 @@
 ---
-title: "Do Pillar Candles Need a Holder: Essential Safety Tips"
-description: "Have you ever wondered if your pillar candles really need a holder? You might think they can stand on their own, but there’s more to it than meets the eye. Usin"
+title: 'Do Pillar Candles Need a Holder: Essential Safety Tips'
+description: Have you ever wondered if your pillar candles really need a holder? You
+  might think they can stand on their own, but there’s more to it than meets the eye.
+  Usin
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-pillar-candles-need-a-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=do-pillar-candles-need-a-holder&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if your pillar candles really need a holder? You might think they can stand on their own, but there’s more to it than meets the eye.**

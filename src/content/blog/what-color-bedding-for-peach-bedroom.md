@@ -1,10 +1,14 @@
 ---
-title: "What Color Bedding for Peach Bedroom: Stunning Color Combos Revealed"
-description: "Choosing the right bedding color for your peach bedroom can feel tricky. You want a look that feels cozy and fresh but also highlights the warm, inviting tones "
+title: 'What Color Bedding for Peach Bedroom: Stunning Color Combos Revealed'
+description: 'Choosing the right bedding color for your peach bedroom can feel tricky.
+  You want a look that feels cozy and fresh but also highlights the warm, inviting
+  tones '
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-bedding-for-peach-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-bedding-for-peach-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedding color for your peach bedroom can feel tricky. You want a look that feels cozy and fresh but also highlights the warm, inviting tones of peach.**

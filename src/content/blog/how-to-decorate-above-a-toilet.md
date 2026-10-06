@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above a Toilet: Stunning Ideas to Transform Space"
-description: "Looking to transform the space above your toilet but not sure where to start? You’re not alone. That small wall often gets ignored, yet it holds amazing potenti"
+title: 'How to Decorate above a Toilet: Stunning Ideas to Transform Space'
+description: Looking to transform the space above your toilet but not sure where to
+  start? You’re not alone. That small wall often gets ignored, yet it holds amazing
+  potenti
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-a-toilet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-a-toilet&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to transform the space above your toilet but not sure where to start? You’re not alone.**

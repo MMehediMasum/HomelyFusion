@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Decorative Pillows on a Bed: Stylish Tips & Tricks"
-description: "Are you ready to transform your bedroom into a cozy, stylish retreat with just a few simple changes? One of the easiest and most effective ways to do this is by"
+title: 'How to Arrange Decorative Pillows on a Bed: Stylish Tips & Tricks'
+description: Are you ready to transform your bedroom into a cozy, stylish retreat
+  with just a few simple changes? One of the easiest and most effective ways to do
+  this is by
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-decorative-pillows-on-a-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-decorative-pillows-on-a-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bedroom into a cozy, stylish retreat with just a few simple changes? One of the easiest and most effective ways to do this is by arranging decorative pillows on your bed.**

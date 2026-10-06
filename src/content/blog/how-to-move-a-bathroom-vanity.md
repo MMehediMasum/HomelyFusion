@@ -1,10 +1,14 @@
 ---
-title: "How to Move a Bathroom Vanity: Easy Steps for a Flawless Remodel"
-description: "Are you planning to move your bathroom vanity but unsure where to start? Moving a vanity might seem tricky, but with the right steps, you can do it yourself wit"
+title: 'How to Move a Bathroom Vanity: Easy Steps for a Flawless Remodel'
+description: Are you planning to move your bathroom vanity but unsure where to start?
+  Moving a vanity might seem tricky, but with the right steps, you can do it yourself
+  wit
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-move-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-move-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you planning to move your bathroom vanity but unsure where to start? Moving a vanity might seem tricky, but with the right steps, you can do it yourself without stress or damage.**

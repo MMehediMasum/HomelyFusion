@@ -1,10 +1,14 @@
 ---
-title: "How to Layout Rectangular Living Room With Curved Sofa: Stylish Tips"
-description: "Are you wondering how to make your rectangular living room feel cozy and stylish with a curved sofa? It might seem tricky at first, but with the right layout, y"
+title: 'How to Layout Rectangular Living Room With Curved Sofa: Stylish Tips'
+description: Are you wondering how to make your rectangular living room feel cozy
+  and stylish with a curved sofa? It might seem tricky at first, but with the right
+  layout, y
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-layout-rectangular-living-room-with-curved-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-layout-rectangular-living-room-with-curved-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your rectangular living room feel cozy and stylish with a curved sofa? It might seem tricky at first, but with the right layout, you can turn your space into a comfortable and inviting area that flows perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Homes to Go Furniture: Stylish, Functional Pieces for Every Room"
-description: "Homes to Go Furniture offers a variety of practical and stylish pieces for every room. Their products combine comfort, function, and modern design to fit any ho"
+title: 'Homes to Go Furniture: Stylish, Functional Pieces for Every Room'
+description: Homes to Go Furniture offers a variety of practical and stylish pieces
+  for every room. Their products combine comfort, function, and modern design to fit
+  any ho
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homes-to-go-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=homes-to-go-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homes to Go Furniture offers a variety of practical and stylish pieces for every room. Their products combine comfort, function, and modern design to fit any home or office.**

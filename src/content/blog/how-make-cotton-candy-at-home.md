@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Make Cotton Candy at Home: Easy & Fun DIY Sweet Treat"
 description: "Imagine holding a fluffy, colorful cloud of sweetness right in your hands—cotton candy that melts instantly on your tongue. What if you could create that magica"
 pubDate: 2025-09-06

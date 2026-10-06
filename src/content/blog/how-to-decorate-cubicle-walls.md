@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Cubicle Walls: Creative Ideas to Boost Your Space"
-description: "Your cubicle walls don’t have to be dull and boring. Imagine turning that plain space into a personal haven that boosts your mood and productivity every day. Yo"
+title: 'How to Decorate Cubicle Walls: Creative Ideas to Boost Your Space'
+description: Your cubicle walls don’t have to be dull and boring. Imagine turning
+  that plain space into a personal haven that boosts your mood and productivity every
+  day. Yo
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-cubicle-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-cubicle-walls&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your cubicle walls don’t have to be dull and boring. Imagine turning that plain space into a personal haven that boosts your mood and productivity every day.**

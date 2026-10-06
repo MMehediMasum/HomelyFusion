@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Statues at Home: Easy Steps for Stunning Art"
-description: "Have you ever wanted to create something unique with your own hands? Making clay statues at home is easier than you think, and it’s a fun way to bring your idea"
+title: 'How to Make Clay Statues at Home: Easy Steps for Stunning Art'
+description: Have you ever wanted to create something unique with your own hands?
+  Making clay statues at home is easier than you think, and it’s a fun way to bring
+  your idea
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-statues-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-statues-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands? Making clay statues at home is easier than you think, and it’s a fun way to bring your ideas to life.**

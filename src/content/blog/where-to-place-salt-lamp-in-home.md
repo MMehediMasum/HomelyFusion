@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Salt Lamp in Home: Ultimate Spots for Positive Energy"
-description: "Have you ever wondered where to place a salt lamp in your home to get the most benefits? The right spot can change the way your space feels—making it calmer, wa"
+title: 'Where to Place Salt Lamp in Home: Ultimate Spots for Positive Energy'
+description: Have you ever wondered where to place a salt lamp in your home to get
+  the most benefits? The right spot can change the way your space feels—making it
+  calmer, wa
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-salt-lamp-in-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-salt-lamp-in-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered where to place a salt lamp in your home to get the most benefits? The right spot can change the way your space feels—making it calmer, warmer, and more inviting.**

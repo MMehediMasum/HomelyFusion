@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye Cotton Clothes at Home: Easy Steps for Vibrant Colors"
 description: "Have you ever looked at your favorite cotton clothes and wished they had a fresh, new color? Dyeing your cotton clothes at home is easier than you think—and it’"
 pubDate: 2026-03-18

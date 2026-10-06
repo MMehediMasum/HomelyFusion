@@ -1,10 +1,14 @@
 ---
-title: "Cordova Mirrors: Stylish Asymmetrical Wall Mirrors for Modern Spaces"
-description: "Cordova mirrors bring unique style and charm to any room. Their irregular, asymmetrical shapes create eye-catching decor instantly. These mirrors blend art and "
+title: 'Cordova Mirrors: Stylish Asymmetrical Wall Mirrors for Modern Spaces'
+description: 'Cordova mirrors bring unique style and charm to any room. Their irregular,
+  asymmetrical shapes create eye-catching decor instantly. These mirrors blend art
+  and '
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cordova-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=cordova-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Cordova mirrors bring unique style and charm to any room. Their irregular, asymmetrical shapes create eye-catching decor instantly.**

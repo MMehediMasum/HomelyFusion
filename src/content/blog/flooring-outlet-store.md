@@ -1,10 +1,14 @@
 ---
-title: "Flooring Outlet Store: Top Peel & Stick Tiles and Foam Mats for Home"
-description: "A flooring outlet store is your one-stop destination for diverse and affordable floor covering options. From stylish peel-and-stick tiles to durable foam mats, "
+title: 'Flooring Outlet Store: Top Peel & Stick Tiles and Foam Mats for Home'
+description: 'A flooring outlet store is your one-stop destination for diverse and
+  affordable floor covering options. From stylish peel-and-stick tiles to durable
+  foam mats, '
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-outlet-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=flooring-outlet-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A flooring outlet store is your one-stop destination for diverse and affordable floor covering options. From stylish peel-and-stick tiles to durable foam mats, these stores offer solutions for every space.**

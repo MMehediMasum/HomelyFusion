@@ -1,10 +1,14 @@
 ---
-title: "Should Living Room Cabinets Match Kitchen Cabinets? Expert Tips!"
-description: "Are you wondering if your living room cabinets should match your kitchen cabinets? It’s a question many homeowners face when designing their space. The answer i"
+title: Should Living Room Cabinets Match Kitchen Cabinets? Expert Tips!
+description: Are you wondering if your living room cabinets should match your kitchen
+  cabinets? It’s a question many homeowners face when designing their space. The answer
+  i
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-living-room-cabinets-match-kitchen-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=should-living-room-cabinets-match-kitchen-cabinets&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you wondering if your living room cabinets should match your kitchen cabinets? It’s a question many homeowners face when designing their space.**

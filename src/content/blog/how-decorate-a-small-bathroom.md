@@ -1,10 +1,14 @@
 ---
-title: "How Decorate a Small Bathroom: Clever Tips for Stylish Spaces"
-description: "Is your small bathroom feeling cramped or dull? You’re not alone, and the good news is you can transform it into a stylish, inviting space without major renovat"
+title: 'How Decorate a Small Bathroom: Clever Tips for Stylish Spaces'
+description: Is your small bathroom feeling cramped or dull? You’re not alone, and
+  the good news is you can transform it into a stylish, inviting space without major
+  renovat
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-decorate-a-small-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-decorate-a-small-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your small bathroom feeling cramped or dull? You’re not alone, and the good news is you can transform it into a stylish, inviting space without major renovations.**

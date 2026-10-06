@@ -1,10 +1,14 @@
 ---
-title: "How to Add Drawers to a Bathroom Vanity: Easy DIY Upgrade Tips"
-description: "Are you tired of cluttered bathroom counters and messy cabinets? Adding drawers to your bathroom vanity can be a game-changer for your daily routine. Imagine ha"
+title: 'How to Add Drawers to a Bathroom Vanity: Easy DIY Upgrade Tips'
+description: Are you tired of cluttered bathroom counters and messy cabinets? Adding
+  drawers to your bathroom vanity can be a game-changer for your daily routine. Imagine
+  ha
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-drawers-to-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-drawers-to-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of cluttered bathroom counters and messy cabinets? Adding drawers to your bathroom vanity can be a game-changer for your daily routine.**

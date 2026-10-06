@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Cabinet: Stylish Storage Solutions for Every Room"
-description: "A home goods cabinet helps keep your space neat and organized. It fits well in kitchens, bathrooms, living rooms, and entryways. Choosing the right cabinet brin"
+title: 'Home Goods Cabinet: Stylish Storage Solutions for Every Room'
+description: A home goods cabinet helps keep your space neat and organized. It fits
+  well in kitchens, bathrooms, living rooms, and entryways. Choosing the right cabinet
+  brin
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A home goods cabinet helps keep your space neat and organized. It fits well in kitchens, bathrooms, living rooms, and entryways.**

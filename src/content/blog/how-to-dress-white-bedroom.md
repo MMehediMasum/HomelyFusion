@@ -1,10 +1,14 @@
 ---
-title: "How to Dress White Bedroom: Stunning Tips for a Cozy Chic Look"
-description: "Are you looking to transform your white bedroom into a stylish and cozy haven? Dressing a white bedroom might seem simple, but getting it just right can make a "
+title: 'How to Dress White Bedroom: Stunning Tips for a Cozy Chic Look'
+description: 'Are you looking to transform your white bedroom into a stylish and cozy
+  haven? Dressing a white bedroom might seem simple, but getting it just right can
+  make a '
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-white-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-white-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you looking to transform your white bedroom into a stylish and cozy haven? Dressing a white bedroom might seem simple, but getting it just right can make a huge difference in how your space feels.**

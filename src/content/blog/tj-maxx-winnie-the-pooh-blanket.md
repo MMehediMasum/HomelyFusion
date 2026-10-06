@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Winnie the Pooh Blanket: Cozy Disney Throw for Kids & Adults"
-description: "Tj Maxx offers a delightful selection of Winnie the Pooh blankets for all ages. These blankets are both cozy and charming. Winnie the Pooh fans will adore the v"
+title: 'Tj Maxx Winnie the Pooh Blanket: Cozy Disney Throw for Kids & Adults'
+description: Tj Maxx offers a delightful selection of Winnie the Pooh blankets for
+  all ages. These blankets are both cozy and charming. Winnie the Pooh fans will adore
+  the v
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-winnie-the-pooh-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-winnie-the-pooh-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tj Maxx offers a delightful selection of Winnie the Pooh blankets for all ages. These blankets are both cozy and charming.**

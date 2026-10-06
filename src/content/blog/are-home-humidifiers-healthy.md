@@ -1,10 +1,14 @@
 ---
-title: "Are Home Humidifiers Healthy: Surprising Benefits & Risks Revealed"
-description: "Have you ever wondered if using a home humidifier is actually good for your health? You might think adding moisture to the air is helpful, especially when the a"
+title: 'Are Home Humidifiers Healthy: Surprising Benefits & Risks Revealed'
+description: Have you ever wondered if using a home humidifier is actually good for
+  your health? You might think adding moisture to the air is helpful, especially when
+  the a
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-home-humidifiers-healthy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-home-humidifiers-healthy&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if using a home humidifier is actually good for your health? You might think adding moisture to the air is helpful, especially when the air feels dry.**

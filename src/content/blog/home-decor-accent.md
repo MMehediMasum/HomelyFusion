@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Accent Ideas: Stylish Picks for Cozy and Modern Spaces"
-description: "Home decor accents add charm and personality to any living space. They create a warm, inviting atmosphere without major changes. Small details like artificial p"
+title: 'Home Decor Accent Ideas: Stylish Picks for Cozy and Modern Spaces'
+description: Home decor accents add charm and personality to any living space. They
+  create a warm, inviting atmosphere without major changes. Small details like artificial
+  p
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-accent&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-accent&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor accents add charm and personality to any living space. They create a warm, inviting atmosphere without major changes.**

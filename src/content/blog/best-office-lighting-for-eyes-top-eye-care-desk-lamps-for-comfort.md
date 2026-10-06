@@ -1,10 +1,14 @@
 ---
-title: "Best Office Lighting for Eyes: Top Eye Care Desk Lamps for Comfort"
-description: "Good office lighting protects your eyes and boosts comfort during work. Choosing the right lamp reduces eye strain and helps you focus better. Bright, harsh lig"
+title: 'Best Office Lighting for Eyes: Top Eye Care Desk Lamps for Comfort'
+description: Good office lighting protects your eyes and boosts comfort during work.
+  Choosing the right lamp reduces eye strain and helps you focus better. Bright, harsh
+  lig
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-office-lighting-for-eyes-top-eye-care-desk-lamps-for-comfort&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-office-lighting-for-eyes-top-eye-care-desk-lamps-for-comfort&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Good office lighting protects your eyes and boosts comfort during work. Choosing the right lamp reduces eye strain and helps you focus better.**

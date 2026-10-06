@@ -1,10 +1,14 @@
 ---
-title: "How to Put Corner Sofa in Living Room: Expert Tips for Perfect Placement"
-description: "Are you wondering how to place your corner sofa perfectly in your living room? Getting it right can transform your space into a cozy, stylish haven where you lo"
+title: 'How to Put Corner Sofa in Living Room: Expert Tips for Perfect Placement'
+description: Are you wondering how to place your corner sofa perfectly in your living
+  room? Getting it right can transform your space into a cozy, stylish haven where
+  you lo
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-corner-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-corner-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to place your corner sofa perfectly in your living room? Getting it right can transform your space into a cozy, stylish haven where you love to relax and entertain.**

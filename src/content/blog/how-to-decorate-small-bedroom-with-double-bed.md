@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Bedroom With Double Bed: Stunning Space Hacks"
-description: "Struggling to fit a double bed into your small bedroom without making it feel cramped? You’re not alone. Finding the perfect balance between comfort and style i"
+title: 'How to Decorate Small Bedroom With Double Bed: Stunning Space Hacks'
+description: Struggling to fit a double bed into your small bedroom without making
+  it feel cramped? You’re not alone. Finding the perfect balance between comfort and
+  style i
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-bedroom-with-double-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-bedroom-with-double-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit a double bed into your small bedroom without making it feel cramped? You’re not alone.**

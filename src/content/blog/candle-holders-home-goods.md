@@ -1,10 +1,14 @@
 ---
-title: "Candle Holders Home Goods: Elegant Gold Designs for Stunning Table Centerpieces"
-description: "Candle holders add warmth and style to any home. They create a cozy and inviting atmosphere with soft candlelight. Choosing the right candle holders can enhance"
+title: 'Candle Holders Home Goods: Elegant Gold Designs for Stunning Table Centerpieces'
+description: Candle holders add warmth and style to any home. They create a cozy and
+  inviting atmosphere with soft candlelight. Choosing the right candle holders can
+  enhance
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=candle-holders-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=candle-holders-home-goods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Candle holders add warmth and style to any home. They create a cozy and inviting atmosphere with soft candlelight.**

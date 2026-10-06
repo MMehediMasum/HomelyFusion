@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Wool Carpet at Home: Easy Steps for Spotless Floors"
-description: "Your wool carpet adds warmth and style to your home, but keeping it clean can feel tricky. You might worry about damaging the delicate fibers or using the wrong"
+title: 'How to Clean Wool Carpet at Home: Easy Steps for Spotless Floors'
+description: Your wool carpet adds warmth and style to your home, but keeping it clean
+  can feel tricky. You might worry about damaging the delicate fibers or using the
+  wrong
 pubDate: 2026-03-29
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-wool-carpet-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-wool-carpet-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your wool carpet adds warmth and style to your home, but keeping it clean can feel tricky. You might worry about damaging the delicate fibers or using the wrong cleaning products.**

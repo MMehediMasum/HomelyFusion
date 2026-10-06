@@ -1,10 +1,14 @@
 ---
-title: "Can Heat Treatment Damage Your Home? Shocking Truth Revealed"
-description: "Are you thinking about using heat treatment to get rid of pests in your home? It’s a powerful method, but you might be wondering—can heat treatment damage your "
+title: Can Heat Treatment Damage Your Home? Shocking Truth Revealed
+description: 'Are you thinking about using heat treatment to get rid of pests in your
+  home? It’s a powerful method, but you might be wondering—can heat treatment damage
+  your '
 pubDate: 2026-04-04
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-heat-treatment-damage-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-heat-treatment-damage-your-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about using heat treatment to get rid of pests in your home? It’s a powerful method, but you might be wondering—can heat treatment damage your home?**

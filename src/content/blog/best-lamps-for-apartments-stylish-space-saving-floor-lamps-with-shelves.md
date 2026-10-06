@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Apartments: Stylish, Space-Saving Floor Lamps with Shelves"
-description: "Choosing the best lamps for apartments can enhance your space’s style and lighting. Small spaces need lamps that save room and provide good light. Apartment liv"
+title: 'Best Lamps for Apartments: Stylish, Space-Saving Floor Lamps with Shelves'
+description: Choosing the best lamps for apartments can enhance your space’s style
+  and lighting. Small spaces need lamps that save room and provide good light. Apartment
+  liv
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-apartments-stylish-space-saving-floor-lamps-with-shelves&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-apartments-stylish-space-saving-floor-lamps-with-shelves&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for apartments can enhance your space’s style and lighting. Small spaces need lamps that save room and provide good light.**

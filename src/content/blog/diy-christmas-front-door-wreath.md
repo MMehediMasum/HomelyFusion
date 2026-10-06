@@ -1,10 +1,14 @@
 ---
-title: "Diy Christmas Front Door Wreath: Easy Ideas to Wow Your Guests"
-description: "Your front door is the first thing guests see during the holiday season. Imagine welcoming them with a beautiful, handmade Christmas wreath that shows your styl"
+title: 'Diy Christmas Front Door Wreath: Easy Ideas to Wow Your Guests'
+description: Your front door is the first thing guests see during the holiday season.
+  Imagine welcoming them with a beautiful, handmade Christmas wreath that shows your
+  styl
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-front-door-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-front-door-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your front door is the first thing guests see during the holiday season. Imagine welcoming them with a beautiful, handmade Christmas wreath that shows your style and festive spirit.**

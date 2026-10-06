@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Hydrogen Be Used to Heat Homes: Revolutionary Energy Solution?"
 description: "Have you ever wondered if there’s a cleaner way to heat your home without relying on traditional gas or electric systems? Imagine a solution that could cut down"
 pubDate: 2025-08-27

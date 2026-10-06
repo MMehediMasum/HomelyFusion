@@ -1,10 +1,14 @@
 ---
-title: "What to Put in Living Room Display Cabinet: Stunning Ideas to Impress"
-description: "Your living room display cabinet is more than just a piece of furniture—it’s a chance to show off your personality and style. But what should you put in it to m"
+title: 'What to Put in Living Room Display Cabinet: Stunning Ideas to Impress'
+description: Your living room display cabinet is more than just a piece of furniture—it’s
+  a chance to show off your personality and style. But what should you put in it to
+  m
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-in-living-room-display-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- China Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-in-living-room-display-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room display cabinet is more than just a piece of furniture—it’s a chance to show off your personality and style. But what should you put in it to make it truly stand out?**

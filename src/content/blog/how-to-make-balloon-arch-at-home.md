@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch at Home: Easy DIY Guide for Stunning Decor"
-description: "Want to wow your guests with a stunning decoration without spending a fortune? Making a balloon arch at home is easier than you think, and you don’t need specia"
+title: 'How to Make Balloon Arch at Home: Easy DIY Guide for Stunning Decor'
+description: Want to wow your guests with a stunning decoration without spending a
+  fortune? Making a balloon arch at home is easier than you think, and you don’t need
+  specia
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Want to wow your guests with a stunning decoration without spending a fortune? Making a balloon arch at home is easier than you think, and you don’t need special skills or expensive tools.**

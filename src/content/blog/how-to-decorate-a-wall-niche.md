@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall Niche: Stunning Ideas to Transform Your Space"
-description: "Have you ever looked at a wall niche in your home and wondered how to make it stand out? That empty space holds so much potential to add charm and personality t"
+title: 'How to Decorate a Wall Niche: Stunning Ideas to Transform Your Space'
+description: Have you ever looked at a wall niche in your home and wondered how to
+  make it stand out? That empty space holds so much potential to add charm and personality
+  t
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-niche&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-niche&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever looked at a wall niche in your home and wondered how to make it stand out? That empty space holds so much potential to add charm and personality to your room.**

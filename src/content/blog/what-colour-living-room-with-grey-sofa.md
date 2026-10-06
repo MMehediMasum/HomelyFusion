@@ -1,10 +1,14 @@
 ---
-title: "What Colour Living Room With Grey Sofa: Stunning Palette Ideas"
-description: "Choosing the right colour for your living room when you have a grey sofa can feel tricky. You want a space that looks stylish, feels cozy, and matches your pers"
+title: 'What Colour Living Room With Grey Sofa: Stunning Palette Ideas'
+description: Choosing the right colour for your living room when you have a grey sofa
+  can feel tricky. You want a space that looks stylish, feels cozy, and matches your
+  pers
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-living-room-with-grey-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-living-room-with-grey-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right colour for your living room when you have a grey sofa can feel tricky. You want a space that looks stylish, feels cozy, and matches your personality.**

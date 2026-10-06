@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Straight Line on Wall: Easy Tips for Perfect Edges"
-description: "Are you tired of uneven, crooked lines ruining your wall paint job? Painting a straight line on your wall might seem tricky, but with the right tips, you can do"
+title: 'How to Paint Straight Line on Wall: Easy Tips for Perfect Edges'
+description: Are you tired of uneven, crooked lines ruining your wall paint job? Painting
+  a straight line on your wall might seem tricky, but with the right tips, you can
+  do
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-straight-line-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-straight-line-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of uneven, crooked lines ruining your wall paint job? Painting a straight line on your wall might seem tricky, but with the right tips, you can do it like a pro.**

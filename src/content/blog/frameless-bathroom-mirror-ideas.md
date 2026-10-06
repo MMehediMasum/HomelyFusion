@@ -1,10 +1,14 @@
 ---
-title: "Frameless Bathroom Mirror Ideas: Stunning Designs to Transform Your Space"
-description: "Are you ready to transform your bathroom into a sleek, modern space? Frameless bathroom mirrors might be just what you need. They bring a clean, open feel that "
+title: 'Frameless Bathroom Mirror Ideas: Stunning Designs to Transform Your Space'
+description: 'Are you ready to transform your bathroom into a sleek, modern space?
+  Frameless bathroom mirrors might be just what you need. They bring a clean, open
+  feel that '
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frameless-bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=frameless-bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your bathroom into a sleek, modern space? Frameless bathroom mirrors might be just what you need.**

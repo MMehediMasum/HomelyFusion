@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Bathroom Light Fixture: Easy Step-by-Step Guide"
-description: "Are you ready to give your bathroom a quick and easy upgrade? Replacing your bathroom light fixture is one of the fastest ways to brighten up the space and add "
+title: 'How to Replace Bathroom Light Fixture: Easy Step-by-Step Guide'
+description: 'Are you ready to give your bathroom a quick and easy upgrade? Replacing
+  your bathroom light fixture is one of the fastest ways to brighten up the space
+  and add '
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-light-fixture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-light-fixture&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to give your bathroom a quick and easy upgrade? Replacing your bathroom light fixture is one of the fastest ways to brighten up the space and add a fresh look.**

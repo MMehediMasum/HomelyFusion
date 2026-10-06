@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Organizers: Top Storage Solutions for Kitchen and Bathroom Spaces"
-description: "Homegoods organizers help keep your space tidy and items easy to find. They fit in kitchens, bathrooms, closets, and more. Organizing your home can feel hard wi"
+title: 'Homegoods Organizers: Top Storage Solutions for Kitchen and Bathroom Spaces'
+description: Homegoods organizers help keep your space tidy and items easy to find.
+  They fit in kitchens, bathrooms, closets, and more. Organizing your home can feel
+  hard wi
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-organizers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-organizers&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegoods organizers help keep your space tidy and items easy to find. They fit in kitchens, bathrooms, closets, and more.**

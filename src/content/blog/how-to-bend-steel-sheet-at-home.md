@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Sheet at Home: Easy Steps for Perfect Bends"
 description: "Are you looking to bend steel sheet at home but don’t know where to start? Bending steel might seem like a job for big workshops, but with the right tips and to"
 pubDate: 2025-10-20

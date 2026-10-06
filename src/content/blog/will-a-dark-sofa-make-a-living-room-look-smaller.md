@@ -1,10 +1,14 @@
 ---
-title: "Will a Dark Sofa Make a Living Room Look Smaller? Expert Insights"
-description: "Are you wondering if a dark sofa will make your living room look smaller? It’s a common concern when choosing furniture. You want your space to feel cozy, not c"
+title: Will a Dark Sofa Make a Living Room Look Smaller? Expert Insights
+description: Are you wondering if a dark sofa will make your living room look smaller?
+  It’s a common concern when choosing furniture. You want your space to feel cozy,
+  not c
 pubDate: 2025-11-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-dark-sofa-make-a-living-room-look-smaller&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=will-a-dark-sofa-make-a-living-room-look-smaller&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a dark sofa will make your living room look smaller? It’s a common concern when choosing furniture.**

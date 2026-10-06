@@ -1,10 +1,14 @@
 ---
-title: "How to Sponge Paint a Wall: Easy Steps for Stunning Texture"
-description: "Are you looking to add a unique, textured look to your walls without spending a fortune? Sponge painting is a simple and creative way to transform any room quic"
+title: 'How to Sponge Paint a Wall: Easy Steps for Stunning Texture'
+description: Are you looking to add a unique, textured look to your walls without
+  spending a fortune? Sponge painting is a simple and creative way to transform any
+  room quic
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sponge-paint-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sponge-paint-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a unique, textured look to your walls without spending a fortune? Sponge painting is a simple and creative way to transform any room quickly.**

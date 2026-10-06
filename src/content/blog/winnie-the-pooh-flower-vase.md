@@ -1,10 +1,14 @@
 ---
-title: "Winnie the Pooh Flower Vase: Charming Decor for Every Disney Fan's Home"
-description: "The Winnie the Pooh Flower Vase brings charm and warmth to any space. It combines classic Disney design with practical use. This ceramic vase features the belov"
+title: 'Winnie the Pooh Flower Vase: Charming Decor for Every Disney Fan''s Home'
+description: The Winnie the Pooh Flower Vase brings charm and warmth to any space.
+  It combines classic Disney design with practical use. This ceramic vase features
+  the belov
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=winnie-the-pooh-flower-vase&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=winnie-the-pooh-flower-vase&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Winnie the Pooh Flower Vase brings charm and warmth to any space. It combines classic Disney design with practical use.**

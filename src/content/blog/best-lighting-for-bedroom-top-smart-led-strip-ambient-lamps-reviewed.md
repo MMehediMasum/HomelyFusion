@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Bedroom: Top Smart LED Strip & Ambient Lamps Reviewed"
-description: "Choosing the best lighting for your bedroom creates a cozy and relaxing space. Good lighting helps you sleep better and enjoy your room more. Bedroom lighting s"
+title: 'Best Lighting for Bedroom: Top Smart LED Strip & Ambient Lamps Reviewed'
+description: Choosing the best lighting for your bedroom creates a cozy and relaxing
+  space. Good lighting helps you sleep better and enjoy your room more. Bedroom lighting
+  s
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-bedroom-top-smart-led-strip-ambient-lamps-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-bedroom-top-smart-led-strip-ambient-lamps-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your bedroom creates a cozy and relaxing space. Good lighting helps you sleep better and enjoy your room more.**

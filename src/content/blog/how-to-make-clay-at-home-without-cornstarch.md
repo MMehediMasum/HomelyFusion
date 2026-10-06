@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Without Cornstarch: Easy DIY Guide"
 description: "Are you looking for a simple way to make clay at home but don’t have cornstarch on hand? You’re not alone. Many people want to create their own clay for crafts,"
 pubDate: 2026-02-06

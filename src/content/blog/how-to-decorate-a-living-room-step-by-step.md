@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Step by Step: Ultimate Guide"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and create memories. But decorating it can feel overwhelming. What colors should you"
+title: 'How to Decorate a Living Room Step by Step: Ultimate Guide'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and create memories. But decorating it can feel overwhelming. What colors should
+  you
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-step-by-step&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-step-by-step&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and create memories. But decorating it can feel overwhelming.**

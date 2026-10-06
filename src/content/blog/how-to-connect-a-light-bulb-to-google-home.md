@@ -1,10 +1,14 @@
 ---
-title: "How to Connect a Light Bulb to Google Home: Easy Smart Setup Guide"
-description: "Imagine controlling your home's lighting with just your voice. You can turn on your lights without getting up or even set the perfect mood for any occasion. If "
+title: 'How to Connect a Light Bulb to Google Home: Easy Smart Setup Guide'
+description: 'Imagine controlling your home''s lighting with just your voice. You
+  can turn on your lights without getting up or even set the perfect mood for any
+  occasion. If '
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-a-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-a-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home's lighting with just your voice. You can turn on your lights without getting up or even set the perfect mood for any occasion.**

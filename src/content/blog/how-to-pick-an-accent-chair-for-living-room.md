@@ -1,10 +1,14 @@
 ---
-title: "How to Pick an Accent Chair for Living Room: Expert Tips & Tricks"
-description: "Choosing the perfect accent chair for your living room can completely change the way your space feels. You want a chair that not only looks great but also fits "
+title: 'How to Pick an Accent Chair for Living Room: Expert Tips & Tricks'
+description: 'Choosing the perfect accent chair for your living room can completely
+  change the way your space feels. You want a chair that not only looks great but
+  also fits '
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pick-an-accent-chair-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pick-an-accent-chair-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect accent chair for your living room can completely change the way your space feels. You want a chair that not only looks great but also fits your style and comfort needs.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Balloon Arch Ideas: Stunning Designs to Wow Guests"
-description: "Looking to add a splash of color and fun to your Easter celebration? Imagine your guests’ smiles when they see a beautiful pastel balloon arch greeting them at "
+title: 'Easter Pastel Balloon Arch Ideas: Stunning Designs to Wow Guests'
+description: 'Looking to add a splash of color and fun to your Easter celebration?
+  Imagine your guests’ smiles when they see a beautiful pastel balloon arch greeting
+  them at '
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-balloon-arch-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-balloon-arch-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a splash of color and fun to your Easter celebration? Imagine your guests’ smiles when they see a beautiful pastel balloon arch greeting them at the door.**

@@ -1,10 +1,14 @@
 ---
-title: "Holiday Chocolate Peppermint Bark: Irresistible Festive Delight"
-description: "Are you ready to discover the perfect treat that will make your holidays sweeter and more festive? Holiday Chocolate Peppermint Bark is a simple, delicious snac"
+title: 'Holiday Chocolate Peppermint Bark: Irresistible Festive Delight'
+description: Are you ready to discover the perfect treat that will make your holidays
+  sweeter and more festive? Holiday Chocolate Peppermint Bark is a simple, delicious
+  snac
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-chocolate-peppermint-bark&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-chocolate-peppermint-bark&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to discover the perfect treat that will make your holidays sweeter and more festive? Holiday Chocolate Peppermint Bark is a simple, delicious snack that brings together rich chocolate and refreshing peppermint in every bite.**

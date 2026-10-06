@@ -1,10 +1,14 @@
 ---
-title: "How to Raise Height of Living Room Chair: Easy DIY Hacks"
-description: "Are your living room chairs feeling a bit too low and uncomfortable? You’re not alone. Many people struggle with chairs that don’t quite match their height need"
+title: 'How to Raise Height of Living Room Chair: Easy DIY Hacks'
+description: Are your living room chairs feeling a bit too low and uncomfortable?
+  You’re not alone. Many people struggle with chairs that don’t quite match their
+  height need
 pubDate: 2026-03-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-raise-height-of-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-raise-height-of-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are your living room chairs feeling a bit too low and uncomfortable? You’re not alone.**

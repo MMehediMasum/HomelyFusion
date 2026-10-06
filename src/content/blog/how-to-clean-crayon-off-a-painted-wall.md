@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Crayon off a Painted Wall: Easy and Effective Tips"
-description: "Have you ever looked at your painted wall and spotted colorful crayon marks ruining its smooth surface? It’s frustrating, especially when you want your home to "
+title: 'How to Clean Crayon off a Painted Wall: Easy and Effective Tips'
+description: 'Have you ever looked at your painted wall and spotted colorful crayon
+  marks ruining its smooth surface? It’s frustrating, especially when you want your
+  home to '
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-crayon-off-a-painted-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-crayon-off-a-painted-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever looked at your painted wall and spotted colorful crayon marks ruining its smooth surface? It’s frustrating, especially when you want your home to look neat and fresh.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Place Coffee Table in Living Room: Expert Tips for Style"
-description: "Are you wondering how to place your coffee table in the living room so it looks perfect and feels just right? The way you position this key piece can change the"
+title: 'How to Place Coffee Table in Living Room: Expert Tips for Style'
+description: Are you wondering how to place your coffee table in the living room so
+  it looks perfect and feels just right? The way you position this key piece can change
+  the
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-coffee-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-coffee-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to place your coffee table in the living room so it looks perfect and feels just right? The way you position this key piece can change the whole vibe of your space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Style Bookcase in Living Room: Stunning Ideas to Transform Space"
-description: "Your living room bookcase isn’t just a place to store books—it’s a chance to showcase your style and personality. But how do you turn a simple shelf into a stun"
+title: 'How to Style Bookcase in Living Room: Stunning Ideas to Transform Space'
+description: Your living room bookcase isn’t just a place to store books—it’s a chance
+  to showcase your style and personality. But how do you turn a simple shelf into
+  a stun
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-bookcase-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-bookcase-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room bookcase isn’t just a place to store books—it’s a chance to showcase your style and personality. But how do you turn a simple shelf into a stunning focal point that draws everyone’s attention?**

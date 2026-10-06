@@ -1,10 +1,14 @@
 ---
-title: "How Big Sofa for Living Room: Ultimate Guide to Perfect Comfort"
-description: "Are you thinking about adding a big sofa to your living room but unsure where to start? Choosing the right size and style can completely change how your space f"
+title: 'How Big Sofa for Living Room: Ultimate Guide to Perfect Comfort'
+description: Are you thinking about adding a big sofa to your living room but unsure
+  where to start? Choosing the right size and style can completely change how your
+  space f
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-sofa-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-big-sofa-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a big sofa to your living room but unsure where to start? Choosing the right size and style can completely change how your space feels and functions.**

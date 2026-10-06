@@ -1,10 +1,14 @@
 ---
-title: "Do You Need a Coffee Table in Your Living Room? Must-Know Benefits!"
-description: "Have you ever walked into your living room and wondered if something’s missing? That’s where a coffee table might just be the game-changer you need. It’s more t"
+title: Do You Need a Coffee Table in Your Living Room? Must-Know Benefits!
+description: Have you ever walked into your living room and wondered if something’s
+  missing? That’s where a coffee table might just be the game-changer you need. It’s
+  more t
 pubDate: 2026-04-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-a-coffee-table-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-a-coffee-table-in-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into your living room and wondered if something’s missing? That’s where a coffee table might just be the game-changer you need.**

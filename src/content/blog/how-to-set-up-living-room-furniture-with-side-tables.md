@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Living Room Furniture With Side Tables: Expert Tips"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and create memories. Setting up your furniture with side tables can transform this a"
+title: 'How to Set Up Living Room Furniture With Side Tables: Expert Tips'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and create memories. Setting up your furniture with side tables can transform this
+  a
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-living-room-furniture-with-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-living-room-furniture-with-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and create memories. Setting up your furniture with side tables can transform this area into a cozy and functional haven.**

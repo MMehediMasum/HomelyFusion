@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay at Home for Pottery With Flour: Easy DIY Guide"
-description: "Have you ever wanted to try pottery but didn’t have the right materials? What if you could make your own clay at home using simple ingredients you already have?"
+title: 'How to Make Clay at Home for Pottery With Flour: Easy DIY Guide'
+description: Have you ever wanted to try pottery but didn’t have the right materials?
+  What if you could make your own clay at home using simple ingredients you already
+  have?
 pubDate: 2026-02-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-at-home-for-pottery-with-flour&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-at-home-for-pottery-with-flour&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to try pottery but didn’t have the right materials? What if you could make your own clay at home using simple ingredients you already have?**

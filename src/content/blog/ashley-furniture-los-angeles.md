@@ -1,10 +1,13 @@
 ---
-title: "Ashley Furniture Los Angeles: Stylish Sofas and Smart Side Tables for Home"
-description: "Ashley Furniture in Los Angeles offers a wide range of stylish and functional home furnishings. These pieces fit well in any living space and bring comfort and "
+title: 'Ashley Furniture Los Angeles: Stylish Sofas and Smart Side Tables for Home'
+description: 'Ashley Furniture in Los Angeles offers a wide range of stylish and functional
+  home furnishings. These pieces fit well in any living space and bring comfort and '
 pubDate: 2026-06-05
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-los-angeles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-los-angeles&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ashley Furniture in Los Angeles offers a wide range of stylish and functional home furnishings. These pieces fit well in any living space and bring comfort and convenience.**

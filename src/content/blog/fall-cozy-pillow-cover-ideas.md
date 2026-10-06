@@ -1,10 +1,14 @@
 ---
-title: "Fall Cozy Pillow Cover Ideas: Transform Your Home This Season"
-description: "As the air turns crisp and leaves start to fall, your home is ready for a cozy makeover. You might be wondering how a simple change can bring warmth and style t"
+title: 'Fall Cozy Pillow Cover Ideas: Transform Your Home This Season'
+description: As the air turns crisp and leaves start to fall, your home is ready for
+  a cozy makeover. You might be wondering how a simple change can bring warmth and
+  style t
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cozy-pillow-cover-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-cozy-pillow-cover-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **As the air turns crisp and leaves start to fall, your home is ready for a cozy makeover. You might be wondering how a simple change can bring warmth and style to your space.**

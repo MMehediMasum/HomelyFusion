@@ -1,10 +1,14 @@
 ---
-title: "How to Dress French Doors in Bedroom: Stylish & Practical Ideas"
-description: "Are you wondering how to dress your French doors in the bedroom to make the space both stylish and private? Choosing the right window treatments can transform y"
+title: 'How to Dress French Doors in Bedroom: Stylish & Practical Ideas'
+description: Are you wondering how to dress your French doors in the bedroom to make
+  the space both stylish and private? Choosing the right window treatments can transform
+  y
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-french-doors-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-french-doors-in-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you wondering how to dress your French doors in the bedroom to make the space both stylish and private? Choosing the right window treatments can transform your room, adding warmth, charm, and functionality.**

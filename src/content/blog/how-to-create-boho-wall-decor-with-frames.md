@@ -1,10 +1,13 @@
 ---
-title: "How to Create Boho Wall Decor With Frames: Stunning DIY Ideas"
-description: "Are you looking to add a unique, cozy touch to your space without spending a fortune? Creating boho wall decor with frames is an easy and creative way to transf"
+title: 'How to Create Boho Wall Decor With Frames: Stunning DIY Ideas'
+description: Are you looking to add a unique, cozy touch to your space without spending
+  a fortune? Creating boho wall decor with frames is an easy and creative way to transf
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-boho-wall-decor-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-boho-wall-decor-with-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a unique, cozy touch to your space without spending a fortune? Creating boho wall decor with frames is an easy and creative way to transform your walls into a personal art gallery.**

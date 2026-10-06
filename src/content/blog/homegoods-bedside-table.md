@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Bedside Table Ideas: Stylish Storage and Charging Solutions"
-description: "A bedside table is more than just a place for your lamp. It's a functional and stylish addition to your bedroom. The right bedside table can enhance your space "
+title: 'Homegoods Bedside Table Ideas: Stylish Storage and Charging Solutions'
+description: 'A bedside table is more than just a place for your lamp. It''s a functional
+  and stylish addition to your bedroom. The right bedside table can enhance your space '
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bedside-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bedside-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A bedside table is more than just a place for your lamp. It's a functional and stylish addition to your bedroom.**

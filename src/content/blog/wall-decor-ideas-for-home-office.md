@@ -1,10 +1,15 @@
 ---
-title: "Wall Decor Ideas for Home Office: Stylish Rustic Shelves and Motivational Art"
-description: "Creating a cozy and inspiring home office starts with the right wall decor. Simple touches can brighten your space and boost your mood. Walls often look plain i"
+title: 'Wall Decor Ideas for Home Office: Stylish Rustic Shelves and Motivational
+  Art'
+description: Creating a cozy and inspiring home office starts with the right wall
+  decor. Simple touches can brighten your space and boost your mood. Walls often look
+  plain i
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-ideas-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-ideas-for-home-office&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating a cozy and inspiring home office starts with the right wall decor. Simple touches can brighten your space and boost your mood.**

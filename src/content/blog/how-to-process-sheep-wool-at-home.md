@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Process Sheep Wool at Home: Easy Steps for Beginners"
 description: "Have you ever wondered how to turn raw sheep wool into soft, beautiful yarn right in your own home? Processing wool might seem tricky at first, but with the rig"
 pubDate: 2026-02-08

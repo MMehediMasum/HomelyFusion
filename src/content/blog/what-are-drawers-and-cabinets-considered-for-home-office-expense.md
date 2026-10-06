@@ -1,10 +1,15 @@
 ---
-title: "What are Drawers And Cabinets Considered for Home Office Expense: Ultimate Guide"
-description: "Are you wondering if the drawers and cabinets you buy for your home office count as a business expense? Knowing the answer can save you money and help you manag"
+title: 'What are Drawers And Cabinets Considered for Home Office Expense: Ultimate
+  Guide'
+description: Are you wondering if the drawers and cabinets you buy for your home office
+  count as a business expense? Knowing the answer can save you money and help you
+  manag
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-drawers-and-cabinets-considered-for-home-office-expense&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-are-drawers-and-cabinets-considered-for-home-office-expense&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if the drawers and cabinets you buy for your home office count as a business expense? Knowing the answer can save you money and help you manage your taxes better.**

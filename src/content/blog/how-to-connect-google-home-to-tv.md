@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Google Home to Tv: Easy Steps for Seamless Setup"
 description: "Are you tired of fumbling with your TV remote every time you want to watch your favorite show? Imagine controlling your TV with just your voice—no more searchin"
 pubDate: 2026-04-26

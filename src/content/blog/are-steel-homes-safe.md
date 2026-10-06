@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Steel Homes Safe? Unveiling Truths & Expert Insights"
 description: "Are you thinking about building a home and wondering if steel is a safe choice? You’re not alone. Many people ask, “Are steel homes safe? ” It’s a smart questio"
 pubDate: 2026-04-07

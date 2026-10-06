@@ -1,10 +1,14 @@
 ---
-title: "What Color to Paint Bedroom Dresser: Stunning Ideas for Every Style"
-description: "Choosing the right color to paint your bedroom dresser can completely change the mood of your space. You want a color that feels just right—something that match"
+title: 'What Color to Paint Bedroom Dresser: Stunning Ideas for Every Style'
+description: Choosing the right color to paint your bedroom dresser can completely
+  change the mood of your space. You want a color that feels just right—something
+  that match
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right color to paint your bedroom dresser can completely change the mood of your space. You want a color that feels just right—something that matches your style and makes your room feel cozy and inviting.**

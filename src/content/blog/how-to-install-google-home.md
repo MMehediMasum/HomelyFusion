@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home: Easy Steps for Quick Setup Guide"
 description: "Are you ready to make your home smarter with just a few simple steps? Installing Google Home is easier than you might think, and once set up, it can help you co"
 pubDate: 2025-11-03

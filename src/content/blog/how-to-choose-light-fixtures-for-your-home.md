@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Light Fixtures for Your Home: Expert Tips Revealed"
-description: "Choosing the right light fixtures for your home can completely change how your space looks and feels. The perfect lighting not only brightens your rooms but als"
+title: 'How to Choose Light Fixtures for Your Home: Expert Tips Revealed'
+description: Choosing the right light fixtures for your home can completely change
+  how your space looks and feels. The perfect lighting not only brightens your rooms
+  but als
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-light-fixtures-for-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-light-fixtures-for-your-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right light fixtures for your home can completely change how your space looks and feels. The perfect lighting not only brightens your rooms but also sets the mood and highlights your style.**

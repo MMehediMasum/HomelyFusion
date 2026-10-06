@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Tables: Top Picks for Stylish Outdoor Living Spaces"
-description: "Patio tables add comfort and style to any outdoor space. They create a perfect spot for dining, relaxing, or socializing. Choosing the right patio table can imp"
+title: 'Home Goods Patio Tables: Top Picks for Stylish Outdoor Living Spaces'
+description: Patio tables add comfort and style to any outdoor space. They create
+  a perfect spot for dining, relaxing, or socializing. Choosing the right patio table
+  can imp
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Patio tables add comfort and style to any outdoor space. They create a perfect spot for dining, relaxing, or socializing.**

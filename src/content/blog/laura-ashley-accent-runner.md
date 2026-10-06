@@ -1,10 +1,14 @@
 ---
-title: "Laura Ashley Accent Runner: Elegant, Slip-Resistant Rugs for Stylish Spaces"
-description: "The Laura Ashley Accent Runner adds charm and comfort to any room. Its stylish design fits well in many home spaces. This runner comes in various patterns like "
+title: 'Laura Ashley Accent Runner: Elegant, Slip-Resistant Rugs for Stylish Spaces'
+description: 'The Laura Ashley Accent Runner adds charm and comfort to any room. Its
+  stylish design fits well in many home spaces. This runner comes in various patterns
+  like '
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=laura-ashley-accent-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=laura-ashley-accent-runner&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Laura Ashley Accent Runner adds charm and comfort to any room. Its stylish design fits well in many home spaces.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Philips Smart Bulb to Google Home: Quick & Easy Guide"
-description: "Imagine controlling your Philips Smart Bulb with just your voice. Sounds simple, right? But if you’re unsure how to link your smart bulb to Google Home, it can "
+title: 'How to Connect Philips Smart Bulb to Google Home: Quick & Easy Guide'
+description: 'Imagine controlling your Philips Smart Bulb with just your voice. Sounds
+  simple, right? But if you’re unsure how to link your smart bulb to Google Home,
+  it can '
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-philips-smart-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-philips-smart-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your Philips Smart Bulb with just your voice. Sounds simple, right?**

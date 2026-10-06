@@ -1,10 +1,14 @@
 ---
-title: "Vases And Home Decor: Stylish Ceramic Sets to Elevate Your Space"
-description: "Vases add charm and character to any living space. They serve as versatile elements in home decor. Vases come in various styles, shapes, and materials, making t"
+title: 'Vases And Home Decor: Stylish Ceramic Sets to Elevate Your Space'
+description: Vases add charm and character to any living space. They serve as versatile
+  elements in home decor. Vases come in various styles, shapes, and materials, making
+  t
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vases-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=vases-and-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Vases add charm and character to any living space. They serve as versatile elements in home decor.**

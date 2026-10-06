@@ -1,10 +1,14 @@
 ---
-title: "How to Grow Onion Bulbs at Home: Easy Steps for Thriving Harvests"
-description: "Are you ready to add fresh, flavorful onions to your meals without leaving your home? Growing onion bulbs at home is easier than you might think, and it can sav"
+title: 'How to Grow Onion Bulbs at Home: Easy Steps for Thriving Harvests'
+description: Are you ready to add fresh, flavorful onions to your meals without leaving
+  your home? Growing onion bulbs at home is easier than you might think, and it can
+  sav
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-grow-onion-bulbs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-grow-onion-bulbs-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to add fresh, flavorful onions to your meals without leaving your home? Growing onion bulbs at home is easier than you might think, and it can save you money while giving you a satisfying gardening experience.**

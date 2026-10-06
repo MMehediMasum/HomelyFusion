@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Candles: Creative Ideas to Transform Your Space"
-description: "Are you looking to add a personal touch to your home or create unique gifts? Decorating candles is a simple and fun way to do just that. With just a few materia"
+title: 'How to Decorate Candles: Creative Ideas to Transform Your Space'
+description: Are you looking to add a personal touch to your home or create unique
+  gifts? Decorating candles is a simple and fun way to do just that. With just a few
+  materia
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to add a personal touch to your home or create unique gifts? Decorating candles is a simple and fun way to do just that.**

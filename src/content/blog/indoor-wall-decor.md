@@ -1,10 +1,14 @@
 ---
-title: "Indoor Wall Decor Ideas: Transform Your Space with Boho and Rustic Accents"
-description: "Indoor wall decor adds personality and warmth to any room. It transforms plain walls into stylish, inviting spaces. Choosing the right wall decor can refresh yo"
+title: 'Indoor Wall Decor Ideas: Transform Your Space with Boho and Rustic Accents'
+description: Indoor wall decor adds personality and warmth to any room. It transforms
+  plain walls into stylish, inviting spaces. Choosing the right wall decor can refresh
+  yo
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=indoor-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Indoor wall decor adds personality and warmth to any room. It transforms plain walls into stylish, inviting spaces.**

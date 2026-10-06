@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A Honeywell Home Thermostat: Ultimate Comfort & Energy Savings"
 description: "Are you looking for a smart way to control your home's temperature without hassle? A Honeywell Home Thermostat could be exactly what you need. Imagine saving mo"
 pubDate: 2025-11-16

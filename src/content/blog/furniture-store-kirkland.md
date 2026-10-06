@@ -1,10 +1,14 @@
 ---
-title: "Furniture Store Kirkland: Top Stylish Beds and Décor for Your Home"
-description: "Discover quality and style at the Furniture Store Kirkland. Offering diverse pieces for every room, it caters to all tastes. Whether you're searching for a Hill"
+title: 'Furniture Store Kirkland: Top Stylish Beds and Décor for Your Home'
+description: Discover quality and style at the Furniture Store Kirkland. Offering
+  diverse pieces for every room, it caters to all tastes. Whether you're searching
+  for a Hill
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-store-kirkland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=furniture-store-kirkland&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover quality and style at the Furniture Store Kirkland. Offering diverse pieces for every room, it caters to all tastes.**

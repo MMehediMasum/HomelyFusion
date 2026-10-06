@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Add Nest Thermostat to Apple Home: Easy Smart Setup Guide"
 description: "Are you wondering if you can add your Nest Thermostat to Apple Home? You’re not alone. Many people want to control their smart home devices seamlessly from one "
 pubDate: 2026-04-08

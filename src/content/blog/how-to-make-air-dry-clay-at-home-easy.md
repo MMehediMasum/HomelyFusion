@@ -1,10 +1,13 @@
 ---
-title: "How to Make Air Dry Clay at Home Easy: Simple Steps for Crafting Fun"
-description: "Are you ready to create beautiful crafts without spending a lot of money? Making air dry clay at home is easier than you think. With just a few simple ingredien"
+title: 'How to Make Air Dry Clay at Home Easy: Simple Steps for Crafting Fun'
+description: Are you ready to create beautiful crafts without spending a lot of money?
+  Making air dry clay at home is easier than you think. With just a few simple ingredien
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-easy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-easy&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to create beautiful crafts without spending a lot of money? Making air dry clay at home is easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Christmas Blankets: Cozy, Stylish Throws for Holiday Comfort"
-description: "Christmas blankets bring warmth and festive cheer to any home. They are perfect for cozying up during the holidays. A wide selection of Christmas blankets is av"
+title: 'Home Goods Christmas Blankets: Cozy, Stylish Throws for Holiday Comfort'
+description: Christmas blankets bring warmth and festive cheer to any home. They are
+  perfect for cozying up during the holidays. A wide selection of Christmas blankets
+  is av
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-blankets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-blankets&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas blankets bring warmth and festive cheer to any home. They are perfect for cozying up during the holidays.**

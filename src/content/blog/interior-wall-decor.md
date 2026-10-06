@@ -1,10 +1,14 @@
 ---
-title: "Interior Wall Decor Ideas: Stylish Scandinavian Mirrors and Faux Greenery"
-description: "Interior wall decor adds style and personality to any room. It transforms plain walls into eye-catching features. Choosing the right wall decor helps create a w"
+title: 'Interior Wall Decor Ideas: Stylish Scandinavian Mirrors and Faux Greenery'
+description: Interior wall decor adds style and personality to any room. It transforms
+  plain walls into eye-catching features. Choosing the right wall decor helps create
+  a w
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=interior-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=interior-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Interior wall decor adds style and personality to any room. It transforms plain walls into eye-catching features.**

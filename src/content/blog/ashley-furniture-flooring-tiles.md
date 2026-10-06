@@ -1,10 +1,14 @@
 ---
-title: "Ashley Furniture Flooring Tiles: Durable, Stylish Solutions for Every Room"
-description: "Ashley Furniture offers a diverse range of flooring tiles that combine style and functionality. Perfect for any room, these tiles cater to various preferences a"
+title: 'Ashley Furniture Flooring Tiles: Durable, Stylish Solutions for Every Room'
+description: Ashley Furniture offers a diverse range of flooring tiles that combine
+  style and functionality. Perfect for any room, these tiles cater to various preferences
+  a
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashley-furniture-flooring-tiles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=ashley-furniture-flooring-tiles&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Ashley Furniture offers a diverse range of flooring tiles that combine style and functionality. Perfect for any room, these tiles cater to various preferences and needs.**

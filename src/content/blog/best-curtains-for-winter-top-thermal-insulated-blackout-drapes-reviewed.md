@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Winter: Top Thermal Insulated Blackout Drapes Reviewed"
-description: "Winter calls for warm, cozy homes. Choosing the best curtains can keep your rooms warmer and save energy. Thick, insulated curtains block cold air and reduce he"
+title: 'Best Curtains for Winter: Top Thermal Insulated Blackout Drapes Reviewed'
+description: Winter calls for warm, cozy homes. Choosing the best curtains can keep
+  your rooms warmer and save energy. Thick, insulated curtains block cold air and
+  reduce he
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-winter-top-thermal-insulated-blackout-drapes-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-winter-top-thermal-insulated-blackout-drapes-reviewed&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Winter calls for warm, cozy homes. Choosing the best curtains can keep your rooms warmer and save energy.**

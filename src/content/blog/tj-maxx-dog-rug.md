@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Dog Rug: Ultimate Muddy Paws Absorbent Non-Slip Mat Guide"
-description: "Tj Maxx offers a variety of dog rugs perfect for muddy paws and messy floors. These rugs are designed for both indoor and outdoor use, providing a clean and wel"
+title: 'Tj Maxx Dog Rug: Ultimate Muddy Paws Absorbent Non-Slip Mat Guide'
+description: Tj Maxx offers a variety of dog rugs perfect for muddy paws and messy
+  floors. These rugs are designed for both indoor and outdoor use, providing a clean
+  and wel
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-dog-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-dog-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx offers a variety of dog rugs perfect for muddy paws and messy floors. These rugs are designed for both indoor and outdoor use, providing a clean and welcoming entryway.**

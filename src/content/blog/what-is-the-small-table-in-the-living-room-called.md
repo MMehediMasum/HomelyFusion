@@ -1,10 +1,14 @@
 ---
-title: "What is the Small Table in the Living Room Called: Ultimate Guide"
-description: "Have you ever wondered what that small table in your living room is called? You see it right in front of your sofa, holding your coffee cup, remote controls, or"
+title: 'What is the Small Table in the Living Room Called: Ultimate Guide'
+description: Have you ever wondered what that small table in your living room is called?
+  You see it right in front of your sofa, holding your coffee cup, remote controls,
+  or
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-small-table-in-the-living-room-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-small-table-in-the-living-room-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what that small table in your living room is called? You see it right in front of your sofa, holding your coffee cup, remote controls, or a stack of magazines.**

@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor for Home Theater: Stylish Movie-Themed Art to Elevate Space"
-description: "Creating the perfect home theater requires more than just a big screen and sound system. Wall decor adds style and enhances the movie-watching experience. Decor"
+title: 'Wall Decor for Home Theater: Stylish Movie-Themed Art to Elevate Space'
+description: Creating the perfect home theater requires more than just a big screen
+  and sound system. Wall decor adds style and enhances the movie-watching experience.
+  Decor
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-for-home-theater&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-for-home-theater&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating the perfect home theater requires more than just a big screen and sound system. Wall decor adds style and enhances the movie-watching experience.**

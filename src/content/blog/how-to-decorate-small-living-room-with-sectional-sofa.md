@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Living Room With Sectional Sofa: Expert Tips"
-description: "Struggling to make your small living room feel cozy and stylish? You might think a sectional sofa is too big or bulky for your space. But what if you could turn"
+title: 'How to Decorate Small Living Room With Sectional Sofa: Expert Tips'
+description: Struggling to make your small living room feel cozy and stylish? You
+  might think a sectional sofa is too big or bulky for your space. But what if you
+  could turn
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-sectional-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-living-room-with-sectional-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to make your small living room feel cozy and stylish? You might think a sectional sofa is too big or bulky for your space.**

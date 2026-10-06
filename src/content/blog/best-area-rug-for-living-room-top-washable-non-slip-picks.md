@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rug for Living Room: Top Washable, Non-Slip Picks"
-description: "Choosing the best area rug can transform your living room’s look and feel. The right rug adds comfort, style, and warmth instantly. Area rugs come in many sizes"
+title: 'Best Area Rug for Living Room: Top Washable, Non-Slip Picks'
+description: Choosing the best area rug can transform your living room’s look and
+  feel. The right rug adds comfort, style, and warmth instantly. Area rugs come in
+  many sizes
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rug-for-living-room-top-washable-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rug-for-living-room-top-washable-non-slip-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug can transform your living room’s look and feel. The right rug adds comfort, style, and warmth instantly.**

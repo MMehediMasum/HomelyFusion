@@ -1,10 +1,14 @@
 ---
-title: "How Much Room Should Bed Take Up in Bedroom: Perfect Space Guide"
-description: "How much space should your bed take up in your bedroom? It’s a question that can make a big difference in how comfortable and functional your room feels. You wa"
+title: 'How Much Room Should Bed Take Up in Bedroom: Perfect Space Guide'
+description: How much space should your bed take up in your bedroom? It’s a question
+  that can make a big difference in how comfortable and functional your room feels.
+  You wa
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-room-should-bed-take-up-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-much-room-should-bed-take-up-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **How much space should your bed take up in your bedroom? It’s a question that can make a big difference in how comfortable and functional your room feels.**

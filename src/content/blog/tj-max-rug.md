@@ -1,10 +1,14 @@
 ---
-title: "Tj Max Rug: Ultimate Carpet Kit for Jeep Wrangler TJ Interior Upgrade"
-description: "Discover the perfect rug for your Jeep Wrangler TJ with our detailed guide. Transform your vehicle's interior effortlessly. Rug kits for Jeep Wrangler TJs offer"
+title: 'Tj Max Rug: Ultimate Carpet Kit for Jeep Wrangler TJ Interior Upgrade'
+description: Discover the perfect rug for your Jeep Wrangler TJ with our detailed
+  guide. Transform your vehicle's interior effortlessly. Rug kits for Jeep Wrangler
+  TJs offer
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-max-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=tj-max-rug&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the perfect rug for your Jeep Wrangler TJ with our detailed guide. Transform your vehicle's interior effortlessly.**

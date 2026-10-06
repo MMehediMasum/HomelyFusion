@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Bathroom Cabinets: Stylish Storage Solutions for Every Space"
-description: "Bathroom cabinets offer essential storage and organization for your home. They help keep your space tidy and efficient. Choosing the right bathroom cabinet can "
+title: 'Home Goods Bathroom Cabinets: Stylish Storage Solutions for Every Space'
+description: 'Bathroom cabinets offer essential storage and organization for your
+  home. They help keep your space tidy and efficient. Choosing the right bathroom
+  cabinet can '
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-bathroom-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-bathroom-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Bathroom cabinets offer essential storage and organization for your home. They help keep your space tidy and efficient.**

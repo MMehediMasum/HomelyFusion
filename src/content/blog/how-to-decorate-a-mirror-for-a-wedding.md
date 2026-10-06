@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Mirror for a Wedding: Stunning Ideas & Tips"
-description: "Your wedding day is all about creating magical moments, and the smallest details can make the biggest impact. One simple way to add charm and personality to you"
+title: 'How to Decorate a Mirror for a Wedding: Stunning Ideas & Tips'
+description: Your wedding day is all about creating magical moments, and the smallest
+  details can make the biggest impact. One simple way to add charm and personality
+  to you
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror-for-a-wedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror-for-a-wedding&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your wedding day is all about creating magical moments, and the smallest details can make the biggest impact. One simple way to add charm and personality to your celebration is by decorating a mirror.**

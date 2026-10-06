@@ -1,10 +1,14 @@
 ---
-title: "Luxury Home Wall Decor: Stunning Gold and Modern Wall Art Ideas"
-description: "Luxury home wall decor transforms plain walls into stunning focal points. Elegant pieces add style and warmth to any room instantly. Choosing the right wall dec"
+title: 'Luxury Home Wall Decor: Stunning Gold and Modern Wall Art Ideas'
+description: Luxury home wall decor transforms plain walls into stunning focal points.
+  Elegant pieces add style and warmth to any room instantly. Choosing the right wall
+  dec
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=luxury-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=luxury-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Luxury home wall decor transforms plain walls into stunning focal points. Elegant pieces add style and warmth to any room instantly.**

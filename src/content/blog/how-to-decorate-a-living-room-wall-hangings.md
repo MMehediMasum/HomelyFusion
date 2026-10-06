@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Wall Hangings: Stunning Ideas That Inspire"
-description: "Are you looking to transform your living room into a space that truly feels like home? One of the easiest and most impactful ways to do this is by decorating yo"
+title: 'How to Decorate a Living Room Wall Hangings: Stunning Ideas That Inspire'
+description: Are you looking to transform your living room into a space that truly
+  feels like home? One of the easiest and most impactful ways to do this is by decorating
+  yo
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall-hangings&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-wall-hangings&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your living room into a space that truly feels like home? One of the easiest and most impactful ways to do this is by decorating your walls with the right hangings.**

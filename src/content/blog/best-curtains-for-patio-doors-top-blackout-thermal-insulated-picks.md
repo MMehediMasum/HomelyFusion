@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Patio Doors: Top Blackout & Thermal Insulated Picks"
-description: "Choosing the best curtains for patio doors enhances privacy, controls light, and boosts home style. Patio door curtains need to fit well and block sunlight effe"
+title: 'Best Curtains for Patio Doors: Top Blackout & Thermal Insulated Picks'
+description: Choosing the best curtains for patio doors enhances privacy, controls
+  light, and boosts home style. Patio door curtains need to fit well and block sunlight
+  effe
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-patio-doors-top-blackout-thermal-insulated-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-patio-doors-top-blackout-thermal-insulated-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for patio doors enhances privacy, controls light, and boosts home style. Patio door curtains need to fit well and block sunlight effectively.**

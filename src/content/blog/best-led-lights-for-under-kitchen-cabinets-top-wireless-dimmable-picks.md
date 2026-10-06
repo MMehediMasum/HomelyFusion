@@ -1,10 +1,14 @@
 ---
-title: "Best LED Lights for Under Kitchen Cabinets: Top Wireless & Dimmable Picks"
-description: "Choosing the best LED lights for under kitchen cabinets improves both style and function. Bright, energy-saving lights make cooking safer and easier. Under cabi"
+title: 'Best LED Lights for Under Kitchen Cabinets: Top Wireless & Dimmable Picks'
+description: Choosing the best LED lights for under kitchen cabinets improves both
+  style and function. Bright, energy-saving lights make cooking safer and easier.
+  Under cabi
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-led-lights-for-under-kitchen-cabinets-top-wireless-dimmable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-led-lights-for-under-kitchen-cabinets-top-wireless-dimmable-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best LED lights for under kitchen cabinets improves both style and function. Bright, energy-saving lights make cooking safer and easier.**

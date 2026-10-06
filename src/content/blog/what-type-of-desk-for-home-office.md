@@ -1,10 +1,14 @@
 ---
-title: "What Type of Desk for Home Office: Ultimate Guide to Boost Productivity"
-description: "Choosing the right desk for your home office can make a huge difference in how productive and comfortable you feel every day. You want a desk that fits your spa"
+title: 'What Type of Desk for Home Office: Ultimate Guide to Boost Productivity'
+description: Choosing the right desk for your home office can make a huge difference
+  in how productive and comfortable you feel every day. You want a desk that fits
+  your spa
 pubDate: 2025-08-30
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-type-of-desk-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=what-type-of-desk-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right desk for your home office can make a huge difference in how productive and comfortable you feel every day. You want a desk that fits your space, supports your work style, and keeps you organized without adding clutter.**

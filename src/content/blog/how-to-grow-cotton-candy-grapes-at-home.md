@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Grow Cotton Candy Grapes at Home: Easy Steps for Sweet Success"
 description: "Imagine biting into a juicy grape that tastes just like sweet cotton candy. Sounds amazing, right? What if you could grow these delicious Cotton Candy grapes ri"
 pubDate: 2026-03-16

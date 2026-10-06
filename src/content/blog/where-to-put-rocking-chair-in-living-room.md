@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Rocking Chair in Living Room: Ultimate Placement Guide"
-description: "Are you wondering where to put your rocking chair in the living room to make the most of it? Finding the perfect spot can change the whole vibe of your space. I"
+title: 'Where to Put Rocking Chair in Living Room: Ultimate Placement Guide'
+description: Are you wondering where to put your rocking chair in the living room
+  to make the most of it? Finding the perfect spot can change the whole vibe of your
+  space. I
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-rocking-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-rocking-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to put your rocking chair in the living room to make the most of it? Finding the perfect spot can change the whole vibe of your space.**

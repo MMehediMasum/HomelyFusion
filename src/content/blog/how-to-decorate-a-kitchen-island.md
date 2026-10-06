@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen Island: Stunning Ideas for Every Style"
-description: "Your kitchen island is more than just a countertop—it’s the heart of your kitchen. But how do you turn this space into something that’s both stylish and practic"
+title: 'How to Decorate a Kitchen Island: Stunning Ideas for Every Style'
+description: Your kitchen island is more than just a countertop—it’s the heart of
+  your kitchen. But how do you turn this space into something that’s both stylish
+  and practic
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-island&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-island&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen island is more than just a countertop—it’s the heart of your kitchen. But how do you turn this space into something that’s both stylish and practical?**

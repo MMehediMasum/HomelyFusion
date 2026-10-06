@@ -1,10 +1,14 @@
 ---
-title: "How to Make Lantern at Home for Diwali: Easy & Stunning DIY Ideas"
-description: "Diwali is just around the corner, and nothing brightens your home like beautiful, glowing lanterns. Imagine creating your own vibrant lantern right at home—simp"
+title: 'How to Make Lantern at Home for Diwali: Easy & Stunning DIY Ideas'
+description: Diwali is just around the corner, and nothing brightens your home like
+  beautiful, glowing lanterns. Imagine creating your own vibrant lantern right at
+  home—simp
 pubDate: 2025-10-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lantern-at-home-for-diwali&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lantern-at-home-for-diwali&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Diwali is just around the corner, and nothing brightens your home like beautiful, glowing lanterns. Imagine creating your own vibrant lantern right at home—simple, fun, and perfect for adding a personal touch to your celebrations.**

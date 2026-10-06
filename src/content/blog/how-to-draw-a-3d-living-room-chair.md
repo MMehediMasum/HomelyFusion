@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw a 3D Living Room Chair: Step-by-Step Guide"
 description: "Imagine creating a chair that doesn’t just sit flat on the page but seems to jump right out at you. Drawing a 3D living room chair is easier than you think—and "
 pubDate: 2026-04-07

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Heating Oil Prices Going Up: What You Must Know Now"
 description: "Are you worried about your home heating oil costs this season? You’re not alone. Many homeowners are asking the same question: Are home heating oil prices going"
 pubDate: 2025-08-30

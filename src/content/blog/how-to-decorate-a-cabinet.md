@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Cabinet: Stunning Ideas to Transform Your Space"
-description: "Are you looking to transform your cabinet from plain to stunning without spending a fortune? Decorating your cabinet can completely change the look and feel of "
+title: 'How to Decorate a Cabinet: Stunning Ideas to Transform Your Space'
+description: 'Are you looking to transform your cabinet from plain to stunning without
+  spending a fortune? Decorating your cabinet can completely change the look and feel
+  of '
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to transform your cabinet from plain to stunning without spending a fortune? Decorating your cabinet can completely change the look and feel of your room, making it more inviting and stylish.**

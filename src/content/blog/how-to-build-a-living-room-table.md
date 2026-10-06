@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Living Room Table: Easy Steps for Stunning Results"
-description: "Your living room is the heart of your home, and the right table can make it truly special. Imagine having a unique living room table that fits your style perfec"
+title: 'How to Build a Living Room Table: Easy Steps for Stunning Results'
+description: Your living room is the heart of your home, and the right table can make
+  it truly special. Imagine having a unique living room table that fits your style
+  perfec
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and the right table can make it truly special. Imagine having a unique living room table that fits your style perfectly—one you built yourself.**

@@ -1,10 +1,14 @@
 ---
-title: "Mikasa Christmas Ornaments: Elegant Holiday Decor for Your Tree"
-description: "Mikasa Christmas ornaments bring timeless charm to holiday decorations. Their designs blend tradition and elegance in every piece. Mikasa offers a variety of Ch"
+title: 'Mikasa Christmas Ornaments: Elegant Holiday Decor for Your Tree'
+description: Mikasa Christmas ornaments bring timeless charm to holiday decorations.
+  Their designs blend tradition and elegance in every piece. Mikasa offers a variety
+  of Ch
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mikasa-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=mikasa-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Mikasa Christmas ornaments bring timeless charm to holiday decorations. Their designs blend tradition and elegance in every piece.**

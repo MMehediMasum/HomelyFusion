@@ -1,10 +1,14 @@
 ---
-title: "A Home Fireplace Loses Most of Its Heat by Wasting Warmth Outdoors"
-description: "A home fireplace creates a cozy and warm atmosphere that you love. But did you know that most of the heat it produces doesn’t actually stay inside your room? Yo"
+title: A Home Fireplace Loses Most of Its Heat by Wasting Warmth Outdoors
+description: A home fireplace creates a cozy and warm atmosphere that you love. But
+  did you know that most of the heat it produces doesn’t actually stay inside your
+  room? Yo
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-home-fireplace-loses-most-of-its-heat-by&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=a-home-fireplace-loses-most-of-its-heat-by&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A home fireplace creates a cozy and warm atmosphere that you love. But did you know that most of the heat it produces doesn’t actually stay inside your room?**

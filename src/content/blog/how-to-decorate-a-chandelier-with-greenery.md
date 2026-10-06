@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Chandelier With Greenery: Stunning DIY Ideas"
-description: "Your chandelier is more than just a light fixture—it’s a chance to bring a fresh, natural touch into your space. Decorating it with greenery can instantly add w"
+title: 'How to Decorate a Chandelier With Greenery: Stunning DIY Ideas'
+description: Your chandelier is more than just a light fixture—it’s a chance to bring
+  a fresh, natural touch into your space. Decorating it with greenery can instantly
+  add w
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-chandelier-with-greenery&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-chandelier-with-greenery&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your chandelier is more than just a light fixture—it’s a chance to bring a fresh, natural touch into your space. Decorating it with greenery can instantly add warmth, charm, and a unique vibe to any room.**

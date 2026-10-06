@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Picture Frame: Stunning DIY Ideas for Every Style"
-description: "Are you looking to add a personal touch to your home or create a unique gift? Decorating a picture frame is a simple way to make your photos stand out and bring"
+title: 'How to Decorate a Picture Frame: Stunning DIY Ideas for Every Style'
+description: Are you looking to add a personal touch to your home or create a unique
+  gift? Decorating a picture frame is a simple way to make your photos stand out and
+  bring
 pubDate: 2025-10-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-picture-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-picture-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a personal touch to your home or create a unique gift? Decorating a picture frame is a simple way to make your photos stand out and bring life to any room.**

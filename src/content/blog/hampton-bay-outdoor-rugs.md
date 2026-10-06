@@ -1,10 +1,14 @@
 ---
-title: "Hampton Bay Outdoor Rugs: Stylish, Durable Options for Patio Perfection"
-description: "Discover the perfect blend of style and functionality with Hampton Bay outdoor rugs. These rugs enhance any outdoor space effortlessly. Outdoor spaces deserve t"
+title: 'Hampton Bay Outdoor Rugs: Stylish, Durable Options for Patio Perfection'
+description: Discover the perfect blend of style and functionality with Hampton Bay
+  outdoor rugs. These rugs enhance any outdoor space effortlessly. Outdoor spaces
+  deserve t
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hampton-bay-outdoor-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=hampton-bay-outdoor-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover the perfect blend of style and functionality with Hampton Bay outdoor rugs. These rugs enhance any outdoor space effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Bathroom Cabinet: Easy Steps for a Fresh Look"
-description: "Are you ready to give your bathroom a fresh new look without spending a fortune? Replacing your bathroom cabinet is one of the easiest ways to upgrade your spac"
+title: 'How to Replace Bathroom Cabinet: Easy Steps for a Fresh Look'
+description: Are you ready to give your bathroom a fresh new look without spending
+  a fortune? Replacing your bathroom cabinet is one of the easiest ways to upgrade
+  your spac
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to give your bathroom a fresh new look without spending a fortune? Replacing your bathroom cabinet is one of the easiest ways to upgrade your space and add more storage.**

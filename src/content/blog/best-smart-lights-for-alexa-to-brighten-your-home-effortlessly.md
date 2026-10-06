@@ -1,10 +1,14 @@
 ---
-title: "Best Smart Lights for Alexa to Brighten Your Home Effortlessly"
-description: "Smart lighting makes home life easier and more fun. Alexa-compatible lights let you control brightness and color with simple voice commands. Choosing the best s"
+title: Best Smart Lights for Alexa to Brighten Your Home Effortlessly
+description: Smart lighting makes home life easier and more fun. Alexa-compatible
+  lights let you control brightness and color with simple voice commands. Choosing
+  the best s
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smart-lights-for-alexa-to-brighten-your-home-effortlessly&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-smart-lights-for-alexa-to-brighten-your-home-effortlessly&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Smart lighting makes home life easier and more fun. Alexa-compatible lights let you control brightness and color with simple voice commands.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Carpet Protectors for Heavy Furniture to Prevent Floor Damage"
-description: "Protecting carpets from heavy furniture prevents dents, tears, and stains. Using the right carpet protectors extends your carpet’s life and keeps rooms looking "
+title: Best Carpet Protectors for Heavy Furniture to Prevent Floor Damage
+description: 'Protecting carpets from heavy furniture prevents dents, tears, and stains.
+  Using the right carpet protectors extends your carpet’s life and keeps rooms looking '
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-carpet-protectors-for-heavy-furniture-to-prevent-floor-damage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-carpet-protectors-for-heavy-furniture-to-prevent-floor-damage&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Protecting carpets from heavy furniture prevents dents, tears, and stains. Using the right carpet protectors extends your carpet’s life and keeps rooms looking neat.**

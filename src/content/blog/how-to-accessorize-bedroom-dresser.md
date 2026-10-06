@@ -1,10 +1,14 @@
 ---
-title: "How to Accessorize Bedroom Dresser: Stylish Tips for a Chic Look"
-description: "Your bedroom dresser is more than just a place to store clothes—it’s a chance to showcase your style and personality. But how do you make it stand out without o"
+title: 'How to Accessorize Bedroom Dresser: Stylish Tips for a Chic Look'
+description: Your bedroom dresser is more than just a place to store clothes—it’s
+  a chance to showcase your style and personality. But how do you make it stand out
+  without o
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-accessorize-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-accessorize-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser is more than just a place to store clothes—it’s a chance to showcase your style and personality. But how do you make it stand out without overwhelming your space?**

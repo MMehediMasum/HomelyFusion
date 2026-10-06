@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Cheap Bathroom Mirrors: Top Affordable Finds"
-description: "Looking for a great bathroom mirror without breaking the bank? You’re in the right place. Your bathroom deserves a mirror that looks good and fits your budget. "
+title: 'Where to Buy Cheap Bathroom Mirrors: Top Affordable Finds'
+description: 'Looking for a great bathroom mirror without breaking the bank? You’re
+  in the right place. Your bathroom deserves a mirror that looks good and fits your
+  budget. '
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bathroom-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-cheap-bathroom-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Looking for a great bathroom mirror without breaking the bank? You’re in the right place.**

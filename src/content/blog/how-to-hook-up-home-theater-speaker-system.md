@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Home Theater Speaker System: Easy Step-by-Step Guide"
 description: "Setting up your home theater speaker system can feel overwhelming, but it doesn’t have to be. Imagine turning your living room into a movie theater where every "
 pubDate: 2026-04-24

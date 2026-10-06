@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Collage of Frames on Wall: Easy Steps for Stunning Decor"
-description: "Are you looking to turn your blank wall into a stunning showcase of memories and art? Hanging a collage of frames can transform any space, making it feel warm a"
+title: 'How to Hang Collage of Frames on Wall: Easy Steps for Stunning Decor'
+description: Are you looking to turn your blank wall into a stunning showcase of memories
+  and art? Hanging a collage of frames can transform any space, making it feel warm
+  a
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-collage-of-frames-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-collage-of-frames-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to turn your blank wall into a stunning showcase of memories and art? Hanging a collage of frames can transform any space, making it feel warm and personal.**

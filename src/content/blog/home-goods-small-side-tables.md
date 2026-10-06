@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Small Side Tables: Stylish Solutions for Compact Living Spaces"
-description: "Small side tables can transform any living space. They offer functionality and style in a compact form. These tables are perfect for tight spaces, providing a s"
+title: 'Home Goods Small Side Tables: Stylish Solutions for Compact Living Spaces'
+description: Small side tables can transform any living space. They offer functionality
+  and style in a compact form. These tables are perfect for tight spaces, providing
+  a s
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-small-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods End Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-small-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Small side tables can transform any living space. They offer functionality and style in a compact form.**

@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Candle Holder: Elegant Marble and Metal Designs for Home Decor"
-description: "Kirkland Candle Holders bring elegance and style to any setting. Perfect for home decor or special occasions. Candle holders have a remarkable ability to transf"
+title: 'Kirkland Candle Holder: Elegant Marble and Metal Designs for Home Decor'
+description: Kirkland Candle Holders bring elegance and style to any setting. Perfect
+  for home decor or special occasions. Candle holders have a remarkable ability to
+  transf
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-candle-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-candle-holder&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Kirkland Candle Holders bring elegance and style to any setting. Perfect for home decor or special occasions.**

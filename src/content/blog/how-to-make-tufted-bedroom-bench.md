@@ -1,10 +1,14 @@
 ---
-title: "How to Make Tufted Bedroom Bench: Easy Steps for Stylish Comfort"
-description: "Looking to add a touch of style and comfort to your bedroom? A tufted bedroom bench is the perfect piece to elevate your space while giving you extra seating or"
+title: 'How to Make Tufted Bedroom Bench: Easy Steps for Stylish Comfort'
+description: Looking to add a touch of style and comfort to your bedroom? A tufted
+  bedroom bench is the perfect piece to elevate your space while giving you extra
+  seating or
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-tufted-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-tufted-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to add a touch of style and comfort to your bedroom? A tufted bedroom bench is the perfect piece to elevate your space while giving you extra seating or storage.**

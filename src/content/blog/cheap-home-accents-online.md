@@ -1,10 +1,13 @@
 ---
-title: "Cheap Home Accents Online: Stylish Fall Decor and Cozy Pillows for Less"
-description: "Affordable home accents online offer stylish ways to refresh your space without spending much. From cozy pillows to elegant wall art, choices abound. Decorating"
+title: 'Cheap Home Accents Online: Stylish Fall Decor and Cozy Pillows for Less'
+description: Affordable home accents online offer stylish ways to refresh your space
+  without spending much. From cozy pillows to elegant wall art, choices abound. Decorating
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-home-accents-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=cheap-home-accents-online&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Affordable home accents online offer stylish ways to refresh your space without spending much. From cozy pillows to elegant wall art, choices abound.**

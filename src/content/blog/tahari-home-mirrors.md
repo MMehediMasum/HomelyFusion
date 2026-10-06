@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Mirrors: Stunning Wall Décor for Elegant Living Spaces"
-description: "Tahari Home Mirrors blend style and function to enhance any room. These mirrors suit various spaces like bathrooms, bedrooms, and living rooms. Tahari offers a "
+title: 'Tahari Home Mirrors: Stunning Wall Décor for Elegant Living Spaces'
+description: 'Tahari Home Mirrors blend style and function to enhance any room. These
+  mirrors suit various spaces like bathrooms, bedrooms, and living rooms. Tahari offers
+  a '
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Tahari Home Mirrors blend style and function to enhance any room. These mirrors suit various spaces like bathrooms, bedrooms, and living rooms.**

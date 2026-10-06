@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Two Sofas in Living Room With Tv: Expert Tips"
-description: "Are you struggling to find the perfect way to arrange two sofas in your living room with a TV? You want your space to feel cozy, functional, and inviting—but so"
+title: 'How to Arrange Two Sofas in Living Room With Tv: Expert Tips'
+description: Are you struggling to find the perfect way to arrange two sofas in your
+  living room with a TV? You want your space to feel cozy, functional, and inviting—but
+  so
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofas-in-living-room-with-tv&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-two-sofas-in-living-room-with-tv&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect way to arrange two sofas in your living room with a TV? You want your space to feel cozy, functional, and inviting—but sometimes, it’s hard to know where to start.**

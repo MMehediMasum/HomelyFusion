@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Smelt Steel at Home: Easy Steps for DIY Metalwork"
 description: "Have you ever wondered how steel is made? Imagine turning raw materials into strong, shiny steel right in your own backyard. Smelting steel at home might sound "
 pubDate: 2026-03-25

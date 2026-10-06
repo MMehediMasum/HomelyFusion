@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Process Wool at Home: Easy Steps for Cozy Creations"
 description: "Have you ever wondered how to turn raw wool into something soft and beautiful right in your own home? Processing wool may seem tricky at first, but with the rig"
 pubDate: 2026-02-18

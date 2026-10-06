@@ -1,10 +1,14 @@
 ---
-title: "Living Room Flooring Tiles: Easy Peel & Stick Options for Stylish Floors"
-description: "Choosing the right flooring tiles can transform your living room's look and feel. Durable, stylish tiles suit many tastes and budgets. Living room flooring tile"
+title: 'Living Room Flooring Tiles: Easy Peel & Stick Options for Stylish Floors'
+description: Choosing the right flooring tiles can transform your living room's look
+  and feel. Durable, stylish tiles suit many tastes and budgets. Living room flooring
+  tile
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-flooring-tiles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=living-room-flooring-tiles&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right flooring tiles can transform your living room's look and feel. Durable, stylish tiles suit many tastes and budgets.**

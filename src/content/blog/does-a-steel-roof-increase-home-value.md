@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Does a Steel Roof Increase Home Value: Top Benefits Revealed"
 description: "Are you thinking about upgrading your home’s roof and wondering if a steel roof is worth the investment? You might be asking yourself, “Does a steel roof increa"
 pubDate: 2026-02-08

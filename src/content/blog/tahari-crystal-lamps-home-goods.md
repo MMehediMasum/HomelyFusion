@@ -1,10 +1,14 @@
 ---
-title: "Tahari Crystal Lamps Home Goods: Elegant Lighting for Every Room"
-description: "Tahari Crystal Lamps offer a stylish and sophisticated addition to your home decor. These lamps blend elegance with functionality. Illuminate your spaces with T"
+title: 'Tahari Crystal Lamps Home Goods: Elegant Lighting for Every Room'
+description: Tahari Crystal Lamps offer a stylish and sophisticated addition to your
+  home decor. These lamps blend elegance with functionality. Illuminate your spaces
+  with T
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-crystal-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=tahari-crystal-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tahari Crystal Lamps offer a stylish and sophisticated addition to your home decor. These lamps blend elegance with functionality.**

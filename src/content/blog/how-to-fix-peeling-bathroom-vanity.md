@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Peeling Bathroom Vanity: Easy Steps for a Fresh Look"
-description: "Is your bathroom vanity starting to peel, making your space look worn out and neglected? You’re not alone, and the good news is you don’t have to replace the en"
+title: 'How to Fix Peeling Bathroom Vanity: Easy Steps for a Fresh Look'
+description: Is your bathroom vanity starting to peel, making your space look worn
+  out and neglected? You’re not alone, and the good news is you don’t have to replace
+  the en
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-peeling-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-peeling-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity starting to peel, making your space look worn out and neglected? You’re not alone, and the good news is you don’t have to replace the entire vanity to fix it.**

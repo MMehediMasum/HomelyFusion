@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Living Rooms: Top LED Floor Lamps with Smart Features"
-description: "Choosing the best lighting for living rooms sets the mood and improves comfort. Proper lighting highlights your space and makes it inviting. Living rooms need l"
+title: 'Best Lighting for Living Rooms: Top LED Floor Lamps with Smart Features'
+description: Choosing the best lighting for living rooms sets the mood and improves
+  comfort. Proper lighting highlights your space and makes it inviting. Living rooms
+  need l
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-living-rooms-top-led-floor-lamps-with-smart-features&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-living-rooms-top-led-floor-lamps-with-smart-features&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for living rooms sets the mood and improves comfort. Proper lighting highlights your space and makes it inviting.**

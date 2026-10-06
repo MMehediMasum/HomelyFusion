@@ -1,10 +1,13 @@
 ---
-title: "Tv Stands at Homegoods: Stylish, Functional Options for Every Living Room"
-description: "Tv stands at Homegoods offer a variety of styles and sizes to fit different TV models and room designs. These stands combine functionality and style to enhance "
+title: 'Tv Stands at Homegoods: Stylish, Functional Options for Every Living Room'
+description: 'Tv stands at Homegoods offer a variety of styles and sizes to fit different
+  TV models and room designs. These stands combine functionality and style to enhance '
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tv-stands-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=tv-stands-at-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tv stands at Homegoods offer a variety of styles and sizes to fit different TV models and room designs. These stands combine functionality and style to enhance your living space.**

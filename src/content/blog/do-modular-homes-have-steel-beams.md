@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Modular Homes Have Steel Beams: Key Facts You Need to Know"
 description: "Are you curious about what makes modular homes strong and durable? You might be wondering if steel beams are part of their structure. Understanding this can hel"
 pubDate: 2026-04-08

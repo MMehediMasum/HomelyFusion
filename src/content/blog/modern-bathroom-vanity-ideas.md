@@ -1,10 +1,14 @@
 ---
-title: "Modern Bathroom Vanity Ideas: Stunning Designs to Transform Your Space"
-description: "Your bathroom deserves a fresh, stylish upgrade that makes every morning feel special. Modern bathroom vanity ideas can transform your space from ordinary to ex"
+title: 'Modern Bathroom Vanity Ideas: Stunning Designs to Transform Your Space'
+description: Your bathroom deserves a fresh, stylish upgrade that makes every morning
+  feel special. Modern bathroom vanity ideas can transform your space from ordinary
+  to ex
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-bathroom-vanity-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=modern-bathroom-vanity-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom deserves a fresh, stylish upgrade that makes every morning feel special. Modern bathroom vanity ideas can transform your space from ordinary to extraordinary with simple, smart choices.**

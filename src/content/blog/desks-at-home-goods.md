@@ -1,10 +1,14 @@
 ---
-title: "Desks at Home Goods: Top Adjustable and L-Shaped Desks for Every Space"
-description: "Desks at Home Goods offer a variety of styles and sizes for any home office or study space. These desks blend function with design to fit small or large rooms. "
+title: 'Desks at Home Goods: Top Adjustable and L-Shaped Desks for Every Space'
+description: 'Desks at Home Goods offer a variety of styles and sizes for any home
+  office or study space. These desks blend function with design to fit small or large
+  rooms. '
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=desks-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=desks-at-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Desks at Home Goods offer a variety of styles and sizes for any home office or study space. These desks blend function with design to fit small or large rooms.**

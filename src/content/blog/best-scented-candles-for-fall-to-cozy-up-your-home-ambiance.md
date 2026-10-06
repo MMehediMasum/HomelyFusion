@@ -1,10 +1,14 @@
 ---
-title: "Best Scented Candles for Fall to Cozy Up Your Home Ambiance"
-description: "Scented candles bring warmth and comfort to your home during fall. They fill rooms with cozy, seasonal aromas that remind you of autumn. Fall is the perfect sea"
+title: Best Scented Candles for Fall to Cozy Up Your Home Ambiance
+description: Scented candles bring warmth and comfort to your home during fall. They
+  fill rooms with cozy, seasonal aromas that remind you of autumn. Fall is the perfect
+  sea
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scented-candles-for-fall-to-cozy-up-your-home-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-scented-candles-for-fall-to-cozy-up-your-home-ambiance&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Scented candles bring warmth and comfort to your home during fall. They fill rooms with cozy, seasonal aromas that remind you of autumn.**

@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Tile Cutter: Top Picks for Precision and Durability"
-description: "A reliable tile cutter makes any tiling job easier and more precise. Floor And Decor offers various tile cutters for different needs and skill levels. Choosing "
+title: 'Floor And Decor Tile Cutter: Top Picks for Precision and Durability'
+description: 'A reliable tile cutter makes any tiling job easier and more precise.
+  Floor And Decor offers various tile cutters for different needs and skill levels.
+  Choosing '
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-tile-cutter&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-tile-cutter&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A reliable tile cutter makes any tiling job easier and more precise. Floor And Decor offers various tile cutters for different needs and skill levels.**

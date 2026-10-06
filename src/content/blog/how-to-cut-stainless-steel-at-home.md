@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Stainless Steel at Home: Easy & Safe DIY Guide"
 description: "Cutting stainless steel at home might sound tough, but it doesn’t have to be. If you’ve ever faced the challenge of resizing or shaping stainless steel for your"
 pubDate: 2026-02-10

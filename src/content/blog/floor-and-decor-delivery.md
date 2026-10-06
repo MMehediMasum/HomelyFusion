@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Delivery: Top Signs and Mats for Smooth Package Handling"
-description: "Floor and Decor delivery offers a simple way to get home improvement items fast. Customers can order signs, doormats, rugs, and plants delivered right to their "
+title: 'Floor And Decor Delivery: Top Signs and Mats for Smooth Package Handling'
+description: 'Floor and Decor delivery offers a simple way to get home improvement
+  items fast. Customers can order signs, doormats, rugs, and plants delivered right
+  to their '
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-delivery&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-delivery&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor delivery offers a simple way to get home improvement items fast. Customers can order signs, doormats, rugs, and plants delivered right to their door.**

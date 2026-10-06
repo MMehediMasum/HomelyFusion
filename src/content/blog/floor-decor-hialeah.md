@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Hialeah: Unique Christmas Ornaments for Cozy Home Style"
-description: "Floor Decor Hialeah offers unique holiday ornaments that add warmth to your home. These decorations bring festive cheer to any space. Celebrate Christmas with t"
+title: 'Floor Decor Hialeah: Unique Christmas Ornaments for Cozy Home Style'
+description: Floor Decor Hialeah offers unique holiday ornaments that add warmth to
+  your home. These decorations bring festive cheer to any space. Celebrate Christmas
+  with t
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-hialeah&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-hialeah&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor Decor Hialeah offers unique holiday ornaments that add warmth to your home. These decorations bring festive cheer to any space.**

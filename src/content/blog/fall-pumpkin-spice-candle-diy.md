@@ -1,10 +1,14 @@
 ---
-title: "Fall Pumpkin Spice Candle DIY: Cozy Up with This Simple Tutorial"
-description: "There’s something magical about the smell of pumpkin spice filling your home in the fall. Imagine lighting a candle you made yourself, with that warm, cozy scen"
+title: 'Fall Pumpkin Spice Candle DIY: Cozy Up with This Simple Tutorial'
+description: There’s something magical about the smell of pumpkin spice filling your
+  home in the fall. Imagine lighting a candle you made yourself, with that warm, cozy
+  scen
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-pumpkin-spice-candle-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-pumpkin-spice-candle-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **There’s something magical about the smell of pumpkin spice filling your home in the fall. Imagine lighting a candle you made yourself, with that warm, cozy scent wrapping around you like a soft blanket.**

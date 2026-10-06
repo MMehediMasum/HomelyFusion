@@ -1,10 +1,14 @@
 ---
-title: "Vases Decor for Home: Stylish Ceramic Sets to Elevate Every Room"
-description: "Vases can transform any room, adding elegance and style to home decor. They serve as perfect centerpieces and accents, enhancing the atmosphere. Decorating with"
+title: 'Vases Decor for Home: Stylish Ceramic Sets to Elevate Every Room'
+description: Vases can transform any room, adding elegance and style to home decor.
+  They serve as perfect centerpieces and accents, enhancing the atmosphere. Decorating
+  with
 pubDate: 2026-06-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=vases-decor-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=vases-decor-for-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Vases can transform any room, adding elegance and style to home decor. They serve as perfect centerpieces and accents, enhancing the atmosphere.**

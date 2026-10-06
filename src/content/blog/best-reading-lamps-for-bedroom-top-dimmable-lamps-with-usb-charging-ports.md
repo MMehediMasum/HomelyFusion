@@ -1,10 +1,14 @@
 ---
-title: "Best Reading Lamps for Bedroom: Top Dimmable Lamps with USB Charging Ports"
-description: "Choosing the best reading lamp for your bedroom can improve comfort and focus during nighttime reading. A good lamp offers adjustable brightness and fits your r"
+title: 'Best Reading Lamps for Bedroom: Top Dimmable Lamps with USB Charging Ports'
+description: Choosing the best reading lamp for your bedroom can improve comfort and
+  focus during nighttime reading. A good lamp offers adjustable brightness and fits
+  your r
 pubDate: 2025-12-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-reading-lamps-for-bedroom-top-dimmable-lamps-with-usb-charging-ports&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-reading-lamps-for-bedroom-top-dimmable-lamps-with-usb-charging-ports&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best reading lamp for your bedroom can improve comfort and focus during nighttime reading. A good lamp offers adjustable brightness and fits your room’s style.**

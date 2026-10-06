@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Gold Mirror: Elegant Vintage Baroque Wall Decor Ideas"
-description: "Gold mirrors add elegance and charm to any space. They blend vintage style with modern home decor. Explore the world of gold mirrors that effortlessly elevate y"
+title: 'Home Goods Gold Mirror: Elegant Vintage Baroque Wall Decor Ideas'
+description: Gold mirrors add elegance and charm to any space. They blend vintage
+  style with modern home decor. Explore the world of gold mirrors that effortlessly
+  elevate y
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-gold-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-gold-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Gold mirrors add elegance and charm to any space. They blend vintage style with modern home decor.**

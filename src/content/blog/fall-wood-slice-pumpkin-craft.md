@@ -1,10 +1,14 @@
 ---
-title: "Fall Wood Slice Pumpkin Craft: Easy DIY Decor Ideas for Autumn"
-description: "Are you looking for a simple, fun way to bring cozy fall vibes into your home? A Fall Wood Slice Pumpkin Craft is the perfect project for you. It’s easy to make"
+title: 'Fall Wood Slice Pumpkin Craft: Easy DIY Decor Ideas for Autumn'
+description: Are you looking for a simple, fun way to bring cozy fall vibes into your
+  home? A Fall Wood Slice Pumpkin Craft is the perfect project for you. It’s easy
+  to make
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-wood-slice-pumpkin-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-wood-slice-pumpkin-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a simple, fun way to bring cozy fall vibes into your home? A Fall Wood Slice Pumpkin Craft is the perfect project for you.**

@@ -1,10 +1,13 @@
 ---
-title: "Easter Basket Decoration Ideas: Creative & Fun DIY Inspirations"
-description: "Are you ready to make your Easter basket stand out this year? Imagine the smile on your loved one’s face when they see a basket bursting with color, creativity,"
+title: 'Easter Basket Decoration Ideas: Creative & Fun DIY Inspirations'
+description: Are you ready to make your Easter basket stand out this year? Imagine
+  the smile on your loved one’s face when they see a basket bursting with color, creativity,
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-basket-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-basket-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Easter basket stand out this year? Imagine the smile on your loved one’s face when they see a basket bursting with color, creativity, and personal touches.**

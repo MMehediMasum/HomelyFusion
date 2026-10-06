@@ -1,10 +1,13 @@
 ---
-title: "How to Style a Living Room With Recliners: Chic & Cozy Ideas"
-description: "Are you wondering how to make your living room both stylish and incredibly comfortable? Recliners are often seen as just functional chairs, but they can actuall"
+title: 'How to Style a Living Room With Recliners: Chic & Cozy Ideas'
+description: Are you wondering how to make your living room both stylish and incredibly
+  comfortable? Recliners are often seen as just functional chairs, but they can actuall
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-with-recliners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-with-recliners&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room both stylish and incredibly comfortable? Recliners are often seen as just functional chairs, but they can actually transform your space when styled right.**

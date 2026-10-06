@@ -1,10 +1,14 @@
 ---
-title: "Floor And Tile Peel & Stick Solutions for Stunning Home Makeovers"
-description: "Floor and tile options shape the look and feel of any room. Peel and stick floor tiles offer easy and stylish ways to update floors quickly. Peel and stick floo"
+title: Floor And Tile Peel & Stick Solutions for Stunning Home Makeovers
+description: Floor and tile options shape the look and feel of any room. Peel and
+  stick floor tiles offer easy and stylish ways to update floors quickly. Peel and
+  stick floo
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and tile options shape the look and feel of any room. Peel and stick floor tiles offer easy and stylish ways to update floors quickly.**

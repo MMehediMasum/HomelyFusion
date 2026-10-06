@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Without Chair Rail: Stunning Ideas"
-description: "Your living room is the heart of your home, and decorating it just right can make all the difference. But what if you want to add style and charm without using "
+title: 'How to Decorate a Living Room Without Chair Rail: Stunning Ideas'
+description: 'Your living room is the heart of your home, and decorating it just right
+  can make all the difference. But what if you want to add style and charm without
+  using '
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-chair-rail&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-chair-rail&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your living room is the heart of your home, and decorating it just right can make all the difference. But what if you want to add style and charm without using traditional elements like chair rails?**

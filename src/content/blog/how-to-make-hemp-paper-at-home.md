@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Hemp Paper at Home: Easy Steps for Eco-Friendly Crafting"
 description: "Have you ever wondered how to make your own paper at home? Imagine creating beautiful, eco-friendly hemp paper with just a few simple steps. Making hemp paper i"
 pubDate: 2026-02-11

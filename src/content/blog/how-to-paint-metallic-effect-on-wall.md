@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Metallic Effect on Wall: Stunning DIY Guide"
-description: "Are you ready to transform your walls with a stunning metallic shine that catches every eye? Painting a metallic effect on your wall is easier than you think, a"
+title: 'How to Paint Metallic Effect on Wall: Stunning DIY Guide'
+description: Are you ready to transform your walls with a stunning metallic shine
+  that catches every eye? Painting a metallic effect on your wall is easier than you
+  think, a
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-metallic-effect-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-metallic-effect-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your walls with a stunning metallic shine that catches every eye? Painting a metallic effect on your wall is easier than you think, and the results can completely change the vibe of your room.**

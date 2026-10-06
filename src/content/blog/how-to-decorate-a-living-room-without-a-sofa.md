@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Without a Sofa: Stylish Alternatives Revealed"
-description: "Imagine walking into your living room and feeling instantly comfortable, even without a sofa. Yes, you read that right—your living room can look stylish, cozy, "
+title: 'How to Decorate a Living Room Without a Sofa: Stylish Alternatives Revealed'
+description: 'Imagine walking into your living room and feeling instantly comfortable,
+  even without a sofa. Yes, you read that right—your living room can look stylish,
+  cozy, '
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-a-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-without-a-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine walking into your living room and feeling instantly comfortable, even without a sofa. Yes, you read that right—your living room can look stylish, cozy, and inviting without the usual bulky couch.**

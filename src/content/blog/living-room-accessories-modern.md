@@ -1,10 +1,14 @@
 ---
-title: "Living Room Accessories Modern: Stylish Decor Ideas for a Trendy Space"
-description: "Modern living room accessories add style and function to your space. These items bring personality and comfort to any home. Choosing the right accessories can c"
+title: 'Living Room Accessories Modern: Stylish Decor Ideas for a Trendy Space'
+description: Modern living room accessories add style and function to your space.
+  These items bring personality and comfort to any home. Choosing the right accessories
+  can c
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-accessories-modern&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=living-room-accessories-modern&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern living room accessories add style and function to your space. These items bring personality and comfort to any home.**

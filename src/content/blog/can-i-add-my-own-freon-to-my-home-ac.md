@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Add My Own Freon to My Home AC: Essential Tips Revealed"
 description: "Are you feeling the heat and wondering if you can simply add your own Freon to your home AC to cool things down faster? It sounds like a quick fix, right? But b"
 pubDate: 2026-04-11

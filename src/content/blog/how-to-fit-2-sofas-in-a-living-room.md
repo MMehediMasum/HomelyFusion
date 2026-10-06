@@ -1,10 +1,14 @@
 ---
-title: "How to Fit 2 Sofas in a Living Room: Smart Space-Saving Tips"
-description: "Fitting two sofas in your living room might seem tricky at first. You want to create a cozy space without making it feel cramped. But what if you could arrange "
+title: 'How to Fit 2 Sofas in a Living Room: Smart Space-Saving Tips'
+description: 'Fitting two sofas in your living room might seem tricky at first. You
+  want to create a cozy space without making it feel cramped. But what if you could
+  arrange '
 pubDate: 2026-02-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-2-sofas-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-2-sofas-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Fitting two sofas in your living room might seem tricky at first. You want to create a cozy space without making it feel cramped.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Mix Match Twin Beds in Kids Bedroom: Creative Style Tips"
-description: "Are you struggling to create a fun and cozy bedroom for your kids with twin beds? Mixing and matching twin beds can be a great way to add personality and make t"
+title: 'How to Mix Match Twin Beds in Kids Bedroom: Creative Style Tips'
+description: Are you struggling to create a fun and cozy bedroom for your kids with
+  twin beds? Mixing and matching twin beds can be a great way to add personality and
+  make t
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-mix-match-twin-beds-in-kids-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-mix-match-twin-beds-in-kids-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to create a fun and cozy bedroom for your kids with twin beds? Mixing and matching twin beds can be a great way to add personality and make the room feel special—without spending a fortune.**

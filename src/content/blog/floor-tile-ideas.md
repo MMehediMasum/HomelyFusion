@@ -1,10 +1,13 @@
 ---
-title: "Floor Tile Ideas: Stylish Peel & Stick Tiles for Easy Home Makeovers"
-description: "Floor tile ideas can transform any room with style and ease. Peel-and-stick tiles offer quick, affordable ways to refresh floors. Choosing the right floor tile "
+title: 'Floor Tile Ideas: Stylish Peel & Stick Tiles for Easy Home Makeovers'
+description: 'Floor tile ideas can transform any room with style and ease. Peel-and-stick
+  tiles offer quick, affordable ways to refresh floors. Choosing the right floor tile '
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-tile-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-tile-ideas&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor tile ideas can transform any room with style and ease. Peel-and-stick tiles offer quick, affordable ways to refresh floors.**

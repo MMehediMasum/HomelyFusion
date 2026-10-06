@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Out a Wall Design: Step-by-Step Guide for Beginners"
-description: "Are you ready to transform your space by adding a new wall? Knowing how to frame out a wall design is the first step to creating a strong, lasting structure tha"
+title: 'How to Frame Out a Wall Design: Step-by-Step Guide for Beginners'
+description: Are you ready to transform your space by adding a new wall? Knowing how
+  to frame out a wall design is the first step to creating a strong, lasting structure
+  tha
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-out-a-wall-design&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-out-a-wall-design&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space by adding a new wall? Knowing how to frame out a wall design is the first step to creating a strong, lasting structure that looks great and stands the test of time.**

@@ -1,10 +1,14 @@
 ---
-title: "Will Waterbed Crash Through Bedroom Floor? Shocking Truth Revealed!"
-description: "Are you worried that your waterbed might crash through your bedroom floor? It’s a common fear, especially if you’ve just invested in one or are thinking about g"
+title: Will Waterbed Crash Through Bedroom Floor? Shocking Truth Revealed!
+description: Are you worried that your waterbed might crash through your bedroom floor?
+  It’s a common fear, especially if you’ve just invested in one or are thinking about
+  g
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-waterbed-crash-through-bedroom-floor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=will-waterbed-crash-through-bedroom-floor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you worried that your waterbed might crash through your bedroom floor? It’s a common fear, especially if you’ve just invested in one or are thinking about getting one.**

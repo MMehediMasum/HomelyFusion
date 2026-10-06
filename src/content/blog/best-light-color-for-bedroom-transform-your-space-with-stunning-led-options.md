@@ -1,10 +1,14 @@
 ---
-title: "Best Light Color for Bedroom: Transform Your Space with Stunning LED Options"
-description: "Choosing the best light color for your bedroom affects your mood and sleep quality. Soft, warm tones create a calm and cozy atmosphere. Bedroom lighting plays a"
+title: 'Best Light Color for Bedroom: Transform Your Space with Stunning LED Options'
+description: Choosing the best light color for your bedroom affects your mood and
+  sleep quality. Soft, warm tones create a calm and cozy atmosphere. Bedroom lighting
+  plays a
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-color-for-bedroom-transform-your-space-with-stunning-led-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-light-color-for-bedroom-transform-your-space-with-stunning-led-options&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best light color for your bedroom affects your mood and sleep quality. Soft, warm tones create a calm and cozy atmosphere.**

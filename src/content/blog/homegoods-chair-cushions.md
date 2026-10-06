@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Chair Cushions: Ultimate Comfort and Support for Every Seat"
-description: "Homegoods chair cushions offer comfort and style for any seating area. These cushions improve posture and reduce pressure on hips and back. Choosing the right c"
+title: 'Homegoods Chair Cushions: Ultimate Comfort and Support for Every Seat'
+description: Homegoods chair cushions offer comfort and style for any seating area.
+  These cushions improve posture and reduce pressure on hips and back. Choosing the
+  right c
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-chair-cushions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-chair-cushions&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods chair cushions offer comfort and style for any seating area. These cushions improve posture and reduce pressure on hips and back.**

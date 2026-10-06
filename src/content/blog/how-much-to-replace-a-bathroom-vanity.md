@@ -1,10 +1,14 @@
 ---
-title: "How Much to Replace a Bathroom Vanity: Ultimate Cost Guide 2025"
-description: "Thinking about replacing your bathroom vanity but not sure how much it will cost? You’re not alone. Your bathroom vanity is more than just a place to wash up—it"
+title: 'How Much to Replace a Bathroom Vanity: Ultimate Cost Guide 2025'
+description: Thinking about replacing your bathroom vanity but not sure how much it
+  will cost? You’re not alone. Your bathroom vanity is more than just a place to wash
+  up—it
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-replace-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-replace-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about replacing your bathroom vanity but not sure how much it will cost? You’re not alone.**

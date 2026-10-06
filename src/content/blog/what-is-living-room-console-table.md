@@ -1,10 +1,14 @@
 ---
-title: "What is Living Room Console Table: Stylish Decor Essentials Explained"
-description: "Have you ever walked into your living room and felt like something was missing? Maybe your space looks a bit plain or lacks a place to neatly organize your esse"
+title: 'What is Living Room Console Table: Stylish Decor Essentials Explained'
+description: Have you ever walked into your living room and felt like something was
+  missing? Maybe your space looks a bit plain or lacks a place to neatly organize
+  your esse
 pubDate: 2026-04-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-living-room-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=what-is-living-room-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever walked into your living room and felt like something was missing? Maybe your space looks a bit plain or lacks a place to neatly organize your essentials.**

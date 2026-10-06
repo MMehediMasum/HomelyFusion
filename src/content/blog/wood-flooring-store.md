@@ -1,10 +1,14 @@
 ---
-title: "Wood Flooring Store Guide: Best Peel and Stick Vinyl Floor Tiles"
-description: "A wood flooring store offers a variety of wood and vinyl floor options for every room. From peel-and-stick vinyl tiles to wood floor cleaners and polish, these "
+title: 'Wood Flooring Store Guide: Best Peel and Stick Vinyl Floor Tiles'
+description: 'A wood flooring store offers a variety of wood and vinyl floor options
+  for every room. From peel-and-stick vinyl tiles to wood floor cleaners and polish,
+  these '
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=wood-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=wood-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A wood flooring store offers a variety of wood and vinyl floor options for every room. From peel-and-stick vinyl tiles to wood floor cleaners and polish, these stores have what you need.**

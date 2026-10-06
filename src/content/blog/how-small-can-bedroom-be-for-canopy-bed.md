@@ -1,10 +1,14 @@
 ---
-title: "How Small Can Bedroom Be for Canopy Bed: Space-Saving Secrets"
-description: "Are you dreaming of adding a beautiful canopy bed to your bedroom but worried about space? You might be wondering just how small your room can be and still fit "
+title: 'How Small Can Bedroom Be for Canopy Bed: Space-Saving Secrets'
+description: 'Are you dreaming of adding a beautiful canopy bed to your bedroom but
+  worried about space? You might be wondering just how small your room can be and
+  still fit '
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-small-can-bedroom-be-for-canopy-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-small-can-bedroom-be-for-canopy-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of adding a beautiful canopy bed to your bedroom but worried about space? You might be wondering just how small your room can be and still fit this stylish piece comfortably.**

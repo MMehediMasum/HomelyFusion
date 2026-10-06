@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Floor Lamps: Stylish Lighting Solutions for Every Room"
-description: "Floor lamps can transform any room, adding both style and functionality. Discover the best home goods floor lamps for every space. Floor lamps are versatile lig"
+title: 'Home Goods Floor Lamps: Stylish Lighting Solutions for Every Room'
+description: Floor lamps can transform any room, adding both style and functionality.
+  Discover the best home goods floor lamps for every space. Floor lamps are versatile
+  lig
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-floor-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-floor-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Floor lamps can transform any room, adding both style and functionality. Discover the best home goods floor lamps for every space.**

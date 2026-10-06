@@ -1,10 +1,14 @@
 ---
-title: "How to Make Modeling Clay at Home: Easy, Fun, and Safe Recipe"
-description: "Have you ever wanted to create your own colorful modeling clay right at home? Imagine having a fun, safe, and affordable way to craft endless shapes and figures"
+title: 'How to Make Modeling Clay at Home: Easy, Fun, and Safe Recipe'
+description: Have you ever wanted to create your own colorful modeling clay right
+  at home? Imagine having a fun, safe, and affordable way to craft endless shapes
+  and figures
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-modeling-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-modeling-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own colorful modeling clay right at home? Imagine having a fun, safe, and affordable way to craft endless shapes and figures whenever you like.**

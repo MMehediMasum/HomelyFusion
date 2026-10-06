@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Entryway: Stylish, Durable, and Non-Slip Options Reviewed"
-description: "Choosing the best rug for your entryway sets the tone for your home’s style and cleanliness. A good entryway rug protects floors and welcomes guests with comfor"
+title: 'Best Rug for Entryway: Stylish, Durable, and Non-Slip Options Reviewed'
+description: Choosing the best rug for your entryway sets the tone for your home’s
+  style and cleanliness. A good entryway rug protects floors and welcomes guests with
+  comfor
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-entryway-stylish-durable-and-non-slip-options-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-entryway-stylish-durable-and-non-slip-options-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for your entryway sets the tone for your home’s style and cleanliness. A good entryway rug protects floors and welcomes guests with comfort and charm.**

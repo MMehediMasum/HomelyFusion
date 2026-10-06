@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Sewing Room: Top Adjustable LED Lamps for Precision Crafting"
-description: "Choosing the best lighting for your sewing room boosts comfort and precision. Good light reduces eye strain and helps you see details clearly. Sewing requires b"
+title: 'Best Lighting for Sewing Room: Top Adjustable LED Lamps for Precision Crafting'
+description: Choosing the best lighting for your sewing room boosts comfort and precision.
+  Good light reduces eye strain and helps you see details clearly. Sewing requires
+  b
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-sewing-room-top-adjustable-led-lamps-for-precision-crafting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-sewing-room-top-adjustable-led-lamps-for-precision-crafting&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for your sewing room boosts comfort and precision. Good light reduces eye strain and helps you see details clearly.**

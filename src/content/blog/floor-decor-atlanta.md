@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor Atlanta: Top Stylish Rugs and Wall Art for Your Home"
 description: "Floor Decor Atlanta offers unique items that celebrate the spirit of the city. From rugs to wall art, each piece adds a touch of Atlanta to your space. This col"
 pubDate: 2025-10-15

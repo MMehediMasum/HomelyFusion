@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Wall With Frames: Stunning Ideas Revealed"
-description: "Your living room wall is more than just a blank space—it’s a canvas waiting to showcase your personality. Decorating it with frames can transform the entire vib"
+title: 'How to Decorate Living Room Wall With Frames: Stunning Ideas Revealed'
+description: Your living room wall is more than just a blank space—it’s a canvas waiting
+  to showcase your personality. Decorating it with frames can transform the entire
+  vib
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-wall-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-wall-with-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your living room wall is more than just a blank space—it’s a canvas waiting to showcase your personality. Decorating it with frames can transform the entire vibe of your room, making it feel warm, stylish, and uniquely yours.**

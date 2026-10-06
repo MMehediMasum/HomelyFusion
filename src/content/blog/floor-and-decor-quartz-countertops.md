@@ -1,10 +1,15 @@
 ---
-title: "Floor And Decor Quartz Countertops: Stylish, Durable, and Affordable Kitchen Upgrade"
-description: "Floor And Decor quartz countertops offer durable and stylish surfaces for kitchens and bathrooms. These countertops combine beauty with easy maintenance for eve"
+title: 'Floor And Decor Quartz Countertops: Stylish, Durable, and Affordable Kitchen
+  Upgrade'
+description: Floor And Decor quartz countertops offer durable and stylish surfaces
+  for kitchens and bathrooms. These countertops combine beauty with easy maintenance
+  for eve
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-quartz-countertops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-quartz-countertops&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor quartz countertops offer durable and stylish surfaces for kitchens and bathrooms. These countertops combine beauty with easy maintenance for everyday use.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Wool Carpet at Home: Easy Steps for Spotless Clean"
-description: "Wool carpets add warmth and style to your home, but cleaning them can feel tricky. You might worry about ruining the fibers or making stains worse. What if you "
+title: 'How to Wash Wool Carpet at Home: Easy Steps for Spotless Clean'
+description: 'Wool carpets add warmth and style to your home, but cleaning them can
+  feel tricky. You might worry about ruining the fibers or making stains worse. What
+  if you '
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-wool-carpet-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-wool-carpet-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Wool carpets add warmth and style to your home, but cleaning them can feel tricky. You might worry about ruining the fibers or making stains worse.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Should Dresser Be Placed in Bedroom: Expert Tips for Perfect Layout"
-description: "Where should your dresser be placed in your bedroom for the best look and feel? You might not realize it, but where you put this piece of furniture can change t"
+title: 'Where Should Dresser Be Placed in Bedroom: Expert Tips for Perfect Layout'
+description: Where should your dresser be placed in your bedroom for the best look
+  and feel? You might not realize it, but where you put this piece of furniture can
+  change t
 pubDate: 2026-05-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-should-dresser-be-placed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=where-should-dresser-be-placed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Where should your dresser be placed in your bedroom for the best look and feel? You might not realize it, but where you put this piece of furniture can change the entire vibe of your space.**

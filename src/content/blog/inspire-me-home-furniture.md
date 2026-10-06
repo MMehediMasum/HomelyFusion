@@ -1,10 +1,14 @@
 ---
-title: "Inspire Me Home Furniture: Stylish Sofas and Chairs to Elevate Your Space"
-description: "Inspire Me Home Furniture offers a range of elegant and stylish pieces to enhance your living space. From sofas to dining tables, their collection combines comf"
+title: 'Inspire Me Home Furniture: Stylish Sofas and Chairs to Elevate Your Space'
+description: Inspire Me Home Furniture offers a range of elegant and stylish pieces
+  to enhance your living space. From sofas to dining tables, their collection combines
+  comf
 pubDate: 2026-06-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=inspire-me-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=inspire-me-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Inspire Me Home Furniture offers a range of elegant and stylish pieces to enhance your living space. From sofas to dining tables, their collection combines comfort with design excellence.**

@@ -1,10 +1,14 @@
 ---
-title: "Pumpkin Decor Home Goods: Cozy Fall Essentials for Stylish Autumn Living"
-description: "Pumpkin decor home goods bring warm, cozy vibes to any living space. These items add a festive touch for fall and holiday seasons. Pumpkin-themed decorations cr"
+title: 'Pumpkin Decor Home Goods: Cozy Fall Essentials for Stylish Autumn Living'
+description: Pumpkin decor home goods bring warm, cozy vibes to any living space.
+  These items add a festive touch for fall and holiday seasons. Pumpkin-themed decorations
+  cr
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pumpkin-decor-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=pumpkin-decor-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pumpkin decor home goods bring warm, cozy vibes to any living space. These items add a festive touch for fall and holiday seasons.**

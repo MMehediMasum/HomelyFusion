@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Tools at Home: Easy DIY Craft Hacks"
-description: "Are you ready to take your clay projects to the next level without spending extra money? Making your own clay tools at home is easier than you think. Imagine ha"
+title: 'How to Make Clay Tools at Home: Easy DIY Craft Hacks'
+description: Are you ready to take your clay projects to the next level without spending
+  extra money? Making your own clay tools at home is easier than you think. Imagine
+  ha
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-tools-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-tools-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to take your clay projects to the next level without spending extra money? Making your own clay tools at home is easier than you think.**

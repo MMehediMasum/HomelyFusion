@@ -1,10 +1,13 @@
 ---
-title: "What to Put on Candle Holders Besides Candles: Creative Ideas"
-description: "Are you looking to refresh your space without just lighting another candle? Candle holders are more than just a base for candles—they can become a stylish cente"
+title: 'What to Put on Candle Holders Besides Candles: Creative Ideas'
+description: Are you looking to refresh your space without just lighting another candle?
+  Candle holders are more than just a base for candles—they can become a stylish cente
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-candle-holders-besides-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-candle-holders-besides-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to refresh your space without just lighting another candle? Candle holders are more than just a base for candles—they can become a stylish centerpiece all on their own.**

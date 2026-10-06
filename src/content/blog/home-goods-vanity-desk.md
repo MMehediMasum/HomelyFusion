@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Vanity Desk: Stylish Storage and Lighting for Your Bedroom"
-description: "Discover the perfect blend of style and functionality with the Home Goods Vanity Desk. Enhance your bedroom with elegance. A vanity desk is more than just a pie"
+title: 'Home Goods Vanity Desk: Stylish Storage and Lighting for Your Bedroom'
+description: Discover the perfect blend of style and functionality with the Home Goods
+  Vanity Desk. Enhance your bedroom with elegance. A vanity desk is more than just
+  a pie
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-vanity-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-vanity-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Discover the perfect blend of style and functionality with the Home Goods Vanity Desk. Enhance your bedroom with elegance.**

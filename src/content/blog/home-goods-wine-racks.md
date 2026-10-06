@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wine Racks: Stylish Storage Solutions for Every Wine Lover"
-description: "Wine racks offer stylish and practical solutions for storing bottles at home. They blend function with decor seamlessly. Choosing the right wine rack can enhanc"
+title: 'Home Goods Wine Racks: Stylish Storage Solutions for Every Wine Lover'
+description: Wine racks offer stylish and practical solutions for storing bottles
+  at home. They blend function with decor seamlessly. Choosing the right wine rack
+  can enhanc
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wine-racks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wine-racks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Wine racks offer stylish and practical solutions for storing bottles at home. They blend function with decor seamlessly.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Bushes for Christmas: Stunning Ideas to Shine Bright"
-description: "Are you looking to add a festive touch to your outdoor space this Christmas? Decorating your bushes can instantly brighten your home and create a warm, inviting"
+title: 'How to Decorate Bushes for Christmas: Stunning Ideas to Shine Bright'
+description: Are you looking to add a festive touch to your outdoor space this Christmas?
+  Decorating your bushes can instantly brighten your home and create a warm, inviting
 pubDate: 2025-09-08
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bushes-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bushes-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a festive touch to your outdoor space this Christmas? Decorating your bushes can instantly brighten your home and create a warm, inviting atmosphere.**

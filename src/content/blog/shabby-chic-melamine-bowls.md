@@ -1,10 +1,14 @@
 ---
-title: "Shabby Chic Melamine Bowls: Stylish, Durable Sets for Everyday Dining"
-description: "Shabby chic melamine bowls blend vintage charm with modern durability. These bowls offer style and practicality for everyday use. Shabby chic melamine bowls bri"
+title: 'Shabby Chic Melamine Bowls: Stylish, Durable Sets for Everyday Dining'
+description: Shabby chic melamine bowls blend vintage charm with modern durability.
+  These bowls offer style and practicality for everyday use. Shabby chic melamine
+  bowls bri
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shabby-chic-melamine-bowls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=shabby-chic-melamine-bowls&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Shabby chic melamine bowls blend vintage charm with modern durability. These bowls offer style and practicality for everyday use.**

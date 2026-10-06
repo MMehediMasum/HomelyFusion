@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home EV Chargers AC or DC: Ultimate Charging Guide Explained"
 description: "Are you curious about how your home EV charger really works? Understanding whether your charger uses AC or DC power can change the way you think about charging "
 pubDate: 2026-04-06

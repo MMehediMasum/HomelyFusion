@@ -1,10 +1,15 @@
 ---
-title: "Table Lamps at Homegoods: Stylish and Functional Lighting Ideas for Every Room"
-description: "Table lamps at Homegoods offer a wide range of styles and functionalities. Perfect for any room, they enhance both decor and utility. Discover the diverse colle"
+title: 'Table Lamps at Homegoods: Stylish and Functional Lighting Ideas for Every
+  Room'
+description: Table lamps at Homegoods offer a wide range of styles and functionalities.
+  Perfect for any room, they enhance both decor and utility. Discover the diverse
+  colle
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-lamps-at-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=table-lamps-at-homegoods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Table lamps at Homegoods offer a wide range of styles and functionalities. Perfect for any room, they enhance both decor and utility.**

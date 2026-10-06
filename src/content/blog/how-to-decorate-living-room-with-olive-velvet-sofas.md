@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Olive Velvet Sofas: Stylish Tips"
-description: "Are you looking to give your living room a fresh, stylish update? Olive velvet sofas might be just what you need. Their rich, warm color and soft texture can in"
+title: 'How to Decorate Living Room With Olive Velvet Sofas: Stylish Tips'
+description: Are you looking to give your living room a fresh, stylish update? Olive
+  velvet sofas might be just what you need. Their rich, warm color and soft texture
+  can in
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-olive-velvet-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-olive-velvet-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to give your living room a fresh, stylish update? Olive velvet sofas might be just what you need.**

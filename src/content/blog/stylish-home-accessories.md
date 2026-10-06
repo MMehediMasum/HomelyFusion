@@ -1,10 +1,14 @@
 ---
-title: "Stylish Home Accessories to Elevate Your Bathroom and Bar Decor"
-description: "Home accessories add charm and functionality to living spaces. Stylish items elevate your home's aesthetic appeal effortlessly. From soap dispensers to cocktail"
+title: Stylish Home Accessories to Elevate Your Bathroom and Bar Decor
+description: Home accessories add charm and functionality to living spaces. Stylish
+  items elevate your home's aesthetic appeal effortlessly. From soap dispensers to
+  cocktail
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=stylish-home-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=stylish-home-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home accessories add charm and functionality to living spaces. Stylish items elevate your home's aesthetic appeal effortlessly.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye a Wool Sweater at Home: Easy Steps for Vibrant Results"
 description: "Have you ever looked at your wool sweater and wished it had a fresh, new color? Maybe it’s faded from too many washes, or you simply want to give it a unique tw"
 pubDate: 2026-03-25

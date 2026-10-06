@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Shelf in Girls Bedroom: Cute & Creative Ideas"
-description: "Are you wondering what to put on the shelf in your girl's bedroom to make it both stylish and practical? Shelves are more than just storage—they can showcase pe"
+title: 'What to Put on Shelf in Girls Bedroom: Cute & Creative Ideas'
+description: Are you wondering what to put on the shelf in your girl's bedroom to
+  make it both stylish and practical? Shelves are more than just storage—they can
+  showcase pe
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-shelf-in-girls-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-shelf-in-girls-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering what to put on the shelf in your girl's bedroom to make it both stylish and practical? Shelves are more than just storage—they can showcase personality, spark joy, and keep the room organized.**

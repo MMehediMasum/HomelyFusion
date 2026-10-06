@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Plants for Outside: Top Durable, UV-Resistant Outdoor Picks"
-description: "Artificial plants offer a lasting way to brighten outdoor spaces without much care. They resist weather and keep their color all year. Choosing the best artific"
+title: 'Best Artificial Plants for Outside: Top Durable, UV-Resistant Outdoor Picks'
+description: Artificial plants offer a lasting way to brighten outdoor spaces without
+  much care. They resist weather and keep their color all year. Choosing the best
+  artific
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-plants-for-outside-top-durable-uv-resistant-outdoor-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-plants-for-outside-top-durable-uv-resistant-outdoor-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial plants offer a lasting way to brighten outdoor spaces without much care. They resist weather and keep their color all year.**

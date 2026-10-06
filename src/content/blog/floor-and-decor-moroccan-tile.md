@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Moroccan Tile Stickers: Easy Peel and Stick Backsplash Ideas"
-description: "Floor and Decor Moroccan tile stickers offer an easy way to add style to any room. These peel-and-stick tiles come in various traditional designs and sizes. Mor"
+title: 'Floor And Decor Moroccan Tile Stickers: Easy Peel and Stick Backsplash Ideas'
+description: Floor and Decor Moroccan tile stickers offer an easy way to add style
+  to any room. These peel-and-stick tiles come in various traditional designs and
+  sizes. Mor
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-moroccan-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-moroccan-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor Moroccan tile stickers offer an easy way to add style to any room. These peel-and-stick tiles come in various traditional designs and sizes.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Shower Curtain Ideas for Stylish and Waterproof Bathroom Decor"
-description: "Transform your bathroom with a stylish shower curtain from Homegoods. These options combine functionality with aesthetic charm. Choosing the right shower curtai"
+title: Homegoods Shower Curtain Ideas for Stylish and Waterproof Bathroom Decor
+description: Transform your bathroom with a stylish shower curtain from Homegoods.
+  These options combine functionality with aesthetic charm. Choosing the right shower
+  curtai
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-shower-curtain&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blackout Window Shades
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-shower-curtain&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Transform your bathroom with a stylish shower curtain from Homegoods. These options combine functionality with aesthetic charm.**

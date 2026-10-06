@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for a Bathroom: Soft, Absorbent, and Non-Slip Bath Mats"
-description: "Choosing the best rugs for a bathroom improves safety and comfort. Soft, absorbent mats keep your floor dry and cozy. Bathroom rugs protect floors from water an"
+title: 'Best Rugs for a Bathroom: Soft, Absorbent, and Non-Slip Bath Mats'
+description: Choosing the best rugs for a bathroom improves safety and comfort. Soft,
+  absorbent mats keep your floor dry and cozy. Bathroom rugs protect floors from water
+  an
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-a-bathroom-soft-absorbent-and-non-slip-bath-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-a-bathroom-soft-absorbent-and-non-slip-bath-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for a bathroom improves safety and comfort. Soft, absorbent mats keep your floor dry and cozy.**

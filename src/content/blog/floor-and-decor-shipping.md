@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Shipping: How Fast and Affordable Is It for Vinyl Tiles?"
-description: "Floor And Decor offers a variety of shipping options to deliver your flooring products quickly and safely. Understanding their shipping policies helps you plan "
+title: 'Floor And Decor Shipping: How Fast and Affordable Is It for Vinyl Tiles?'
+description: 'Floor And Decor offers a variety of shipping options to deliver your
+  flooring products quickly and safely. Understanding their shipping policies helps
+  you plan '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-shipping&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-shipping&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor offers a variety of shipping options to deliver your flooring products quickly and safely. Understanding their shipping policies helps you plan your purchase better.**

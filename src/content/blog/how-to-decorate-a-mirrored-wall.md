@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Mirrored Wall: Stunning Ideas for Any Space"
-description: "Are you looking to transform your space and make it feel bigger and brighter? Decorating a mirrored wall can be the perfect way to add style and depth to any ro"
+title: 'How to Decorate a Mirrored Wall: Stunning Ideas for Any Space'
+description: Are you looking to transform your space and make it feel bigger and brighter?
+  Decorating a mirrored wall can be the perfect way to add style and depth to any
+  ro
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirrored-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirrored-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space and make it feel bigger and brighter? Decorating a mirrored wall can be the perfect way to add style and depth to any room.**

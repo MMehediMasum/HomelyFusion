@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Christmas Lights: Top Picks for Stunning Holiday Decor"
-description: "Home goods Christmas lights create a warm and festive atmosphere for holiday celebrations. These lights brighten homes with charming designs and various colors."
+title: 'Home Goods Christmas Lights: Top Picks for Stunning Holiday Decor'
+description: Home goods Christmas lights create a warm and festive atmosphere for
+  holiday celebrations. These lights brighten homes with charming designs and various
+  colors.
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-lights&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-lights&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home goods Christmas lights create a warm and festive atmosphere for holiday celebrations. These lights brighten homes with charming designs and various colors.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Pick a Bathroom Vanity: Expert Tips for Perfect Style"
-description: "Choosing the perfect bathroom vanity can feel overwhelming. You want something that fits your space, looks great, and works for your daily routine. But with so "
+title: 'How to Pick a Bathroom Vanity: Expert Tips for Perfect Style'
+description: 'Choosing the perfect bathroom vanity can feel overwhelming. You want
+  something that fits your space, looks great, and works for your daily routine. But
+  with so '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pick-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pick-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect bathroom vanity can feel overwhelming. You want something that fits your space, looks great, and works for your daily routine.**

@@ -1,10 +1,14 @@
 ---
-title: "Should Bedroom Rug Go under Nightstands: Expert Design Tips"
-description: "Are you wondering whether your bedroom rug should go under your nightstands? It’s a simple question, but the answer can change the whole look and feel of your r"
+title: 'Should Bedroom Rug Go under Nightstands: Expert Design Tips'
+description: Are you wondering whether your bedroom rug should go under your nightstands?
+  It’s a simple question, but the answer can change the whole look and feel of your
+  r
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bedroom-rug-go-under-nightstands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=should-bedroom-rug-go-under-nightstands&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you wondering whether your bedroom rug should go under your nightstands? It’s a simple question, but the answer can change the whole look and feel of your room.**

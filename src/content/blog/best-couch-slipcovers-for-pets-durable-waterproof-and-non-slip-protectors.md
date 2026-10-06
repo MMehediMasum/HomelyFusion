@@ -1,10 +1,14 @@
 ---
-title: "Best Couch Slipcovers for Pets: Durable, Waterproof, and Non-Slip Protectors"
-description: "Protect your couch from pet hair, spills, and scratches with the best couch slipcovers for pets. These covers keep furniture clean and last longer. Pets bring j"
+title: 'Best Couch Slipcovers for Pets: Durable, Waterproof, and Non-Slip Protectors'
+description: Protect your couch from pet hair, spills, and scratches with the best
+  couch slipcovers for pets. These covers keep furniture clean and last longer. Pets
+  bring j
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-couch-slipcovers-for-pets-durable-waterproof-and-non-slip-protectors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-couch-slipcovers-for-pets-durable-waterproof-and-non-slip-protectors&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protect your couch from pet hair, spills, and scratches with the best couch slipcovers for pets. These covers keep furniture clean and last longer.**

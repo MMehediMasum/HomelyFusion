@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Christmas Tree Ornaments: Stunning Shatterproof Holiday Decorations"
-description: "Decorating your Christmas tree is a cherished tradition. Home goods Christmas tree ornaments add a special touch to the festive season. Choosing the right ornam"
+title: 'Home Goods Christmas Tree Ornaments: Stunning Shatterproof Holiday Decorations'
+description: Decorating your Christmas tree is a cherished tradition. Home goods Christmas
+  tree ornaments add a special touch to the festive season. Choosing the right ornam
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-christmas-tree-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-christmas-tree-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Decorating your Christmas tree is a cherished tradition. Home goods Christmas tree ornaments add a special touch to the festive season.**

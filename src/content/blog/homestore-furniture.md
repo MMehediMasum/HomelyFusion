@@ -1,10 +1,14 @@
 ---
-title: "Homestore Furniture: Discover Ultimate Comfort with Ashley HomeStore Picks"
-description: "Discover comfort and style at Homestore Furniture. They offer quality pieces for every room in your home. Homestore Furniture is your destination for stylish an"
+title: 'Homestore Furniture: Discover Ultimate Comfort with Ashley HomeStore Picks'
+description: Discover comfort and style at Homestore Furniture. They offer quality
+  pieces for every room in your home. Homestore Furniture is your destination for
+  stylish an
 pubDate: 2025-11-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homestore-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=homestore-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover comfort and style at Homestore Furniture. They offer quality pieces for every room in your home.**

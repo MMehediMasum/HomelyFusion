@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Kitchen Countertop: Stunning Ideas for Style"
-description: "Your kitchen countertop is more than just a workspace—it’s the heart of your kitchen’s style. But how do you make it look inviting without cluttering it? Decora"
+title: 'How to Decorate a Kitchen Countertop: Stunning Ideas for Style'
+description: Your kitchen countertop is more than just a workspace—it’s the heart
+  of your kitchen’s style. But how do you make it look inviting without cluttering
+  it? Decora
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-countertop&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-kitchen-countertop&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen countertop is more than just a workspace—it’s the heart of your kitchen’s style. But how do you make it look inviting without cluttering it?**

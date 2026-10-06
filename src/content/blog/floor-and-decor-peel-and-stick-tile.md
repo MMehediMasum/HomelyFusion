@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Peel And Stick Tile: Stylish DIY Flooring Solutions Guide"
-description: "Peel and stick tiles offer a simple way to update your floors. They are stylish, affordable, and easy to install. Home improvement doesn't have to be complicate"
+title: 'Floor And Decor Peel And Stick Tile: Stylish DIY Flooring Solutions Guide'
+description: Peel and stick tiles offer a simple way to update your floors. They are
+  stylish, affordable, and easy to install. Home improvement doesn't have to be complicate
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-peel-and-stick-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-peel-and-stick-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Peel and stick tiles offer a simple way to update your floors. They are stylish, affordable, and easy to install.**

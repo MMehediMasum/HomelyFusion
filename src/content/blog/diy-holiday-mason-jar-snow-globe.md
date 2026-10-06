@@ -1,10 +1,14 @@
 ---
-title: "Diy Holiday Mason Jar Snow Globe: Magical Festive Craft Ideas"
-description: "Are you looking for a fun and creative way to add a personal touch to your holiday decorations? A DIY holiday mason jar snow globe is the perfect project for yo"
+title: 'Diy Holiday Mason Jar Snow Globe: Magical Festive Craft Ideas'
+description: Are you looking for a fun and creative way to add a personal touch to
+  your holiday decorations? A DIY holiday mason jar snow globe is the perfect project
+  for yo
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-holiday-mason-jar-snow-globe&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=diy-holiday-mason-jar-snow-globe&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your holiday decorations? A DIY holiday mason jar snow globe is the perfect project for you.**

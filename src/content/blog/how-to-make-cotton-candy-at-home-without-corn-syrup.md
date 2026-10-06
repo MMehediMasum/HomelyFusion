@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy at Home Without Corn Syrup: Easy & Natural Tips"
 description: "Have you ever craved that sweet, fluffy cloud of cotton candy but didn’t want to use corn syrup? Making cotton candy at home might sound tricky, but it’s easier"
 pubDate: 2026-02-21

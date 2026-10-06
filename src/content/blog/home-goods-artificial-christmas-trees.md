@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Artificial Christmas Trees: Top Realistic Holiday Décor Picks"
-description: "Artificial Christmas trees offer a convenient way to bring holiday cheer into your home. They come in various sizes and styles, making it easy to find the perfe"
+title: 'Home Goods Artificial Christmas Trees: Top Realistic Holiday Décor Picks'
+description: Artificial Christmas trees offer a convenient way to bring holiday cheer
+  into your home. They come in various sizes and styles, making it easy to find the
+  perfe
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-artificial-christmas-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Textiles
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-artificial-christmas-trees&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Artificial Christmas trees offer a convenient way to bring holiday cheer into your home. They come in various sizes and styles, making it easy to find the perfect fit for your space.**

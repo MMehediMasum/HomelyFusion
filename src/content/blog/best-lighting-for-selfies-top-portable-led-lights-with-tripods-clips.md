@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for Selfies: Top Portable LED Lights with Tripods & Clips"
 description: "Good lighting makes selfies look clear and attractive. Choosing the right light can improve your photos instantly. Selfies often suffer from poor lighting that "
 pubDate: 2025-12-10

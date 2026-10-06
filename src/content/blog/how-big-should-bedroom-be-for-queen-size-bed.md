@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Bedroom Be for Queen Size Bed: Perfect Space Guide"
-description: "Are you wondering how much space you really need for a queen size bed in your bedroom? Choosing the right room size isn’t just about fitting the bed—it’s about "
+title: 'How Big Should Bedroom Be for Queen Size Bed: Perfect Space Guide'
+description: 'Are you wondering how much space you really need for a queen size bed
+  in your bedroom? Choosing the right room size isn’t just about fitting the bed—it’s
+  about '
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-queen-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-queen-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how much space you really need for a queen size bed in your bedroom? Choosing the right room size isn’t just about fitting the bed—it’s about making sure you have enough space to move comfortably and create a relaxing atmosphere.**

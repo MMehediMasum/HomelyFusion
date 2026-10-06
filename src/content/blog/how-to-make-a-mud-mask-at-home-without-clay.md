@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Mud Mask at Home Without Clay: Easy Natural Recipe"
 description: "Are you looking for a simple way to refresh your skin without buying expensive products? You don’t need clay to make an effective mud mask at home. Imagine trea"
 pubDate: 2026-02-15

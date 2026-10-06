@@ -1,10 +1,13 @@
 ---
-title: "How Many End Tables Should a Living Room Have: Expert Tips Revealed"
-description: "Have you ever wondered how many end tables your living room really needs? Choosing the right number isn’t just about filling space—it’s about creating balance, "
+title: 'How Many End Tables Should a Living Room Have: Expert Tips Revealed'
+description: 'Have you ever wondered how many end tables your living room really needs?
+  Choosing the right number isn’t just about filling space—it’s about creating balance, '
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-end-tables-should-a-living-room-have&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-many-end-tables-should-a-living-room-have&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how many end tables your living room really needs? Choosing the right number isn’t just about filling space—it’s about creating balance, comfort, and style in a room where you spend so much time.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Cover a Wall With Mirrors: Stunning Ideas to Transform Space"
-description: "Have you ever thought about how mirrors can completely transform your space? Covering a wall with mirrors is a simple trick that can make your room look bigger,"
+title: 'How to Cover a Wall With Mirrors: Stunning Ideas to Transform Space'
+description: Have you ever thought about how mirrors can completely transform your
+  space? Covering a wall with mirrors is a simple trick that can make your room look
+  bigger,
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-cover-a-wall-with-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-cover-a-wall-with-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever thought about how mirrors can completely transform your space? Covering a wall with mirrors is a simple trick that can make your room look bigger, brighter, and more stylish—all at once.**

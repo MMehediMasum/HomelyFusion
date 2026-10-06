@@ -1,10 +1,14 @@
 ---
-title: "Pillows Home Goods: Top Cozy Picks for All Sleeping Styles"
-description: "Pillows Home Goods offer comfort and support for every type of sleeper. These pillows suit back, side, and stomach sleepers alike. Choosing the right pillow imp"
+title: 'Pillows Home Goods: Top Cozy Picks for All Sleeping Styles'
+description: Pillows Home Goods offer comfort and support for every type of sleeper.
+  These pillows suit back, side, and stomach sleepers alike. Choosing the right pillow
+  imp
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pillows Home Goods offer comfort and support for every type of sleeper. These pillows suit back, side, and stomach sleepers alike.**

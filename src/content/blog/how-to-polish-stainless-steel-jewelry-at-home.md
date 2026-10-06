@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Polish Stainless Steel Jewelry at Home: Easy Sparkling Tips"
 description: "Your stainless steel jewelry deserves to shine like new, but over time, it can lose its sparkle. You might think polishing it requires special tools or a trip t"
 pubDate: 2026-02-10

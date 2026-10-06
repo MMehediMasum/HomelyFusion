@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Galaxy Effect on Wall: Stunning DIY Guide"
-description: "Are you ready to transform your plain wall into a stunning galaxy full of stars and colors? Painting a galaxy effect on your wall is easier than you think, and "
+title: 'How to Paint Galaxy Effect on Wall: Stunning DIY Guide'
+description: 'Are you ready to transform your plain wall into a stunning galaxy full
+  of stars and colors? Painting a galaxy effect on your wall is easier than you think,
+  and '
 pubDate: 2026-02-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-galaxy-effect-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-galaxy-effect-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your plain wall into a stunning galaxy full of stars and colors? Painting a galaxy effect on your wall is easier than you think, and it can instantly brighten up your space with a touch of magic.**

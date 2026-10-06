@@ -1,10 +1,14 @@
 ---
-title: "Are Sectional Sofa for Living Room: Ultimate Comfort and Style Guide"
-description: "Are you thinking about upgrading your living room? A sectional sofa might be the perfect choice for you. It’s not just a piece of furniture—it’s where you relax"
+title: 'Are Sectional Sofa for Living Room: Ultimate Comfort and Style Guide'
+description: Are you thinking about upgrading your living room? A sectional sofa might
+  be the perfect choice for you. It’s not just a piece of furniture—it’s where you
+  relax
 pubDate: 2026-03-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-sectional-sofa-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=are-sectional-sofa-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about upgrading your living room? A sectional sofa might be the perfect choice for you.**

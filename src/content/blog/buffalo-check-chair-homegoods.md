@@ -1,10 +1,14 @@
 ---
-title: "Buffalo Check Chair Homegoods: Cozy Farmhouse Accent Chairs for Every Room"
-description: "Buffalo check chairs offer a timeless appeal to any room. Their bold patterns and classic style enhance home decor. Buffalo check chairs have become a favorite "
+title: 'Buffalo Check Chair Homegoods: Cozy Farmhouse Accent Chairs for Every Room'
+description: 'Buffalo check chairs offer a timeless appeal to any room. Their bold
+  patterns and classic style enhance home decor. Buffalo check chairs have become
+  a favorite '
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=buffalo-check-chair-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=buffalo-check-chair-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Buffalo check chairs offer a timeless appeal to any room. Their bold patterns and classic style enhance home decor.**

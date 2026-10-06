@@ -1,10 +1,14 @@
 ---
-title: "Does a Living Room Need a Rug And Center Table: Essential Tips"
-description: "Are you wondering if your living room really needs a rug and a center table? You might think these pieces are just extra clutter, but they can actually change t"
+title: 'Does a Living Room Need a Rug And Center Table: Essential Tips'
+description: Are you wondering if your living room really needs a rug and a center
+  table? You might think these pieces are just extra clutter, but they can actually
+  change t
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-living-room-need-a-rug-and-center-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=does-a-living-room-need-a-rug-and-center-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you wondering if your living room really needs a rug and a center table? You might think these pieces are just extra clutter, but they can actually change the whole feel of your space.**

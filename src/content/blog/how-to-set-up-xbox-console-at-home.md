@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Xbox Console at Home: Easy Steps for Gamers"
 description: "Setting up your Xbox console at home doesn’t have to be confusing or frustrating. Whether you’re a first-time user or upgrading to the latest model, this guide "
 pubDate: 2026-04-24

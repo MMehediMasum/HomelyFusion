@@ -1,10 +1,14 @@
 ---
-title: "Can a Fireplace Heat Your Home: Surprising Facts You Need to Know"
-description: "Have you ever wondered if your fireplace can actually heat your entire home? You might think it’s just for cozy nights or adding charm to your living room. But "
+title: 'Can a Fireplace Heat Your Home: Surprising Facts You Need to Know'
+description: 'Have you ever wondered if your fireplace can actually heat your entire
+  home? You might think it’s just for cozy nights or adding charm to your living room.
+  But '
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-fireplace-heat-your-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-a-fireplace-heat-your-home&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your fireplace can actually heat your entire home? You might think it’s just for cozy nights or adding charm to your living room.**

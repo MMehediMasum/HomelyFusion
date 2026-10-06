@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Homemade Mulled Wine Recipe: Cozy, Easy, and Delicious Guide"
 description: "Imagine cozying up with a warm cup of spiced wine that fills your home with inviting aromas. You don’t need to buy expensive bottles or wait for special occasio"
 pubDate: 2025-10-25

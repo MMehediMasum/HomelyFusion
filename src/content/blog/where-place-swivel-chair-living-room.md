@@ -1,10 +1,14 @@
 ---
-title: "Where Place Swivel Chair Living Room: Ultimate Style & Comfort Guide"
-description: "Are you wondering where to place a swivel chair in your living room? Finding the perfect spot can change the way you relax and interact in your space. Imagine h"
+title: 'Where Place Swivel Chair Living Room: Ultimate Style & Comfort Guide'
+description: Are you wondering where to place a swivel chair in your living room?
+  Finding the perfect spot can change the way you relax and interact in your space.
+  Imagine h
 pubDate: 2026-04-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-place-swivel-chair-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-place-swivel-chair-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to place a swivel chair in your living room? Finding the perfect spot can change the way you relax and interact in your space.**

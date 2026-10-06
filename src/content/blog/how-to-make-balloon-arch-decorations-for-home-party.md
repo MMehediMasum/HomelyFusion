@@ -1,10 +1,13 @@
 ---
-title: "How to Make Balloon Arch Decorations for Home Party: Easy DIY Guide"
-description: "Planning a home party and want to impress your guests with stunning decorations? A balloon arch is the perfect way to add color, fun, and a festive vibe to your"
+title: 'How to Make Balloon Arch Decorations for Home Party: Easy DIY Guide'
+description: Planning a home party and want to impress your guests with stunning decorations?
+  A balloon arch is the perfect way to add color, fun, and a festive vibe to your
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-decorations-for-home-party&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-decorations-for-home-party&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Planning a home party and want to impress your guests with stunning decorations? A balloon arch is the perfect way to add color, fun, and a festive vibe to your celebration.**

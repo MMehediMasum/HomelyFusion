@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Curtains: Top Picks for Stylish Light Blocking Drapes"
-description: "Bed Bath and Beyond curtains offer a wide range of styles and functions for every room. Their selection includes blackout, thermal insulated, and decorative cur"
+title: 'Bed Bath And Beyond Curtains: Top Picks for Stylish Light Blocking Drapes'
+description: Bed Bath and Beyond curtains offer a wide range of styles and functions
+  for every room. Their selection includes blackout, thermal insulated, and decorative
+  cur
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Bed Bath and Beyond curtains offer a wide range of styles and functions for every room. Their selection includes blackout, thermal insulated, and decorative curtains to fit your needs.**

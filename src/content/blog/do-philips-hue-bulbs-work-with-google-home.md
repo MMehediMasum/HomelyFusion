@@ -1,10 +1,14 @@
 ---
-title: "Do Philips Hue Bulbs Work With Google Home: Ultimate Compatibility Guide"
-description: "Are you wondering if your Philips Hue bulbs can connect with Google Home? Imagine controlling your lights with just your voice, making your home smarter and you"
+title: 'Do Philips Hue Bulbs Work With Google Home: Ultimate Compatibility Guide'
+description: Are you wondering if your Philips Hue bulbs can connect with Google Home?
+  Imagine controlling your lights with just your voice, making your home smarter and
+  you
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-philips-hue-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=do-philips-hue-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering if your Philips Hue bulbs can connect with Google Home? Imagine controlling your lights with just your voice, making your home smarter and your life easier.**

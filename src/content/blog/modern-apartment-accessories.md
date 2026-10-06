@@ -1,10 +1,15 @@
 ---
-title: "Modern Apartment Accessories: Stylish and Functional Essentials for Every Space"
-description: "Modern apartment living demands smart, stylish, and functional accessories. These items enhance space efficiency and aesthetic appeal. Decorating an apartment w"
+title: 'Modern Apartment Accessories: Stylish and Functional Essentials for Every
+  Space'
+description: Modern apartment living demands smart, stylish, and functional accessories.
+  These items enhance space efficiency and aesthetic appeal. Decorating an apartment
+  w
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-apartment-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-apartment-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern apartment living demands smart, stylish, and functional accessories. These items enhance space efficiency and aesthetic appeal.**

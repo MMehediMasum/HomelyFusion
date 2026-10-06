@@ -1,10 +1,14 @@
 ---
-title: "What is the Table Called in the Living Room: Ultimate Guide"
-description: "Have you ever wondered what the table in your living room is called? It might seem like a simple piece of furniture, but knowing its name can help you choose th"
+title: 'What is the Table Called in the Living Room: Ultimate Guide'
+description: Have you ever wondered what the table in your living room is called?
+  It might seem like a simple piece of furniture, but knowing its name can help you
+  choose th
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-table-called-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-table-called-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what the table in your living room is called? It might seem like a simple piece of furniture, but knowing its name can help you choose the right style and size for your space.**

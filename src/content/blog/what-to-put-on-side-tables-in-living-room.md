@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Side Tables in Living Room: Stylish Must-Haves"
-description: "Your living room side tables can do so much more than just hold your coffee cup. They’re small spaces with big potential to add style, personality, and function"
+title: 'What to Put on Side Tables in Living Room: Stylish Must-Haves'
+description: Your living room side tables can do so much more than just hold your
+  coffee cup. They’re small spaces with big potential to add style, personality, and
+  function
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-side-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-side-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room side tables can do so much more than just hold your coffee cup. They’re small spaces with big potential to add style, personality, and function to your room.**

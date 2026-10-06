@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Nursery Room: Easy Tips for a Dreamy Space"
-description: "Are you ready to create a nursery room that feels warm, cozy, and perfect for your little one? Decorating a nursery is more than just picking colors and furnitu"
+title: 'How to Decorate Nursery Room: Easy Tips for a Dreamy Space'
+description: Are you ready to create a nursery room that feels warm, cozy, and perfect
+  for your little one? Decorating a nursery is more than just picking colors and furnitu
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-nursery-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-nursery-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you ready to create a nursery room that feels warm, cozy, and perfect for your little one? Decorating a nursery is more than just picking colors and furniture—it’s about designing a space where your baby will feel safe and loved.**

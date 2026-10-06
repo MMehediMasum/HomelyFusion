@@ -1,10 +1,14 @@
 ---
-title: "Weighted Blanket Grand Island NE: Top Cozy, Cooling Options for Adults"
-description: "Weighted blankets in Grand Island, NE, offer comfort and better sleep for many adults. These blankets use glass beads to add gentle pressure that calms the body"
+title: 'Weighted Blanket Grand Island NE: Top Cozy, Cooling Options for Adults'
+description: Weighted blankets in Grand Island, NE, offer comfort and better sleep
+  for many adults. These blankets use glass beads to add gentle pressure that calms
+  the body
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=weighted-blanket-grand-island-ne&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=weighted-blanket-grand-island-ne&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Weighted blankets in Grand Island, NE, offer comfort and better sleep for many adults. These blankets use glass beads to add gentle pressure that calms the body.**

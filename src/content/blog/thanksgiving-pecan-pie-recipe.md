@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pecan Pie Recipe: Irresistible, Classic & Easy Guide"
 description: "Are you ready to wow your family and friends this Thanksgiving? Imagine serving a pecan pie so rich and delicious that everyone asks for seconds. This Thanksgiv"
 pubDate: 2025-12-20

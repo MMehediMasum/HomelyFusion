@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Bookcases in a Living Room: Stylish Placement Tips"
-description: "Are you wondering where to put bookcases in your living room to make the most of your space? Choosing the right spot can transform your room from cluttered to c"
+title: 'Where to Put Bookcases in a Living Room: Stylish Placement Tips'
+description: Are you wondering where to put bookcases in your living room to make
+  the most of your space? Choosing the right spot can transform your room from cluttered
+  to c
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-bookcases-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-bookcases-in-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering where to put bookcases in your living room to make the most of your space? Choosing the right spot can transform your room from cluttered to cozy and stylish.**

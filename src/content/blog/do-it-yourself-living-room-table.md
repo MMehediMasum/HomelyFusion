@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Living Room Table: Creative Ideas for Stunning Results"
-description: "Are you ready to add a unique touch to your living room without spending a fortune? Building your own living room table is easier than you think, and it gives y"
+title: 'Do It Yourself Living Room Table: Creative Ideas for Stunning Results'
+description: Are you ready to add a unique touch to your living room without spending
+  a fortune? Building your own living room table is easier than you think, and it
+  gives y
 pubDate: 2026-03-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to add a unique touch to your living room without spending a fortune? Building your own living room table is easier than you think, and it gives you full control over the style, size, and materials.**

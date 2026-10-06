@@ -1,10 +1,14 @@
 ---
-title: "Wall Sign Home Decor: Rustic Elegance for Every Room and Entryway"
-description: "Wall sign home decor adds charm and personality to any space. These signs offer warmth and a welcoming feel. Decorating your home with wall signs can instantly "
+title: 'Wall Sign Home Decor: Rustic Elegance for Every Room and Entryway'
+description: 'Wall sign home decor adds charm and personality to any space. These
+  signs offer warmth and a welcoming feel. Decorating your home with wall signs can
+  instantly '
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-sign-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-sign-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall sign home decor adds charm and personality to any space. These signs offer warmth and a welcoming feel.**

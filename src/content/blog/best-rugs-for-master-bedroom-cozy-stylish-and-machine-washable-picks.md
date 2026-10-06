@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Master Bedroom: Cozy, Stylish, and Machine Washable Picks"
-description: "Choosing the best rugs for your master bedroom adds warmth and style. The right rug can tie your room’s look together and create comfort underfoot. Rugs come in"
+title: 'Best Rugs for Master Bedroom: Cozy, Stylish, and Machine Washable Picks'
+description: Choosing the best rugs for your master bedroom adds warmth and style.
+  The right rug can tie your room’s look together and create comfort underfoot. Rugs
+  come in
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-master-bedroom-cozy-stylish-and-machine-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-master-bedroom-cozy-stylish-and-machine-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for your master bedroom adds warmth and style. The right rug can tie your room’s look together and create comfort underfoot.**

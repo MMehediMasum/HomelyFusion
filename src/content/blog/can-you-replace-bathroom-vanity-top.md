@@ -1,10 +1,14 @@
 ---
-title: "Can You Replace Bathroom Vanity Top: Easy DIY Guide Revealed"
-description: "Are you thinking about giving your bathroom a fresh look without spending a fortune? Replacing your bathroom vanity top could be the perfect solution. But can y"
+title: 'Can You Replace Bathroom Vanity Top: Easy DIY Guide Revealed'
+description: Are you thinking about giving your bathroom a fresh look without spending
+  a fortune? Replacing your bathroom vanity top could be the perfect solution. But
+  can y
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-replace-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about giving your bathroom a fresh look without spending a fortune? Replacing your bathroom vanity top could be the perfect solution.**

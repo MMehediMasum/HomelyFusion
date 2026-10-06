@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Underlayment: Top Picks for Soundproofing and Moisture Barrier"
-description: "Choosing the right floor underlayment is crucial for your flooring project. It affects comfort, durability, and noise reduction. Floor and Decor underlayment op"
+title: 'Floor And Decor Underlayment: Top Picks for Soundproofing and Moisture Barrier'
+description: Choosing the right floor underlayment is crucial for your flooring project.
+  It affects comfort, durability, and noise reduction. Floor and Decor underlayment
+  op
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-underlayment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-underlayment&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right floor underlayment is crucial for your flooring project. It affects comfort, durability, and noise reduction.**

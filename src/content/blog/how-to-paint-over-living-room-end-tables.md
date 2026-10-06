@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Over Living Room End Tables: Easy Steps for Stunning Results"
-description: "Are your living room end tables looking tired or outdated? You don’t have to buy new furniture to refresh your space. Painting over your end tables is a simple "
+title: 'How to Paint Over Living Room End Tables: Easy Steps for Stunning Results'
+description: 'Are your living room end tables looking tired or outdated? You don’t
+  have to buy new furniture to refresh your space. Painting over your end tables is
+  a simple '
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-over-living-room-end-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-over-living-room-end-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are your living room end tables looking tired or outdated? You don’t have to buy new furniture to refresh your space.**

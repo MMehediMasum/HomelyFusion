@@ -1,10 +1,14 @@
 ---
-title: "Best Pendant Lights for Bedroom to Elevate Your Cozy Ambiance"
-description: "Pendant lights add style and soft lighting to any bedroom. They save space and create a cozy atmosphere. Choosing the best pendant lights for your bedroom can c"
+title: Best Pendant Lights for Bedroom to Elevate Your Cozy Ambiance
+description: Pendant lights add style and soft lighting to any bedroom. They save
+  space and create a cozy atmosphere. Choosing the best pendant lights for your bedroom
+  can c
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pendant-lights-for-bedroom-to-elevate-your-cozy-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-pendant-lights-for-bedroom-to-elevate-your-cozy-ambiance&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Pendant lights add style and soft lighting to any bedroom. They save space and create a cozy atmosphere.**

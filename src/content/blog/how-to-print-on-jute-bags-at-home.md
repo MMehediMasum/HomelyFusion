@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Print on Jute Bags at Home: Easy DIY Guide"
 description: "Are you looking to add a personal touch to your jute bags without spending a fortune? Printing on jute bags at home is easier than you think, and it’s a great w"
 pubDate: 2025-11-16

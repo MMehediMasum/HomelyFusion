@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Home Blanket: Ultimate Cozy Soft Throw for Your Couch"
-description: "Magaschoni Home Blanket offers cozy warmth and stylish comfort for any living space. These blankets blend softness with attractive designs to enhance your home."
+title: 'Magaschoni Home Blanket: Ultimate Cozy Soft Throw for Your Couch'
+description: Magaschoni Home Blanket offers cozy warmth and stylish comfort for any
+  living space. These blankets blend softness with attractive designs to enhance your
+  home.
 pubDate: 2026-07-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-home-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-home-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Magaschoni Home Blanket offers cozy warmth and stylish comfort for any living space. These blankets blend softness with attractive designs to enhance your home.**

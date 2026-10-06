@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Nightstands: Stylish Storage and Charging Solutions for Bedrooms"
-description: "Nightstands add both style and function to any bedroom or living space. They keep essentials close while enhancing room decor. Choosing the right nightstand can"
+title: 'Home Goods Nightstands: Stylish Storage and Charging Solutions for Bedrooms'
+description: Nightstands add both style and function to any bedroom or living space.
+  They keep essentials close while enhancing room decor. Choosing the right nightstand
+  can
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-nightstands&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-nightstands&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Nightstands add both style and function to any bedroom or living space. They keep essentials close while enhancing room decor.**

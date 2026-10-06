@@ -1,10 +1,14 @@
 ---
-title: "What Type of Paint for Bedroom Dresser: Best Choices Revealed"
-description: "Are you thinking about giving your bedroom dresser a fresh new look? Choosing the right type of paint can make all the difference in how your dresser looks and "
+title: 'What Type of Paint for Bedroom Dresser: Best Choices Revealed'
+description: 'Are you thinking about giving your bedroom dresser a fresh new look?
+  Choosing the right type of paint can make all the difference in how your dresser
+  looks and '
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-type-of-paint-for-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-type-of-paint-for-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about giving your bedroom dresser a fresh new look? Choosing the right type of paint can make all the difference in how your dresser looks and lasts over time.**

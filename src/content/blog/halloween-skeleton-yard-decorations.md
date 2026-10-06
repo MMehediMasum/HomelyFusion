@@ -1,10 +1,14 @@
 ---
-title: "Halloween Skeleton Yard Decorations: Spooktacular Ideas to Impress"
-description: "Are you ready to turn your yard into the spookiest spot on the block this Halloween? Skeleton yard decorations are the perfect way to grab attention and create "
+title: 'Halloween Skeleton Yard Decorations: Spooktacular Ideas to Impress'
+description: 'Are you ready to turn your yard into the spookiest spot on the block
+  this Halloween? Skeleton yard decorations are the perfect way to grab attention
+  and create '
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-skeleton-yard-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-skeleton-yard-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to turn your yard into the spookiest spot on the block this Halloween? Skeleton yard decorations are the perfect way to grab attention and create an eerie atmosphere that will thrill your neighbors and visitors.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Modern Bathroom Vanity: Easy Steps for Stylish Results"
-description: "Your bathroom deserves a fresh, stylish upgrade, and building a modern vanity is the perfect place to start. Imagine having a sleek, custom piece that fits your"
+title: 'How to Build a Modern Bathroom Vanity: Easy Steps for Stylish Results'
+description: Your bathroom deserves a fresh, stylish upgrade, and building a modern
+  vanity is the perfect place to start. Imagine having a sleek, custom piece that
+  fits your
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-modern-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Building
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-modern-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom deserves a fresh, stylish upgrade, and building a modern vanity is the perfect place to start. Imagine having a sleek, custom piece that fits your space and style perfectly—saving you money and giving you a sense of pride every time you see it.**

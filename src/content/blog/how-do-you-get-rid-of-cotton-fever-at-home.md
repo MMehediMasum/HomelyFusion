@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Get Rid of Cotton Fever at Home: Quick Relief Tips"
 description: "Have you ever felt sudden chills, shaking, or a fever after using cotton for injections? That uncomfortable feeling might be cotton fever, and it can catch you "
 pubDate: 2025-11-11

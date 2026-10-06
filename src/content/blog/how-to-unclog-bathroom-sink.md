@@ -1,10 +1,14 @@
 ---
-title: "How to Unclog Bathroom Sink: Quick & Easy DIY Solutions"
-description: "Is your bathroom sink draining slowly or not at all? A clogged sink can be frustrating and disrupt your daily routine. But don’t worry—you don’t need to call a "
+title: 'How to Unclog Bathroom Sink: Quick & Easy DIY Solutions'
+description: 'Is your bathroom sink draining slowly or not at all? A clogged sink
+  can be frustrating and disrupt your daily routine. But don’t worry—you don’t need
+  to call a '
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-unclog-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-unclog-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom sink draining slowly or not at all? A clogged sink can be frustrating and disrupt your daily routine.**

@@ -1,10 +1,14 @@
 ---
-title: "What Do You Put on Living Room End Tables: Stylish Ideas That Wow"
-description: "What do you put on living room end tables? It’s a simple question, but the answer can change the entire feel of your space. Your end tables aren’t just empty su"
+title: 'What Do You Put on Living Room End Tables: Stylish Ideas That Wow'
+description: What do you put on living room end tables? It’s a simple question, but
+  the answer can change the entire feel of your space. Your end tables aren’t just
+  empty su
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-put-on-living-room-end-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-put-on-living-room-end-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **What do you put on living room end tables? It’s a simple question, but the answer can change the entire feel of your space.**

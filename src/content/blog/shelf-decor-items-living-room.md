@@ -1,10 +1,14 @@
 ---
-title: "Shelf Decor Items Living Room: Top Picks for Stylish and Cozy Spaces"
-description: "Shelf decor items add style and personality to any living room. Small plants, figurines, and rustic pieces create a cozy, inviting space. Decorating shelves in "
+title: 'Shelf Decor Items Living Room: Top Picks for Stylish and Cozy Spaces'
+description: 'Shelf decor items add style and personality to any living room. Small
+  plants, figurines, and rustic pieces create a cozy, inviting space. Decorating shelves
+  in '
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=shelf-decor-items-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=shelf-decor-items-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Shelf decor items add style and personality to any living room. Small plants, figurines, and rustic pieces create a cozy, inviting space.**

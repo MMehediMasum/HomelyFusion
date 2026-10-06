@@ -1,10 +1,14 @@
 ---
-title: "The Floor Project: Essential Tools and Tips for Perfect Flooring Installation"
-description: "\"The Floor Project\" explores diverse aspects of flooring and related crafts. From DIY transformations to professional estimating, it covers all. This blog post "
+title: 'The Floor Project: Essential Tools and Tips for Perfect Flooring Installation'
+description: '"The Floor Project" explores diverse aspects of flooring and related
+  crafts. From DIY transformations to professional estimating, it covers all. This
+  blog post '
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-floor-project&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=the-floor-project&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **"The Floor Project" explores diverse aspects of flooring and related crafts. From DIY transformations to professional estimating, it covers all.**

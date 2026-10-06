@@ -1,10 +1,14 @@
 ---
-title: "Decor Frame Ideas: Stylish Picture Frames to Enhance Your Home Decor"
-description: "Decor frames add charm and personality to any space. They protect and highlight your favorite photos or artwork. Choosing the right decor frame enhances your ro"
+title: 'Decor Frame Ideas: Stylish Picture Frames to Enhance Your Home Decor'
+description: Decor frames add charm and personality to any space. They protect and
+  highlight your favorite photos or artwork. Choosing the right decor frame enhances
+  your ro
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=decor-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decor frames add charm and personality to any space. They protect and highlight your favorite photos or artwork.**

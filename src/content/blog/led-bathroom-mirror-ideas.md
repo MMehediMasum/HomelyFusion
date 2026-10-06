@@ -1,10 +1,14 @@
 ---
-title: "Led Bathroom Mirror Ideas: Stunning Designs to Brighten Your Space"
-description: "Are you ready to transform your bathroom into a stylish and functional space? Choosing the right LED bathroom mirror can make all the difference. Imagine a mirr"
+title: 'Led Bathroom Mirror Ideas: Stunning Designs to Brighten Your Space'
+description: Are you ready to transform your bathroom into a stylish and functional
+  space? Choosing the right LED bathroom mirror can make all the difference. Imagine
+  a mirr
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=led-bathroom-mirror-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=led-bathroom-mirror-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to transform your bathroom into a stylish and functional space? Choosing the right LED bathroom mirror can make all the difference.**

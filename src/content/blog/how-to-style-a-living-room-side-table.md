@@ -1,10 +1,13 @@
 ---
-title: "How to Style a Living Room Side Table: Chic Ideas to Transform Space"
-description: "Your living room side table is more than just a small piece of furniture—it’s a chance to showcase your style and add personality to your space. But styling it "
+title: 'How to Style a Living Room Side Table: Chic Ideas to Transform Space'
+description: 'Your living room side table is more than just a small piece of furniture—it’s
+  a chance to showcase your style and add personality to your space. But styling it '
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-side-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-living-room-side-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room side table is more than just a small piece of furniture—it’s a chance to showcase your style and add personality to your space. But styling it can feel tricky.**

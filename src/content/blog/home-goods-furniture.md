@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Furniture: Stylish Storage Solutions for Every Room"
-description: "Discover the perfect blend of functionality and style with Home Goods Furniture. Transform your space effortlessly with our diverse collection. Creating a cozy "
+title: 'Home Goods Furniture: Stylish Storage Solutions for Every Room'
+description: 'Discover the perfect blend of functionality and style with Home Goods
+  Furniture. Transform your space effortlessly with our diverse collection. Creating
+  a cozy '
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover the perfect blend of functionality and style with Home Goods Furniture. Transform your space effortlessly with our diverse collection.**

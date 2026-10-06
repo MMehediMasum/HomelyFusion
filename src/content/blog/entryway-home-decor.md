@@ -1,10 +1,13 @@
 ---
-title: "Entryway Home Decor Ideas: Stylish Key Holders, Faux Plants & Rustic Accents"
-description: "Creating a welcoming entryway is essential for making a great first impression. Thoughtful decor can transform this space into a stylish yet functional area. Th"
+title: 'Entryway Home Decor Ideas: Stylish Key Holders, Faux Plants & Rustic Accents'
+description: Creating a welcoming entryway is essential for making a great first impression.
+  Thoughtful decor can transform this space into a stylish yet functional area. Th
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=entryway-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=entryway-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating a welcoming entryway is essential for making a great first impression. Thoughtful decor can transform this space into a stylish yet functional area.**

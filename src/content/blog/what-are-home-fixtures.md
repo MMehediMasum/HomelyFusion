@@ -1,10 +1,14 @@
 ---
-title: "What are Home Fixtures: Essential Guide to Upgrade Your Space"
-description: "Have you ever wondered what makes your home truly feel like yours? It’s not just the furniture or the paint on the walls—it’s the home fixtures. These small but"
+title: 'What are Home Fixtures: Essential Guide to Upgrade Your Space'
+description: Have you ever wondered what makes your home truly feel like yours? It’s
+  not just the furniture or the paint on the walls—it’s the home fixtures. These small
+  but
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-home-fixtures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-are-home-fixtures&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered what makes your home truly feel like yours? It’s not just the furniture or the paint on the walls—it’s the home fixtures.**

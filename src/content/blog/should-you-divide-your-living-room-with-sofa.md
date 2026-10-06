@@ -1,10 +1,14 @@
 ---
-title: "Should You Divide Your Living Room With Sofa: Smart Space Hacks"
-description: "Are you wondering if placing a sofa to divide your living room is a good idea? It’s a simple change that can completely transform how your space feels and funct"
+title: 'Should You Divide Your Living Room With Sofa: Smart Space Hacks'
+description: Are you wondering if placing a sofa to divide your living room is a good
+  idea? It’s a simple change that can completely transform how your space feels and
+  funct
 pubDate: 2026-03-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-you-divide-your-living-room-with-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=should-you-divide-your-living-room-with-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if placing a sofa to divide your living room is a good idea? It’s a simple change that can completely transform how your space feels and functions.**

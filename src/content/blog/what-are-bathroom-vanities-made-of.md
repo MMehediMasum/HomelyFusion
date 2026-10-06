@@ -1,10 +1,14 @@
 ---
-title: "What are Bathroom Vanities Made of: Ultimate Materials Guide"
-description: "When you think about upgrading your bathroom, have you ever stopped to wonder what bathroom vanities are actually made of? Knowing the materials behind your van"
+title: 'What are Bathroom Vanities Made of: Ultimate Materials Guide'
+description: When you think about upgrading your bathroom, have you ever stopped to
+  wonder what bathroom vanities are actually made of? Knowing the materials behind
+  your van
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-bathroom-vanities-made-of&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=what-are-bathroom-vanities-made-of&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When you think about upgrading your bathroom, have you ever stopped to wonder what bathroom vanities are actually made of? Knowing the materials behind your vanity can make a big difference in choosing one that fits your style, budget, and how long it will last.**

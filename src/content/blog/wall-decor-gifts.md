@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Gifts: Unique Rustic and Boho Designs for Every Home"
-description: "Decorating your walls can transform any space into a personal haven. Wall decor gifts make thoughtful and charming presents. Wall decor gifts offer endless poss"
+title: 'Wall Decor Gifts: Unique Rustic and Boho Designs for Every Home'
+description: Decorating your walls can transform any space into a personal haven.
+  Wall decor gifts make thoughtful and charming presents. Wall decor gifts offer endless
+  poss
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-gifts&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-gifts&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating your walls can transform any space into a personal haven. Wall decor gifts make thoughtful and charming presents.**

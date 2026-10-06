@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Furniture Clearance: Top Deals for Stylish Outdoor Living"
-description: "Find great deals on patio furniture and garden accessories at the Home Goods Patio Furniture Clearance. Refresh your outdoor space with quality items at lower p"
+title: 'Home Goods Patio Furniture Clearance: Top Deals for Stylish Outdoor Living'
+description: Find great deals on patio furniture and garden accessories at the Home
+  Goods Patio Furniture Clearance. Refresh your outdoor space with quality items at
+  lower p
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-clearance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-furniture-clearance&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Find great deals on patio furniture and garden accessories at the Home Goods Patio Furniture Clearance. Refresh your outdoor space with quality items at lower prices.**

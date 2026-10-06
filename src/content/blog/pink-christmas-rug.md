@@ -1,10 +1,14 @@
 ---
-title: "Pink Christmas Rug Ideas to Brighten Your Holiday Home Decor"
-description: "Pink Christmas rugs add a unique, festive touch to any space during the holiday season. These rugs combine holiday charm with a soft, inviting feel. Decorating "
+title: Pink Christmas Rug Ideas to Brighten Your Holiday Home Decor
+description: 'Pink Christmas rugs add a unique, festive touch to any space during
+  the holiday season. These rugs combine holiday charm with a soft, inviting feel.
+  Decorating '
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=pink-christmas-rug&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=pink-christmas-rug&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Pink Christmas rugs add a unique, festive touch to any space during the holiday season. These rugs combine holiday charm with a soft, inviting feel.**

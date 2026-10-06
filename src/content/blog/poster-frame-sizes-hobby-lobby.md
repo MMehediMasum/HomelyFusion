@@ -1,10 +1,14 @@
 ---
-title: "Poster Frame Sizes Hobby Lobby: Find Perfect Frames for Every Artwork"
-description: "Discover the perfect poster frame sizes at Hobby Lobby for every art piece and decor style. Whether it's a modern design or vintage charm, there's a frame waiti"
+title: 'Poster Frame Sizes Hobby Lobby: Find Perfect Frames for Every Artwork'
+description: Discover the perfect poster frame sizes at Hobby Lobby for every art
+  piece and decor style. Whether it's a modern design or vintage charm, there's a
+  frame waiti
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=poster-frame-sizes-hobby-lobby&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=poster-frame-sizes-hobby-lobby&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover the perfect poster frame sizes at Hobby Lobby for every art piece and decor style. Whether it's a modern design or vintage charm, there's a frame waiting for you.**

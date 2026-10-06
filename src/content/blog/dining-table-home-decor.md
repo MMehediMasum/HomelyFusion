@@ -1,10 +1,14 @@
 ---
-title: "Dining Table Home Decor Ideas: Boho Rustic Accents for Cozy Spaces"
-description: "Dining table home decor adds charm and warmth to any dining space. Simple touches create a welcoming and stylish atmosphere for family and guests. Decorating yo"
+title: 'Dining Table Home Decor Ideas: Boho Rustic Accents for Cozy Spaces'
+description: Dining table home decor adds charm and warmth to any dining space. Simple
+  touches create a welcoming and stylish atmosphere for family and guests. Decorating
+  yo
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dining-table-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=dining-table-home-decor&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Dining table home decor adds charm and warmth to any dining space. Simple touches create a welcoming and stylish atmosphere for family and guests.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate the Wall behind a Couch: Stunning Ideas That Wow"
-description: "Your couch is the heart of your living room, but the wall behind it often gets overlooked. How you decorate that space can completely change the feel of your ro"
+title: 'How to Decorate the Wall behind a Couch: Stunning Ideas That Wow'
+description: Your couch is the heart of your living room, but the wall behind it often
+  gets overlooked. How you decorate that space can completely change the feel of your
+  ro
 pubDate: 2025-10-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-the-wall-behind-a-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-the-wall-behind-a-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your couch is the heart of your living room, but the wall behind it often gets overlooked. How you decorate that space can completely change the feel of your room.**

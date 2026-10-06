@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Lantern at Home: Easy DIY Guide for Stunning Lights"
-description: "Do you want to add a warm, glowing touch to your home without spending a lot? Making your own lantern at home is easier than you think. Imagine lighting up your"
+title: 'How to Make a Lantern at Home: Easy DIY Guide for Stunning Lights'
+description: Do you want to add a warm, glowing touch to your home without spending
+  a lot? Making your own lantern at home is easier than you think. Imagine lighting
+  up your
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-lantern-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-lantern-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Do you want to add a warm, glowing touch to your home without spending a lot? Making your own lantern at home is easier than you think.**

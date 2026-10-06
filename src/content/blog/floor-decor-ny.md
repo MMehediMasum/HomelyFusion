@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor NY: Unique New York City Rugs and Wall Art Ideas"
 description: "Floor Decor NY offers unique items that celebrate New York’s spirit and style. These pieces bring a touch of the city’s energy into your home. New York-themed f"
 pubDate: 2026-08-03

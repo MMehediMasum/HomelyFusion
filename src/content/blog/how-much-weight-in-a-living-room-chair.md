@@ -1,10 +1,13 @@
 ---
-title: "How Much Weight in a Living Room Chair: Ultimate Load Guide"
-description: "Have you ever wondered how much weight your living room chair can actually hold? Whether you're buying a new chair or checking the safety of the one you already"
+title: 'How Much Weight in a Living Room Chair: Ultimate Load Guide'
+description: Have you ever wondered how much weight your living room chair can actually
+  hold? Whether you're buying a new chair or checking the safety of the one you already
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-weight-in-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-much-weight-in-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how much weight your living room chair can actually hold? Whether you're buying a new chair or checking the safety of the one you already have, knowing its weight capacity is crucial.**

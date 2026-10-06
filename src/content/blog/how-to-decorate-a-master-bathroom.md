@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Master Bathroom: Stunning Ideas for Luxury & Style"
-description: "Your master bathroom is more than just a place to get ready—it’s your personal sanctuary. Imagine stepping into a space that instantly relaxes you and reflects "
+title: 'How to Decorate a Master Bathroom: Stunning Ideas for Luxury & Style'
+description: 'Your master bathroom is more than just a place to get ready—it’s your
+  personal sanctuary. Imagine stepping into a space that instantly relaxes you and
+  reflects '
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-master-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-master-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your master bathroom is more than just a place to get ready—it’s your personal sanctuary. Imagine stepping into a space that instantly relaxes you and reflects your style perfectly.**

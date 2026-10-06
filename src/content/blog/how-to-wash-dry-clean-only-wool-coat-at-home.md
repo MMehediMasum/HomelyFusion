@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Dry Clean Only Wool Coat at Home: Easy & Safe Steps"
 description: "You love your wool coat, but the \"Dry Clean Only\" label makes you nervous about washing it yourself. What if it shrinks, loses shape, or gets damaged? The good "
 pubDate: 2026-04-01

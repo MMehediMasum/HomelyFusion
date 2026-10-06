@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Canvas Art: Stunning Wall Prints to Elevate Your Space"
-description: "Canvas art brings life and personality to any room in your home. It's an easy way to refresh your space. Decorating with canvas art is a popular choice for addi"
+title: 'Home Decor Canvas Art: Stunning Wall Prints to Elevate Your Space'
+description: Canvas art brings life and personality to any room in your home. It's
+  an easy way to refresh your space. Decorating with canvas art is a popular choice
+  for addi
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-canvas-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-canvas-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Canvas art brings life and personality to any room in your home. It's an easy way to refresh your space.**

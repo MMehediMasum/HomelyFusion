@@ -1,10 +1,14 @@
 ---
-title: "Coffee Home Decor Ideas: Rustic Signs, Gnomes & Charming Accessories"
-description: "Coffee home decor adds warmth and charm to any kitchen or coffee bar space. It blends style with a love for coffee in simple, creative ways. Coffee-themed decor"
+title: 'Coffee Home Decor Ideas: Rustic Signs, Gnomes & Charming Accessories'
+description: Coffee home decor adds warmth and charm to any kitchen or coffee bar
+  space. It blends style with a love for coffee in simple, creative ways. Coffee-themed
+  decor
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coffee-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=coffee-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Coffee home decor adds warmth and charm to any kitchen or coffee bar space. It blends style with a love for coffee in simple, creative ways.**

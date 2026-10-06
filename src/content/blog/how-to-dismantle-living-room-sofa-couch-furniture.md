@@ -1,10 +1,14 @@
 ---
-title: "How to Dismantle Living Room Sofa Couch Furniture: Easy Step-by-Step Guide"
-description: "Are you facing the challenge of moving or upgrading your living room sofa couch? Knowing how to dismantle your sofa furniture can save you time, effort, and eve"
+title: 'How to Dismantle Living Room Sofa Couch Furniture: Easy Step-by-Step Guide'
+description: Are you facing the challenge of moving or upgrading your living room
+  sofa couch? Knowing how to dismantle your sofa furniture can save you time, effort,
+  and eve
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dismantle-living-room-sofa-couch-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dismantle-living-room-sofa-couch-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you facing the challenge of moving or upgrading your living room sofa couch? Knowing how to dismantle your sofa furniture can save you time, effort, and even money.**

@@ -1,10 +1,13 @@
 ---
-title: "How Much Does It Cost to Paint a Bathroom Vanity: Affordable Tips"
-description: "Thinking about giving your bathroom a fresh look without spending a fortune? One of the easiest and most affordable ways to do that is by painting your bathroom"
+title: 'How Much Does It Cost to Paint a Bathroom Vanity: Affordable Tips'
+description: Thinking about giving your bathroom a fresh look without spending a fortune?
+  One of the easiest and most affordable ways to do that is by painting your bathroom
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-paint-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-it-cost-to-paint-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Thinking about giving your bathroom a fresh look without spending a fortune? One of the easiest and most affordable ways to do that is by painting your bathroom vanity.**

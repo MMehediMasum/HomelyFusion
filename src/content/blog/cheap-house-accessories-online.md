@@ -1,10 +1,13 @@
 ---
-title: "Cheap House Accessories Online: Stylish Essentials for Every Room Decor"
-description: "Affordable house accessories online offer practical and stylish solutions for every home. These items help organize, decorate, and improve daily living without "
+title: 'Cheap House Accessories Online: Stylish Essentials for Every Room Decor'
+description: 'Affordable house accessories online offer practical and stylish solutions
+  for every home. These items help organize, decorate, and improve daily living without '
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-house-accessories-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cheap-house-accessories-online&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Affordable house accessories online offer practical and stylish solutions for every home. These items help organize, decorate, and improve daily living without high costs.**

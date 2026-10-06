@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Mulled Cider Recipe: Cozy, Spiced, and Delicious Delight"
 description: "There’s nothing quite like the warm, spicy scent of mulled cider filling your home during the holidays. Imagine wrapping your hands around a steaming mug, the c"
 pubDate: 2025-10-15

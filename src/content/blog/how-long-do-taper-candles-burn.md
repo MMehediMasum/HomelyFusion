@@ -1,10 +1,14 @@
 ---
-title: "How Long Do Taper Candles Burn: Ultimate Guide to Burn Time"
-description: "Have you ever wondered how long taper candles really burn? Whether you’re setting the mood for a cozy dinner or planning a relaxing evening, knowing the burn ti"
+title: 'How Long Do Taper Candles Burn: Ultimate Guide to Burn Time'
+description: Have you ever wondered how long taper candles really burn? Whether you’re
+  setting the mood for a cozy dinner or planning a relaxing evening, knowing the burn
+  ti
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-do-taper-candles-burn&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=how-long-do-taper-candles-burn&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered how long taper candles really burn? Whether you’re setting the mood for a cozy dinner or planning a relaxing evening, knowing the burn time can help you avoid surprises.**

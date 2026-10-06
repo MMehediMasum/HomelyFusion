@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What is a Steel Frame Modular Home: Ultimate Guide to Durable Living"
 description: "Are you curious about a home that’s strong, stylish, and built faster than traditional houses? A steel frame modular home might be exactly what you need to disc"
 pubDate: 2026-03-23

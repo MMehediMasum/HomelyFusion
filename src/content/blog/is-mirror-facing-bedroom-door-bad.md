@@ -1,10 +1,14 @@
 ---
-title: "Is Mirror Facing Bedroom Door Bad: Shocking Feng Shui Truths Revealed"
-description: "Have you ever noticed a mirror directly facing your bedroom door and wondered if it’s bad for your space? You’re not alone. Many people believe that this simple"
+title: 'Is Mirror Facing Bedroom Door Bad: Shocking Feng Shui Truths Revealed'
+description: Have you ever noticed a mirror directly facing your bedroom door and
+  wondered if it’s bad for your space? You’re not alone. Many people believe that
+  this simple
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-mirror-facing-bedroom-door-bad&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=is-mirror-facing-bedroom-door-bad&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever noticed a mirror directly facing your bedroom door and wondered if it’s bad for your space? You’re not alone.**

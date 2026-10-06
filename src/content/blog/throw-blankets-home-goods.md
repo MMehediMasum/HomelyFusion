@@ -1,10 +1,14 @@
 ---
-title: "Throw Blankets Home Goods: Cozy, Stylish Throws to Enhance Your Living Space"
-description: "Throw blankets are an essential addition to any home, offering both style and comfort. Perfect for cozying up on the couch, they make excellent gifts for friend"
+title: 'Throw Blankets Home Goods: Cozy, Stylish Throws to Enhance Your Living Space'
+description: Throw blankets are an essential addition to any home, offering both style
+  and comfort. Perfect for cozying up on the couch, they make excellent gifts for
+  friend
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=throw-blankets-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=throw-blankets-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Throw blankets are an essential addition to any home, offering both style and comfort. Perfect for cozying up on the couch, they make excellent gifts for friends and family.**

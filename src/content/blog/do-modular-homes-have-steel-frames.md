@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Modular Homes Have Steel Frames: Key Facts You Must Know"
 description: "Are you curious about the structure behind modular homes? You might be wondering, do modular homes have steel frames? Understanding what supports your future ho"
 pubDate: 2026-03-26

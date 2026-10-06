@@ -1,10 +1,14 @@
 ---
-title: "What Size Rug for Bedroom With Twin Bed: Perfect Fit Guide"
-description: "Choosing the right rug size for your bedroom with a twin bed can change the whole look and feel of your space. You want a rug that fits perfectly—not too big, n"
+title: 'What Size Rug for Bedroom With Twin Bed: Perfect Fit Guide'
+description: Choosing the right rug size for your bedroom with a twin bed can change
+  the whole look and feel of your space. You want a rug that fits perfectly—not too
+  big, n
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-twin-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-rug-for-bedroom-with-twin-bed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug size for your bedroom with a twin bed can change the whole look and feel of your space. You want a rug that fits perfectly—not too big, not too small—so it adds comfort and style without overwhelming the room.**

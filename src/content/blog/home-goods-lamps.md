@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Lamps: Stylish Dimmable Lighting Solutions for Every Room"
-description: "Lamps can transform a room's ambiance while offering practical lighting solutions. Home goods lamps blend style with functionality, enhancing any space. Choosin"
+title: 'Home Goods Lamps: Stylish Dimmable Lighting Solutions for Every Room'
+description: Lamps can transform a room's ambiance while offering practical lighting
+  solutions. Home goods lamps blend style with functionality, enhancing any space.
+  Choosin
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lamps can transform a room's ambiance while offering practical lighting solutions. Home goods lamps blend style with functionality, enhancing any space.**

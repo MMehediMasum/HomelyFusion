@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Bedroom: Expert Tips for Stylish Spaces"
-description: "Is your bedroom long and narrow, making it tricky to decorate? You’re not alone. A long bedroom can feel awkward and empty if not arranged right. But don’t worr"
+title: 'How to Decorate a Long Bedroom: Expert Tips for Stylish Spaces'
+description: Is your bedroom long and narrow, making it tricky to decorate? You’re
+  not alone. A long bedroom can feel awkward and empty if not arranged right. But
+  don’t worr
 pubDate: 2025-10-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bedroom long and narrow, making it tricky to decorate? You’re not alone.**

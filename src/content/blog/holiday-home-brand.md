@@ -1,10 +1,14 @@
 ---
-title: "Holiday Home Brand: Top Festive Decor and Fragrance Must-Haves"
-description: "Holiday Home Brand offers a wide range of festive decor and scents to brighten your living space. Their collection includes candles, wreaths, signs, and more fo"
+title: 'Holiday Home Brand: Top Festive Decor and Fragrance Must-Haves'
+description: Holiday Home Brand offers a wide range of festive decor and scents to
+  brighten your living space. Their collection includes candles, wreaths, signs, and
+  more fo
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-home-brand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-home-brand&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday Home Brand offers a wide range of festive decor and scents to brighten your living space. Their collection includes candles, wreaths, signs, and more for every season.**

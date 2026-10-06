@@ -1,10 +1,14 @@
 ---
-title: "What to Put in Glass Cabinets Living Room: Stunning Display Ideas"
-description: "Your living room’s glass cabinets are more than just storage—they’re a chance to show your style and personality. But what should you put inside to make them tr"
+title: 'What to Put in Glass Cabinets Living Room: Stunning Display Ideas'
+description: Your living room’s glass cabinets are more than just storage—they’re
+  a chance to show your style and personality. But what should you put inside to make
+  them tr
 pubDate: 2025-11-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-in-glass-cabinets-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-in-glass-cabinets-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room’s glass cabinets are more than just storage—they’re a chance to show your style and personality. But what should you put inside to make them truly stand out?**

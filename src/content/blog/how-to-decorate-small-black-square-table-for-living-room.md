@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Black Square Table for Living Room: Stylish Ideas"
-description: "Your small black square table holds so much potential, but decorating it just right can be tricky. You want it to stand out without overwhelming your living roo"
+title: 'How to Decorate Small Black Square Table for Living Room: Stylish Ideas'
+description: Your small black square table holds so much potential, but decorating
+  it just right can be tricky. You want it to stand out without overwhelming your
+  living roo
 pubDate: 2026-04-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-black-square-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-black-square-table-for-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your small black square table holds so much potential, but decorating it just right can be tricky. You want it to stand out without overwhelming your living room.**

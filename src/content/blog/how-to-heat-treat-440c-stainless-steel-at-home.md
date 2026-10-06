@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat 440C Stainless Steel at Home: Easy Expert Guide"
 description: "If you want to get the most out of your 440C stainless steel, knowing how to heat treat it at home is a game changer. Heat treating can make your steel stronger"
 pubDate: 2026-04-02

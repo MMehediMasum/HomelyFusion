@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Table Linens: Stylish, Durable Tablecloths for Every Occasion"
-description: "Discover the elegance and functionality of table linens. They add charm to any event, from weddings to picnics. Table linens transform ordinary tables into styl"
+title: 'Home Goods Table Linens: Stylish, Durable Tablecloths for Every Occasion'
+description: Discover the elegance and functionality of table linens. They add charm
+  to any event, from weddings to picnics. Table linens transform ordinary tables into
+  styl
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-table-linens&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-table-linens&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Discover the elegance and functionality of table linens. They add charm to any event, from weddings to picnics.**

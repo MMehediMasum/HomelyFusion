@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Pumpkins: Top Picks for Cozy Fall and Halloween Decor"
-description: "Home Goods Pumpkins bring festive charm to your fall and Halloween decor. These artificial pumpkins come in various styles and sizes for every taste. Decorating"
+title: 'Home Goods Pumpkins: Top Picks for Cozy Fall and Halloween Decor'
+description: Home Goods Pumpkins bring festive charm to your fall and Halloween decor.
+  These artificial pumpkins come in various styles and sizes for every taste. Decorating
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pumpkins&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pumpkins&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home Goods Pumpkins bring festive charm to your fall and Halloween decor. These artificial pumpkins come in various styles and sizes for every taste.**

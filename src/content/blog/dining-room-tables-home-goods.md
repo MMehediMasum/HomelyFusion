@@ -1,10 +1,13 @@
 ---
-title: "Dining Room Tables Home Goods: Top Stylish & Spacious Kitchen Tables"
-description: "Dining room tables are the heart of any home gathering. They offer functionality and style for every occasion. Choosing the right dining room table can transfor"
+title: 'Dining Room Tables Home Goods: Top Stylish & Spacious Kitchen Tables'
+description: Dining room tables are the heart of any home gathering. They offer functionality
+  and style for every occasion. Choosing the right dining room table can transfor
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dining-room-tables-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=dining-room-tables-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Dining room tables are the heart of any home gathering. They offer functionality and style for every occasion.**

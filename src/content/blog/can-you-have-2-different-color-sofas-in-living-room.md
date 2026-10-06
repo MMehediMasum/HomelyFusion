@@ -1,10 +1,14 @@
 ---
-title: "Can You Have 2 Different Color Sofas in Living Room? Stunning Ideas!"
-description: "Are you wondering if you can have two different color sofas in your living room without making it look messy? You’re not alone. Mixing sofa colors might seem ri"
+title: Can You Have 2 Different Color Sofas in Living Room? Stunning Ideas!
+description: Are you wondering if you can have two different color sofas in your living
+  room without making it look messy? You’re not alone. Mixing sofa colors might seem
+  ri
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-have-2-different-color-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-you-have-2-different-color-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if you can have two different color sofas in your living room without making it look messy? You’re not alone.**

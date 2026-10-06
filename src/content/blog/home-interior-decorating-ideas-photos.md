@@ -1,10 +1,15 @@
 ---
-title: "Home Interior Decorating Ideas Photos: Stunning Scandinavian & Rustic Decor Inspiration"
-description: "Transform your living space with innovative home interior decorating ideas. Discover elegant, practical decor pieces that enhance every room. Finding the right "
+title: 'Home Interior Decorating Ideas Photos: Stunning Scandinavian & Rustic Decor
+  Inspiration'
+description: 'Transform your living space with innovative home interior decorating
+  ideas. Discover elegant, practical decor pieces that enhance every room. Finding
+  the right '
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-decorating-ideas-photos&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-decorating-ideas-photos&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Transform your living space with innovative home interior decorating ideas. Discover elegant, practical decor pieces that enhance every room.**

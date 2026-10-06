@@ -1,10 +1,14 @@
 ---
-title: "Best Curtains for Beige Walls: Stylish Blackout Drapes to Elevate Decor"
-description: "Choosing the best curtains for beige walls can enhance any room’s look and feel. Curtains add style, control light, and create a cozy space. Beige walls offer a"
+title: 'Best Curtains for Beige Walls: Stylish Blackout Drapes to Elevate Decor'
+description: Choosing the best curtains for beige walls can enhance any room’s look
+  and feel. Curtains add style, control light, and create a cozy space. Beige walls
+  offer a
 pubDate: 2025-10-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-beige-walls-stylish-blackout-drapes-to-elevate-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-beige-walls-stylish-blackout-drapes-to-elevate-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for beige walls can enhance any room’s look and feel. Curtains add style, control light, and create a cozy space.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What Food Should You Use to Build Living Room Cabinets: Surprising Tips"
 description: "Are you planning to build living room cabinets and wondering what wood to choose? The right wood can make your cabinets look stunning, last longer, and fit perf"
 pubDate: 2026-05-06

@@ -1,10 +1,14 @@
 ---
-title: "Can a Home Humidifier Cause Legionnaires: Risks You Must Know"
-description: "Have you ever wondered if the humidifier in your home could be putting your health at risk? You might be surprised to learn that, under certain conditions, a ho"
+title: 'Can a Home Humidifier Cause Legionnaires: Risks You Must Know'
+description: Have you ever wondered if the humidifier in your home could be putting
+  your health at risk? You might be surprised to learn that, under certain conditions,
+  a ho
 pubDate: 2026-04-05
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-home-humidifier-cause-legionnaires&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=can-a-home-humidifier-cause-legionnaires&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered if the humidifier in your home could be putting your health at risk? You might be surprised to learn that, under certain conditions, a home humidifier can become a breeding ground for harmful bacteria, including the one that causes Legionnaires’ disease.**

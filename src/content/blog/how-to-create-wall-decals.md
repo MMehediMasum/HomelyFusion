@@ -1,10 +1,14 @@
 ---
-title: "How to Create Wall Decals: Easy Steps for Stunning DIY Decor"
-description: "Are you looking to add a fresh, personal touch to your space without spending a fortune? Creating your own wall decals might be the perfect solution. Imagine tr"
+title: 'How to Create Wall Decals: Easy Steps for Stunning DIY Decor'
+description: Are you looking to add a fresh, personal touch to your space without
+  spending a fortune? Creating your own wall decals might be the perfect solution.
+  Imagine tr
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-wall-decals&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-wall-decals&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a fresh, personal touch to your space without spending a fortune? Creating your own wall decals might be the perfect solution.**

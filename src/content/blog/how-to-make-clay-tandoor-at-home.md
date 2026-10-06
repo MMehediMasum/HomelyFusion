@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay Tandoor at Home: Easy DIY Guide for Perfect Grilling"
 description: "Are you ready to bring the authentic taste of tandoori cooking right into your backyard? Making a clay tandoor at home is easier than you think, and it can tran"
 pubDate: 2026-02-26

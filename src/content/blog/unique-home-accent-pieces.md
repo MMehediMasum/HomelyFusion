@@ -1,10 +1,14 @@
 ---
-title: "Unique Home Accent Pieces to Elevate Your Living Room Decor Instantly"
-description: "Unique home accent pieces add charm and personality to any space. They create a stylish look without overwhelming the room. Decorating your home with distinct a"
+title: Unique Home Accent Pieces to Elevate Your Living Room Decor Instantly
+description: Unique home accent pieces add charm and personality to any space. They
+  create a stylish look without overwhelming the room. Decorating your home with distinct
+  a
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unique-home-accent-pieces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=unique-home-accent-pieces&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Unique home accent pieces add charm and personality to any space. They create a stylish look without overwhelming the room.**

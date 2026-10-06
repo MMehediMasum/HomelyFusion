@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Desk at Work: Creative Ideas for a Stylish Space"
-description: "Your desk is more than just a workspace—it’s a reflection of you. How your desk looks can affect your mood, focus, and even productivity. Imagine turning your c"
+title: 'How to Decorate Desk at Work: Creative Ideas for a Stylish Space'
+description: Your desk is more than just a workspace—it’s a reflection of you. How
+  your desk looks can affect your mood, focus, and even productivity. Imagine turning
+  your c
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-desk-at-work&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-desk-at-work&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your desk is more than just a workspace—it’s a reflection of you. How your desk looks can affect your mood, focus, and even productivity.**

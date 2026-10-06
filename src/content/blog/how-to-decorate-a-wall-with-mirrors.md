@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall With Mirrors: Stunning Ideas to Transform Your Space"
-description: "Are you looking to transform your space without spending a fortune? Decorating a wall with mirrors is a simple trick that can instantly brighten your room and m"
+title: 'How to Decorate a Wall With Mirrors: Stunning Ideas to Transform Your Space'
+description: Are you looking to transform your space without spending a fortune? Decorating
+  a wall with mirrors is a simple trick that can instantly brighten your room and
+  m
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your space without spending a fortune? Decorating a wall with mirrors is a simple trick that can instantly brighten your room and make it feel bigger.**

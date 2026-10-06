@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Dining Table for Fall: Stunning Seasonal Ideas"
-description: "Your dining table is more than just a place to eat—it’s where memories are made, especially during the cozy fall season. Imagine welcoming your guests with a wa"
+title: 'How to Decorate a Dining Table for Fall: Stunning Seasonal Ideas'
+description: Your dining table is more than just a place to eat—it’s where memories
+  are made, especially during the cozy fall season. Imagine welcoming your guests
+  with a wa
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-table-for-fall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-table-for-fall&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your dining table is more than just a place to eat—it’s where memories are made, especially during the cozy fall season. Imagine welcoming your guests with a warm, inviting table that captures the beauty of autumn.**

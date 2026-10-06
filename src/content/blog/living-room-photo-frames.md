@@ -1,10 +1,14 @@
 ---
-title: "Living Room Photo Frames: Stylish Collage Sets for Stunning Wall Displays"
-description: "Transform your living room with elegant photo frames. Create a personal gallery that tells your family's story. Photo frames offer a simple yet effective way to"
+title: 'Living Room Photo Frames: Stylish Collage Sets for Stunning Wall Displays'
+description: Transform your living room with elegant photo frames. Create a personal
+  gallery that tells your family's story. Photo frames offer a simple yet effective
+  way to
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-photo-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=living-room-photo-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living room with elegant photo frames. Create a personal gallery that tells your family's story.**

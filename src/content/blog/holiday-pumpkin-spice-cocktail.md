@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Pumpkin Spice Cocktail: Irresistible Festive Sips to Try"
 description: "Are you ready to add a warm, cozy twist to your holiday celebrations? Imagine sipping a drink that combines the rich flavors of pumpkin spice with a festive kic"
 pubDate: 2025-10-14

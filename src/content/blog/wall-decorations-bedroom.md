@@ -1,10 +1,14 @@
 ---
-title: "Wall Decorations Bedroom Ideas: Stylish Shelves, Vines, and Boho Accents"
-description: "Transform your bedroom into a cozy retreat with elegant wall decorations. Simple changes can make a big impact. Wall decorations add personality and charm to an"
+title: 'Wall Decorations Bedroom Ideas: Stylish Shelves, Vines, and Boho Accents'
+description: Transform your bedroom into a cozy retreat with elegant wall decorations.
+  Simple changes can make a big impact. Wall decorations add personality and charm
+  to an
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decorations-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decorations-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your bedroom into a cozy retreat with elegant wall decorations. Simple changes can make a big impact.**

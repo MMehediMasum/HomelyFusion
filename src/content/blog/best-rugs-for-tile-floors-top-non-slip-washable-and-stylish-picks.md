@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Tile Floors: Top Non-Slip, Washable, and Stylish Picks"
-description: "Tile floors look clean and last long but can feel cold and slippery. Adding the right rug makes your space cozy and safe. Choosing the best rugs for tile floors"
+title: 'Best Rugs for Tile Floors: Top Non-Slip, Washable, and Stylish Picks'
+description: Tile floors look clean and last long but can feel cold and slippery.
+  Adding the right rug makes your space cozy and safe. Choosing the best rugs for
+  tile floors
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-tile-floors-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-tile-floors-top-non-slip-washable-and-stylish-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile floors look clean and last long but can feel cold and slippery. Adding the right rug makes your space cozy and safe.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Papasan Chair: Ultimate Comfort and Style for Any Room"
-description: "Papasan chairs are a cozy addition to any home, offering comfort and style. These versatile chairs blend seamlessly into various room settings. The Papasan chai"
+title: 'Home Goods Papasan Chair: Ultimate Comfort and Style for Any Room'
+description: Papasan chairs are a cozy addition to any home, offering comfort and
+  style. These versatile chairs blend seamlessly into various room settings. The Papasan
+  chai
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-papasan-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Desk Chairs
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-papasan-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Papasan chairs are a cozy addition to any home, offering comfort and style. These versatile chairs blend seamlessly into various room settings.**

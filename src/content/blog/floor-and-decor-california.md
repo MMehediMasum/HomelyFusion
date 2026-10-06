@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor California: Top Space-Saving Beds and Unique Home Decor"
 description: "Floor And Decor California offers a wide range of home decor and furniture items inspired by California style. From beds to rugs and wall stickers, their produc"
 pubDate: 2025-10-15

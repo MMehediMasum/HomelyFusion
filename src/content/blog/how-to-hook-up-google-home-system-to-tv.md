@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Google Home System to Tv: Easy Step-by-Step Guide"
 description: "Want to control your TV with just your voice? Connecting your Google Home system to your TV can make that happen. Imagine turning the volume up, changing channe"
 pubDate: 2025-11-16

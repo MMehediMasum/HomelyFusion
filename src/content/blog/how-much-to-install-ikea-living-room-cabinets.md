@@ -1,10 +1,14 @@
 ---
-title: "How Much to Install Ikea Living Room Cabinets: Cost Breakdown Guide"
-description: "Are you thinking about upgrading your living room with stylish Ikea cabinets but wondering how much it will cost to install them? You’re not alone. Knowing the "
+title: 'How Much to Install Ikea Living Room Cabinets: Cost Breakdown Guide'
+description: 'Are you thinking about upgrading your living room with stylish Ikea
+  cabinets but wondering how much it will cost to install them? You’re not alone.
+  Knowing the '
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-install-ikea-living-room-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-install-ikea-living-room-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you thinking about upgrading your living room with stylish Ikea cabinets but wondering how much it will cost to install them? You’re not alone.**

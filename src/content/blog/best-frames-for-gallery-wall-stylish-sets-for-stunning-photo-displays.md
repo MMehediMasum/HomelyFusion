@@ -1,10 +1,14 @@
 ---
-title: "Best Frames for Gallery Wall: Stylish Sets for Stunning Photo Displays"
-description: "Choosing the best frames for a gallery wall can change how your photos and art look. The right frames create a stylish, unified display that fits any room’s vib"
+title: 'Best Frames for Gallery Wall: Stylish Sets for Stunning Photo Displays'
+description: Choosing the best frames for a gallery wall can change how your photos
+  and art look. The right frames create a stylish, unified display that fits any room’s
+  vib
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-frames-for-gallery-wall-stylish-sets-for-stunning-photo-displays&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=best-frames-for-gallery-wall-stylish-sets-for-stunning-photo-displays&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best frames for a gallery wall can change how your photos and art look. The right frames create a stylish, unified display that fits any room’s vibe.**

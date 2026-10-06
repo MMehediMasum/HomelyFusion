@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Side Tables in Living Room: Expert Placement Tips"
-description: "Where you place side tables in your living room can change everything—from how you use the space to how it feels when you walk in. You might think side tables a"
+title: 'Where to Put Side Tables in Living Room: Expert Placement Tips'
+description: Where you place side tables in your living room can change everything—from
+  how you use the space to how it feels when you walk in. You might think side tables
+  a
 pubDate: 2026-02-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-side-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-side-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Where you place side tables in your living room can change everything—from how you use the space to how it feels when you walk in. You might think side tables are just small pieces of furniture, but they actually play a big role in making your living room more functional and inviting.**

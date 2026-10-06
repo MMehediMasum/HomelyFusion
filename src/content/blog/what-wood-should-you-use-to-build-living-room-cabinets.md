@@ -1,10 +1,14 @@
 ---
-title: "What Wood Should You Use to Build Living Room Cabinets: Expert Guide"
-description: "Choosing the right wood for your living room cabinets can make all the difference in how your space looks and feels. You want something that’s strong, beautiful"
+title: 'What Wood Should You Use to Build Living Room Cabinets: Expert Guide'
+description: Choosing the right wood for your living room cabinets can make all the
+  difference in how your space looks and feels. You want something that’s strong,
+  beautiful
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-wood-should-you-use-to-build-living-room-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-wood-should-you-use-to-build-living-room-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Choosing the right wood for your living room cabinets can make all the difference in how your space looks and feels. You want something that’s strong, beautiful, and fits your style perfectly.**

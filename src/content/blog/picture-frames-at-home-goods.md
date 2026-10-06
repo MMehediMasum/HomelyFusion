@@ -1,10 +1,14 @@
 ---
-title: "Picture Frames at Home Goods: Stylish Black Frames for Every Display Need"
-description: "Picture frames from Home Goods offer versatile options to showcase your cherished memories. From elegant black designs to natural wood finishes, these frames ca"
+title: 'Picture Frames at Home Goods: Stylish Black Frames for Every Display Need'
+description: Picture frames from Home Goods offer versatile options to showcase your
+  cherished memories. From elegant black designs to natural wood finishes, these frames
+  ca
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=picture-frames-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=picture-frames-at-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Picture frames from Home Goods offer versatile options to showcase your cherished memories. From elegant black designs to natural wood finishes, these frames cater to various tastes and décor styles.**

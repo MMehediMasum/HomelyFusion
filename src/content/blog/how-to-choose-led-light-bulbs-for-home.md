@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Led Light Bulbs for Home: Brighten Smartly Today"
-description: "Choosing the right LED light bulbs for your home can feel overwhelming. With so many options available, how do you know which ones will brighten your space perf"
+title: 'How to Choose Led Light Bulbs for Home: Brighten Smartly Today'
+description: Choosing the right LED light bulbs for your home can feel overwhelming.
+  With so many options available, how do you know which ones will brighten your space
+  perf
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-led-light-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-led-light-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right LED light bulbs for your home can feel overwhelming. With so many options available, how do you know which ones will brighten your space perfectly and save you money?**

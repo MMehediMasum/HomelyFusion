@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bathroom With Brown Cabinets: Stunning Style Ideas"
-description: "Are you looking to give your bathroom a fresh, stylish look without a complete overhaul? Brown cabinets can be the perfect foundation for a warm, inviting space"
+title: 'How to Decorate Bathroom With Brown Cabinets: Stunning Style Ideas'
+description: Are you looking to give your bathroom a fresh, stylish look without a
+  complete overhaul? Brown cabinets can be the perfect foundation for a warm, inviting
+  space
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom-with-brown-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bathroom-with-brown-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to give your bathroom a fresh, stylish look without a complete overhaul? Brown cabinets can be the perfect foundation for a warm, inviting space.**

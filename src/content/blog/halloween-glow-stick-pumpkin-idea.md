@@ -1,10 +1,14 @@
 ---
-title: "Halloween Glow Stick Pumpkin Idea: Easy, Spooky DIY Glow-Up!"
-description: "Looking for a fun and safe way to light up your Halloween decorations this year? Your Halloween Glow Stick Pumpkin Idea is about to change the game. Imagine a p"
+title: 'Halloween Glow Stick Pumpkin Idea: Easy, Spooky DIY Glow-Up!'
+description: Looking for a fun and safe way to light up your Halloween decorations
+  this year? Your Halloween Glow Stick Pumpkin Idea is about to change the game. Imagine
+  a p
 pubDate: 2026-01-01
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-glow-stick-pumpkin-idea&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-glow-stick-pumpkin-idea&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fun and safe way to light up your Halloween decorations this year? Your Halloween Glow Stick Pumpkin Idea is about to change the game.**

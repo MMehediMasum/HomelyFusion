@@ -1,10 +1,14 @@
 ---
-title: "Sofa Homegoods: Top Convertible Sofas for Stylish Living Room Comfort"
-description: "Sofa Homegoods offers a variety of stylish and practical sofas for any living space. These sofas combine comfort, design, and useful features to fit your needs."
+title: 'Sofa Homegoods: Top Convertible Sofas for Stylish Living Room Comfort'
+description: Sofa Homegoods offers a variety of stylish and practical sofas for any
+  living space. These sofas combine comfort, design, and useful features to fit your
+  needs.
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=sofa-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=sofa-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Sofa Homegoods offers a variety of stylish and practical sofas for any living space. These sofas combine comfort, design, and useful features to fit your needs.**

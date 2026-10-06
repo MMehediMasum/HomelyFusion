@@ -1,10 +1,14 @@
 ---
-title: "Can Canopy Bed Fit in Small Bedroom: Stylish Space-Saving Tips"
-description: "Are you dreaming of a cozy canopy bed but worried it won’t fit in your small bedroom? You’re not alone. Many people think canopy beds are only for spacious room"
+title: 'Can Canopy Bed Fit in Small Bedroom: Stylish Space-Saving Tips'
+description: Are you dreaming of a cozy canopy bed but worried it won’t fit in your
+  small bedroom? You’re not alone. Many people think canopy beds are only for spacious
+  room
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-canopy-bed-fit-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=can-canopy-bed-fit-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of a cozy canopy bed but worried it won’t fit in your small bedroom? You’re not alone.**

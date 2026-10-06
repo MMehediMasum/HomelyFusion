@@ -1,10 +1,14 @@
 ---
-title: "Are Sofas Needed in Living Room: Ultimate Comfort or Overrated?"
-description: "Have you ever wondered if sofas are really necessary in your living room? You might think a sofa is just a piece of furniture, but it can change the entire feel"
+title: 'Are Sofas Needed in Living Room: Ultimate Comfort or Overrated?'
+description: Have you ever wondered if sofas are really necessary in your living room?
+  You might think a sofa is just a piece of furniture, but it can change the entire
+  feel
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-sofas-needed-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=are-sofas-needed-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if sofas are really necessary in your living room? You might think a sofa is just a piece of furniture, but it can change the entire feel of your space.**

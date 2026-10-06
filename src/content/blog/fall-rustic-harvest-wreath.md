@@ -1,10 +1,14 @@
 ---
-title: "Fall Rustic Harvest Wreath: Stunning DIY Ideas for Cozy Decor"
-description: "Are you ready to bring the warm, cozy feeling of fall right to your front door? A Fall Rustic Harvest Wreath is the perfect way to welcome the season with charm"
+title: 'Fall Rustic Harvest Wreath: Stunning DIY Ideas for Cozy Decor'
+description: Are you ready to bring the warm, cozy feeling of fall right to your front
+  door? A Fall Rustic Harvest Wreath is the perfect way to welcome the season with
+  charm
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-rustic-harvest-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-rustic-harvest-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring the warm, cozy feeling of fall right to your front door? A Fall Rustic Harvest Wreath is the perfect way to welcome the season with charm and style.**

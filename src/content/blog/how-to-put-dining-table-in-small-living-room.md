@@ -1,10 +1,14 @@
 ---
-title: "How to Put Dining Table in Small Living Room: Smart Space Hacks"
-description: "Finding the perfect spot for a dining table in a small living room can feel like solving a tricky puzzle. You want your space to be comfortable, stylish, and fu"
+title: 'How to Put Dining Table in Small Living Room: Smart Space Hacks'
+description: Finding the perfect spot for a dining table in a small living room can
+  feel like solving a tricky puzzle. You want your space to be comfortable, stylish,
+  and fu
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-dining-table-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-dining-table-in-small-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the perfect spot for a dining table in a small living room can feel like solving a tricky puzzle. You want your space to be comfortable, stylish, and functional without feeling cramped.**

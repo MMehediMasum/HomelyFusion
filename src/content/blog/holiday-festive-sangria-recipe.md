@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Festive Sangria Recipe: Delight Your Guests Instantly"
 description: "Looking for a refreshing and colorful drink to brighten up your holiday celebrations? Your search ends here with this Holiday Festive Sangria Recipe. Imagine a "
 pubDate: 2026-01-17

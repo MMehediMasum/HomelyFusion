@@ -1,10 +1,14 @@
 ---
-title: "Holiday Coconut Snowball Cookies: Irresistible Festive Treats"
-description: "Are you ready to add a sweet twist to your holiday baking? Holiday Coconut Snowball Cookies are the perfect treat to make your celebrations extra special. Imagi"
+title: 'Holiday Coconut Snowball Cookies: Irresistible Festive Treats'
+description: Are you ready to add a sweet twist to your holiday baking? Holiday Coconut
+  Snowball Cookies are the perfect treat to make your celebrations extra special.
+  Imagi
 pubDate: 2026-01-16
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-coconut-snowball-cookies&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-coconut-snowball-cookies&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a sweet twist to your holiday baking? Holiday Coconut Snowball Cookies are the perfect treat to make your celebrations extra special.**

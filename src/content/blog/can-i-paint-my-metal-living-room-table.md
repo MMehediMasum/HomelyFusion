@@ -1,10 +1,14 @@
 ---
-title: "Can I Paint My Metal Living Room Table? Easy DIY Tips Revealed!"
-description: "Are you tired of the look of your metal living room table but unsure if painting it is a good idea? You might be wondering if the paint will stick, how to prepa"
+title: Can I Paint My Metal Living Room Table? Easy DIY Tips Revealed!
+description: Are you tired of the look of your metal living room table but unsure
+  if painting it is a good idea? You might be wondering if the paint will stick, how
+  to prepa
 pubDate: 2026-03-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-paint-my-metal-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=can-i-paint-my-metal-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of the look of your metal living room table but unsure if painting it is a good idea? You might be wondering if the paint will stick, how to prepare the surface, or what type of paint works best.**

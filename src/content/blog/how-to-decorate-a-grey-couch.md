@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Grey Couch: Stunning Ideas to Elevate Your Space"
-description: "A grey couch is a fantastic choice for your living space—it’s stylish, versatile, and timeless. But now you might be wondering, how do you make it truly shine? "
+title: 'How to Decorate a Grey Couch: Stunning Ideas to Elevate Your Space'
+description: 'A grey couch is a fantastic choice for your living space—it’s stylish,
+  versatile, and timeless. But now you might be wondering, how do you make it truly
+  shine? '
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-grey-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-grey-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A grey couch is a fantastic choice for your living space—it’s stylish, versatile, and timeless. But now you might be wondering, how do you make it truly shine?**

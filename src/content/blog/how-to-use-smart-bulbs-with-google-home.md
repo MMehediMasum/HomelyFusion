@@ -1,10 +1,14 @@
 ---
-title: "How to Use Smart Bulbs With Google Home: Ultimate Setup Guide"
-description: "Imagine walking into a room where the lights adjust themselves to your mood, brighten as you start reading, or turn off the moment you leave. Sounds like magic,"
+title: 'How to Use Smart Bulbs With Google Home: Ultimate Setup Guide'
+description: Imagine walking into a room where the lights adjust themselves to your
+  mood, brighten as you start reading, or turn off the moment you leave. Sounds like
+  magic,
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-smart-bulbs-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-smart-bulbs-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine walking into a room where the lights adjust themselves to your mood, brighten as you start reading, or turn off the moment you leave. Sounds like magic, right?**

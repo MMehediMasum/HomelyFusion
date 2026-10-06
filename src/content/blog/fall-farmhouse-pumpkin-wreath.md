@@ -1,10 +1,14 @@
 ---
-title: "Fall Farmhouse Pumpkin Wreath: Cozy DIY Decor Ideas to Try"
-description: "Are you ready to give your home a cozy, autumn makeover? A Fall Farmhouse Pumpkin Wreath is the perfect way to welcome the season right at your doorstep. Imagin"
+title: 'Fall Farmhouse Pumpkin Wreath: Cozy DIY Decor Ideas to Try'
+description: Are you ready to give your home a cozy, autumn makeover? A Fall Farmhouse
+  Pumpkin Wreath is the perfect way to welcome the season right at your doorstep.
+  Imagin
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-farmhouse-pumpkin-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-farmhouse-pumpkin-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to give your home a cozy, autumn makeover? A Fall Farmhouse Pumpkin Wreath is the perfect way to welcome the season right at your doorstep.**

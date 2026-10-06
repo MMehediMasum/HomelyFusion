@@ -1,10 +1,14 @@
 ---
-title: "End Table Homegoods: Stylish Rustic and Modern Side Tables for Every Room"
-description: "End tables blend style and function, enhancing your living spaces. They fit seamlessly into any room, offering practical storage. End tables are essential furni"
+title: 'End Table Homegoods: Stylish Rustic and Modern Side Tables for Every Room'
+description: End tables blend style and function, enhancing your living spaces. They
+  fit seamlessly into any room, offering practical storage. End tables are essential
+  furni
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=end-table-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=end-table-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **End tables blend style and function, enhancing your living spaces. They fit seamlessly into any room, offering practical storage.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Tall Dresser: Stunning Tips for Chic Style"
-description: "Are you looking to give your tall dresser a fresh, stylish look that fits perfectly with your space? Decorating a tall dresser might seem tricky, but with the r"
+title: 'How to Decorate a Tall Dresser: Stunning Tips for Chic Style'
+description: Are you looking to give your tall dresser a fresh, stylish look that
+  fits perfectly with your space? Decorating a tall dresser might seem tricky, but
+  with the r
 pubDate: 2025-09-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-tall-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-tall-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your tall dresser a fresh, stylish look that fits perfectly with your space? Decorating a tall dresser might seem tricky, but with the right tips, you can transform it into a stunning focal point in your room.**

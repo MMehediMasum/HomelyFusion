@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Plants: Stunning Green Touch Ideas"
-description: "Are you looking to bring fresh life and color into your living room? Decorating with plants is one of the easiest and most rewarding ways to transform your spac"
+title: 'How to Decorate Living Room With Plants: Stunning Green Touch Ideas'
+description: Are you looking to bring fresh life and color into your living room?
+  Decorating with plants is one of the easiest and most rewarding ways to transform
+  your spac
 pubDate: 2025-09-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-plants&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-plants&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to bring fresh life and color into your living room? Decorating with plants is one of the easiest and most rewarding ways to transform your space.**

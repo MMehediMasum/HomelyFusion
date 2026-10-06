@@ -1,10 +1,14 @@
 ---
-title: "Wall Home Decoration Ideas: Rustic and Modern Pieces to Transform Spaces"
-description: "Wall home decoration ideas can transform any room quickly and easily. Simple touches make your space feel warm and inviting. Walls offer a great chance to show "
+title: 'Wall Home Decoration Ideas: Rustic and Modern Pieces to Transform Spaces'
+description: 'Wall home decoration ideas can transform any room quickly and easily.
+  Simple touches make your space feel warm and inviting. Walls offer a great chance
+  to show '
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-home-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-home-decoration-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall home decoration ideas can transform any room quickly and easily. Simple touches make your space feel warm and inviting.**

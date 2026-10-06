@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Metal Pendants at Home: Easy DIY Craft Guide"
 description: "Have you ever wanted to create your own unique jewelry that truly reflects your style? Making metal pendants at home is easier than you think, and it can be a f"
 pubDate: 2025-11-01

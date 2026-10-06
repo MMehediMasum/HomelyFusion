@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch for Kids Party at Home: Easy Step-by-Step Guide"
-description: "Planning a kids party at home and want to add that wow factor? A colorful balloon arch is the perfect way to make your celebration unforgettable. It’s easier th"
+title: 'How to Make Balloon Arch for Kids Party at Home: Easy Step-by-Step Guide'
+description: Planning a kids party at home and want to add that wow factor? A colorful
+  balloon arch is the perfect way to make your celebration unforgettable. It’s easier
+  th
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-kids-party-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-for-kids-party-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Planning a kids party at home and want to add that wow factor? A colorful balloon arch is the perfect way to make your celebration unforgettable.**

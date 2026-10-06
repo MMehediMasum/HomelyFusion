@@ -1,10 +1,14 @@
 ---
-title: "How to Know Which Size Sofa Fits in Living Room: Expert Tips"
-description: "Choosing the right sofa size for your living room can feel tricky. You want it to look great and fit perfectly without crowding the space. If your sofa is too b"
+title: 'How to Know Which Size Sofa Fits in Living Room: Expert Tips'
+description: Choosing the right sofa size for your living room can feel tricky. You
+  want it to look great and fit perfectly without crowding the space. If your sofa
+  is too b
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-know-which-size-sofa-fits-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-know-which-size-sofa-fits-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa size for your living room can feel tricky. You want it to look great and fit perfectly without crowding the space.**

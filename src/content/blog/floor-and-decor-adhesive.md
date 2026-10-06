@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Adhesive: Ultimate Guide to Waterproof Tile Gap Fillers"
-description: "Floor and Decor Adhesive offers reliable solutions for fixing and sealing various surfaces. It ensures strong bonds for tiles, floors, and household repairs. Ad"
+title: 'Floor And Decor Adhesive: Ultimate Guide to Waterproof Tile Gap Fillers'
+description: Floor and Decor Adhesive offers reliable solutions for fixing and sealing
+  various surfaces. It ensures strong bonds for tiles, floors, and household repairs.
+  Ad
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-adhesive&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-adhesive&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor Adhesive offers reliable solutions for fixing and sealing various surfaces. It ensures strong bonds for tiles, floors, and household repairs.**

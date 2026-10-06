@@ -1,10 +1,13 @@
 ---
-title: "How to Style Side Tables in Living Room: Chic Ideas That Impress"
-description: "Are you looking to transform your living room without a complete makeover? Styling your side tables is a simple way to add personality and charm to your space. "
+title: 'How to Style Side Tables in Living Room: Chic Ideas That Impress'
+description: 'Are you looking to transform your living room without a complete makeover?
+  Styling your side tables is a simple way to add personality and charm to your space. '
 pubDate: 2026-04-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-side-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-side-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to transform your living room without a complete makeover? Styling your side tables is a simple way to add personality and charm to your space.**

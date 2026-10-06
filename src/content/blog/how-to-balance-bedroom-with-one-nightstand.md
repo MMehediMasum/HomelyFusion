@@ -1,10 +1,13 @@
 ---
-title: "How to Balance Bedroom With One Nightstand: Stylish & Smart Tips"
-description: "Are you struggling to make your bedroom feel balanced with just one nightstand? It can be tricky to create a space that feels both cozy and organized when you d"
+title: 'How to Balance Bedroom With One Nightstand: Stylish & Smart Tips'
+description: Are you struggling to make your bedroom feel balanced with just one nightstand?
+  It can be tricky to create a space that feels both cozy and organized when you d
 pubDate: 2026-05-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-balance-bedroom-with-one-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-balance-bedroom-with-one-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to make your bedroom feel balanced with just one nightstand? It can be tricky to create a space that feels both cozy and organized when you don’t have matching pieces on each side of the bed.**

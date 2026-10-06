@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall With Picture Frames: Stunning Ideas Made Easy"
-description: "Are you looking to transform a plain wall into something truly eye-catching? Decorating your wall with picture frames is a simple way to add personality and war"
+title: 'How to Decorate a Wall With Picture Frames: Stunning Ideas Made Easy'
+description: Are you looking to transform a plain wall into something truly eye-catching?
+  Decorating your wall with picture frames is a simple way to add personality and
+  war
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform a plain wall into something truly eye-catching? Decorating your wall with picture frames is a simple way to add personality and warmth to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Should I Buy a C Table for Living Room: Stylish & Space-Saving Guide"
-description: "Are you wondering if a C table is the missing piece your living room needs? Imagine having a small, stylish table that fits perfectly next to your sofa, offerin"
+title: 'Should I Buy a C Table for Living Room: Stylish & Space-Saving Guide'
+description: Are you wondering if a C table is the missing piece your living room
+  needs? Imagine having a small, stylish table that fits perfectly next to your sofa,
+  offerin
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-buy-a-c-table-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=should-i-buy-a-c-table-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if a C table is the missing piece your living room needs? Imagine having a small, stylish table that fits perfectly next to your sofa, offering a spot for your coffee, laptop, or favorite book without taking up much space.**

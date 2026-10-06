@@ -1,10 +1,14 @@
 ---
-title: "At Home Furniture Store: Top Modern Storage Cabinets and Adjustable Desks"
-description: "At Home Furniture Store offers practical and stylish solutions for your living space. Find quality furniture that fits your needs and budget. Choosing the right"
+title: 'At Home Furniture Store: Top Modern Storage Cabinets and Adjustable Desks'
+description: At Home Furniture Store offers practical and stylish solutions for your
+  living space. Find quality furniture that fits your needs and budget. Choosing the
+  right
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=at-home-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=at-home-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **At Home Furniture Store offers practical and stylish solutions for your living space. Find quality furniture that fits your needs and budget.**

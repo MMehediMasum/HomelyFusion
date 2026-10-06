@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Track Lighting Ideas: Brighten Your Space with Style"
-description: "Looking to transform your bathroom into a stylish and well-lit space? Bathroom track lighting might be the perfect solution for you. It not only brightens up yo"
+title: 'Bathroom Track Lighting Ideas: Brighten Your Space with Style'
+description: Looking to transform your bathroom into a stylish and well-lit space?
+  Bathroom track lighting might be the perfect solution for you. It not only brightens
+  up yo
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-track-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-track-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to transform your bathroom into a stylish and well-lit space? Bathroom track lighting might be the perfect solution for you.**

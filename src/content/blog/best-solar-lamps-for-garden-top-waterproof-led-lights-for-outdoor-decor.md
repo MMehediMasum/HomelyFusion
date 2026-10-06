@@ -1,10 +1,13 @@
 ---
-title: "Best Solar Lamps for Garden: Top Waterproof LED Lights for Outdoor Decor"
-description: "Choosing the best solar lamps for your garden adds charm and safety without raising electricity bills. Solar garden lights come in many styles, brightness level"
+title: 'Best Solar Lamps for Garden: Top Waterproof LED Lights for Outdoor Decor'
+description: Choosing the best solar lamps for your garden adds charm and safety without
+  raising electricity bills. Solar garden lights come in many styles, brightness level
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-solar-lamps-for-garden-top-waterproof-led-lights-for-outdoor-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-solar-lamps-for-garden-top-waterproof-led-lights-for-outdoor-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best solar lamps for your garden adds charm and safety without raising electricity bills. Solar garden lights come in many styles, brightness levels, and colors to fit your outdoor space.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Curtains for Patio: Top Waterproof and Privacy Panels Reviewed"
-description: "Choosing the best outdoor curtains for your patio boosts comfort and style. They provide privacy, block sunlight, and protect against wind and rain. Outdoor cur"
+title: 'Best Outdoor Curtains for Patio: Top Waterproof and Privacy Panels Reviewed'
+description: Choosing the best outdoor curtains for your patio boosts comfort and
+  style. They provide privacy, block sunlight, and protect against wind and rain.
+  Outdoor cur
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-curtains-for-patio-top-waterproof-and-privacy-panels-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-curtains-for-patio-top-waterproof-and-privacy-panels-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best outdoor curtains for your patio boosts comfort and style. They provide privacy, block sunlight, and protect against wind and rain.**

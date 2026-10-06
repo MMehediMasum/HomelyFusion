@@ -1,10 +1,14 @@
 ---
-title: "Can You Put an Egg Chair in Living Room: Stylish Comfort Tips"
-description: "Are you wondering if an egg chair can fit into your living room? You’re not alone. That unique, cozy shape looks inviting, but you might be unsure if it matches"
+title: 'Can You Put an Egg Chair in Living Room: Stylish Comfort Tips'
+description: Are you wondering if an egg chair can fit into your living room? You’re
+  not alone. That unique, cozy shape looks inviting, but you might be unsure if it
+  matches
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-an-egg-chair-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-an-egg-chair-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if an egg chair can fit into your living room? You’re not alone.**

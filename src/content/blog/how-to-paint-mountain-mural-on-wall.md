@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Mountain Mural on Wall: Easy Steps for Stunning Art"
-description: "Are you looking to transform your plain wall into a stunning mountain mural? Painting a mountain scene can bring a sense of calm and adventure right into your h"
+title: 'How to Paint Mountain Mural on Wall: Easy Steps for Stunning Art'
+description: Are you looking to transform your plain wall into a stunning mountain
+  mural? Painting a mountain scene can bring a sense of calm and adventure right into
+  your h
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-mountain-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-mountain-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your plain wall into a stunning mountain mural? Painting a mountain scene can bring a sense of calm and adventure right into your home.**

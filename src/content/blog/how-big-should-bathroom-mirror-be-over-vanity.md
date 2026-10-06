@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Bathroom Mirror Be Over Vanity: Perfect Size Guide"
-description: "Choosing the right size for your bathroom mirror over the vanity might seem simple, but it can completely change how your space looks and feels. You want a mirr"
+title: 'How Big Should Bathroom Mirror Be Over Vanity: Perfect Size Guide'
+description: Choosing the right size for your bathroom mirror over the vanity might
+  seem simple, but it can completely change how your space looks and feels. You want
+  a mirr
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-bathroom-mirror-be-over-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-bathroom-mirror-be-over-vanity&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right size for your bathroom mirror over the vanity might seem simple, but it can completely change how your space looks and feels. You want a mirror that fits perfectly—not too small to feel lost, and not too big to overwhelm the room.**

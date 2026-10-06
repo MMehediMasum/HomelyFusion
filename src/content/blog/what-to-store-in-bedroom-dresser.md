@@ -1,10 +1,14 @@
 ---
-title: "What to Store in Bedroom Dresser: Essential Items for Easy Access"
-description: "Your bedroom dresser is more than just a piece of furniture—it’s a secret weapon for staying organized and making your daily routine smoother. But are you reall"
+title: 'What to Store in Bedroom Dresser: Essential Items for Easy Access'
+description: Your bedroom dresser is more than just a piece of furniture—it’s a secret
+  weapon for staying organized and making your daily routine smoother. But are you
+  reall
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-store-in-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-to-store-in-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom dresser is more than just a piece of furniture—it’s a secret weapon for staying organized and making your daily routine smoother. But are you really using it to its full potential?**

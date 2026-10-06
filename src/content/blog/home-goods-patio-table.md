@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Table: Stylish, Durable Options for Outdoor Living Spaces"
-description: "Discover the perfect patio table to enhance your outdoor space. A variety of styles and materials awaits your choice. Creating an inviting outdoor area starts w"
+title: 'Home Goods Patio Table: Stylish, Durable Options for Outdoor Living Spaces'
+description: Discover the perfect patio table to enhance your outdoor space. A variety
+  of styles and materials awaits your choice. Creating an inviting outdoor area starts
+  w
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Discover the perfect patio table to enhance your outdoor space. A variety of styles and materials awaits your choice.**

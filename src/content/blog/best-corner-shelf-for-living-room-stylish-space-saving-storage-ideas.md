@@ -1,10 +1,14 @@
 ---
-title: "Best Corner Shelf for Living Room: Stylish & Space-Saving Storage Ideas"
-description: "Maximize your living room space with the best corner shelves. These shelves fit perfectly into corners, offering smart storage and stylish display options. Corn"
+title: 'Best Corner Shelf for Living Room: Stylish & Space-Saving Storage Ideas'
+description: Maximize your living room space with the best corner shelves. These shelves
+  fit perfectly into corners, offering smart storage and stylish display options.
+  Corn
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-corner-shelf-for-living-room-stylish-space-saving-storage-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=best-corner-shelf-for-living-room-stylish-space-saving-storage-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Maximize your living room space with the best corner shelves. These shelves fit perfectly into corners, offering smart storage and stylish display options.**

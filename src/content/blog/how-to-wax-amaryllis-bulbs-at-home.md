@@ -1,10 +1,14 @@
 ---
-title: "How to Wax Amaryllis Bulbs at Home: Easy Steps for Stunning Blooms"
-description: "Are you ready to make your amaryllis bulbs bloom longer and look healthier? Waxing your amaryllis bulbs at home is a simple trick that can protect them and boos"
+title: 'How to Wax Amaryllis Bulbs at Home: Easy Steps for Stunning Blooms'
+description: Are you ready to make your amaryllis bulbs bloom longer and look healthier?
+  Waxing your amaryllis bulbs at home is a simple trick that can protect them and
+  boos
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wax-amaryllis-bulbs-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wax-amaryllis-bulbs-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your amaryllis bulbs bloom longer and look healthier? Waxing your amaryllis bulbs at home is a simple trick that can protect them and boost their growth.**

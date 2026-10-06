@@ -1,10 +1,14 @@
 ---
-title: "How to Make End Tables Work in Small Living Room: Smart Space Hacks"
-description: "Are you struggling to fit end tables into your small living room without making it feel crowded? You’re not alone. Finding the right balance between style and s"
+title: 'How to Make End Tables Work in Small Living Room: Smart Space Hacks'
+description: Are you struggling to fit end tables into your small living room without
+  making it feel crowded? You’re not alone. Finding the right balance between style
+  and s
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-end-tables-work-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-end-tables-work-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to fit end tables into your small living room without making it feel crowded? You’re not alone.**

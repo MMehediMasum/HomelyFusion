@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Lava Lamp at Home: Easy DIY Science Experiment"
-description: "Have you ever wanted to create a cool lava lamp right at home? Imagine watching colorful blobs slowly float and dance inside a bottle you made yourself. It’s ea"
+title: 'How to Make a Lava Lamp at Home: Easy DIY Science Experiment'
+description: Have you ever wanted to create a cool lava lamp right at home? Imagine
+  watching colorful blobs slowly float and dance inside a bottle you made yourself.
+  It’s ea
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-lava-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lava Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-lava-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted to create a cool lava lamp right at home? Imagine watching colorful blobs slowly float and dance inside a bottle you made yourself.**

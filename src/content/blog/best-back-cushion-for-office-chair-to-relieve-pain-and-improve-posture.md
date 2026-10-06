@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Back Cushion for Office Chair to Relieve Pain and Improve Posture"
 description: "Choosing the best back cushion for your office chair improves comfort and supports your posture. A good cushion reduces back pain during long sitting hours. Sit"
 pubDate: 2025-09-22

@@ -1,10 +1,14 @@
 ---
-title: "Best Sheer Curtains for Living Room: Top Stylish Linen Drapes Reviewed"
-description: "Sheer curtains add softness and light to any living room. They offer privacy while letting natural light brighten the space. Choosing the best sheer curtains ca"
+title: 'Best Sheer Curtains for Living Room: Top Stylish Linen Drapes Reviewed'
+description: Sheer curtains add softness and light to any living room. They offer
+  privacy while letting natural light brighten the space. Choosing the best sheer
+  curtains ca
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sheer-curtains-for-living-room-top-stylish-linen-drapes-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-sheer-curtains-for-living-room-top-stylish-linen-drapes-reviewed&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Sheer curtains add softness and light to any living room. They offer privacy while letting natural light brighten the space.**

@@ -1,10 +1,14 @@
 ---
-title: "Frames for Bedroom: Top Multi-Size Collage Sets for Stylish Wall Decor"
-description: "Frames for bedroom walls add style and personality to your space. They showcase your favorite memories and brighten the room instantly. Choosing the right pictu"
+title: 'Frames for Bedroom: Top Multi-Size Collage Sets for Stylish Wall Decor'
+description: Frames for bedroom walls add style and personality to your space. They
+  showcase your favorite memories and brighten the room instantly. Choosing the right
+  pictu
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-for-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames for bedroom walls add style and personality to your space. They showcase your favorite memories and brighten the room instantly.**

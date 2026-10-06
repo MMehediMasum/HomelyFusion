@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Yarn at Home: Easy Steps for Beginners"
 description: "Have you ever wondered how to turn soft cotton into yarn right in your own home? Making cotton yarn yourself is easier than you might think, and it gives you fu"
 pubDate: 2026-04-13

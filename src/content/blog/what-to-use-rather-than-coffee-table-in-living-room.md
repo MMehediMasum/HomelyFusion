@@ -1,10 +1,14 @@
 ---
-title: "What to Use Rather Than Coffee Table in Living Room: Stylish Alternatives"
-description: "Are you tired of the same old coffee table crowding your living room? Maybe it feels too bulky, or you want something that matches your style better. What if yo"
+title: 'What to Use Rather Than Coffee Table in Living Room: Stylish Alternatives'
+description: Are you tired of the same old coffee table crowding your living room?
+  Maybe it feels too bulky, or you want something that matches your style better.
+  What if yo
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-use-rather-than-coffee-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-to-use-rather-than-coffee-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you tired of the same old coffee table crowding your living room? Maybe it feels too bulky, or you want something that matches your style better.**

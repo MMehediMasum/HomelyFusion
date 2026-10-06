@@ -1,10 +1,14 @@
 ---
-title: "How to Light Bedroom Mirror: Brighten Your Space with Style"
-description: "Have you ever stood in front of your bedroom mirror wishing the lighting was just right? Good lighting can make all the difference, whether you’re getting ready"
+title: 'How to Light Bedroom Mirror: Brighten Your Space with Style'
+description: Have you ever stood in front of your bedroom mirror wishing the lighting
+  was just right? Good lighting can make all the difference, whether you’re getting
+  ready
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-light-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-light-bedroom-mirror&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever stood in front of your bedroom mirror wishing the lighting was just right? Good lighting can make all the difference, whether you’re getting ready for the day or winding down at night.**

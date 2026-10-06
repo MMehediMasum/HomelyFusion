@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Roasted Sweet Potatoes Recipe: Easy, Delicious & Perfect"
 description: "Are you ready to make your Thanksgiving dinner unforgettable? This Thanksgiving Roasted Sweet Potatoes Recipe is exactly what your holiday table needs. Imagine "
 pubDate: 2026-01-21

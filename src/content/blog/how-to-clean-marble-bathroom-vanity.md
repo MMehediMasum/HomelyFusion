@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Marble Bathroom Vanity: Easy Tips for a Sparkling Shine"
-description: "Your marble bathroom vanity is more than just a surface—it’s a statement of elegance and style in your home. But keeping it spotless can be tricky. If you want "
+title: 'How to Clean Marble Bathroom Vanity: Easy Tips for a Sparkling Shine'
+description: 'Your marble bathroom vanity is more than just a surface—it’s a statement
+  of elegance and style in your home. But keeping it spotless can be tricky. If you
+  want '
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-marble-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-marble-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your marble bathroom vanity is more than just a surface—it’s a statement of elegance and style in your home. But keeping it spotless can be tricky.**

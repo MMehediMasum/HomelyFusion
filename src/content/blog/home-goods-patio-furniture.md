@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Patio Furniture: Stylish Outdoor Sets for Ultimate Comfort"
-description: "Transform your outdoor space with stylish and comfortable patio furniture. Elevate your garden, porch, or deck with modern designs. Finding the right patio furn"
+title: 'Home Goods Patio Furniture: Stylish Outdoor Sets for Ultimate Comfort'
+description: Transform your outdoor space with stylish and comfortable patio furniture.
+  Elevate your garden, porch, or deck with modern designs. Finding the right patio
+  furn
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-patio-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-patio-furniture&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Transform your outdoor space with stylish and comfortable patio furniture. Elevate your garden, porch, or deck with modern designs.**

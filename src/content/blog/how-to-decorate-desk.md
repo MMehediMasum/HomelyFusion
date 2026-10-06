@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Desk: Creative Ideas for a Stylish Workspace"
-description: "Your desk is more than just a workspace—it’s where ideas come to life and productivity happens. But if your desk feels cluttered or dull, it can hold you back. "
+title: 'How to Decorate Desk: Creative Ideas for a Stylish Workspace'
+description: 'Your desk is more than just a workspace—it’s where ideas come to life
+  and productivity happens. But if your desk feels cluttered or dull, it can hold
+  you back. '
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Dining Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your desk is more than just a workspace—it’s where ideas come to life and productivity happens. But if your desk feels cluttered or dull, it can hold you back.**

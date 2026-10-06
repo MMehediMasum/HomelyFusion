@@ -1,10 +1,13 @@
 ---
-title: "Best Christmas Tree Decorations 2025: Top Trends to Transform Your Tree"
-description: "Are you ready to make your Christmas tree the star of the season in 2026? Choosing the best decorations can transform your tree from ordinary to extraordinary, "
+title: 'Best Christmas Tree Decorations 2025: Top Trends to Transform Your Tree'
+description: 'Are you ready to make your Christmas tree the star of the season in
+  2026? Choosing the best decorations can transform your tree from ordinary to extraordinary, '
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-christmas-tree-decorations-2025&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=best-christmas-tree-decorations-2025&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas tree the star of the season in 2026? Choosing the best decorations can transform your tree from ordinary to extraordinary, creating a warm and magical atmosphere in your home.**

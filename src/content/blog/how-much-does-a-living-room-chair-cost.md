@@ -1,10 +1,14 @@
 ---
-title: "How Much Does a Living Room Chair Cost: Ultimate Price Guide 2025"
-description: "Are you thinking about adding a new chair to your living room but unsure how much it will cost? Finding the perfect chair that fits both your style and budget c"
+title: 'How Much Does a Living Room Chair Cost: Ultimate Price Guide 2025'
+description: Are you thinking about adding a new chair to your living room but unsure
+  how much it will cost? Finding the perfect chair that fits both your style and budget
+  c
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-does-a-living-room-chair-cost&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-much-does-a-living-room-chair-cost&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a new chair to your living room but unsure how much it will cost? Finding the perfect chair that fits both your style and budget can feel overwhelming.**

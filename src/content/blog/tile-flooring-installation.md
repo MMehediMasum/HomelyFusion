@@ -1,10 +1,13 @@
 ---
-title: "Tile Flooring Installation: Essential Tips and Tools for a Flawless Finish"
-description: "Tile flooring installation can transform any space with style and durability. Whether you're updating a room or starting fresh, choosing the right tile and prop"
+title: 'Tile Flooring Installation: Essential Tips and Tools for a Flawless Finish'
+description: Tile flooring installation can transform any space with style and durability.
+  Whether you're updating a room or starting fresh, choosing the right tile and prop
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=tile-flooring-installation&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=tile-flooring-installation&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile flooring installation can transform any space with style and durability. Whether you're updating a room or starting fresh, choosing the right tile and proper installation is crucial.**

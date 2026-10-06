@@ -1,10 +1,14 @@
 ---
-title: "How to Use Clay at Home: Creative DIY Ideas for Every Room"
-description: "Have you ever wondered how to bring creativity and relaxation right into your home? Using clay might be the perfect way to do just that. Whether you want to mak"
+title: 'How to Use Clay at Home: Creative DIY Ideas for Every Room'
+description: Have you ever wondered how to bring creativity and relaxation right into
+  your home? Using clay might be the perfect way to do just that. Whether you want
+  to mak
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modeling Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered how to bring creativity and relaxation right into your home? Using clay might be the perfect way to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Stupell Home Decor Wall Art: Elegant Vintage and Chic Canvas Designs"
-description: "Stupell Home Decor Wall Art offers a wide range of beautiful pieces for every room. Their designs blend vintage charm with modern style to suit any taste. This "
+title: 'Stupell Home Decor Wall Art: Elegant Vintage and Chic Canvas Designs'
+description: 'Stupell Home Decor Wall Art offers a wide range of beautiful pieces
+  for every room. Their designs blend vintage charm with modern style to suit any
+  taste. This '
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=stupell-home-decor-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=stupell-home-decor-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Stupell Home Decor Wall Art offers a wide range of beautiful pieces for every room. Their designs blend vintage charm with modern style to suit any taste.**

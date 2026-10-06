@@ -1,10 +1,14 @@
 ---
-title: "Living Room Accessories: Stylish Decorative Books and Chic Coasters Guide"
-description: "Living room accessories add charm and personality to your space. They create a cozy and inviting atmosphere for family and guests. Choosing the right accessorie"
+title: 'Living Room Accessories: Stylish Decorative Books and Chic Coasters Guide'
+description: Living room accessories add charm and personality to your space. They
+  create a cozy and inviting atmosphere for family and guests. Choosing the right
+  accessorie
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Living room accessories add charm and personality to your space. They create a cozy and inviting atmosphere for family and guests.**

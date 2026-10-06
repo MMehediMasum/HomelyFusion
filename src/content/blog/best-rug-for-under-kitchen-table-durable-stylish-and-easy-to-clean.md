@@ -1,10 +1,14 @@
 ---
-title: "Best Rug for Under Kitchen Table: Durable, Stylish, and Easy to Clean"
-description: "Choosing the best rug for under your kitchen table can improve comfort and style. The right rug protects floors and adds a cozy touch to your dining space. A ki"
+title: 'Best Rug for Under Kitchen Table: Durable, Stylish, and Easy to Clean'
+description: Choosing the best rug for under your kitchen table can improve comfort
+  and style. The right rug protects floors and adds a cozy touch to your dining space.
+  A ki
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rug-for-under-kitchen-table-durable-stylish-and-easy-to-clean&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rug-for-under-kitchen-table-durable-stylish-and-easy-to-clean&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug for under your kitchen table can improve comfort and style. The right rug protects floors and adds a cozy touch to your dining space.**

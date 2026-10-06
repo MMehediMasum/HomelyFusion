@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Diy Thanksgiving Napkin Rings: Creative Ideas to Impress Guests"
 description: "Thanksgiving is all about gathering around the table, sharing stories, and creating memories. Imagine adding a personal touch to your festive setup with DIY Tha"
 pubDate: 2026-01-09

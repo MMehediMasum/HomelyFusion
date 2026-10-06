@@ -1,10 +1,14 @@
 ---
-title: "Holiday White Chocolate Mousse: Irresistible Festive Dessert Delight"
-description: "Are you ready to treat yourself and your loved ones to a dessert that feels like a cozy holiday hug? Holiday White Chocolate Mousse is the perfect way to add a "
+title: 'Holiday White Chocolate Mousse: Irresistible Festive Dessert Delight'
+description: 'Are you ready to treat yourself and your loved ones to a dessert that
+  feels like a cozy holiday hug? Holiday White Chocolate Mousse is the perfect way
+  to add a '
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-white-chocolate-mousse&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-white-chocolate-mousse&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to treat yourself and your loved ones to a dessert that feels like a cozy holiday hug? Holiday White Chocolate Mousse is the perfect way to add a touch of magic to your festive gatherings.**

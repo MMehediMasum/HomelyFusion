@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Laminate Flooring: Stylish Peel & Stick Flooring Solutions"
-description: "Laminate flooring offers a versatile and stylish option for home decor. It combines practicality and aesthetic appeal effortlessly. Laminate flooring is a popul"
+title: 'Home Decor Laminate Flooring: Stylish Peel & Stick Flooring Solutions'
+description: Laminate flooring offers a versatile and stylish option for home decor.
+  It combines practicality and aesthetic appeal effortlessly. Laminate flooring is
+  a popul
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-laminate-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-laminate-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Laminate flooring offers a versatile and stylish option for home decor. It combines practicality and aesthetic appeal effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Pillows And Throws: Cozy Styles to Elevate Your Living Space"
-description: "Home decor pillows and throws add comfort and style to any living space. They bring warmth and personality to sofas, beds, and chairs. These decorative items co"
+title: 'Home Decor Pillows And Throws: Cozy Styles to Elevate Your Living Space'
+description: Home decor pillows and throws add comfort and style to any living space.
+  They bring warmth and personality to sofas, beds, and chairs. These decorative items
+  co
 pubDate: 2026-06-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-pillows-and-throws&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-pillows-and-throws&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home decor pillows and throws add comfort and style to any living space. They bring warmth and personality to sofas, beds, and chairs.**

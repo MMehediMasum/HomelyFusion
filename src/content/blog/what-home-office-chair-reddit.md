@@ -1,10 +1,14 @@
 ---
-title: "What Home Office Chair Reddit Recommends: Top Picks Revealed"
-description: "Choosing the perfect home office chair can feel overwhelming. You want comfort, support, and value for your money—but where do you start? If you’ve ever searche"
+title: 'What Home Office Chair Reddit Recommends: Top Picks Revealed'
+description: Choosing the perfect home office chair can feel overwhelming. You want
+  comfort, support, and value for your money—but where do you start? If you’ve ever
+  searche
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-home-office-chair-reddit&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-home-office-chair-reddit&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the perfect home office chair can feel overwhelming. You want comfort, support, and value for your money—but where do you start?**

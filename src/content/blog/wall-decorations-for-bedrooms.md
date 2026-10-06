@@ -1,10 +1,14 @@
 ---
-title: "Wall Decorations for Bedrooms: Stylish Shelves, Ivy Vines & Boho Art Ideas"
-description: "Transform your bedroom into a personal sanctuary with wall decorations. Enhance your space with creativity and style. Wall decorations can dramatically change t"
+title: 'Wall Decorations for Bedrooms: Stylish Shelves, Ivy Vines & Boho Art Ideas'
+description: Transform your bedroom into a personal sanctuary with wall decorations.
+  Enhance your space with creativity and style. Wall decorations can dramatically
+  change t
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decorations-for-bedrooms&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decorations-for-bedrooms&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your bedroom into a personal sanctuary with wall decorations. Enhance your space with creativity and style.**

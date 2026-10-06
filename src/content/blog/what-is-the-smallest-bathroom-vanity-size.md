@@ -1,10 +1,14 @@
 ---
-title: "What is the Smallest Bathroom Vanity Size: Ultimate Space-Saving Guide"
-description: "Are you struggling to find the perfect bathroom vanity that fits your tight space without sacrificing style or function? Knowing the smallest bathroom vanity si"
+title: 'What is the Smallest Bathroom Vanity Size: Ultimate Space-Saving Guide'
+description: Are you struggling to find the perfect bathroom vanity that fits your
+  tight space without sacrificing style or function? Knowing the smallest bathroom
+  vanity si
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-smallest-bathroom-vanity-size&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-smallest-bathroom-vanity-size&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to find the perfect bathroom vanity that fits your tight space without sacrificing style or function? Knowing the smallest bathroom vanity size can help you make smart choices that maximize every inch of your room.**

@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Bedroom Be for King Size Bed: Ultimate Space Guide"
-description: "Are you thinking about adding a king size bed to your bedroom but unsure if your space is big enough? Choosing the right room size for a king bed isn’t just abo"
+title: 'How Big Should Bedroom Be for King Size Bed: Ultimate Space Guide'
+description: Are you thinking about adding a king size bed to your bedroom but unsure
+  if your space is big enough? Choosing the right room size for a king bed isn’t just
+  abo
 pubDate: 2026-05-27
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-king-size-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-bedroom-be-for-king-size-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you thinking about adding a king size bed to your bedroom but unsure if your space is big enough? Choosing the right room size for a king bed isn’t just about fitting the mattress.**

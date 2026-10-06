@@ -1,10 +1,14 @@
 ---
-title: "How to Place Bed in Bedroom: Expert Tips for Perfect Layout"
-description: "Where you place your bed can change the entire feel of your bedroom. It affects your comfort, sleep quality, and even your mood. But how do you find the perfect"
+title: 'How to Place Bed in Bedroom: Expert Tips for Perfect Layout'
+description: Where you place your bed can change the entire feel of your bedroom.
+  It affects your comfort, sleep quality, and even your mood. But how do you find
+  the perfect
 pubDate: 2025-08-26
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Where you place your bed can change the entire feel of your bedroom. It affects your comfort, sleep quality, and even your mood.**

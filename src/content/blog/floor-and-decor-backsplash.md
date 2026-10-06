@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Backsplash Ideas to Transform Your Kitchen Walls Easily"
-description: "Floor and Decor backsplash options offer stylish and easy ways to update kitchen and bathroom walls. These peel-and-stick tiles provide quick, affordable wall m"
+title: Floor And Decor Backsplash Ideas to Transform Your Kitchen Walls Easily
+description: Floor and Decor backsplash options offer stylish and easy ways to update
+  kitchen and bathroom walls. These peel-and-stick tiles provide quick, affordable
+  wall m
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-backsplash&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-backsplash&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor backsplash options offer stylish and easy ways to update kitchen and bathroom walls. These peel-and-stick tiles provide quick, affordable wall makeovers without mess or tools.**

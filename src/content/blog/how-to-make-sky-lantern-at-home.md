@@ -1,10 +1,14 @@
 ---
-title: "How to Make Sky Lantern at Home: Easy DIY Guide for Beginners"
-description: "Have you ever watched a sky lantern float gently into the night sky and wished you could create that magical moment yourself? Making a sky lantern at home is ea"
+title: 'How to Make Sky Lantern at Home: Easy DIY Guide for Beginners'
+description: Have you ever watched a sky lantern float gently into the night sky and
+  wished you could create that magical moment yourself? Making a sky lantern at home
+  is ea
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-sky-lantern-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Lantern Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-sky-lantern-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever watched a sky lantern float gently into the night sky and wished you could create that magical moment yourself? Making a sky lantern at home is easier than you think, and it can bring a special touch to your celebrations or quiet evenings.**

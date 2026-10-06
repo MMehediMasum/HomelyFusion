@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Anneal Steel at Home: Mastering the Art of Stress Relief for DIY Metalworking"
 description: "If you’ve ever worked with steel, you know how tough it can be to shape and cut. What if there was a simple way to make your steel softer and easier to work wit"
 pubDate: 2026-02-08

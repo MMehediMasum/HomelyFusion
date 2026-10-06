@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Brass Lamps at Home: Easy Tips for a Sparkling Shine"
-description: "Do you have beautiful brass lamps that have lost their shine? Cleaning brass can seem tricky, but it doesn’t have to be. Imagine bringing back that warm, golden"
+title: 'How to Clean Brass Lamps at Home: Easy Tips for a Sparkling Shine'
+description: Do you have beautiful brass lamps that have lost their shine? Cleaning
+  brass can seem tricky, but it doesn’t have to be. Imagine bringing back that warm,
+  golden
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-brass-lamps-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chandelier Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-brass-lamps-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Do you have beautiful brass lamps that have lost their shine? Cleaning brass can seem tricky, but it doesn’t have to be.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcovers for Leather Sofas: Stylish, Durable, and Pet-Friendly Picks"
-description: "Protecting leather sofas extends their life and keeps them looking fresh. Choosing the best slipcover safeguards your furniture from spills, pets, and wear. Lea"
+title: 'Best Slipcovers for Leather Sofas: Stylish, Durable, and Pet-Friendly Picks'
+description: Protecting leather sofas extends their life and keeps them looking fresh.
+  Choosing the best slipcover safeguards your furniture from spills, pets, and wear.
+  Lea
 pubDate: 2025-12-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-sofas-stylish-durable-and-pet-friendly-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-sofas-stylish-durable-and-pet-friendly-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protecting leather sofas extends their life and keeps them looking fresh. Choosing the best slipcover safeguards your furniture from spills, pets, and wear.**

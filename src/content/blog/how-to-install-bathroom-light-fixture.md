@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Light Fixture: Easy Step-by-Step Guide"
-description: "Looking to upgrade your bathroom lighting but not sure where to start? Installing a bathroom light fixture might seem tricky, but with the right steps, you can "
+title: 'How to Install Bathroom Light Fixture: Easy Step-by-Step Guide'
+description: 'Looking to upgrade your bathroom lighting but not sure where to start?
+  Installing a bathroom light fixture might seem tricky, but with the right steps,
+  you can '
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-light-fixture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-light-fixture&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to upgrade your bathroom lighting but not sure where to start? Installing a bathroom light fixture might seem tricky, but with the right steps, you can do it yourself and transform your space quickly.**

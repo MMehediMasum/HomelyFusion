@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bed: Stunning Ideas to Transform Your Space"
-description: "Your bed is more than just a place to sleep—it’s the centerpiece of your room and a reflection of your style. But how do you make it look inviting and stylish w"
+title: 'How to Decorate Bed: Stunning Ideas to Transform Your Space'
+description: Your bed is more than just a place to sleep—it’s the centerpiece of your
+  room and a reflection of your style. But how do you make it look inviting and stylish
+  w
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bed is more than just a place to sleep—it’s the centerpiece of your room and a reflection of your style. But how do you make it look inviting and stylish without feeling overwhelming?**

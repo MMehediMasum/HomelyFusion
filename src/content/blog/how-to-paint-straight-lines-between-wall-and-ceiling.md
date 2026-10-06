@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Straight Lines between Wall And Ceiling: Expert Tips"
-description: "Are you tired of uneven, messy edges where your wall meets the ceiling? Painting straight lines in that tricky corner can feel impossible, but it doesn’t have t"
+title: 'How to Paint Straight Lines between Wall And Ceiling: Expert Tips'
+description: Are you tired of uneven, messy edges where your wall meets the ceiling?
+  Painting straight lines in that tricky corner can feel impossible, but it doesn’t
+  have t
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-straight-lines-between-wall-and-ceiling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-straight-lines-between-wall-and-ceiling&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of uneven, messy edges where your wall meets the ceiling? Painting straight lines in that tricky corner can feel impossible, but it doesn’t have to be.**

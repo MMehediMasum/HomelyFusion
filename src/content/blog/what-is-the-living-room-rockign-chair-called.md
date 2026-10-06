@@ -1,10 +1,14 @@
 ---
-title: "What is the Living Room Rocking Chair Called: Ultimate Guide"
-description: "Have you ever settled into a cozy chair in your living room and wondered what that classic piece of furniture is really called? You know the one—where you can g"
+title: 'What is the Living Room Rocking Chair Called: Ultimate Guide'
+description: Have you ever settled into a cozy chair in your living room and wondered
+  what that classic piece of furniture is really called? You know the one—where you
+  can g
 pubDate: 2026-02-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-living-room-rockign-chair-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-living-room-rockign-chair-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever settled into a cozy chair in your living room and wondered what that classic piece of furniture is really called? You know the one—where you can gently rock back and forth, feeling instantly relaxed and comforted.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fit Two Twin Beds in Small Bedroom: Clever Space Hacks"
-description: "Struggling to fit two twin beds in your small bedroom? You’re not alone. Finding space for both beds without making the room feel cramped can be tricky. But don"
+title: 'How to Fit Two Twin Beds in Small Bedroom: Clever Space Hacks'
+description: Struggling to fit two twin beds in your small bedroom? You’re not alone.
+  Finding space for both beds without making the room feel cramped can be tricky.
+  But don
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-two-twin-beds-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-two-twin-beds-in-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit two twin beds in your small bedroom? You’re not alone.**

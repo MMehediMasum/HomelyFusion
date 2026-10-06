@@ -1,10 +1,13 @@
 ---
-title: "Wine Rack Home Decor Ideas to Elevate Your Kitchen Style"
-description: "Wine racks aren't just for storage; they can also enhance your home decor. These stylish pieces blend function and aesthetics. Wine racks come in various design"
+title: Wine Rack Home Decor Ideas to Elevate Your Kitchen Style
+description: Wine racks aren't just for storage; they can also enhance your home decor.
+  These stylish pieces blend function and aesthetics. Wine racks come in various design
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wine-rack-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=wine-rack-home-decor&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Wine racks aren't just for storage; they can also enhance your home decor. These stylish pieces blend function and aesthetics.**

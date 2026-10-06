@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dorm: Cozy, Stylish, and Machine Washable Picks"
-description: "Choosing the best rugs for a dorm can make your room cozy and stylish. Rugs add comfort, warmth, and personality to small spaces. Dorm rooms often have plain fl"
+title: 'Best Rugs for Dorm: Cozy, Stylish, and Machine Washable Picks'
+description: Choosing the best rugs for a dorm can make your room cozy and stylish.
+  Rugs add comfort, warmth, and personality to small spaces. Dorm rooms often have
+  plain fl
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dorm-cozy-stylish-and-machine-washable-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dorm-cozy-stylish-and-machine-washable-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for a dorm can make your room cozy and stylish. Rugs add comfort, warmth, and personality to small spaces.**

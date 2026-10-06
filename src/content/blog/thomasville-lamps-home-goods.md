@@ -1,10 +1,13 @@
 ---
-title: "Thomasville Lamps Home Goods: Stylish USB Charging Table Lamps for Any Room"
-description: "Thomasville Lamps Home Goods offers stylish and practical lighting solutions for every room. These lamps combine modern features with classic designs to brighte"
+title: 'Thomasville Lamps Home Goods: Stylish USB Charging Table Lamps for Any Room'
+description: Thomasville Lamps Home Goods offers stylish and practical lighting solutions
+  for every room. These lamps combine modern features with classic designs to brighte
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=thomasville-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=thomasville-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Thomasville Lamps Home Goods offers stylish and practical lighting solutions for every room. These lamps combine modern features with classic designs to brighten your home.**

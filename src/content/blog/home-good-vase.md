@@ -1,10 +1,14 @@
 ---
-title: "Home Good Vase Ideas: Modern Ceramic Decor for Stylish Living Spaces"
-description: "A good vase adds charm and style to any home space. It holds flowers or pampas grass, enhancing your decor naturally. Choosing the right vase can brighten a roo"
+title: 'Home Good Vase Ideas: Modern Ceramic Decor for Stylish Living Spaces'
+description: A good vase adds charm and style to any home space. It holds flowers
+  or pampas grass, enhancing your decor naturally. Choosing the right vase can brighten
+  a roo
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-vase&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-good-vase&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A good vase adds charm and style to any home space. It holds flowers or pampas grass, enhancing your decor naturally.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make a Steel Drum at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wanted to create your own music right at home? Imagine the sound of a steel drum filling your space—bright, lively, and unique. Making a steel dru"
 pubDate: 2026-04-07

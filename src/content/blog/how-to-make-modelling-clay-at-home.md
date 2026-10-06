@@ -1,10 +1,14 @@
 ---
-title: "How to Make Modelling Clay at Home: Easy & Fun DIY Guide"
-description: "Have you ever wanted to create your own modelling clay right at home? Making clay yourself is easier than you think, and it can save you money while giving you "
+title: 'How to Make Modelling Clay at Home: Easy & Fun DIY Guide'
+description: 'Have you ever wanted to create your own modelling clay right at home?
+  Making clay yourself is easier than you think, and it can save you money while giving
+  you '
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-modelling-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-modelling-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own modelling clay right at home? Making clay yourself is easier than you think, and it can save you money while giving you a fun, hands-on activity.**

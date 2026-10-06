@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cut Stainless Steel Sheet at Home: Easy & Precise Guide"
 description: "Cutting stainless steel sheet at home might sound tricky, but with the right tools and simple steps, you can do it yourself without hassle. Imagine saving time "
 pubDate: 2026-03-16

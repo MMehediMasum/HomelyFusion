@@ -1,10 +1,14 @@
 ---
-title: "How to Choose the Right Size Sofa for Living Room: Expert Tips"
-description: "Choosing the right size sofa for your living room can feel overwhelming. You want it to look great, fit perfectly, and feel comfortable every time you sit down."
+title: 'How to Choose the Right Size Sofa for Living Room: Expert Tips'
+description: Choosing the right size sofa for your living room can feel overwhelming.
+  You want it to look great, fit perfectly, and feel comfortable every time you sit
+  down.
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-the-right-size-sofa-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-the-right-size-sofa-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right size sofa for your living room can feel overwhelming. You want it to look great, fit perfectly, and feel comfortable every time you sit down.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Christmas Light Decoration Ideas: Stunning & Festive Inspirations"
-description: "Are you ready to make your home the brightest and most festive on the block this holiday season? Outdoor Christmas light decoration is more than just hanging li"
+title: 'Outdoor Christmas Light Decoration Ideas: Stunning & Festive Inspirations'
+description: Are you ready to make your home the brightest and most festive on the
+  block this holiday season? Outdoor Christmas light decoration is more than just
+  hanging li
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-christmas-light-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-christmas-light-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your home the brightest and most festive on the block this holiday season? Outdoor Christmas light decoration is more than just hanging lights—it’s about creating a magical atmosphere that brings joy to you, your family, and everyone who passes by.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Pastel Tulip Centerpiece: Stunning Ideas to Brighten Your Table"
-description: "Looking for a fresh and beautiful way to brighten your Easter table? An Easter Pastel Tulip Centerpiece is just what you need. Imagine soft, colorful tulips bri"
+title: 'Easter Pastel Tulip Centerpiece: Stunning Ideas to Brighten Your Table'
+description: Looking for a fresh and beautiful way to brighten your Easter table?
+  An Easter Pastel Tulip Centerpiece is just what you need. Imagine soft, colorful
+  tulips bri
 pubDate: 2025-09-01
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-pastel-tulip-centerpiece&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-pastel-tulip-centerpiece&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a fresh and beautiful way to brighten your Easter table? An Easter Pastel Tulip Centerpiece is just what you need.**

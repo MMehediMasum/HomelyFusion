@@ -1,10 +1,14 @@
 ---
-title: "Home Decoration Table Ideas: Stylish Rustic and Modern Decor Inspirations"
-description: "Home decoration tables add style and personality to any room. They serve as focal points and functional spaces for your decor items. Choosing the right table de"
+title: 'Home Decoration Table Ideas: Stylish Rustic and Modern Decor Inspirations'
+description: Home decoration tables add style and personality to any room. They serve
+  as focal points and functional spaces for your decor items. Choosing the right table
+  de
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decoration-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=home-decoration-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home decoration tables add style and personality to any room. They serve as focal points and functional spaces for your decor items.**

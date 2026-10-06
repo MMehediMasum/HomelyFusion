@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Living Room With a Chair Rail: Stunning Tips"
-description: "Are you looking to give your living room a fresh, stylish look without spending a fortune? Painting your living room with a chair rail can transform the space, "
+title: 'How to Paint a Living Room With a Chair Rail: Stunning Tips'
+description: 'Are you looking to give your living room a fresh, stylish look without
+  spending a fortune? Painting your living room with a chair rail can transform the
+  space, '
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-living-room-with-a-chair-rail&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-living-room-with-a-chair-rail&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your living room a fresh, stylish look without spending a fortune? Painting your living room with a chair rail can transform the space, adding depth and character instantly.**

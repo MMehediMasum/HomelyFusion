@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange a Living Room With Two Sofas: Stylish Tips & Tricks"
-description: "Are you struggling to figure out how to arrange your living room with two sofas without making the space feel cramped or awkward? You’re not alone. Finding the "
+title: 'How to Arrange a Living Room With Two Sofas: Stylish Tips & Tricks'
+description: 'Are you struggling to figure out how to arrange your living room with
+  two sofas without making the space feel cramped or awkward? You’re not alone. Finding
+  the '
 pubDate: 2026-03-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-two-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-a-living-room-with-two-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to figure out how to arrange your living room with two sofas without making the space feel cramped or awkward? You’re not alone.**

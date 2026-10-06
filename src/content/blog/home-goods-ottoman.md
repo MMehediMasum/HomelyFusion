@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Ottoman: Stylish Storage Solutions for Every Living Space"
-description: "Ottomans are versatile furniture pieces that add style and functionality to any home. From storage solutions to comfortable seating, these items offer something"
+title: 'Home Goods Ottoman: Stylish Storage Solutions for Every Living Space'
+description: Ottomans are versatile furniture pieces that add style and functionality
+  to any home. From storage solutions to comfortable seating, these items offer something
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-ottoman&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Storage Benches
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-ottoman&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Ottomans are versatile furniture pieces that add style and functionality to any home. From storage solutions to comfortable seating, these items offer something for everyone.**

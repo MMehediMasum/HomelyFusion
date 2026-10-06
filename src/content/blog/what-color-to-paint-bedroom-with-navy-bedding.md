@@ -1,10 +1,14 @@
 ---
-title: "What Color to Paint Bedroom With Navy Bedding: Stunning Color Ideas"
-description: "Choosing the perfect color to paint your bedroom when you have navy bedding can feel tricky. You want a shade that complements the deep, rich tones of navy with"
+title: 'What Color to Paint Bedroom With Navy Bedding: Stunning Color Ideas'
+description: Choosing the perfect color to paint your bedroom when you have navy bedding
+  can feel tricky. You want a shade that complements the deep, rich tones of navy
+  with
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-with-navy-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-to-paint-bedroom-with-navy-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the perfect color to paint your bedroom when you have navy bedding can feel tricky. You want a shade that complements the deep, rich tones of navy without making the room feel dark or dull.**

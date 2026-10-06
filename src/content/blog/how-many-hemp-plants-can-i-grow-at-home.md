@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Many Hemp Plants Can I Grow at Home: Ultimate Guide 2025"
 description: "Are you curious about growing hemp at home but unsure how many plants you can legally and practically handle? Knowing the right number of hemp plants to grow is"
 pubDate: 2026-02-09

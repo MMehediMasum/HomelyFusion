@@ -1,10 +1,14 @@
 ---
-title: "How to Hide Speaker Wires on Wall: Easy & Neat Solutions"
-description: "Are messy speaker wires ruining the clean look of your walls? You’re not alone. Those tangled cords can be an eyesore and even a tripping hazard. But don’t worr"
+title: 'How to Hide Speaker Wires on Wall: Easy & Neat Solutions'
+description: Are messy speaker wires ruining the clean look of your walls? You’re
+  not alone. Those tangled cords can be an eyesore and even a tripping hazard. But
+  don’t worr
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Theater Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hide-speaker-wires-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are messy speaker wires ruining the clean look of your walls? You’re not alone.**

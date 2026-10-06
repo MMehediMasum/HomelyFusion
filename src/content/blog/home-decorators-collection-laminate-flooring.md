@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Laminate Flooring: Stylish, Easy DIY Wood Planks"
-description: "Home Decorators Collection laminate flooring offers stylish, durable options for any room. It combines easy installation with attractive wood-look designs. This"
+title: 'Home Decorators Collection Laminate Flooring: Stylish, Easy DIY Wood Planks'
+description: Home Decorators Collection laminate flooring offers stylish, durable
+  options for any room. It combines easy installation with attractive wood-look designs.
+  This
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-laminate-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-laminate-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators Collection laminate flooring offers stylish, durable options for any room. It combines easy installation with attractive wood-look designs.**

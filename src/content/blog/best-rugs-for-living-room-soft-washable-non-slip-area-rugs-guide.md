@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Living Room: Soft, Washable, Non-Slip Area Rugs Guide"
-description: "Choosing the best rug can transform your living room’s look and feel. A good rug adds comfort, style, and warmth to any space. Rugs come in many styles, sizes, "
+title: 'Best Rugs for Living Room: Soft, Washable, Non-Slip Area Rugs Guide'
+description: 'Choosing the best rug can transform your living room’s look and feel.
+  A good rug adds comfort, style, and warmth to any space. Rugs come in many styles,
+  sizes, '
 pubDate: 2025-12-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-living-room-soft-washable-non-slip-area-rugs-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-living-room-soft-washable-non-slip-area-rugs-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rug can transform your living room’s look and feel. A good rug adds comfort, style, and warmth to any space.**

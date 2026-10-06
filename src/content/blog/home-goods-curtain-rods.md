@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Curtain Rods: Stylish, Adjustable Solutions for Every Window"
-description: "Home goods curtain rods bring style and function to any room. They hold curtains securely and enhance window decor with ease. Selecting the right curtain rod ma"
+title: 'Home Goods Curtain Rods: Stylish, Adjustable Solutions for Every Window'
+description: Home goods curtain rods bring style and function to any room. They hold
+  curtains securely and enhance window decor with ease. Selecting the right curtain
+  rod ma
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-curtain-rods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-curtain-rods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods curtain rods bring style and function to any room. They hold curtains securely and enhance window decor with ease.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Hang Heavy Bathroom Mirror: Expert Tips for Secure Mounting"
-description: "Hanging a heavy bathroom mirror can feel like a tricky task, but it doesn’t have to be. If you’re worried about your mirror falling or damaging your wall, you’r"
+title: 'How to Hang Heavy Bathroom Mirror: Expert Tips for Secure Mounting'
+description: Hanging a heavy bathroom mirror can feel like a tricky task, but it doesn’t
+  have to be. If you’re worried about your mirror falling or damaging your wall, you’r
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-heavy-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-heavy-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a heavy bathroom mirror can feel like a tricky task, but it doesn’t have to be. If you’re worried about your mirror falling or damaging your wall, you’re not alone.**

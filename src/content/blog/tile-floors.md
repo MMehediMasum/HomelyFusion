@@ -1,10 +1,14 @@
 ---
-title: "Tile Floors Made Easy: Top Peel & Stick Tiles for Stylish DIY Upgrades"
-description: "Tile floors offer a durable and stylish option for many rooms in your home. They come in various materials, colors, and patterns to fit any design. Peel and sti"
+title: 'Tile Floors Made Easy: Top Peel & Stick Tiles for Stylish DIY Upgrades'
+description: Tile floors offer a durable and stylish option for many rooms in your
+  home. They come in various materials, colors, and patterns to fit any design. Peel
+  and sti
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=tile-floors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=tile-floors&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tile floors offer a durable and stylish option for many rooms in your home. They come in various materials, colors, and patterns to fit any design.**

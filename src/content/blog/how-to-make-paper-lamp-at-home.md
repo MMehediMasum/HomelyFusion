@@ -1,10 +1,14 @@
 ---
-title: "How to Make Paper Lamp at Home: Easy DIY Guide for Beginners"
-description: "Looking to add a warm, cozy glow to your space without spending a lot? You can create a beautiful paper lamp right at home, using simple materials you probably "
+title: 'How to Make Paper Lamp at Home: Easy DIY Guide for Beginners'
+description: 'Looking to add a warm, cozy glow to your space without spending a lot?
+  You can create a beautiful paper lamp right at home, using simple materials you
+  probably '
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-paper-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-paper-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to add a warm, cozy glow to your space without spending a lot? You can create a beautiful paper lamp right at home, using simple materials you probably already have.**

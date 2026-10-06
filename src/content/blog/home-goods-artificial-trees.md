@@ -1,10 +1,15 @@
 ---
-title: "Home Goods Artificial Trees: Transform Your Indoor Space with Realistic Olive Trees"
-description: "Artificial trees enhance home decor with ease and beauty. They offer charm without the upkeep of real plants. Many homeowners appreciate artificial trees for th"
+title: 'Home Goods Artificial Trees: Transform Your Indoor Space with Realistic Olive
+  Trees'
+description: Artificial trees enhance home decor with ease and beauty. They offer
+  charm without the upkeep of real plants. Many homeowners appreciate artificial trees
+  for th
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-artificial-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-artificial-trees&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial trees enhance home decor with ease and beauty. They offer charm without the upkeep of real plants.**

@@ -1,10 +1,14 @@
 ---
-title: "Are Frameless Bathroom Mirrors in Style: Stunning Modern Trends"
-description: "Are you thinking about updating your bathroom but not sure which mirror style fits best? Frameless bathroom mirrors might be the answer you’re looking for. They"
+title: 'Are Frameless Bathroom Mirrors in Style: Stunning Modern Trends'
+description: Are you thinking about updating your bathroom but not sure which mirror
+  style fits best? Frameless bathroom mirrors might be the answer you’re looking for.
+  They
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-frameless-bathroom-mirrors-in-style&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=are-frameless-bathroom-mirrors-in-style&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you thinking about updating your bathroom but not sure which mirror style fits best? Frameless bathroom mirrors might be the answer you’re looking for.**

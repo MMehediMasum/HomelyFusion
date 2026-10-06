@@ -1,10 +1,14 @@
 ---
-title: "How to Build Cabinets in Your Living Room: Easy DIY Guide"
-description: "Are you looking to add more storage and style to your living room? Building your own cabinets might sound tricky, but it’s easier than you think—and it gives yo"
+title: 'How to Build Cabinets in Your Living Room: Easy DIY Guide'
+description: Are you looking to add more storage and style to your living room? Building
+  your own cabinets might sound tricky, but it’s easier than you think—and it gives
+  yo
 pubDate: 2026-04-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-cabinets-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-cabinets-in-your-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add more storage and style to your living room? Building your own cabinets might sound tricky, but it’s easier than you think—and it gives you full control over how they look and fit your space.**

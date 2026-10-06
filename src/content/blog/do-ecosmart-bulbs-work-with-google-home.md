@@ -1,10 +1,14 @@
 ---
-title: "Do Ecosmart Bulbs Work With Google Home: Ultimate Compatibility Guide"
-description: "Are you thinking about upgrading your home lighting and wondering if Ecosmart bulbs can connect with Google Home? You want smart lights that respond easily to y"
+title: 'Do Ecosmart Bulbs Work With Google Home: Ultimate Compatibility Guide'
+description: Are you thinking about upgrading your home lighting and wondering if
+  Ecosmart bulbs can connect with Google Home? You want smart lights that respond
+  easily to y
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ecosmart-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=do-ecosmart-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you thinking about upgrading your home lighting and wondering if Ecosmart bulbs can connect with Google Home? You want smart lights that respond easily to your voice and fit seamlessly into your smart home setup.**

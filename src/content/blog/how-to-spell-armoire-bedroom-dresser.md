@@ -1,10 +1,14 @@
 ---
-title: "How to Spell Armoire Bedroom Dresser: Easy Tips & Tricks"
-description: "Are you unsure how to spell \"armoire bedroom dresser\" correctly? You’re not alone. Many people find this word tricky, and getting it right can make a big differ"
+title: 'How to Spell Armoire Bedroom Dresser: Easy Tips & Tricks'
+description: Are you unsure how to spell "armoire bedroom dresser" correctly? You’re
+  not alone. Many people find this word tricky, and getting it right can make a big
+  differ
 pubDate: 2026-05-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-spell-armoire-bedroom-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-spell-armoire-bedroom-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you unsure how to spell "armoire bedroom dresser" correctly? You’re not alone.**

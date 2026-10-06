@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Bedroom: Stylish, Functional, and Modern Lighting Choices"
-description: "Choosing the best floor lamp for your bedroom can change how the room feels and works. A good lamp adds light, style, and comfort to your space. Bedroom floor l"
+title: 'Best Floor Lamps for Bedroom: Stylish, Functional, and Modern Lighting Choices'
+description: Choosing the best floor lamp for your bedroom can change how the room
+  feels and works. A good lamp adds light, style, and comfort to your space. Bedroom
+  floor l
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-bedroom-stylish-functional-and-modern-lighting-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-bedroom-stylish-functional-and-modern-lighting-choices&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for your bedroom can change how the room feels and works. A good lamp adds light, style, and comfort to your space.**

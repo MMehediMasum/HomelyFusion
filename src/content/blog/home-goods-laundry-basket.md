@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Laundry Basket: Top Space-Saving Hampers for Organized Laundry"
-description: "Laundry baskets play a crucial role in managing household chores efficiently. Choosing the right one can simplify your laundry routine. Home goods offer a varie"
+title: 'Home Goods Laundry Basket: Top Space-Saving Hampers for Organized Laundry'
+description: Laundry baskets play a crucial role in managing household chores efficiently.
+  Choosing the right one can simplify your laundry routine. Home goods offer a varie
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-laundry-basket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-laundry-basket&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Laundry baskets play a crucial role in managing household chores efficiently. Choosing the right one can simplify your laundry routine.**

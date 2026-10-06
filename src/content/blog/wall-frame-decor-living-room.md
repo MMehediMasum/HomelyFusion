@@ -1,10 +1,14 @@
 ---
-title: "Wall Frame Decor Living Room Ideas to Elevate Your Home Style"
-description: "Wall frame decor can transform your living room into a warm and inviting space. It adds personality and style without crowding the room. Choosing the right wall"
+title: Wall Frame Decor Living Room Ideas to Elevate Your Home Style
+description: Wall frame decor can transform your living room into a warm and inviting
+  space. It adds personality and style without crowding the room. Choosing the right
+  wall
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-frame-decor-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=wall-frame-decor-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall frame decor can transform your living room into a warm and inviting space. It adds personality and style without crowding the room.**

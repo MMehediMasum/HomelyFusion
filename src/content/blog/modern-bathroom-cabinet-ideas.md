@@ -1,10 +1,14 @@
 ---
-title: "Modern Bathroom Cabinet Ideas: Stylish Designs for Every Space"
-description: "Your bathroom deserves more than just basic storage. Imagine a space where your essentials are perfectly organized, yet the design makes you feel calm and refre"
+title: 'Modern Bathroom Cabinet Ideas: Stylish Designs for Every Space'
+description: Your bathroom deserves more than just basic storage. Imagine a space
+  where your essentials are perfectly organized, yet the design makes you feel calm
+  and refre
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-bathroom-cabinet-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=modern-bathroom-cabinet-ideas&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your bathroom deserves more than just basic storage. Imagine a space where your essentials are perfectly organized, yet the design makes you feel calm and refreshed every time you step in.**

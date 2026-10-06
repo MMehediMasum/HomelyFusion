@@ -1,10 +1,13 @@
 ---
-title: "Best Reading Lamp for Bedroom: Top Dimmable, USB & Adjustable Options"
-description: "Choosing the best reading lamp for your bedroom helps create a cozy and comfortable space. Good lighting reduces eye strain and makes bedtime reading enjoyable."
+title: 'Best Reading Lamp for Bedroom: Top Dimmable, USB & Adjustable Options'
+description: Choosing the best reading lamp for your bedroom helps create a cozy and
+  comfortable space. Good lighting reduces eye strain and makes bedtime reading enjoyable.
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-reading-lamp-for-bedroom-top-dimmable-usb-adjustable-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-reading-lamp-for-bedroom-top-dimmable-usb-adjustable-options&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best reading lamp for your bedroom helps create a cozy and comfortable space. Good lighting reduces eye strain and makes bedtime reading enjoyable.**

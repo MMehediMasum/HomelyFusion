@@ -1,10 +1,14 @@
 ---
-title: "A Living Room With Furniture And a Table Brooklyn: Stylish Comfort Ideas"
-description: "Imagine stepping into a living room that feels like it was made just for you—a space where comfort meets style perfectly. A living room with furniture and a tab"
+title: 'A Living Room With Furniture And a Table Brooklyn: Stylish Comfort Ideas'
+description: Imagine stepping into a living room that feels like it was made just
+  for you—a space where comfort meets style perfectly. A living room with furniture
+  and a tab
 pubDate: 2026-03-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-living-room-with-furniture-and-a-table-brooklyn&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=a-living-room-with-furniture-and-a-table-brooklyn&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine stepping into a living room that feels like it was made just for you—a space where comfort meets style perfectly. A living room with furniture and a table in Brooklyn isn’t just about filling a room; it’s about creating a place where your daily life unfolds effortlessly.**

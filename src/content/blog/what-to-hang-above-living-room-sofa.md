@@ -1,10 +1,14 @@
 ---
-title: "What to Hang above Living Room Sofa: Stunning Ideas to Transform Space"
-description: "Your living room sofa is more than just a place to sit—it’s the heart of your space. But what you choose to hang above it can make all the difference. Are you s"
+title: 'What to Hang above Living Room Sofa: Stunning Ideas to Transform Space'
+description: Your living room sofa is more than just a place to sit—it’s the heart
+  of your space. But what you choose to hang above it can make all the difference.
+  Are you s
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-hang-above-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=what-to-hang-above-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room sofa is more than just a place to sit—it’s the heart of your space. But what you choose to hang above it can make all the difference.**

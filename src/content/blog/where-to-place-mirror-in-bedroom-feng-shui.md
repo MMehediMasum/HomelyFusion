@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Place Mirror in Bedroom Feng Shui: Ultimate Placement Guide"
 description: "Where you place a mirror in your bedroom can change everything—from how peaceful you feel to how well you sleep. If you’ve ever wondered why your room feels off"
 pubDate: 2026-05-31

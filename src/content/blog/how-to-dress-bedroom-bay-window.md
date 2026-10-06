@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom Bay Window: Stunning Ideas for Cozy Elegance"
-description: "Your bedroom bay window is more than just an architectural feature – it’s a chance to create a cozy, stylish nook that enhances your entire space. But how do yo"
+title: 'How to Dress Bedroom Bay Window: Stunning Ideas for Cozy Elegance'
+description: Your bedroom bay window is more than just an architectural feature –
+  it’s a chance to create a cozy, stylish nook that enhances your entire space. But
+  how do yo
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-bay-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-bay-window&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom bay window is more than just an architectural feature – it’s a chance to create a cozy, stylish nook that enhances your entire space. But how do you dress it to make the most of its natural light and unique shape?**

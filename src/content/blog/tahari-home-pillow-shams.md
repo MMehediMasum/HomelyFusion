@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Pillow Shams: Ultimate Comfort with Feather Down Inserts"
-description: "Tahari Home Pillow Shams add elegance to any bedroom decor. They offer style and comfort with ease. Tahari Home Pillow Shams are perfect for enhancing your bedr"
+title: 'Tahari Home Pillow Shams: Ultimate Comfort with Feather Down Inserts'
+description: Tahari Home Pillow Shams add elegance to any bedroom decor. They offer
+  style and comfort with ease. Tahari Home Pillow Shams are perfect for enhancing
+  your bedr
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-pillow-shams&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-pillow-shams&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tahari Home Pillow Shams add elegance to any bedroom decor. They offer style and comfort with ease.**

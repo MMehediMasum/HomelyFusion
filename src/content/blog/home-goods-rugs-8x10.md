@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 8X10: Stylish, Washable, and Non-Slip Area Rugs for Any Room"
-description: "Choosing the right rug can transform a living space, offering comfort and style. An 8x10 rug is perfect for many rooms. Home goods offer a range of 8x10 rugs th"
+title: 'Home Goods Rugs 8X10: Stylish, Washable, and Non-Slip Area Rugs for Any Room'
+description: Choosing the right rug can transform a living space, offering comfort
+  and style. An 8x10 rug is perfect for many rooms. Home goods offer a range of 8x10
+  rugs th
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-8x10&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-8x10&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right rug can transform a living space, offering comfort and style. An 8x10 rug is perfect for many rooms.**

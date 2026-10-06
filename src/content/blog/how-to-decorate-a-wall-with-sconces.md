@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall With Sconces: Stunning Ideas That Shine"
-description: "Are you looking to add a touch of style and warmth to your walls? Decorating with sconces is one of the easiest and most effective ways to transform any room. I"
+title: 'How to Decorate a Wall With Sconces: Stunning Ideas That Shine'
+description: Are you looking to add a touch of style and warmth to your walls? Decorating
+  with sconces is one of the easiest and most effective ways to transform any room.
+  I
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-sconces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-sconces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a touch of style and warmth to your walls? Decorating with sconces is one of the easiest and most effective ways to transform any room.**

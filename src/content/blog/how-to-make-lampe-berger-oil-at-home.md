@@ -1,10 +1,14 @@
 ---
-title: "How to Make Lampe Berger Oil at Home: Easy DIY Guide"
-description: "Have you ever wondered how to make Lampe Berger oil at home? If you love the idea of filling your space with fresh, clean scents but want to save money or custo"
+title: 'How to Make Lampe Berger Oil at Home: Easy DIY Guide'
+description: Have you ever wondered how to make Lampe Berger oil at home? If you love
+  the idea of filling your space with fresh, clean scents but want to save money or
+  custo
 pubDate: 2025-11-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lampe-berger-oil-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lampe-berger-oil-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered how to make Lampe Berger oil at home? If you love the idea of filling your space with fresh, clean scents but want to save money or customize your fragrance, you’re in the right place.**

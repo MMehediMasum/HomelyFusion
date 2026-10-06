@@ -1,10 +1,14 @@
 ---
-title: "How to Make Dramatic Bed in Bedroom: Stunning Tips for Impact"
-description: "Your bedroom should be your personal sanctuary, a place where you feel calm and inspired. One simple way to transform your space is by making a dramatic bed tha"
+title: 'How to Make Dramatic Bed in Bedroom: Stunning Tips for Impact'
+description: Your bedroom should be your personal sanctuary, a place where you feel
+  calm and inspired. One simple way to transform your space is by making a dramatic
+  bed tha
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-dramatic-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-dramatic-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be your personal sanctuary, a place where you feel calm and inspired. One simple way to transform your space is by making a dramatic bed that instantly grabs attention.**

@@ -1,10 +1,14 @@
 ---
-title: "Bedroom Wall Frames: Stylish Multi-Size Collage Sets for Perfect Decor"
-description: "Enhance your bedroom with stunning wall frames that blend style and functionality. Create a captivating gallery wall effortlessly. Bedroom wall frames offer an "
+title: 'Bedroom Wall Frames: Stylish Multi-Size Collage Sets for Perfect Decor'
+description: 'Enhance your bedroom with stunning wall frames that blend style and
+  functionality. Create a captivating gallery wall effortlessly. Bedroom wall frames
+  offer an '
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-wall-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-wall-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Enhance your bedroom with stunning wall frames that blend style and functionality. Create a captivating gallery wall effortlessly.**

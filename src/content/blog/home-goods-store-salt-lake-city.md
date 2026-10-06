@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Home Goods Store Salt Lake City: Unique Vintage Posters & Decor Finds"
 description: "Discover unique home decor at a charming Salt Lake City store. This shop offers beautiful and functional items. From vintage posters to stylish coffee mugs, the"
 pubDate: 2026-06-27

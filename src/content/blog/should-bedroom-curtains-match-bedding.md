@@ -1,10 +1,14 @@
 ---
-title: "Should Bedroom Curtains Match Bedding: Expert Tips for Perfect Harmony"
-description: "Have you ever stood in your bedroom, wondering if your curtains should match your bedding? It’s a small detail, but it can completely change the feel of your sp"
+title: 'Should Bedroom Curtains Match Bedding: Expert Tips for Perfect Harmony'
+description: Have you ever stood in your bedroom, wondering if your curtains should
+  match your bedding? It’s a small detail, but it can completely change the feel of
+  your sp
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bedroom-curtains-match-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=should-bedroom-curtains-match-bedding&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever stood in your bedroom, wondering if your curtains should match your bedding? It’s a small detail, but it can completely change the feel of your space.**

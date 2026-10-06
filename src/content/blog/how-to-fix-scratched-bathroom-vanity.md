@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Scratched Bathroom Vanity: Easy DIY Repair Tips"
-description: "Have you noticed scratches on your bathroom vanity that spoil its look? Those marks can be frustrating, especially when you want your space to feel fresh and cl"
+title: 'How to Fix Scratched Bathroom Vanity: Easy DIY Repair Tips'
+description: Have you noticed scratches on your bathroom vanity that spoil its look?
+  Those marks can be frustrating, especially when you want your space to feel fresh
+  and cl
 pubDate: 2025-11-19
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-scratched-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-scratched-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you noticed scratches on your bathroom vanity that spoil its look? Those marks can be frustrating, especially when you want your space to feel fresh and clean.**

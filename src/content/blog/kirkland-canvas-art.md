@@ -1,10 +1,14 @@
 ---
-title: "Kirkland Canvas Art: Stunning Wall Decor to Transform Your Living Space"
-description: "Kirkland Canvas Art brings exquisite beauty to your walls with a diverse range of art pieces. From abstract designs to vintage maps, these artworks elevate any "
+title: 'Kirkland Canvas Art: Stunning Wall Decor to Transform Your Living Space'
+description: 'Kirkland Canvas Art brings exquisite beauty to your walls with a diverse
+  range of art pieces. From abstract designs to vintage maps, these artworks elevate
+  any '
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=kirkland-canvas-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=kirkland-canvas-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Kirkland Canvas Art brings exquisite beauty to your walls with a diverse range of art pieces. From abstract designs to vintage maps, these artworks elevate any space effortlessly.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Brussels Sprouts Recipe: Irresistible, Easy & Delicious"
 description: "Are you looking for a Thanksgiving Brussels sprouts recipe that will wow your guests and bring a fresh twist to your holiday table? You’re in the right place. B"
 pubDate: 2026-01-07

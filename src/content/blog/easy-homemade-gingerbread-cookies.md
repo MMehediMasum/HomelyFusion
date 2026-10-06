@@ -1,10 +1,14 @@
 ---
-title: "Easy Homemade Gingerbread Cookies: Irresistibly Delicious Recipe"
-description: "Are you ready to fill your kitchen with the warm, spicy scent of freshly baked gingerbread cookies? Making these delicious treats at home is easier than you thi"
+title: 'Easy Homemade Gingerbread Cookies: Irresistibly Delicious Recipe'
+description: Are you ready to fill your kitchen with the warm, spicy scent of freshly
+  baked gingerbread cookies? Making these delicious treats at home is easier than
+  you thi
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easy-homemade-gingerbread-cookies&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=easy-homemade-gingerbread-cookies&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you ready to fill your kitchen with the warm, spicy scent of freshly baked gingerbread cookies? Making these delicious treats at home is easier than you think, and you don’t need any fancy ingredients or skills.**

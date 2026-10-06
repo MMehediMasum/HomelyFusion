@@ -1,10 +1,14 @@
 ---
-title: "Corner Vase Ideas: Transform Your Living Space with Stylish Tall Floor Vases"
-description: "Corner vases can transform any space, adding elegance and style. These decorative pieces serve as focal points in home decor. Vases come in various designs, fro"
+title: 'Corner Vase Ideas: Transform Your Living Space with Stylish Tall Floor Vases'
+description: Corner vases can transform any space, adding elegance and style. These
+  decorative pieces serve as focal points in home decor. Vases come in various designs,
+  fro
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=corner-vase&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=corner-vase&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Corner vases can transform any space, adding elegance and style. These decorative pieces serve as focal points in home decor.**

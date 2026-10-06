@@ -1,10 +1,13 @@
 ---
-title: "How to Build Bedroom Storage Bench: Easy Steps for Stylish Storage"
-description: "Looking for a smart way to add extra storage and seating to your bedroom? Building your own bedroom storage bench could be the perfect solution. Imagine having "
+title: 'How to Build Bedroom Storage Bench: Easy Steps for Stylish Storage'
+description: 'Looking for a smart way to add extra storage and seating to your bedroom?
+  Building your own bedroom storage bench could be the perfect solution. Imagine having '
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-bedroom-storage-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-bedroom-storage-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for a smart way to add extra storage and seating to your bedroom? Building your own bedroom storage bench could be the perfect solution.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a Gas Fixture in a Home: Essential Guide to Safety & Use"
-description: "Have you ever wondered what makes your home warm and cozy during chilly nights? Or what powers the charming glow of your kitchen’s vintage-style lamps? The answ"
+title: 'What is a Gas Fixture in a Home: Essential Guide to Safety & Use'
+description: Have you ever wondered what makes your home warm and cozy during chilly
+  nights? Or what powers the charming glow of your kitchen’s vintage-style lamps?
+  The answ
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-gas-fixture-in-a-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-gas-fixture-in-a-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered what makes your home warm and cozy during chilly nights? Or what powers the charming glow of your kitchen’s vintage-style lamps?**

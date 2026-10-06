@@ -1,10 +1,14 @@
 ---
-title: "Ghost Pillow Homegoods: Ultimate Comfort and Spooky Style Combined"
-description: "Discover the perfect blend of comfort and Halloween charm with Ghost Pillow Homegoods. Elevate your home decor and sleep experience effortlessly. Ghost Pillow H"
+title: 'Ghost Pillow Homegoods: Ultimate Comfort and Spooky Style Combined'
+description: Discover the perfect blend of comfort and Halloween charm with Ghost
+  Pillow Homegoods. Elevate your home decor and sleep experience effortlessly. Ghost
+  Pillow H
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ghost-pillow-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Halloween Textiles
+heroImage: https://tse1.mm.bing.net/th?q=ghost-pillow-homegoods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Discover the perfect blend of comfort and Halloween charm with Ghost Pillow Homegoods. Elevate your home decor and sleep experience effortlessly.**

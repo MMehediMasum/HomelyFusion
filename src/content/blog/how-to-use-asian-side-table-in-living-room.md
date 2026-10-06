@@ -1,10 +1,14 @@
 ---
-title: "How to Use Asian Side Table in Living Room: Stylish Tips & Ideas"
-description: "Looking to add a touch of elegance and unique charm to your living room? An Asian side table might be exactly what you need. These beautiful pieces are more tha"
+title: 'How to Use Asian Side Table in Living Room: Stylish Tips & Ideas'
+description: Looking to add a touch of elegance and unique charm to your living room?
+  An Asian side table might be exactly what you need. These beautiful pieces are more
+  tha
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-asian-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-asian-side-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking to add a touch of elegance and unique charm to your living room? An Asian side table might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Ornamental Home Decor: Top Rustic and Modern Sculptures for Every Room"
-description: "Ornamental home decor adds charm and personality to any living space. These decorative items create a warm and inviting atmosphere. Decorative sculptures, figur"
+title: 'Ornamental Home Decor: Top Rustic and Modern Sculptures for Every Room'
+description: Ornamental home decor adds charm and personality to any living space.
+  These decorative items create a warm and inviting atmosphere. Decorative sculptures,
+  figur
 pubDate: 2026-06-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornamental-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=ornamental-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Ornamental home decor adds charm and personality to any living space. These decorative items create a warm and inviting atmosphere.**

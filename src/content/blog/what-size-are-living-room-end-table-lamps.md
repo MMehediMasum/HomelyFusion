@@ -1,10 +1,14 @@
 ---
-title: "What Size are Living Room End Table Lamps: Expert Guide to Perfect Fit"
-description: "Are you wondering what size living room end table lamps should be? Choosing the right lamp size can transform your space, making it feel cozy and balanced. Too "
+title: 'What Size are Living Room End Table Lamps: Expert Guide to Perfect Fit'
+description: 'Are you wondering what size living room end table lamps should be? Choosing
+  the right lamp size can transform your space, making it feel cozy and balanced.
+  Too '
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-are-living-room-end-table-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=what-size-are-living-room-end-table-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering what size living room end table lamps should be? Choosing the right lamp size can transform your space, making it feel cozy and balanced.**

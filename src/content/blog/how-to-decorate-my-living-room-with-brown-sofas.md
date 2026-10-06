@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate My Living Room With Brown Sofas: Stylish Ideas"
-description: "Are you wondering how to make your living room feel warm, stylish, and inviting with brown sofas? Brown sofas are a fantastic choice—they bring comfort and a ti"
+title: 'How to Decorate My Living Room With Brown Sofas: Stylish Ideas'
+description: Are you wondering how to make your living room feel warm, stylish, and
+  inviting with brown sofas? Brown sofas are a fantastic choice—they bring comfort
+  and a ti
 pubDate: 2026-05-07
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-my-living-room-with-brown-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-my-living-room-with-brown-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel warm, stylish, and inviting with brown sofas? Brown sofas are a fantastic choice—they bring comfort and a timeless look to any space.**

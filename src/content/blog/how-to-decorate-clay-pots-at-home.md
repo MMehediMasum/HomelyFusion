@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Clay Pots at Home: Creative & Easy Ideas"
-description: "Are you looking to add a personal touch to your garden or home decor? Decorating clay pots at home is an easy and fun way to bring color and creativity into you"
+title: 'How to Decorate Clay Pots at Home: Creative & Easy Ideas'
+description: Are you looking to add a personal touch to your garden or home decor?
+  Decorating clay pots at home is an easy and fun way to bring color and creativity
+  into you
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-clay-pots-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pottery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-clay-pots-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a personal touch to your garden or home decor? Decorating clay pots at home is an easy and fun way to bring color and creativity into your space.**

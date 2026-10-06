@@ -1,10 +1,13 @@
 ---
-title: "Valentine’S Rose Petal Table Decor: Stunning Ideas to Impress"
-description: "Looking to create a magical Valentine’s Day atmosphere that speaks straight to the heart? Your table setting plays a huge role in setting the mood, and nothing "
+title: 'Valentine’S Rose Petal Table Decor: Stunning Ideas to Impress'
+description: 'Looking to create a magical Valentine’s Day atmosphere that speaks straight
+  to the heart? Your table setting plays a huge role in setting the mood, and nothing '
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=valentines-rose-petal-table-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dining Table Centerpieces
+heroImage: https://tse1.mm.bing.net/th?q=valentines-rose-petal-table-decor&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Looking to create a magical Valentine’s Day atmosphere that speaks straight to the heart? Your table setting plays a huge role in setting the mood, and nothing says romance quite like rose petal table decor.**

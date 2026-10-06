@@ -1,10 +1,14 @@
 ---
-title: "Diy Snowman Christmas Decoration: Easy & Festive Ideas for Winter"
-description: "Are you ready to add a magical touch to your home this holiday season? Creating your own DIY snowman Christmas decoration is easier than you think—and it’s a fu"
+title: 'Diy Snowman Christmas Decoration: Easy & Festive Ideas for Winter'
+description: Are you ready to add a magical touch to your home this holiday season?
+  Creating your own DIY snowman Christmas decoration is easier than you think—and
+  it’s a fu
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-snowman-christmas-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=diy-snowman-christmas-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a magical touch to your home this holiday season? Creating your own DIY snowman Christmas decoration is easier than you think—and it’s a fun way to bring warmth and charm to your space.**

@@ -1,10 +1,13 @@
 ---
-title: "Flooring Website Essentials: Top Interlocking and Peel Stick Floor Tiles"
-description: "A flooring website offers a wide range of floor tiles and mats for homes and businesses. It helps buyers choose easy-to-install and stylish flooring solutions. "
+title: 'Flooring Website Essentials: Top Interlocking and Peel Stick Floor Tiles'
+description: 'A flooring website offers a wide range of floor tiles and mats for homes
+  and businesses. It helps buyers choose easy-to-install and stylish flooring solutions. '
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-website&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=flooring-website&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A flooring website offers a wide range of floor tiles and mats for homes and businesses. It helps buyers choose easy-to-install and stylish flooring solutions.**

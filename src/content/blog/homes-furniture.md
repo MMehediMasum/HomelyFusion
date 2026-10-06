@@ -1,10 +1,14 @@
 ---
-title: "Homes Furniture Essentials: Stylish Storage and Decor for Every Room"
-description: "Furniture plays a crucial role in transforming a house into a home. It combines functionality with personal style. Choosing the right furniture enhances both co"
+title: 'Homes Furniture Essentials: Stylish Storage and Decor for Every Room'
+description: Furniture plays a crucial role in transforming a house into a home. It
+  combines functionality with personal style. Choosing the right furniture enhances
+  both co
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homes-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=homes-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture plays a crucial role in transforming a house into a home. It combines functionality with personal style.**

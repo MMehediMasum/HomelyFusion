@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Soap Dispenser: Stylish and Durable Solutions for Every Room"
-description: "A good soap dispenser makes daily cleaning easy and neat. It fits both kitchens and bathrooms well. Soap dispensers come in many styles, such as modern farmhous"
+title: 'Home Goods Soap Dispenser: Stylish and Durable Solutions for Every Room'
+description: A good soap dispenser makes daily cleaning easy and neat. It fits both
+  kitchens and bathrooms well. Soap dispensers come in many styles, such as modern
+  farmhous
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-soap-dispenser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-soap-dispenser&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A good soap dispenser makes daily cleaning easy and neat. It fits both kitchens and bathrooms well.**

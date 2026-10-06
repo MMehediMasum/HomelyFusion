@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Home Ac Compressor Be Repaired: Expert Tips to Save Costs"
 description: "Is your home AC making strange noises or not cooling like it used to? You might be wondering if the problem lies with the compressor. Before you rush to replace"
 pubDate: 2025-10-15

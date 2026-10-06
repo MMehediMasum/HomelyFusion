@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Flameless Candles: Safe, Stylish Lighting for Every Room"
-description: "Home goods flameless candles offer safe, beautiful lighting without real flames. These battery-operated candles suit any room or event. Flameless candles bring "
+title: 'Home Goods Flameless Candles: Safe, Stylish Lighting for Every Room'
+description: 'Home goods flameless candles offer safe, beautiful lighting without
+  real flames. These battery-operated candles suit any room or event. Flameless candles
+  bring '
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-flameless-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-flameless-candles&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home goods flameless candles offer safe, beautiful lighting without real flames. These battery-operated candles suit any room or event.**

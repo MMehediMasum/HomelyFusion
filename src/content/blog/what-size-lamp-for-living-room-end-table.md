@@ -1,10 +1,14 @@
 ---
-title: "What Size Lamp for Living Room End Table: Perfect Fit Guide"
-description: "Choosing the right lamp for your living room end table can change the entire feel of your space. You want a lamp that not only lights up the room but also fits "
+title: 'What Size Lamp for Living Room End Table: Perfect Fit Guide'
+description: 'Choosing the right lamp for your living room end table can change the
+  entire feel of your space. You want a lamp that not only lights up the room but
+  also fits '
 pubDate: 2026-03-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-lamp-for-living-room-end-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=what-size-lamp-for-living-room-end-table&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right lamp for your living room end table can change the entire feel of your space. You want a lamp that not only lights up the room but also fits perfectly without overpowering your décor.**

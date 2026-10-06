@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Place Bed in Bedroom As Per Vastu: Expert Tips for Harmony"
 description: "Your bedroom is more than just a place to sleep—it’s where your energy resets and your mind finds peace. Did you know that the way you place your bed can impact"
 pubDate: 2026-05-14

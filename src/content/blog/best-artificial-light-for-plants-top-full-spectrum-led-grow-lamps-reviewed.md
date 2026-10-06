@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Light for Plants: Top Full Spectrum LED Grow Lamps Reviewed"
-description: "Choosing the best artificial light helps indoor plants grow healthy and strong. Proper lighting supports photosynthesis when natural sunlight is limited. Indoor"
+title: 'Best Artificial Light for Plants: Top Full Spectrum LED Grow Lamps Reviewed'
+description: Choosing the best artificial light helps indoor plants grow healthy and
+  strong. Proper lighting supports photosynthesis when natural sunlight is limited.
+  Indoor
 pubDate: 2025-12-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-light-for-plants-top-full-spectrum-led-grow-lamps-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-light-for-plants-top-full-spectrum-led-grow-lamps-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best artificial light helps indoor plants grow healthy and strong. Proper lighting supports photosynthesis when natural sunlight is limited.**

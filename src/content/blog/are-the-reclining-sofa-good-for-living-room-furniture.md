@@ -1,10 +1,14 @@
 ---
-title: "Are the Reclining Sofa Good for Living Room Furniture: Ultimate Comfort Guide"
-description: "Are you thinking about upgrading your living room furniture but unsure if a reclining sofa is the right choice? Imagine sinking into a sofa that not only looks "
+title: 'Are the Reclining Sofa Good for Living Room Furniture: Ultimate Comfort Guide'
+description: 'Are you thinking about upgrading your living room furniture but unsure
+  if a reclining sofa is the right choice? Imagine sinking into a sofa that not only
+  looks '
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-the-reclining-sofa-good-for-living-room-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=are-the-reclining-sofa-good-for-living-room-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about upgrading your living room furniture but unsure if a reclining sofa is the right choice? Imagine sinking into a sofa that not only looks great but also lets you relax in total comfort after a long day.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate an Office at Work: Creative Ideas for Inspiration"
-description: "Your office space is more than just a place to work—it’s where your ideas grow and your productivity soars. But is your workspace inspiring you the way it shoul"
+title: 'How to Decorate an Office at Work: Creative Ideas for Inspiration'
+description: Your office space is more than just a place to work—it’s where your ideas
+  grow and your productivity soars. But is your workspace inspiring you the way it
+  shoul
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-at-work&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-an-office-at-work&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office space is more than just a place to work—it’s where your ideas grow and your productivity soars. But is your workspace inspiring you the way it should?**

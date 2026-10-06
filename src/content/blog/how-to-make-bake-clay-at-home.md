@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bake Clay at Home: Easy, Fun DIY Craft Guide"
-description: "Have you ever wanted to create your own colorful, moldable clay right at home? Making bake clay yourself is easier than you think, and it opens up a world of cr"
+title: 'How to Make Bake Clay at Home: Easy, Fun DIY Craft Guide'
+description: Have you ever wanted to create your own colorful, moldable clay right
+  at home? Making bake clay yourself is easier than you think, and it opens up a world
+  of cr
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bake-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Polymer Clay Baking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bake-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own colorful, moldable clay right at home? Making bake clay yourself is easier than you think, and it opens up a world of creativity without needing to buy expensive materials.**

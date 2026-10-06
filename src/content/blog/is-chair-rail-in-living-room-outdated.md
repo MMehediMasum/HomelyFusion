@@ -1,10 +1,14 @@
 ---
-title: "Is Chair Rail in Living Room Outdated: Modern Design Trends Revealed"
-description: "Are you wondering if chair rail in your living room is outdated? You’re not alone. Many homeowners ask the same question when thinking about updating their spac"
+title: 'Is Chair Rail in Living Room Outdated: Modern Design Trends Revealed'
+description: Are you wondering if chair rail in your living room is outdated? You’re
+  not alone. Many homeowners ask the same question when thinking about updating their
+  spac
 pubDate: 2026-03-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-chair-rail-in-living-room-outdated&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=is-chair-rail-in-living-room-outdated&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you wondering if chair rail in your living room is outdated? You’re not alone.**

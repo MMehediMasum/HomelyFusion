@@ -1,10 +1,14 @@
 ---
-title: "Wall Bedroom Decor Ideas: Modern Art and Unique Wall Hanging Styles"
-description: "Wall bedroom decor transforms plain walls into stylish, cozy spaces. It adds personality and warmth to your room instantly. Choosing the right wall decor create"
+title: 'Wall Bedroom Decor Ideas: Modern Art and Unique Wall Hanging Styles'
+description: Wall bedroom decor transforms plain walls into stylish, cozy spaces.
+  It adds personality and warmth to your room instantly. Choosing the right wall decor
+  create
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-bedroom-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-bedroom-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall bedroom decor transforms plain walls into stylish, cozy spaces. It adds personality and warmth to your room instantly.**

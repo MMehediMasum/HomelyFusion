@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Clock for Bedroom: Silent, Lighted, and Stylish Picks"
-description: "Choosing the best wall clock for your bedroom can improve both style and function. A quiet, easy-to-read clock helps keep time without disturbing your rest. A g"
+title: 'Best Wall Clock for Bedroom: Silent, Lighted, and Stylish Picks'
+description: Choosing the best wall clock for your bedroom can improve both style
+  and function. A quiet, easy-to-read clock helps keep time without disturbing your
+  rest. A g
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-clock-for-bedroom-silent-lighted-and-stylish-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-clock-for-bedroom-silent-lighted-and-stylish-picks&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best wall clock for your bedroom can improve both style and function. A quiet, easy-to-read clock helps keep time without disturbing your rest.**

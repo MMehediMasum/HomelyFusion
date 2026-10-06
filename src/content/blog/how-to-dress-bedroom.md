@@ -1,10 +1,13 @@
 ---
-title: "How to Dress Bedroom: Stunning Tips for a Cozy Makeover"
-description: "Your bedroom is more than just a place to sleep—it’s your personal sanctuary. How you dress your bedroom can change how you feel every day. Imagine walking into"
+title: 'How to Dress Bedroom: Stunning Tips for a Cozy Makeover'
+description: Your bedroom is more than just a place to sleep—it’s your personal sanctuary.
+  How you dress your bedroom can change how you feel every day. Imagine walking into
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom is more than just a place to sleep—it’s your personal sanctuary. How you dress your bedroom can change how you feel every day.**

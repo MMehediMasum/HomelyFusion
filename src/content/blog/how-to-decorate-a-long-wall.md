@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Long Wall: Stunning Ideas to Transform Your Space"
-description: "Do you have a long wall in your home that feels empty and awkward? You’re not alone. Decorating a long wall can be tricky, but it’s also a great chance to make "
+title: 'How to Decorate a Long Wall: Stunning Ideas to Transform Your Space'
+description: 'Do you have a long wall in your home that feels empty and awkward? You’re
+  not alone. Decorating a long wall can be tricky, but it’s also a great chance to
+  make '
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-long-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Do you have a long wall in your home that feels empty and awkward? You’re not alone.**

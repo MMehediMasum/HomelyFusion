@@ -1,10 +1,14 @@
 ---
-title: "Can Bed Be Placed beside Bedroom Door: Expert Feng Shui Tips"
-description: "Have you ever wondered if placing your bed right beside the bedroom door is a good idea? It might seem convenient or space-saving, but there’s more to it than j"
+title: 'Can Bed Be Placed beside Bedroom Door: Expert Feng Shui Tips'
+description: Have you ever wondered if placing your bed right beside the bedroom door
+  is a good idea? It might seem convenient or space-saving, but there’s more to it
+  than j
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bed-be-placed-beside-bedroom-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=can-bed-be-placed-beside-bedroom-door&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if placing your bed right beside the bedroom door is a good idea? It might seem convenient or space-saving, but there’s more to it than just fitting furniture.**

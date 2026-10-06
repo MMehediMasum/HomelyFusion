@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Bed between Windows: Stylish Ideas"
-description: "Placing your bed between two windows can create a stunning focal point in your bedroom, but it also comes with unique decorating challenges. You might wonder ho"
+title: 'How to Decorate Bedroom With Bed between Windows: Stylish Ideas'
+description: Placing your bed between two windows can create a stunning focal point
+  in your bedroom, but it also comes with unique decorating challenges. You might
+  wonder ho
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-bed-between-windows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-bed-between-windows&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Placing your bed between two windows can create a stunning focal point in your bedroom, but it also comes with unique decorating challenges. You might wonder how to balance natural light, privacy, and style all at once.**

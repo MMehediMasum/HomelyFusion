@@ -1,10 +1,14 @@
 ---
-title: "Sheffield Home Frames: Stylish Gallery Wall Sets for Every Space"
-description: "Sheffield Home Frames offer a diverse range of stylish, functional photo frames. Perfect for showcasing cherished memories. Sheffield Home Frames presents an ar"
+title: 'Sheffield Home Frames: Stylish Gallery Wall Sets for Every Space'
+description: Sheffield Home Frames offer a diverse range of stylish, functional photo
+  frames. Perfect for showcasing cherished memories. Sheffield Home Frames presents
+  an ar
 pubDate: 2026-07-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=sheffield-home-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=sheffield-home-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Sheffield Home Frames offer a diverse range of stylish, functional photo frames. Perfect for showcasing cherished memories.**

@@ -1,10 +1,14 @@
 ---
-title: "What Size Bedroom for Queen Bed And Two Dressers: Perfect Space Guide"
-description: "Choosing the right bedroom size for a queen bed and two dressers can be tricky. You want enough space to move around comfortably without feeling cramped. Imagin"
+title: 'What Size Bedroom for Queen Bed And Two Dressers: Perfect Space Guide'
+description: Choosing the right bedroom size for a queen bed and two dressers can
+  be tricky. You want enough space to move around comfortably without feeling cramped.
+  Imagin
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bedroom-for-queen-bed-and-two-dressers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bedroom-for-queen-bed-and-two-dressers&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedroom size for a queen bed and two dressers can be tricky. You want enough space to move around comfortably without feeling cramped.**

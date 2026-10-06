@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash a Wool Coat at Home: Easy Steps for Perfect Care"
 description: "Wool coats are cozy, stylish, and made to last. But when it comes to cleaning them, you might worry about ruining your favorite piece. What if you could wash yo"
 pubDate: 2026-02-18

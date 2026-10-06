@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Peppermint Bark Hot Cocoa: Cozy, Festive, Irresistible Delight"
 description: "Imagine wrapping your hands around a warm, cozy mug filled with rich hot cocoa, topped with a swirl of peppermint bark that melts perfectly on your tongue. This"
 pubDate: 2026-01-01

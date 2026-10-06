@@ -1,10 +1,15 @@
 ---
-title: "Frame Room Decoration Ideas: Stylish Vintage and Rustic Picture Frames for Walls"
-description: "Decorating with picture frames can transform any room into a personalized gallery. Frames add character and preserve precious memories. This blog post delves in"
+title: 'Frame Room Decoration Ideas: Stylish Vintage and Rustic Picture Frames for
+  Walls'
+description: Decorating with picture frames can transform any room into a personalized
+  gallery. Frames add character and preserve precious memories. This blog post delves
+  in
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frame-room-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=frame-room-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating with picture frames can transform any room into a personalized gallery. Frames add character and preserve precious memories.**

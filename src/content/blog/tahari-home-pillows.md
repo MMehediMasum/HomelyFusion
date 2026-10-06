@@ -1,10 +1,14 @@
 ---
-title: "Tahari Home Pillows: Elegant Comfort and Style for Every Bedroom"
-description: "Tahari Home pillows add style and comfort to any bedroom or living space. These pillows come in various designs and soft fabrics for a cozy feel. Tahari Home of"
+title: 'Tahari Home Pillows: Elegant Comfort and Style for Every Bedroom'
+description: Tahari Home pillows add style and comfort to any bedroom or living space.
+  These pillows come in various designs and soft fabrics for a cozy feel. Tahari Home
+  of
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-home-pillows&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=tahari-home-pillows&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tahari Home pillows add style and comfort to any bedroom or living space. These pillows come in various designs and soft fabrics for a cozy feel.**

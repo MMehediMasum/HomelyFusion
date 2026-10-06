@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Weld Stainless Steel at Home: Easy Steps for Perfect Joints"
 description: "Welding stainless steel at home might sound tricky, but you can do it with the right tools and simple steps. Imagine fixing your own metal projects or creating "
 pubDate: 2026-03-10

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Ideas Wall Art: Stunning Rustic and Minimalist Wall Accents"
-description: "Discover the perfect wall art to elevate your home decor. Transform any space with unique and stylish pieces. Wall art adds character and personality to your ho"
+title: 'Home Decor Ideas Wall Art: Stunning Rustic and Minimalist Wall Accents'
+description: Discover the perfect wall art to elevate your home decor. Transform any
+  space with unique and stylish pieces. Wall art adds character and personality to
+  your ho
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-ideas-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-ideas-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Discover the perfect wall art to elevate your home decor. Transform any space with unique and stylish pieces.**

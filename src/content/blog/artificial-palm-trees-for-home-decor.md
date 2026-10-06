@@ -1,10 +1,14 @@
 ---
-title: "Artificial Palm Trees for Home Decor: Transform Your Space with Lifelike Greenery"
-description: "Artificial palm trees bring a fresh, tropical feel to any indoor space. They offer a low-maintenance way to brighten your home decor. These tall, lifelike faux "
+title: 'Artificial Palm Trees for Home Decor: Transform Your Space with Lifelike Greenery'
+description: 'Artificial palm trees bring a fresh, tropical feel to any indoor space.
+  They offer a low-maintenance way to brighten your home decor. These tall, lifelike
+  faux '
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=artificial-palm-trees-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=artificial-palm-trees-for-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial palm trees bring a fresh, tropical feel to any indoor space. They offer a low-maintenance way to brighten your home decor.**

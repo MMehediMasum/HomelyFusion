@@ -1,10 +1,14 @@
 ---
-title: "Avon Christmas Ornaments: Unique Handcrafted Collectibles for Holiday Decor"
-description: "Avon Christmas ornaments add a special touch to holiday decorations. They offer unique designs and collectible pieces. These ornaments come in various styles, c"
+title: 'Avon Christmas Ornaments: Unique Handcrafted Collectibles for Holiday Decor'
+description: Avon Christmas ornaments add a special touch to holiday decorations.
+  They offer unique designs and collectible pieces. These ornaments come in various
+  styles, c
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=avon-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=avon-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Avon Christmas ornaments add a special touch to holiday decorations. They offer unique designs and collectible pieces.**

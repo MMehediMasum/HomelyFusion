@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Bathroom Mirror With Tile: Easy Steps for Stunning Style"
-description: "Are you looking to give your bathroom a fresh, stylish upgrade without a full renovation? Framing your bathroom mirror with tile is an easy and affordable way t"
+title: 'How to Frame Bathroom Mirror With Tile: Easy Steps for Stunning Style'
+description: Are you looking to give your bathroom a fresh, stylish upgrade without
+  a full renovation? Framing your bathroom mirror with tile is an easy and affordable
+  way t
 pubDate: 2025-09-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-bathroom-mirror-with-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-bathroom-mirror-with-tile&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your bathroom a fresh, stylish upgrade without a full renovation? Framing your bathroom mirror with tile is an easy and affordable way to add personality and charm to your space.**

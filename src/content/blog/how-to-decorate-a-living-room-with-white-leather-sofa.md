@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With White Leather Sofa: Stunning Ideas"
-description: "A white leather sofa can instantly lift the style of your living room, making it look fresh, elegant, and inviting. But decorating around such a bold piece can "
+title: 'How to Decorate a Living Room With White Leather Sofa: Stunning Ideas'
+description: 'A white leather sofa can instantly lift the style of your living room,
+  making it look fresh, elegant, and inviting. But decorating around such a bold piece
+  can '
 pubDate: 2026-03-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-white-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-white-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A white leather sofa can instantly lift the style of your living room, making it look fresh, elegant, and inviting. But decorating around such a bold piece can feel tricky.**

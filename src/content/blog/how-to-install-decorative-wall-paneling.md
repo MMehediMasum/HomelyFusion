@@ -1,10 +1,14 @@
 ---
-title: "How to Install Decorative Wall Paneling: Easy Steps for Stunning Walls"
-description: "Are you ready to transform your space without a full renovation? Installing decorative wall paneling is one of the easiest and most stylish ways to give your wa"
+title: 'How to Install Decorative Wall Paneling: Easy Steps for Stunning Walls'
+description: Are you ready to transform your space without a full renovation? Installing
+  decorative wall paneling is one of the easiest and most stylish ways to give your
+  wa
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-decorative-wall-paneling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-decorative-wall-paneling&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space without a full renovation? Installing decorative wall paneling is one of the easiest and most stylish ways to give your walls a fresh, elegant look.**

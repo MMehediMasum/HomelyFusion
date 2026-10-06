@@ -1,10 +1,14 @@
 ---
-title: "How to Frame a TV on the Wall: Easy Steps for a Sleek Look"
-description: "Want to turn your plain TV into a stunning centerpiece on your wall? Framing your TV can make a huge difference in how your space looks and feels. But you might"
+title: 'How to Frame a TV on the Wall: Easy Steps for a Sleek Look'
+description: Want to turn your plain TV into a stunning centerpiece on your wall?
+  Framing your TV can make a huge difference in how your space looks and feels. But
+  you might
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-tv-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-tv-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to turn your plain TV into a stunning centerpiece on your wall? Framing your TV can make a huge difference in how your space looks and feels.**

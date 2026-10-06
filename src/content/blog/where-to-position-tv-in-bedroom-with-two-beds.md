@@ -1,10 +1,14 @@
 ---
-title: "Where to Position Tv in Bedroom With Two Beds: Ultimate Guide"
-description: "Finding the perfect spot for your TV in a bedroom with two beds can feel tricky. You want everyone to enjoy clear views without rearranging the whole room. Wher"
+title: 'Where to Position Tv in Bedroom With Two Beds: Ultimate Guide'
+description: Finding the perfect spot for your TV in a bedroom with two beds can feel
+  tricky. You want everyone to enjoy clear views without rearranging the whole room.
+  Wher
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-position-tv-in-bedroom-with-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=where-to-position-tv-in-bedroom-with-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding the perfect spot for your TV in a bedroom with two beds can feel tricky. You want everyone to enjoy clear views without rearranging the whole room.**

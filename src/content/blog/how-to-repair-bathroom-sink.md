@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Bathroom Sink: Easy Steps for Quick Fixes"
-description: "Is your bathroom sink leaking, clogged, or not working like it used to? You don’t have to call a plumber right away or spend a lot of money on repairs. Fixing y"
+title: 'How to Repair Bathroom Sink: Easy Steps for Quick Fixes'
+description: Is your bathroom sink leaking, clogged, or not working like it used to?
+  You don’t have to call a plumber right away or spend a lot of money on repairs.
+  Fixing y
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom sink leaking, clogged, or not working like it used to? You don’t have to call a plumber right away or spend a lot of money on repairs.**

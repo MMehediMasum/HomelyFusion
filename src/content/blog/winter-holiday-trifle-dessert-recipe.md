@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Winter Holiday Trifle Dessert Recipe: Irresistible Festive Delight"
 description: "Are you looking for a dessert that brings warmth and joy to your winter holiday celebrations? Imagine a treat that’s easy to make, looks stunning on your table,"
 pubDate: 2025-12-26

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Brown Leather Sofas: Stylish Tips"
-description: "Are you wondering how to make your living room feel warm, stylish, and inviting with brown leather sofas? You’re in the right place. Brown leather sofas bring a"
+title: 'How to Decorate a Living Room With Brown Leather Sofas: Stylish Tips'
+description: Are you wondering how to make your living room feel warm, stylish, and
+  inviting with brown leather sofas? You’re in the right place. Brown leather sofas
+  bring a
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-brown-leather-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-brown-leather-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel warm, stylish, and inviting with brown leather sofas? You’re in the right place.**

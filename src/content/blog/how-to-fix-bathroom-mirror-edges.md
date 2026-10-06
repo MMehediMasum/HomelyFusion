@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Bathroom Mirror Edges: Easy DIY Repair Tips"
-description: "Are the edges of your bathroom mirror looking worn, chipped, or damaged? You might think it’s a small problem, but those rough edges can affect the whole look o"
+title: 'How to Fix Bathroom Mirror Edges: Easy DIY Repair Tips'
+description: Are the edges of your bathroom mirror looking worn, chipped, or damaged?
+  You might think it’s a small problem, but those rough edges can affect the whole
+  look o
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-bathroom-mirror-edges&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-bathroom-mirror-edges&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are the edges of your bathroom mirror looking worn, chipped, or damaged? You might think it’s a small problem, but those rough edges can affect the whole look of your bathroom and even cause injury.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Colors for Living Room to Brighten and Warm Your Space"
-description: "Choosing the right curtain colors can change your living room’s mood and style instantly. Curtains blend with furniture and light to create a cozy space. Curtai"
+title: Best Curtain Colors for Living Room to Brighten and Warm Your Space
+description: Choosing the right curtain colors can change your living room’s mood
+  and style instantly. Curtains blend with furniture and light to create a cozy space.
+  Curtai
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-colors-for-living-room-to-brighten-and-warm-your-space&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-colors-for-living-room-to-brighten-and-warm-your-space&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right curtain colors can change your living room’s mood and style instantly. Curtains blend with furniture and light to create a cozy space.**

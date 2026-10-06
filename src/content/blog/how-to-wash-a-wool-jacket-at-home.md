@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash a Wool Jacket at Home: Easy Steps for Perfect Care"
 description: "Washing a wool jacket at home might seem tricky, but it doesn’t have to be. You want to keep your jacket looking fresh and feeling soft without ruining its deli"
 pubDate: 2025-11-02

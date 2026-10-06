@@ -1,10 +1,14 @@
 ---
-title: "Furniture Retail Stores: Top Stylish and Functional Furniture Picks for Every Room"
-description: "Furniture retail stores offer a wide variety of essential home furnishings. They provide convenient options for every room and style. Finding the right furnitur"
+title: 'Furniture Retail Stores: Top Stylish and Functional Furniture Picks for Every
+  Room'
+description: Furniture retail stores offer a wide variety of essential home furnishings.
+  They provide convenient options for every room and style. Finding the right furnitur
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-retail-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-retail-stores&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture retail stores offer a wide variety of essential home furnishings. They provide convenient options for every room and style.**

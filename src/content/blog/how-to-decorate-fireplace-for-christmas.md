@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Fireplace for Christmas: Stunning Festive Ideas"
-description: "Your fireplace is more than just a source of warmth—it’s the heart of your home during the holidays. Imagine transforming this cozy spot into a stunning Christm"
+title: 'How to Decorate Fireplace for Christmas: Stunning Festive Ideas'
+description: Your fireplace is more than just a source of warmth—it’s the heart of
+  your home during the holidays. Imagine transforming this cozy spot into a stunning
+  Christm
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-fireplace-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-fireplace-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your fireplace is more than just a source of warmth—it’s the heart of your home during the holidays. Imagine transforming this cozy spot into a stunning Christmas centerpiece that fills your room with festive cheer.**

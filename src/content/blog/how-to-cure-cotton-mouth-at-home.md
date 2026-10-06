@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cure Cotton Mouth at Home: Easy and Fast Remedies"
 description: "Do you ever get that annoying dry, sticky feeling in your mouth that just won’t go away? That’s what people call cotton mouth, and it can be really uncomfortabl"
 pubDate: 2026-03-04

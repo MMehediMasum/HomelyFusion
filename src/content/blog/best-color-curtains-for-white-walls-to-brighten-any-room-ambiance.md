@@ -1,10 +1,14 @@
 ---
-title: "Best Color Curtains for White Walls to Brighten Any Room Ambiance"
-description: "Choosing the best color curtains for white walls can transform any room’s look. Curtains add style, warmth, and personality to plain white spaces. White walls c"
+title: Best Color Curtains for White Walls to Brighten Any Room Ambiance
+description: Choosing the best color curtains for white walls can transform any room’s
+  look. Curtains add style, warmth, and personality to plain white spaces. White walls
+  c
 pubDate: 2025-11-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-curtains-for-white-walls-to-brighten-any-room-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-color-curtains-for-white-walls-to-brighten-any-room-ambiance&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color curtains for white walls can transform any room’s look. Curtains add style, warmth, and personality to plain white spaces.**

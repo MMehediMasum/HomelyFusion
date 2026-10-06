@@ -1,10 +1,14 @@
 ---
-title: "Can You Put a Dining Table in Living Room: Stylish Space-Saving Ideas"
-description: "Are you wondering if you can put a dining table in your living room? Maybe your space is tight, or you want to create a cozy spot for meals and gatherings. Mixi"
+title: 'Can You Put a Dining Table in Living Room: Stylish Space-Saving Ideas'
+description: Are you wondering if you can put a dining table in your living room?
+  Maybe your space is tight, or you want to create a cozy spot for meals and gatherings.
+  Mixi
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-dining-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-dining-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you wondering if you can put a dining table in your living room? Maybe your space is tight, or you want to create a cozy spot for meals and gatherings.**

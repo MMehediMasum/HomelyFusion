@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Wall Sconces Next to Bed: Easy Steps for Perfect Lighting"
-description: "Are you looking to add style and function to your bedroom? Hanging wall sconces next to your bed can instantly transform your space. Not only do they save you p"
+title: 'How to Hang Wall Sconces Next to Bed: Easy Steps for Perfect Lighting'
+description: Are you looking to add style and function to your bedroom? Hanging wall
+  sconces next to your bed can instantly transform your space. Not only do they save
+  you p
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-wall-sconces-next-to-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-wall-sconces-next-to-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to add style and function to your bedroom? Hanging wall sconces next to your bed can instantly transform your space.**

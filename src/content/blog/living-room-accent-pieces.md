@@ -1,10 +1,14 @@
 ---
-title: "Living Room Accent Pieces: Stylish Decorative Books and Sculptures for Elegance"
-description: "Living room accent pieces add personality and style to your space. They create warmth and make your room inviting. Small decor items like decorative books, wood"
+title: 'Living Room Accent Pieces: Stylish Decorative Books and Sculptures for Elegance'
+description: Living room accent pieces add personality and style to your space. They
+  create warmth and make your room inviting. Small decor items like decorative books,
+  wood
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-accent-pieces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=living-room-accent-pieces&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Living room accent pieces add personality and style to your space. They create warmth and make your room inviting.**

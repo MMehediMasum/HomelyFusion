@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Stars on Wall: Easy Steps for Stunning Night Sky Decor"
-description: "Do you want to add a magical touch to your room that feels both simple and stunning? Painting stars on your wall can transform any space into a cozy, dreamy ret"
+title: 'How to Paint Stars on Wall: Easy Steps for Stunning Night Sky Decor'
+description: Do you want to add a magical touch to your room that feels both simple
+  and stunning? Painting stars on your wall can transform any space into a cozy, dreamy
+  ret
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-stars-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-stars-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Do you want to add a magical touch to your room that feels both simple and stunning? Painting stars on your wall can transform any space into a cozy, dreamy retreat.**

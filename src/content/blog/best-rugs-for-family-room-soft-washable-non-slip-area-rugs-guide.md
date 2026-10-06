@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Family Room: Soft, Washable, Non-Slip Area Rugs Guide"
-description: "Choosing the best rugs for your family room can change the space’s comfort and style. The right rug ties the room together and adds warmth underfoot. Family roo"
+title: 'Best Rugs for Family Room: Soft, Washable, Non-Slip Area Rugs Guide'
+description: Choosing the best rugs for your family room can change the space’s comfort
+  and style. The right rug ties the room together and adds warmth underfoot. Family
+  roo
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-family-room-soft-washable-non-slip-area-rugs-guide&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-family-room-soft-washable-non-slip-area-rugs-guide&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for your family room can change the space’s comfort and style. The right rug ties the room together and adds warmth underfoot.**

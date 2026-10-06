@@ -1,10 +1,14 @@
 ---
-title: "Quality Floors And More: Top Cushioned Anti-Fatigue Kitchen Mats Reviewed"
-description: "Quality Floors And More offers a range of mats and pads designed for comfort and floor protection. These products combine durability with practical features for"
+title: 'Quality Floors And More: Top Cushioned Anti-Fatigue Kitchen Mats Reviewed'
+description: Quality Floors And More offers a range of mats and pads designed for
+  comfort and floor protection. These products combine durability with practical features
+  for
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=quality-floors-and-more&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=quality-floors-and-more&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Quality Floors And More offers a range of mats and pads designed for comfort and floor protection. These products combine durability with practical features for everyday use.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Balls at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wondered how to make cotton balls at home? Whether you’re out of store-bought ones or just want a natural, cost-effective alternative, making your"
 pubDate: 2026-04-14

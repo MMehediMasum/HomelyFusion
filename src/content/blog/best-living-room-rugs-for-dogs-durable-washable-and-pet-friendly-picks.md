@@ -1,10 +1,14 @@
 ---
-title: "Best Living Room Rugs for Dogs: Durable, Washable, and Pet-Friendly Picks"
-description: "Choosing the best living room rugs for dogs can protect your floors and keep your space cozy. Durable, easy-to-clean rugs make life simpler for pet owners. Pets"
+title: 'Best Living Room Rugs for Dogs: Durable, Washable, and Pet-Friendly Picks'
+description: Choosing the best living room rugs for dogs can protect your floors and
+  keep your space cozy. Durable, easy-to-clean rugs make life simpler for pet owners.
+  Pets
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-living-room-rugs-for-dogs-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-living-room-rugs-for-dogs-durable-washable-and-pet-friendly-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best living room rugs for dogs can protect your floors and keep your space cozy. Durable, easy-to-clean rugs make life simpler for pet owners.**

@@ -1,10 +1,14 @@
 ---
-title: "Rae Dunn Cake Stand: Rustic Elegance for Farmhouse Dessert Displays"
-description: "Rae Dunn cake stands bring simple charm to any kitchen or event. These stands blend rustic style with practical design for easy use. Rae Dunn cake stands suit f"
+title: 'Rae Dunn Cake Stand: Rustic Elegance for Farmhouse Dessert Displays'
+description: Rae Dunn cake stands bring simple charm to any kitchen or event. These
+  stands blend rustic style with practical design for easy use. Rae Dunn cake stands
+  suit f
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rae-dunn-cake-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=rae-dunn-cake-stand&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Rae Dunn cake stands bring simple charm to any kitchen or event. These stands blend rustic style with practical design for easy use.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Red Velvet Cupcake Recipe: Irresistible Festive Delight"
 description: "Are you ready to wow your family and friends this holiday season with a dessert that looks as good as it tastes? This Holiday Red Velvet Cupcake Recipe is exact"
 pubDate: 2025-12-27

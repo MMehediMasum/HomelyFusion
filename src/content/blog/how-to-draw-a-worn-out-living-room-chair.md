@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw a Worn Out Living Room Chair: Step-by-Step Guide"
 description: "Have you ever looked at a worn out living room chair and thought, “I wish I could capture its story on paper”? Drawing a chair that shows its age isn’t just abo"
 pubDate: 2026-03-29

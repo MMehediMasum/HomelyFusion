@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Sofa Table: Stunning Ideas for Every Style"
-description: "Your sofa table is more than just a piece of furniture—it’s a chance to showcase your style and bring warmth to your living space. But how do you decorate it so"
+title: 'How to Decorate a Sofa Table: Stunning Ideas for Every Style'
+description: Your sofa table is more than just a piece of furniture—it’s a chance
+  to showcase your style and bring warmth to your living space. But how do you decorate
+  it so
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-sofa-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-sofa-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your sofa table is more than just a piece of furniture—it’s a chance to showcase your style and bring warmth to your living space. But how do you decorate it so it feels inviting, balanced, and uniquely yours?**

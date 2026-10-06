@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Bedroom Bench: Easy Steps for Quick Repairs"
-description: "Is your bedroom bench starting to wobble or look worn out? You don’t have to replace it just yet. Fixing your bedroom bench can be easier than you think—and it "
+title: 'How to Fix Bedroom Bench: Easy Steps for Quick Repairs'
+description: 'Is your bedroom bench starting to wobble or look worn out? You don’t
+  have to replace it just yet. Fixing your bedroom bench can be easier than you think—and
+  it '
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bedroom bench starting to wobble or look worn out? You don’t have to replace it just yet.**

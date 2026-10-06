@@ -1,10 +1,14 @@
 ---
-title: "Decorative Pillows Home Goods: Stylish Throws to Elevate Any Space"
-description: "Decorative pillows add charm and comfort to any home setting. They come in various styles, colors, and sizes to suit every taste. Whether you're updating your l"
+title: 'Decorative Pillows Home Goods: Stylish Throws to Elevate Any Space'
+description: Decorative pillows add charm and comfort to any home setting. They come
+  in various styles, colors, and sizes to suit every taste. Whether you're updating
+  your l
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=decorative-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorative pillows add charm and comfort to any home setting. They come in various styles, colors, and sizes to suit every taste.**

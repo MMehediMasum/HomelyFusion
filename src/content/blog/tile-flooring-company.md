@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Tile Flooring Company: Top Peel & Stick Tiles for Easy Home Upgrades"
 description: "Transform your space with the right tile flooring solutions. Explore durable options that suit your style and needs. Tile flooring offers an excellent way to en"
 pubDate: 2026-07-27

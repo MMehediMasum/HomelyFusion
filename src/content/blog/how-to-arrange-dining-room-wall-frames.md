@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Dining Room Wall Frames: Stunning Tips for Style"
-description: "Your dining room walls hold more than just empty space—they have the power to tell your story and set the mood every time you sit down to eat. But arranging wal"
+title: 'How to Arrange Dining Room Wall Frames: Stunning Tips for Style'
+description: Your dining room walls hold more than just empty space—they have the
+  power to tell your story and set the mood every time you sit down to eat. But arranging
+  wal
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-dining-room-wall-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-dining-room-wall-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your dining room walls hold more than just empty space—they have the power to tell your story and set the mood every time you sit down to eat. But arranging wall frames can feel confusing.**

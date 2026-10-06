@@ -1,10 +1,14 @@
 ---
-title: "Best Led Mirror for Bathroom: Top Dimmable, Anti-Fog Vanity Picks"
-description: "Choosing the best LED mirror for your bathroom improves lighting and style. A good mirror brightens your space and resists fog during showers. LED bathroom mirr"
+title: 'Best Led Mirror for Bathroom: Top Dimmable, Anti-Fog Vanity Picks'
+description: Choosing the best LED mirror for your bathroom improves lighting and
+  style. A good mirror brightens your space and resists fog during showers. LED bathroom
+  mirr
 pubDate: 2025-09-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-led-mirror-for-bathroom-top-dimmable-anti-fog-vanity-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-led-mirror-for-bathroom-top-dimmable-anti-fog-vanity-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best LED mirror for your bathroom improves lighting and style. A good mirror brightens your space and resists fog during showers.**

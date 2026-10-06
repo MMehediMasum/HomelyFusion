@@ -1,10 +1,14 @@
 ---
-title: "How High to Mount Tv above Dresser in Bedroom: Expert Tips"
-description: "Are you unsure about how high to mount your TV above your bedroom dresser? Getting the height just right can make a big difference in your comfort and viewing e"
+title: 'How High to Mount Tv above Dresser in Bedroom: Expert Tips'
+description: Are you unsure about how high to mount your TV above your bedroom dresser?
+  Getting the height just right can make a big difference in your comfort and viewing
+  e
 pubDate: 2026-05-20
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-to-mount-tv-above-dresser-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressers
+heroImage: https://tse1.mm.bing.net/th?q=how-high-to-mount-tv-above-dresser-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you unsure about how high to mount your TV above your bedroom dresser? Getting the height just right can make a big difference in your comfort and viewing experience.**

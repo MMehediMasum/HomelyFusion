@@ -1,10 +1,15 @@
 ---
-title: "Best Curtains for Kitchen Windows: Stylish, Light-Filtering, and Functional Picks"
-description: "Choosing the best curtains for kitchen windows enhances both style and function. Curtains control light, add privacy, and complement your kitchen decor. Kitchen"
+title: 'Best Curtains for Kitchen Windows: Stylish, Light-Filtering, and Functional
+  Picks'
+description: Choosing the best curtains for kitchen windows enhances both style and
+  function. Curtains control light, add privacy, and complement your kitchen decor.
+  Kitchen
 pubDate: 2025-09-27
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtains-for-kitchen-windows-stylish-light-filtering-and-functional-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Outdoor Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtains-for-kitchen-windows-stylish-light-filtering-and-functional-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtains for kitchen windows enhances both style and function. Curtains control light, add privacy, and complement your kitchen decor.**

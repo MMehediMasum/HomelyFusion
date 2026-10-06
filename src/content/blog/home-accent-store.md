@@ -1,10 +1,14 @@
 ---
-title: "Home Accent Store Essentials: Stylish Decor for Every Room and Mood"
-description: "A home accent store offers unique items to brighten and personalize your living space. These accents add charm and style without much effort. Decorative pillows"
+title: 'Home Accent Store Essentials: Stylish Decor for Every Room and Mood'
+description: A home accent store offers unique items to brighten and personalize your
+  living space. These accents add charm and style without much effort. Decorative
+  pillows
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accent-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Pieces
+heroImage: https://tse1.mm.bing.net/th?q=home-accent-store&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A home accent store offers unique items to brighten and personalize your living space. These accents add charm and style without much effort.**

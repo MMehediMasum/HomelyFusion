@@ -1,10 +1,14 @@
 ---
-title: "Home Alone Christmas Tree Decorations: Iconic Ornaments for Festive Fun"
-description: "Home Alone Christmas tree decorations bring fun and nostalgia to your holiday decor. These unique ornaments capture the spirit of the classic movie perfectly. C"
+title: 'Home Alone Christmas Tree Decorations: Iconic Ornaments for Festive Fun'
+description: Home Alone Christmas tree decorations bring fun and nostalgia to your
+  holiday decor. These unique ornaments capture the spirit of the classic movie perfectly.
+  C
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-alone-christmas-tree-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-alone-christmas-tree-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Alone Christmas tree decorations bring fun and nostalgia to your holiday decor. These unique ornaments capture the spirit of the classic movie perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Fake Bricks on a Wall: Easy Steps for Stunning Results"
-description: "Have you ever wanted to give your plain wall a striking makeover without the cost and hassle of real bricks? Painting fake bricks on your wall can transform any"
+title: 'How to Paint Fake Bricks on a Wall: Easy Steps for Stunning Results'
+description: Have you ever wanted to give your plain wall a striking makeover without
+  the cost and hassle of real bricks? Painting fake bricks on your wall can transform
+  any
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-fake-bricks-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-fake-bricks-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to give your plain wall a striking makeover without the cost and hassle of real bricks? Painting fake bricks on your wall can transform any space, adding charm and texture that catch the eye.**

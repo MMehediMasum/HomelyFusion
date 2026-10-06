@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Best Home Office Chair: Top Picks for Comfort & Style"
-description: "Finding the best home office chair can change the way you work every day. Imagine sitting comfortably for hours without feeling tired or strained. Your chair is"
+title: 'Where to Buy Best Home Office Chair: Top Picks for Comfort & Style'
+description: Finding the best home office chair can change the way you work every
+  day. Imagine sitting comfortably for hours without feeling tired or strained. Your
+  chair is
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-best-home-office-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-best-home-office-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Finding the best home office chair can change the way you work every day. Imagine sitting comfortably for hours without feeling tired or strained.**

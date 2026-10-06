@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pillows And Throws: Stylish Comfort for Every Room"
-description: "Pillows and throws add style and comfort to any home space. They brighten rooms and make furniture cozy and inviting. Choosing the right pillows and throws chan"
+title: 'Home Goods Pillows And Throws: Stylish Comfort for Every Room'
+description: Pillows and throws add style and comfort to any home space. They brighten
+  rooms and make furniture cozy and inviting. Choosing the right pillows and throws
+  chan
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pillows-and-throws&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pillows-and-throws&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pillows and throws add style and comfort to any home space. They brighten rooms and make furniture cozy and inviting.**

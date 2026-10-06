@@ -1,10 +1,14 @@
 ---
-title: "Should Home Office Desk Face Window: Boost Focus and Productivity"
-description: "Have you ever wondered if your home office desk should face the window? Where you place your desk can change how focused, creative, and comfortable you feel whi"
+title: 'Should Home Office Desk Face Window: Boost Focus and Productivity'
+description: Have you ever wondered if your home office desk should face the window?
+  Where you place your desk can change how focused, creative, and comfortable you
+  feel whi
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-home-office-desk-face-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=should-home-office-desk-face-window&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Have you ever wondered if your home office desk should face the window? Where you place your desk can change how focused, creative, and comfortable you feel while working.**

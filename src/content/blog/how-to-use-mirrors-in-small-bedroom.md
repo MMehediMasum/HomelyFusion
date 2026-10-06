@@ -1,10 +1,14 @@
 ---
-title: "How to Use Mirrors in Small Bedroom: Transform Space Instantly"
-description: "Are you struggling to make your small bedroom feel bigger and brighter? Mirrors might be the simple, stylish solution you’ve been looking for. By using mirrors "
+title: 'How to Use Mirrors in Small Bedroom: Transform Space Instantly'
+description: 'Are you struggling to make your small bedroom feel bigger and brighter?
+  Mirrors might be the simple, stylish solution you’ve been looking for. By using
+  mirrors '
 pubDate: 2026-05-22
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-mirrors-in-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-mirrors-in-small-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you struggling to make your small bedroom feel bigger and brighter? Mirrors might be the simple, stylish solution you’ve been looking for.**

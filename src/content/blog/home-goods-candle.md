@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Candle: Top Scented Picks for Cozy, Long-Lasting Ambiance"
-description: "Candles can transform any space, adding warmth and ambiance effortlessly. Discover the world of home goods candles, perfect for every mood and occasion. Candles"
+title: 'Home Goods Candle: Top Scented Picks for Cozy, Long-Lasting Ambiance'
+description: Candles can transform any space, adding warmth and ambiance effortlessly.
+  Discover the world of home goods candles, perfect for every mood and occasion. Candles
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-candle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-candle&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Candles can transform any space, adding warmth and ambiance effortlessly. Discover the world of home goods candles, perfect for every mood and occasion.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Console Table: Stylish Storage and Charging Solutions for Entryways"
-description: "A home goods console table adds style and function to any living space. It fits well in entryways, hallways, and behind sofas. Console tables come in many desig"
+title: 'Home Goods Console Table: Stylish Storage and Charging Solutions for Entryways'
+description: A home goods console table adds style and function to any living space.
+  It fits well in entryways, hallways, and behind sofas. Console tables come in many
+  desig
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A home goods console table adds style and function to any living space. It fits well in entryways, hallways, and behind sofas.**

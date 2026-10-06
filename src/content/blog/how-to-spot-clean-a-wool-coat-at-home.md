@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Spot Clean a Wool Coat at Home: Easy, Effective Tips"
 description: "Your wool coat is more than just a piece of clothing—it’s your go-to shield against cold days and a stylish statement. But when it gets a little dirty, you migh"
 pubDate: 2025-09-21

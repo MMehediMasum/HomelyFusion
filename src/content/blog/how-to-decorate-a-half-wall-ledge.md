@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Half Wall Ledge: Stunning Ideas to Transform Space"
-description: "A half wall ledge is a unique space that often gets overlooked when decorating your home. But what if you could turn that simple ledge into a stunning focal poi"
+title: 'How to Decorate a Half Wall Ledge: Stunning Ideas to Transform Space'
+description: A half wall ledge is a unique space that often gets overlooked when decorating
+  your home. But what if you could turn that simple ledge into a stunning focal poi
 pubDate: 2025-10-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-wall-ledge&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-half-wall-ledge&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **A half wall ledge is a unique space that often gets overlooked when decorating your home. But what if you could turn that simple ledge into a stunning focal point that reflects your style and personality?**

@@ -1,10 +1,14 @@
 ---
-title: "Home Decor With Picture Frames: Stylish Collage Ideas for Every Room"
-description: "Picture frames do more than display photos; they add personality and style to your home. They create focal points, enhance decor, and evoke memories. Transformi"
+title: 'Home Decor With Picture Frames: Stylish Collage Ideas for Every Room'
+description: Picture frames do more than display photos; they add personality and
+  style to your home. They create focal points, enhance decor, and evoke memories.
+  Transformi
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-with-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-with-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Picture frames do more than display photos; they add personality and style to your home. They create focal points, enhance decor, and evoke memories.**

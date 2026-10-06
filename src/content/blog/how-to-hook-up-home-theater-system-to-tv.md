@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hook Up Home Theater System to TV: Easy Step-by-Step Guide"
 description: "Are you ready to transform your living room into a movie theater? Connecting your home theater system to your TV is easier than you think. With the right steps,"
 pubDate: 2025-10-01

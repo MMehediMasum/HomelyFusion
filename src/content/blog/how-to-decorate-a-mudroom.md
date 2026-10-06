@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Mudroom: Stylish Tips for a Functional Space"
-description: "Your mudroom is the first space you and your guests see when entering your home. It’s more than just a place to drop shoes and coats—it’s an opportunity to set "
+title: 'How to Decorate a Mudroom: Stylish Tips for a Functional Space'
+description: 'Your mudroom is the first space you and your guests see when entering
+  your home. It’s more than just a place to drop shoes and coats—it’s an opportunity
+  to set '
 pubDate: 2025-09-05
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mudroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mudroom&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your mudroom is the first space you and your guests see when entering your home. It’s more than just a place to drop shoes and coats—it’s an opportunity to set the tone for your entire house.**

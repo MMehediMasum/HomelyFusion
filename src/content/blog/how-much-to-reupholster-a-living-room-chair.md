@@ -1,10 +1,14 @@
 ---
-title: "How Much to Reupholster a Living Room Chair: Ultimate Cost Guide"
-description: "Thinking about giving your living room chair a fresh new look? You might be wondering, “How much will it actually cost to reupholster my chair?” Before you deci"
+title: 'How Much to Reupholster a Living Room Chair: Ultimate Cost Guide'
+description: Thinking about giving your living room chair a fresh new look? You might
+  be wondering, “How much will it actually cost to reupholster my chair?” Before you
+  deci
 pubDate: 2026-03-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-to-reupholster-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-much-to-reupholster-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Thinking about giving your living room chair a fresh new look? You might be wondering, “How much will it actually cost to reupholster my chair?” Before you decide to buy a new one or settle for a worn-out cover, understanding the real price of reupholstering can save you money and help you make the best choice for your home.**

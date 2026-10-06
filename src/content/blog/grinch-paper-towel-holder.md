@@ -1,10 +1,14 @@
 ---
-title: "Grinch Paper Towel Holder: Festive and Fun Christmas Kitchen Decor"
-description: "The Grinch Paper Towel Holder adds fun holiday cheer to any kitchen or bathroom. It combines festive design with practical use for easy access to paper towels. "
+title: 'Grinch Paper Towel Holder: Festive and Fun Christmas Kitchen Decor'
+description: 'The Grinch Paper Towel Holder adds fun holiday cheer to any kitchen
+  or bathroom. It combines festive design with practical use for easy access to paper
+  towels. '
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grinch-paper-towel-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=grinch-paper-towel-holder&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Grinch Paper Towel Holder adds fun holiday cheer to any kitchen or bathroom. It combines festive design with practical use for easy access to paper towels.**

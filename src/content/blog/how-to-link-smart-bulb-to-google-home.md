@@ -1,10 +1,14 @@
 ---
-title: "How to Link Smart Bulb to Google Home: Easy Steps for Instant Control"
-description: "Want to control your smart bulb with just your voice? Linking your smart bulb to Google Home makes that possible—and it’s easier than you think. Imagine turning"
+title: 'How to Link Smart Bulb to Google Home: Easy Steps for Instant Control'
+description: Want to control your smart bulb with just your voice? Linking your smart
+  bulb to Google Home makes that possible—and it’s easier than you think. Imagine
+  turning
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-link-smart-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-link-smart-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Want to control your smart bulb with just your voice? Linking your smart bulb to Google Home makes that possible—and it’s easier than you think.**

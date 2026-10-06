@@ -1,10 +1,14 @@
 ---
-title: "Brooks Brothers Rug Home Goods: Elegant, Durable Rugs for Every Room"
-description: "Brooks Brothers Rug Home Goods offers an exquisite selection of area rugs for every room. These rugs combine style and functionality. Explore a range of beautif"
+title: 'Brooks Brothers Rug Home Goods: Elegant, Durable Rugs for Every Room'
+description: Brooks Brothers Rug Home Goods offers an exquisite selection of area
+  rugs for every room. These rugs combine style and functionality. Explore a range
+  of beautif
 pubDate: 2026-08-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brooks-brothers-rug-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=brooks-brothers-rug-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Brooks Brothers Rug Home Goods offers an exquisite selection of area rugs for every room. These rugs combine style and functionality.**

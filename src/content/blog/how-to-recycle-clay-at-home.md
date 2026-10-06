@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Recycle Clay at Home: Easy Steps for Eco-Friendly Crafting"
 description: "Have you ever found yourself with leftover clay after a project and wondered what to do with it? Instead of throwing it away, you can recycle that clay right at"
 pubDate: 2026-02-09

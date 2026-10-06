@@ -1,10 +1,14 @@
 ---
-title: "Diy Christmas Tree Topper Ideas: Stunning & Easy Holiday Crafts"
-description: "Looking for a unique way to finish off your Christmas tree this year? Your tree topper is the perfect chance to add a personal touch that everyone will notice. "
+title: 'Diy Christmas Tree Topper Ideas: Stunning & Easy Holiday Crafts'
+description: 'Looking for a unique way to finish off your Christmas tree this year?
+  Your tree topper is the perfect chance to add a personal touch that everyone will
+  notice. '
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-christmas-tree-topper-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=diy-christmas-tree-topper-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking for a unique way to finish off your Christmas tree this year? Your tree topper is the perfect chance to add a personal touch that everyone will notice.**

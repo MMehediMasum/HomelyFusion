@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Fall Pumpkin Spice Pancake Recipe: Irresistible Autumn Delight"
 description: "Imagine waking up to the warm, comforting smell of pumpkin spice filling your kitchen. You’re craving something delicious, easy to make, and perfect for those c"
 pubDate: 2025-12-19

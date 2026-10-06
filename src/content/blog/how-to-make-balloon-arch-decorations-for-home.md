@@ -1,10 +1,13 @@
 ---
-title: "How to Make Balloon Arch Decorations for Home: Easy Step-by-Step Guide"
-description: "Looking to add a splash of color and fun to your home? Balloon arch decorations are the perfect way to transform any space instantly. Imagine walking into a roo"
+title: 'How to Make Balloon Arch Decorations for Home: Easy Step-by-Step Guide'
+description: Looking to add a splash of color and fun to your home? Balloon arch decorations
+  are the perfect way to transform any space instantly. Imagine walking into a roo
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-decorations-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-decorations-for-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking to add a splash of color and fun to your home? Balloon arch decorations are the perfect way to transform any space instantly.**

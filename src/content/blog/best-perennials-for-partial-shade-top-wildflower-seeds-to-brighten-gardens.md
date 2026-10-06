@@ -1,10 +1,14 @@
 ---
-title: "Best Perennials for Partial Shade: Top Wildflower Seeds to Brighten Gardens"
-description: "Choosing the best perennials for partial shade can brighten your garden’s dimmer spots. These plants thrive with less sunlight yet add color and life. Partial s"
+title: 'Best Perennials for Partial Shade: Top Wildflower Seeds to Brighten Gardens'
+description: Choosing the best perennials for partial shade can brighten your garden’s
+  dimmer spots. These plants thrive with less sunlight yet add color and life. Partial
+  s
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-perennials-for-partial-shade-top-wildflower-seeds-to-brighten-gardens&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-perennials-for-partial-shade-top-wildflower-seeds-to-brighten-gardens&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best perennials for partial shade can brighten your garden’s dimmer spots. These plants thrive with less sunlight yet add color and life.**

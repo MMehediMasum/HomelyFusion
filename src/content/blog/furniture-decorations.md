@@ -1,10 +1,14 @@
 ---
-title: "Furniture Decorations: Top Stylish Accents to Elevate Your Home Decor"
-description: "Transform your living space with unique furniture decorations. These simple additions make any room feel cozy and stylish. Decorating your home doesn't require "
+title: 'Furniture Decorations: Top Stylish Accents to Elevate Your Home Decor'
+description: 'Transform your living space with unique furniture decorations. These
+  simple additions make any room feel cozy and stylish. Decorating your home doesn''t
+  require '
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-decorations&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Transform your living space with unique furniture decorations. These simple additions make any room feel cozy and stylish.**

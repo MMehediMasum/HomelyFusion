@@ -1,10 +1,14 @@
 ---
-title: "What is a Home Office Organization: Ultimate Guide to Boost Productivity"
-description: "Are you tired of feeling overwhelmed every time you step into your home office? A cluttered workspace can drain your energy and kill your focus. But what if you"
+title: 'What is a Home Office Organization: Ultimate Guide to Boost Productivity'
+description: Are you tired of feeling overwhelmed every time you step into your home
+  office? A cluttered workspace can drain your energy and kill your focus. But what
+  if you
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-home-office-organization&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-home-office-organization&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you tired of feeling overwhelmed every time you step into your home office? A cluttered workspace can drain your energy and kill your focus.**

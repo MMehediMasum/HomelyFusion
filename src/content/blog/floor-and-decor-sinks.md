@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Sinks: Top Anti-Fatigue Kitchen Mats for Ultimate Comfort"
-description: "Floor and Decor sinks offer practical solutions for kitchen and bathroom spaces. They combine style, comfort, and durability in one product. Floor and Decor sin"
+title: 'Floor And Decor Sinks: Top Anti-Fatigue Kitchen Mats for Ultimate Comfort'
+description: Floor and Decor sinks offer practical solutions for kitchen and bathroom
+  spaces. They combine style, comfort, and durability in one product. Floor and Decor
+  sin
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-sinks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-sinks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor sinks offer practical solutions for kitchen and bathroom spaces. They combine style, comfort, and durability in one product.**

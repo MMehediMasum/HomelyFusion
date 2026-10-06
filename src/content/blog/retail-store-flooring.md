@@ -1,10 +1,14 @@
 ---
-title: "Retail Store Flooring Solutions for Durable and Stylish Display Racks"
-description: "Retail store flooring plays a crucial role in creating a welcoming shopping space. It supports display racks, merchandise, and customer comfort. Choosing the ri"
+title: Retail Store Flooring Solutions for Durable and Stylish Display Racks
+description: Retail store flooring plays a crucial role in creating a welcoming shopping
+  space. It supports display racks, merchandise, and customer comfort. Choosing the
+  ri
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=retail-store-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=retail-store-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Retail store flooring plays a crucial role in creating a welcoming shopping space. It supports display racks, merchandise, and customer comfort.**

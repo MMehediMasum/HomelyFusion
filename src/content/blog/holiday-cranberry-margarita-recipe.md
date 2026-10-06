@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Cranberry Margarita Recipe: Festive, Refreshing & Easy"
 description: "Looking for a festive drink to brighten your holiday gatherings? Your search ends here with this Holiday Cranberry Margarita Recipe. Imagine the tangy burst of "
 pubDate: 2025-12-23

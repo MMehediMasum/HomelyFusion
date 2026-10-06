@@ -1,10 +1,14 @@
 ---
-title: "What is Bedroom Dresser Mirror Called: Ultimate Guide Revealed"
-description: "Have you ever stood in front of your bedroom dresser and wondered what that mirror is actually called? It might seem like a simple question, but knowing the rig"
+title: 'What is Bedroom Dresser Mirror Called: Ultimate Guide Revealed'
+description: Have you ever stood in front of your bedroom dresser and wondered what
+  that mirror is actually called? It might seem like a simple question, but knowing
+  the rig
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-mirror-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-is-bedroom-dresser-mirror-called&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever stood in front of your bedroom dresser and wondered what that mirror is actually called? It might seem like a simple question, but knowing the right term can change how you shop, decorate, or even talk about your space.**

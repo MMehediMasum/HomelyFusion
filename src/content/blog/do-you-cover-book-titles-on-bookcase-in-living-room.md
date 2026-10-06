@@ -1,10 +1,14 @@
 ---
-title: "Do You Cover Book Titles on Bookcase in Living Room: Stylish Tips"
-description: "Have you ever wondered whether you should cover the book titles on your living room bookcase? It’s a small detail, but it can change the entire look and feel of"
+title: 'Do You Cover Book Titles on Bookcase in Living Room: Stylish Tips'
+description: Have you ever wondered whether you should cover the book titles on your
+  living room bookcase? It’s a small detail, but it can change the entire look and
+  feel of
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-cover-book-titles-on-bookcase-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=do-you-cover-book-titles-on-bookcase-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered whether you should cover the book titles on your living room bookcase? It’s a small detail, but it can change the entire look and feel of your space.**

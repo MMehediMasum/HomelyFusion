@@ -1,10 +1,14 @@
 ---
-title: "Ornamental Decor Ideas to Elevate Your Home and Office Style"
-description: "Ornamental decor adds charm and personality to any space. These items bring warmth, style, and a unique touch to your home or office. Decorative pieces like art"
+title: Ornamental Decor Ideas to Elevate Your Home and Office Style
+description: Ornamental decor adds charm and personality to any space. These items
+  bring warmth, style, and a unique touch to your home or office. Decorative pieces
+  like art
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornamental-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=ornamental-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ornamental decor adds charm and personality to any space. These items bring warmth, style, and a unique touch to your home or office.**

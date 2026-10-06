@@ -1,10 +1,13 @@
 ---
-title: "Modern Organic Home Decor Ideas Featuring Elegant Ceramic Lamps & Rustic Accents"
-description: "Modern organic home decor blends natural elements with contemporary design, creating a serene and stylish environment. This aesthetic emphasizes sustainability,"
+title: Modern Organic Home Decor Ideas Featuring Elegant Ceramic Lamps & Rustic Accents
+description: Modern organic home decor blends natural elements with contemporary design,
+  creating a serene and stylish environment. This aesthetic emphasizes sustainability,
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-organic-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=modern-organic-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern organic home decor blends natural elements with contemporary design, creating a serene and stylish environment. This aesthetic emphasizes sustainability, authenticity, and simplicity.**

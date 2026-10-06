@@ -1,10 +1,14 @@
 ---
-title: "How to Make Table Lamp at Home With Paper: Easy DIY Guide"
-description: "Looking to add a unique touch to your room without spending much? You can create a beautiful table lamp right at home using just paper. Imagine lighting up your"
+title: 'How to Make Table Lamp at Home With Paper: Easy DIY Guide'
+description: Looking to add a unique touch to your room without spending much? You
+  can create a beautiful table lamp right at home using just paper. Imagine lighting
+  up your
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-table-lamp-at-home-with-paper&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-table-lamp-at-home-with-paper&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to add a unique touch to your room without spending much? You can create a beautiful table lamp right at home using just paper.**

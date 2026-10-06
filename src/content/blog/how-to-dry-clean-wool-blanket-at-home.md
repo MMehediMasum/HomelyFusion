@@ -1,10 +1,14 @@
 ---
-title: "How to Dry Clean Wool Blanket at Home: Easy & Safe Steps"
-description: "Your wool blanket is more than just a cozy layer—it’s a cherished part of your home. But when it comes to cleaning it, the thought of dry cleaning costs or dama"
+title: 'How to Dry Clean Wool Blanket at Home: Easy & Safe Steps'
+description: Your wool blanket is more than just a cozy layer—it’s a cherished part
+  of your home. But when it comes to cleaning it, the thought of dry cleaning costs
+  or dama
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dry-clean-wool-blanket-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dry-clean-wool-blanket-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your wool blanket is more than just a cozy layer—it’s a cherished part of your home. But when it comes to cleaning it, the thought of dry cleaning costs or damaging the fabric might hold you back.**

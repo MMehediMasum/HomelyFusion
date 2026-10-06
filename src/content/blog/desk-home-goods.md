@@ -1,10 +1,14 @@
 ---
-title: "Desk Home Goods: Top Adjustable and Stylish Desks for Your Workspace"
-description: "Desk home goods help create a comfortable and organized workspace at home. Choosing the right desk boosts productivity and fits your space perfectly. A good des"
+title: 'Desk Home Goods: Top Adjustable and Stylish Desks for Your Workspace'
+description: Desk home goods help create a comfortable and organized workspace at
+  home. Choosing the right desk boosts productivity and fits your space perfectly.
+  A good des
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=desk-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=desk-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Desk home goods help create a comfortable and organized workspace at home. Choosing the right desk boosts productivity and fits your space perfectly.**

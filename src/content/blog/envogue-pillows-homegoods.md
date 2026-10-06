@@ -1,10 +1,14 @@
 ---
-title: "Envogue Pillows Homegoods: Stylish Boho Throw Covers for Cozy Living"
-description: "Envogue Pillows Homegoods offers a unique collection of pillow covers that blend style with comfort. Discover bohemian, vintage, and modern designs to enhance a"
+title: 'Envogue Pillows Homegoods: Stylish Boho Throw Covers for Cozy Living'
+description: Envogue Pillows Homegoods offers a unique collection of pillow covers
+  that blend style with comfort. Discover bohemian, vintage, and modern designs to
+  enhance a
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=envogue-pillows-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=envogue-pillows-homegoods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Envogue Pillows Homegoods offers a unique collection of pillow covers that blend style with comfort. Discover bohemian, vintage, and modern designs to enhance any living space.**

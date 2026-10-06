@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Eyes: Top Eye-Friendly Lamps and Fixtures Reviewed"
-description: "Choosing the best lighting for eyes can reduce strain and improve comfort at home or work. Proper lighting supports eye health and enhances focus during daily t"
+title: 'Best Lighting for Eyes: Top Eye-Friendly Lamps and Fixtures Reviewed'
+description: Choosing the best lighting for eyes can reduce strain and improve comfort
+  at home or work. Proper lighting supports eye health and enhances focus during daily
+  t
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-eyes-top-eye-friendly-lamps-and-fixtures-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ceiling Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-eyes-top-eye-friendly-lamps-and-fixtures-reviewed&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lighting for eyes can reduce strain and improve comfort at home or work. Proper lighting supports eye health and enhances focus during daily tasks.**

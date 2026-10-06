@@ -1,10 +1,14 @@
 ---
-title: "Wall Art Home Goods: Stylish Decor Ideas for Every Room in Your House"
-description: "Wall art adds personality and style to any home space. It transforms plain walls into eye-catching focal points. Choosing the right wall art home goods can brin"
+title: 'Wall Art Home Goods: Stylish Decor Ideas for Every Room in Your House'
+description: Wall art adds personality and style to any home space. It transforms
+  plain walls into eye-catching focal points. Choosing the right wall art home goods
+  can brin
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art adds personality and style to any home space. It transforms plain walls into eye-catching focal points.**

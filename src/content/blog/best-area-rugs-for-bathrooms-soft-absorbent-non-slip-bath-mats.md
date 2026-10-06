@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Bathrooms: Soft, Absorbent, Non-Slip Bath Mats"
-description: "Choosing the best area rugs for bathrooms can improve comfort and safety. The right rug adds style while keeping floors dry and clean. Bathroom rugs need to be "
+title: 'Best Area Rugs for Bathrooms: Soft, Absorbent, Non-Slip Bath Mats'
+description: 'Choosing the best area rugs for bathrooms can improve comfort and safety.
+  The right rug adds style while keeping floors dry and clean. Bathroom rugs need
+  to be '
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-bathrooms-soft-absorbent-non-slip-bath-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-bathrooms-soft-absorbent-non-slip-bath-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rugs for bathrooms can improve comfort and safety. The right rug adds style while keeping floors dry and clean.**

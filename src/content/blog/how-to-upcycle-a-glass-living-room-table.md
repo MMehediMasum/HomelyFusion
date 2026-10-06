@@ -1,10 +1,14 @@
 ---
-title: "How to Upcycle a Glass Living Room Table: Stunning DIY Ideas"
-description: "Do you have a glass living room table that feels outdated or just plain boring? What if you could turn it into something fresh, stylish, and uniquely yours with"
+title: 'How to Upcycle a Glass Living Room Table: Stunning DIY Ideas'
+description: Do you have a glass living room table that feels outdated or just plain
+  boring? What if you could turn it into something fresh, stylish, and uniquely yours
+  with
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-upcycle-a-glass-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=how-to-upcycle-a-glass-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Do you have a glass living room table that feels outdated or just plain boring? What if you could turn it into something fresh, stylish, and uniquely yours without spending a fortune?**

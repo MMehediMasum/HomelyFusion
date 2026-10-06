@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Engineered Wood: Top DIY Vinyl Planks and Repair Kits"
-description: "Floor and Decor engineered wood offers durable and stylish flooring options for any home. Its layered design combines real wood veneer with strong backing for l"
+title: 'Floor And Decor Engineered Wood: Top DIY Vinyl Planks and Repair Kits'
+description: Floor and Decor engineered wood offers durable and stylish flooring options
+  for any home. Its layered design combines real wood veneer with strong backing for
+  l
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-engineered-wood&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-engineered-wood&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor engineered wood offers durable and stylish flooring options for any home. Its layered design combines real wood veneer with strong backing for lasting beauty.**

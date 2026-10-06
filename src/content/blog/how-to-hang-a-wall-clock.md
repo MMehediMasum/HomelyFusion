@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Wall Clock: Easy Steps for Perfect Placement"
-description: "Are you tired of staring at a blank wall that could use a little life? Hanging a wall clock is a simple way to add style and function to any room. But if you’ve"
+title: 'How to Hang a Wall Clock: Easy Steps for Perfect Placement'
+description: Are you tired of staring at a blank wall that could use a little life?
+  Hanging a wall clock is a simple way to add style and function to any room. But
+  if you’ve
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-clock&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-clock&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you tired of staring at a blank wall that could use a little life? Hanging a wall clock is a simple way to add style and function to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy American Woodmark Cabinets Fpr Home Office: Top Picks"
-description: "Are you ready to transform your home office with stylish, durable cabinets that fit your needs perfectly? Finding the right place to buy American Woodmark cabin"
+title: 'Where to Buy American Woodmark Cabinets Fpr Home Office: Top Picks'
+description: Are you ready to transform your home office with stylish, durable cabinets
+  that fit your needs perfectly? Finding the right place to buy American Woodmark
+  cabin
 pubDate: 2025-08-28
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-american-woodmark-cabinets-fpr-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-american-woodmark-cabinets-fpr-home-office&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to transform your home office with stylish, durable cabinets that fit your needs perfectly? Finding the right place to buy American Woodmark cabinets can make all the difference in creating a workspace you love.**

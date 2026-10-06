@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Lanterns at Home: Stunning DIY Ideas Made Easy"
-description: "Do you want to add a warm, magical glow to your home without spending a fortune? Decorating lanterns at home is an easy and fun way to brighten up any space. Wh"
+title: 'How to Decorate Lanterns at Home: Stunning DIY Ideas Made Easy'
+description: Do you want to add a warm, magical glow to your home without spending
+  a fortune? Decorating lanterns at home is an easy and fun way to brighten up any
+  space. Wh
 pubDate: 2026-05-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-lanterns-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-lanterns-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Do you want to add a warm, magical glow to your home without spending a fortune? Decorating lanterns at home is an easy and fun way to brighten up any space.**

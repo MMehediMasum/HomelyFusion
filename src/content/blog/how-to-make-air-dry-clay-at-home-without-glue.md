@@ -1,10 +1,14 @@
 ---
-title: "How to Make Air Dry Clay at Home Without Glue: Easy DIY Guide"
-description: "Have you ever wanted to create beautiful air dry clay crafts but didn’t have glue at home? You’re not alone. Many people think glue is a must-have ingredient, b"
+title: 'How to Make Air Dry Clay at Home Without Glue: Easy DIY Guide'
+description: Have you ever wanted to create beautiful air dry clay crafts but didn’t
+  have glue at home? You’re not alone. Many people think glue is a must-have ingredient,
+  b
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-without-glue&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-without-glue&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create beautiful air dry clay crafts but didn’t have glue at home? You’re not alone.**

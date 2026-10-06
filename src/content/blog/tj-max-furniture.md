@@ -1,10 +1,14 @@
 ---
-title: "Tj Max Furniture: Stylish Accent Chairs and Modern Living Room Essentials"
-description: "Tj Maxx offers a variety of stylish and affordable furniture pieces. Their collection suits many rooms and home styles. Tj Maxx furniture blends comfort, design"
+title: 'Tj Max Furniture: Stylish Accent Chairs and Modern Living Room Essentials'
+description: Tj Maxx offers a variety of stylish and affordable furniture pieces.
+  Their collection suits many rooms and home styles. Tj Maxx furniture blends comfort,
+  design
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-max-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=tj-max-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tj Maxx offers a variety of stylish and affordable furniture pieces. Their collection suits many rooms and home styles.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Find a Living Room Chair: Ultimate Guide for Perfect Comfort"
-description: "Finding the perfect living room chair can feel overwhelming. You want something comfortable, stylish, and just right for your space. But how do you choose from "
+title: 'How to Find a Living Room Chair: Ultimate Guide for Perfect Comfort'
+description: 'Finding the perfect living room chair can feel overwhelming. You want
+  something comfortable, stylish, and just right for your space. But how do you choose
+  from '
 pubDate: 2026-03-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-find-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-find-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect living room chair can feel overwhelming. You want something comfortable, stylish, and just right for your space.**

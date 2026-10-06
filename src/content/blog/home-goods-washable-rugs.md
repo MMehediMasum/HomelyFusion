@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Washable Rugs: Stylish, Durable, and Easy-to-Clean Options"
-description: "Home goods washable rugs offer easy cleaning and lasting comfort for any room. These rugs combine style with practicality, perfect for busy homes. Washable rugs"
+title: 'Home Goods Washable Rugs: Stylish, Durable, and Easy-to-Clean Options'
+description: Home goods washable rugs offer easy cleaning and lasting comfort for
+  any room. These rugs combine style with practicality, perfect for busy homes. Washable
+  rugs
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-washable-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-washable-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods washable rugs offer easy cleaning and lasting comfort for any room. These rugs combine style with practicality, perfect for busy homes.**

@@ -1,10 +1,14 @@
 ---
-title: "The Flooring Store: Top Waterproof Vinyl and Peel Stick Flooring Tiles"
-description: "The Flooring Store offers a wide range of flooring solutions for every room. Find easy-to-install, stylish, and durable floor options here. Choose from peel-and"
+title: 'The Flooring Store: Top Waterproof Vinyl and Peel Stick Flooring Tiles'
+description: The Flooring Store offers a wide range of flooring solutions for every
+  room. Find easy-to-install, stylish, and durable floor options here. Choose from
+  peel-and
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=the-flooring-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Flooring
+heroImage: https://tse1.mm.bing.net/th?q=the-flooring-store&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **The Flooring Store offers a wide range of flooring solutions for every room. Find easy-to-install, stylish, and durable floor options here.**

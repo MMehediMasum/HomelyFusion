@@ -1,10 +1,14 @@
 ---
-title: "How to Set Sofa in Living Room: Expert Tips for Perfect Layout"
-description: "Are you wondering how to set your sofa in the living room to make the space feel cozy and inviting? The right sofa placement can change everything—from how comf"
+title: 'How to Set Sofa in Living Room: Expert Tips for Perfect Layout'
+description: Are you wondering how to set your sofa in the living room to make the
+  space feel cozy and inviting? The right sofa placement can change everything—from
+  how comf
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to set your sofa in the living room to make the space feel cozy and inviting? The right sofa placement can change everything—from how comfortable your room feels to how easy it is to move around.**

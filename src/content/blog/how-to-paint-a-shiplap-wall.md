@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Shiplap Wall: Easy Steps for a Stunning Finish"
-description: "Are you ready to give your room a fresh, stylish look without spending a fortune? Painting a shiplap wall can transform your space, making it feel cozy, modern,"
+title: 'How to Paint a Shiplap Wall: Easy Steps for a Stunning Finish'
+description: Are you ready to give your room a fresh, stylish look without spending
+  a fortune? Painting a shiplap wall can transform your space, making it feel cozy,
+  modern,
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-shiplap-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-shiplap-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your room a fresh, stylish look without spending a fortune? Painting a shiplap wall can transform your space, making it feel cozy, modern, and inviting.**

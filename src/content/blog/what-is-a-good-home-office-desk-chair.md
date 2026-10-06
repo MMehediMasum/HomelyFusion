@@ -1,10 +1,14 @@
 ---
-title: "What is a Good Home Office Desk Chair: Ultimate Comfort Guide"
-description: "Choosing the right home office desk chair can change the way you work every day. You spend hours sitting, so comfort and support are not just nice to have—they "
+title: 'What is a Good Home Office Desk Chair: Ultimate Comfort Guide'
+description: 'Choosing the right home office desk chair can change the way you work
+  every day. You spend hours sitting, so comfort and support are not just nice to
+  have—they '
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-good-home-office-desk-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-good-home-office-desk-chair&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right home office desk chair can change the way you work every day. You spend hours sitting, so comfort and support are not just nice to have—they are essential.**

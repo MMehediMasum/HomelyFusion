@@ -1,10 +1,14 @@
 ---
-title: "Easter Spring Flower Wreath: Brighten Your Home with Blooms"
-description: "Imagine stepping into your home and being greeted by a burst of fresh, vibrant colors that instantly lift your mood. That’s exactly what an Easter Spring Flower"
+title: 'Easter Spring Flower Wreath: Brighten Your Home with Blooms'
+description: Imagine stepping into your home and being greeted by a burst of fresh,
+  vibrant colors that instantly lift your mood. That’s exactly what an Easter Spring
+  Flower
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-spring-flower-wreath&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-spring-flower-wreath&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine stepping into your home and being greeted by a burst of fresh, vibrant colors that instantly lift your mood. That’s exactly what an Easter Spring Flower Wreath can do for you.**

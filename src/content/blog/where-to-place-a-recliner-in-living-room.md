@@ -1,10 +1,14 @@
 ---
-title: "Where to Place a Recliner in Living Room: Ultimate Comfort Tips"
-description: "Are you struggling to find the perfect spot for your recliner in the living room? You’re not alone. The right placement can transform your space, making it more"
+title: 'Where to Place a Recliner in Living Room: Ultimate Comfort Tips'
+description: Are you struggling to find the perfect spot for your recliner in the
+  living room? You’re not alone. The right placement can transform your space, making
+  it more
 pubDate: 2026-03-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-a-recliner-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-a-recliner-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your recliner in the living room? You’re not alone.**

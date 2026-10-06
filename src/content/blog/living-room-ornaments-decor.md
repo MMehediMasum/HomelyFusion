@@ -1,10 +1,14 @@
 ---
-title: "Living Room Ornaments Decor: Stylish Figurines to Elevate Your Space"
-description: "Decorating your living room with stylish ornaments can enhance its charm and personality. Small statues and figurines offer a unique way to infuse character int"
+title: 'Living Room Ornaments Decor: Stylish Figurines to Elevate Your Space'
+description: Decorating your living room with stylish ornaments can enhance its charm
+  and personality. Small statues and figurines offer a unique way to infuse character
+  int
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-ornaments-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=living-room-ornaments-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Decorating your living room with stylish ornaments can enhance its charm and personality. Small statues and figurines offer a unique way to infuse character into your space.**

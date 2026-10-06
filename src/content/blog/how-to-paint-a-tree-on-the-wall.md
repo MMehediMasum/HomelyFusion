@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Tree on the Wall: Easy Steps for Stunning Art"
-description: "Imagine transforming a plain wall into a stunning piece of art that brings nature right into your room. You don’t need to be a professional artist to paint a be"
+title: 'How to Paint a Tree on the Wall: Easy Steps for Stunning Art'
+description: Imagine transforming a plain wall into a stunning piece of art that brings
+  nature right into your room. You don’t need to be a professional artist to paint
+  a be
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-tree-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-tree-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine transforming a plain wall into a stunning piece of art that brings nature right into your room. You don’t need to be a professional artist to paint a beautiful tree on your wall.**

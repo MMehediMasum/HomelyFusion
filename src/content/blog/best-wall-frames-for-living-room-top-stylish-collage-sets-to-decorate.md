@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Frames for Living Room: Top Stylish Collage Sets to Decorate"
-description: "Choosing the best wall frames can enhance your living room’s style and warmth. Frames add personality and showcase your favorite memories or art. Wall frames co"
+title: 'Best Wall Frames for Living Room: Top Stylish Collage Sets to Decorate'
+description: Choosing the best wall frames can enhance your living room’s style and
+  warmth. Frames add personality and showcase your favorite memories or art. Wall
+  frames co
 pubDate: 2025-12-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-frames-for-living-room-top-stylish-collage-sets-to-decorate&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-frames-for-living-room-top-stylish-collage-sets-to-decorate&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best wall frames can enhance your living room’s style and warmth. Frames add personality and showcase your favorite memories or art.**

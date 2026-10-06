@@ -1,10 +1,13 @@
 ---
-title: "Christmas Mistletoe Hanging Decor: Stunning Ideas to Brighten Holidays"
-description: "Imagine stepping into your home this holiday season and feeling an instant wave of warmth and cheer. Christmas mistletoe hanging decor isn’t just a tradition—it"
+title: 'Christmas Mistletoe Hanging Decor: Stunning Ideas to Brighten Holidays'
+description: Imagine stepping into your home this holiday season and feeling an instant
+  wave of warmth and cheer. Christmas mistletoe hanging decor isn’t just a tradition—it
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-mistletoe-hanging-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-mistletoe-hanging-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine stepping into your home this holiday season and feeling an instant wave of warmth and cheer. Christmas mistletoe hanging decor isn’t just a tradition—it’s a simple way to create moments filled with joy, love, and connection.**

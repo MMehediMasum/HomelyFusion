@@ -1,10 +1,14 @@
 ---
-title: "Decor Furnitures: Stylish Storage and Accent Tables for Every Room"
-description: "Decor Furnitures offer a blend of style and functionality for every home. Discover pieces that enhance any space effortlessly. Whether you're refreshing your li"
+title: 'Decor Furnitures: Stylish Storage and Accent Tables for Every Room'
+description: Decor Furnitures offer a blend of style and functionality for every home.
+  Discover pieces that enhance any space effortlessly. Whether you're refreshing your
+  li
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decor-furnitures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=decor-furnitures&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Decor Furnitures offer a blend of style and functionality for every home. Discover pieces that enhance any space effortlessly.**

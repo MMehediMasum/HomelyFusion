@@ -1,10 +1,14 @@
 ---
-title: "Should Slipper Chair Fabric in Foyer Match Living Room? Expert Tips"
-description: "When you’re decorating your home, every detail counts—especially the furniture you choose for your foyer. You might be wondering, should the fabric of your slip"
+title: Should Slipper Chair Fabric in Foyer Match Living Room? Expert Tips
+description: When you’re decorating your home, every detail counts—especially the
+  furniture you choose for your foyer. You might be wondering, should the fabric of
+  your slip
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-slipper-chair-fabric-in-foyer-match-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=should-slipper-chair-fabric-in-foyer-match-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **When you’re decorating your home, every detail counts—especially the furniture you choose for your foyer. You might be wondering, should the fabric of your slipper chair in the foyer match your living room?**

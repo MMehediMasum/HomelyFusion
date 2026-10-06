@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Under Bed: Soft, Stylish, and Non-Slip Carpet Picks"
-description: "Choosing the best rugs to place under your bed can transform any bedroom. The right rug adds comfort, style, and warmth to your space. A good rug should fit wel"
+title: 'Best Rugs for Under Bed: Soft, Stylish, and Non-Slip Carpet Picks'
+description: Choosing the best rugs to place under your bed can transform any bedroom.
+  The right rug adds comfort, style, and warmth to your space. A good rug should fit
+  wel
 pubDate: 2025-12-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-under-bed-soft-stylish-and-non-slip-carpet-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-under-bed-soft-stylish-and-non-slip-carpet-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs to place under your bed can transform any bedroom. The right rug adds comfort, style, and warmth to your space.**

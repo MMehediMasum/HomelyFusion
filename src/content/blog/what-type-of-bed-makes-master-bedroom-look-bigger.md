@@ -1,10 +1,14 @@
 ---
-title: "What Type of Bed Makes Master Bedroom Look Bigger: Expert Tips"
-description: "Are you looking to make your master bedroom feel more spacious without knocking down walls? The type of bed you choose plays a bigger role than you might think."
+title: 'What Type of Bed Makes Master Bedroom Look Bigger: Expert Tips'
+description: Are you looking to make your master bedroom feel more spacious without
+  knocking down walls? The type of bed you choose plays a bigger role than you might
+  think.
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-type-of-bed-makes-master-bedroom-look-bigger&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bed Headboards
+heroImage: https://tse1.mm.bing.net/th?q=what-type-of-bed-makes-master-bedroom-look-bigger&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to make your master bedroom feel more spacious without knocking down walls? The type of bed you choose plays a bigger role than you might think.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Leather Couch: Stylish Tips for a Chic Living Room"
-description: "Your leather couch is more than just a place to sit—it’s a statement piece that sets the tone for your entire room. But decorating it the right way can be trick"
+title: 'How to Decorate Leather Couch: Stylish Tips for a Chic Living Room'
+description: Your leather couch is more than just a place to sit—it’s a statement
+  piece that sets the tone for your entire room. But decorating it the right way can
+  be trick
 pubDate: 2025-09-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-leather-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-leather-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your leather couch is more than just a place to sit—it’s a statement piece that sets the tone for your entire room. But decorating it the right way can be tricky.**

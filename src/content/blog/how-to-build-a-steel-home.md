@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Build a Steel Home: Ultimate Guide for Durable Living"
 description: "Thinking about building a home that lasts, saves you money, and stands strong through time? A steel home might be exactly what you need. You’ll discover how ste"
 pubDate: 2026-03-30

@@ -1,10 +1,14 @@
 ---
-title: "Best Slipcovers for Leather Couches: Durable, Stylish, and Protective Picks"
-description: "Protecting leather couches extends their life and keeps them looking fresh. The best slipcovers offer style, comfort, and durability. Leather couch slipcovers g"
+title: 'Best Slipcovers for Leather Couches: Durable, Stylish, and Protective Picks'
+description: Protecting leather couches extends their life and keeps them looking
+  fresh. The best slipcovers offer style, comfort, and durability. Leather couch slipcovers
+  g
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-couches-durable-stylish-and-protective-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-slipcovers-for-leather-couches-durable-stylish-and-protective-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protecting leather couches extends their life and keeps them looking fresh. The best slipcovers offer style, comfort, and durability.**

@@ -1,10 +1,14 @@
 ---
-title: "Inspiration Wall Decor: Transform Your Space with Motivational Art Pieces"
-description: "Transform your space with inspirational wall decor that uplifts and motivates. Simple changes can create a positive atmosphere. Whether it's a rustic plaque or "
+title: 'Inspiration Wall Decor: Transform Your Space with Motivational Art Pieces'
+description: 'Transform your space with inspirational wall decor that uplifts and
+  motivates. Simple changes can create a positive atmosphere. Whether it''s a rustic
+  plaque or '
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=inspiration-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=inspiration-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your space with inspirational wall decor that uplifts and motivates. Simple changes can create a positive atmosphere.**

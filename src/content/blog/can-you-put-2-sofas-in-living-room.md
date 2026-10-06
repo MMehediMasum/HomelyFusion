@@ -1,10 +1,14 @@
 ---
-title: "Can You Put 2 Sofas in Living Room: Stylish Tips for Perfect Layout"
-description: "Are you wondering if you can fit two sofas in your living room without making it feel crowded? You’re not alone. Many people struggle with arranging their furni"
+title: 'Can You Put 2 Sofas in Living Room: Stylish Tips for Perfect Layout'
+description: Are you wondering if you can fit two sofas in your living room without
+  making it feel crowded? You’re not alone. Many people struggle with arranging their
+  furni
 pubDate: 2026-03-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-2-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-2-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if you can fit two sofas in your living room without making it feel crowded? You’re not alone.**

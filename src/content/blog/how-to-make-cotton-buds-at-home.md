@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Buds at Home: Easy DIY Guide for Beginners"
 description: "Are you tired of running out of cotton buds when you need them most? What if you could make your own right at home, saving money and reducing waste? Making cott"
 pubDate: 2026-03-05

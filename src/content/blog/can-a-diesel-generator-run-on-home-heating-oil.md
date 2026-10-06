@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Diesel Generator Run on Home Heating Oil? Essential Facts"
 description: "Have you ever wondered if your diesel generator could run on the home heating oil sitting in your tank? If you’re looking for a backup power solution or trying "
 pubDate: 2026-04-03

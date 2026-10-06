@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Poster Board: Creative Tips for Stunning Designs"
-description: "Are you ready to make your poster board stand out and grab everyone’s attention? Whether it’s for a school project, a work presentation, or a special event, dec"
+title: 'How to Decorate a Poster Board: Creative Tips for Stunning Designs'
+description: Are you ready to make your poster board stand out and grab everyone’s
+  attention? Whether it’s for a school project, a work presentation, or a special
+  event, dec
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-poster-board&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-poster-board&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you ready to make your poster board stand out and grab everyone’s attention? Whether it’s for a school project, a work presentation, or a special event, decorating your poster board the right way can make all the difference.**

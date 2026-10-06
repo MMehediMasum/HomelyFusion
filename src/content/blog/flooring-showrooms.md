@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Showrooms: Top Picks for Unique Collectibles and Display Cabinets"
 description: "Flooring showrooms offer a wide variety of flooring options and related decor. They provide a hands-on experience to help you choose the best floor for your spa"
 pubDate: 2025-10-15

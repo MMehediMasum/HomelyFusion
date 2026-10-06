@@ -1,10 +1,13 @@
 ---
-title: "How Big is a Living Room Chair: Ultimate Size Guide Revealed"
-description: "Have you ever wondered how big a living room chair should be to fit perfectly in your space? Choosing the right size can change everything—from comfort to style"
+title: 'How Big is a Living Room Chair: Ultimate Size Guide Revealed'
+description: Have you ever wondered how big a living room chair should be to fit perfectly
+  in your space? Choosing the right size can change everything—from comfort to style
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-is-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-big-is-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered how big a living room chair should be to fit perfectly in your space? Choosing the right size can change everything—from comfort to style and even how your room feels.**

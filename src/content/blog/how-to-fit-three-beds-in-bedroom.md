@@ -1,10 +1,13 @@
 ---
-title: "How to Fit Three Beds in Bedroom: Smart Space-Saving Tips"
-description: "Struggling to fit three beds in your bedroom without making it look cramped? You’re not alone. Whether it’s for a growing family, guests, or shared rooms, findi"
+title: 'How to Fit Three Beds in Bedroom: Smart Space-Saving Tips'
+description: Struggling to fit three beds in your bedroom without making it look cramped?
+  You’re not alone. Whether it’s for a growing family, guests, or shared rooms, findi
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fit-three-beds-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fit-three-beds-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Struggling to fit three beds in your bedroom without making it look cramped? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Unfinished Bathroom Vanities: Top Trusted Stores"
-description: "Are you looking to upgrade your bathroom without breaking the bank? Finding the perfect unfinished bathroom vanity can give you the freedom to customize your sp"
+title: 'Where to Buy Unfinished Bathroom Vanities: Top Trusted Stores'
+description: Are you looking to upgrade your bathroom without breaking the bank? Finding
+  the perfect unfinished bathroom vanity can give you the freedom to customize your
+  sp
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-unfinished-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-unfinished-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to upgrade your bathroom without breaking the bank? Finding the perfect unfinished bathroom vanity can give you the freedom to customize your space exactly the way you want.**

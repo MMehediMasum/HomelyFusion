@@ -1,10 +1,14 @@
 ---
-title: "How Many Nightstands in Bedroom: Ultimate Guide to Perfect Balance"
-description: "How many nightstands should you have in your bedroom? It might seem like a small detail, but choosing the right number can change how your space feels and works"
+title: 'How Many Nightstands in Bedroom: Ultimate Guide to Perfect Balance'
+description: How many nightstands should you have in your bedroom? It might seem like
+  a small detail, but choosing the right number can change how your space feels and
+  works
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-nightstands-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=how-many-nightstands-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **How many nightstands should you have in your bedroom? It might seem like a small detail, but choosing the right number can change how your space feels and works every day.**

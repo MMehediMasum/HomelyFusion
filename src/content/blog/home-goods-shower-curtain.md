@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Shower Curtain: Stylish, Durable, and Waterproof Bathroom Essentials"
-description: "A good shower curtain can change your bathroom’s look and feel. Home goods shower curtains come in many styles, colors, and materials to suit any need. Choosing"
+title: 'Home Goods Shower Curtain: Stylish, Durable, and Waterproof Bathroom Essentials'
+description: A good shower curtain can change your bathroom’s look and feel. Home
+  goods shower curtains come in many styles, colors, and materials to suit any need.
+  Choosing
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-shower-curtain&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-shower-curtain&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **A good shower curtain can change your bathroom’s look and feel. Home goods shower curtains come in many styles, colors, and materials to suit any need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Dry Clay Faster at Home: Quick & Easy DIY Tips"
-description: "Are you tired of waiting days for your clay projects to dry? Whether you’re working on a last-minute gift or just eager to see your creation finished, drying cl"
+title: 'How to Dry Clay Faster at Home: Quick & Easy DIY Tips'
+description: Are you tired of waiting days for your clay projects to dry? Whether
+  you’re working on a last-minute gift or just eager to see your creation finished,
+  drying cl
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dry-clay-faster-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dry-clay-faster-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you tired of waiting days for your clay projects to dry? Whether you’re working on a last-minute gift or just eager to see your creation finished, drying clay faster at home can save you valuable time.**

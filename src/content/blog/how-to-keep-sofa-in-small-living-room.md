@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Sofa in Small Living Room: Space-Saving Genius Tips"
-description: "Struggling to fit your sofa into a small living room without making the space feel cramped? You’re not alone. Finding the perfect balance between comfort and st"
+title: 'How to Keep Sofa in Small Living Room: Space-Saving Genius Tips'
+description: Struggling to fit your sofa into a small living room without making the
+  space feel cramped? You’re not alone. Finding the perfect balance between comfort
+  and st
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-sofa-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-sofa-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit your sofa into a small living room without making the space feel cramped? You’re not alone.**

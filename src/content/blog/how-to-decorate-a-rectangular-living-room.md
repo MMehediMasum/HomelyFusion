@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Rectangular Living Room: Stunning Space Hacks"
-description: "Is your rectangular living room feeling a bit dull or hard to arrange? You’re not alone. Decorating a long, narrow space can be tricky, but with the right tips,"
+title: 'How to Decorate a Rectangular Living Room: Stunning Space Hacks'
+description: Is your rectangular living room feeling a bit dull or hard to arrange?
+  You’re not alone. Decorating a long, narrow space can be tricky, but with the right
+  tips,
 pubDate: 2025-10-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-rectangular-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-rectangular-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Is your rectangular living room feeling a bit dull or hard to arrange? You’re not alone.**

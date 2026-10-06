@@ -1,10 +1,14 @@
 ---
-title: "How to Print on Cotton Fabric at Home: Easy DIY Guide"
-description: "Have you ever wanted to create your own custom designs on cotton fabric right at home? Imagine turning plain cotton into a unique masterpiece that reflects your"
+title: 'How to Print on Cotton Fabric at Home: Easy DIY Guide'
+description: Have you ever wanted to create your own custom designs on cotton fabric
+  right at home? Imagine turning plain cotton into a unique masterpiece that reflects
+  your
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-print-on-cotton-fabric-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-print-on-cotton-fabric-at-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wanted to create your own custom designs on cotton fabric right at home? Imagine turning plain cotton into a unique masterpiece that reflects your style.**

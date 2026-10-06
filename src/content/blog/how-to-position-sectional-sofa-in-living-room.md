@@ -1,10 +1,14 @@
 ---
-title: "How to Position Sectional Sofa in Living Room: Ultimate Style Guide"
-description: "Are you wondering how to arrange your sectional sofa to make your living room look inviting and spacious? The way you position your sectional can change the ent"
+title: 'How to Position Sectional Sofa in Living Room: Ultimate Style Guide'
+description: Are you wondering how to arrange your sectional sofa to make your living
+  room look inviting and spacious? The way you position your sectional can change
+  the ent
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-position-sectional-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-position-sectional-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange your sectional sofa to make your living room look inviting and spacious? The way you position your sectional can change the entire feel of the room.**

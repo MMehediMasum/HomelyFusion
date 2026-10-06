@@ -1,10 +1,14 @@
 ---
-title: "Should Chair Rail Molding Be in a Living Room: Stylish Ideas"
-description: "Are you thinking about adding chair rail molding to your living room but aren’t sure if it’s the right choice? You might be wondering if this classic design det"
+title: 'Should Chair Rail Molding Be in a Living Room: Stylish Ideas'
+description: Are you thinking about adding chair rail molding to your living room
+  but aren’t sure if it’s the right choice? You might be wondering if this classic
+  design det
 pubDate: 2026-02-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-chair-rail-molding-be-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=should-chair-rail-molding-be-in-a-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you thinking about adding chair rail molding to your living room but aren’t sure if it’s the right choice? You might be wondering if this classic design detail fits your style or if it will make your space feel outdated.**

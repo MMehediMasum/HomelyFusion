@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Easter Bunny Cupcake Topper Ideas: Creative & Fun Designs to Try"
 description: "Are you ready to make your cupcakes the star of your Easter celebration? Decorating your treats with charming Easter Bunny cupcake toppers is an easy way to add"
 pubDate: 2025-10-04

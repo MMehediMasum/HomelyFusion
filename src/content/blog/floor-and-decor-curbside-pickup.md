@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Curbside Pickup: Convenient Heavy Duty Floor Standing Signs"
-description: "Floor And Decor offers curbside pickup for easy and safe shopping. Customers can order online and collect their items without leaving their car. Curbside pickup"
+title: 'Floor And Decor Curbside Pickup: Convenient Heavy Duty Floor Standing Signs'
+description: Floor And Decor offers curbside pickup for easy and safe shopping. Customers
+  can order online and collect their items without leaving their car. Curbside pickup
 pubDate: 2026-07-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-curbside-pickup&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-curbside-pickup&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor And Decor offers curbside pickup for easy and safe shopping. Customers can order online and collect their items without leaving their car.**

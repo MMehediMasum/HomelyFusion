@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Throw Pillow Ideas to Elevate Your Sofa and Bed Decor"
-description: "Throw pillows can transform any space, adding comfort and style to your home decor. With numerous options available, choosing the right throw pillow set enhance"
+title: Home Goods Throw Pillow Ideas to Elevate Your Sofa and Bed Decor
+description: Throw pillows can transform any space, adding comfort and style to your
+  home decor. With numerous options available, choosing the right throw pillow set
+  enhance
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-throw-pillow&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-throw-pillow&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Throw pillows can transform any space, adding comfort and style to your home decor. With numerous options available, choosing the right throw pillow set enhances your living space effortlessly.**

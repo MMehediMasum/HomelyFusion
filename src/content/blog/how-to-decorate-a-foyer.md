@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Foyer: Stunning Ideas to Impress Guests"
-description: "Your foyer is the first thing guests see when they walk into your home. It sets the tone for the rest of your space. But how do you make it both welcoming and s"
+title: 'How to Decorate a Foyer: Stunning Ideas to Impress Guests'
+description: Your foyer is the first thing guests see when they walk into your home.
+  It sets the tone for the rest of your space. But how do you make it both welcoming
+  and s
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-foyer&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-foyer&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your foyer is the first thing guests see when they walk into your home. It sets the tone for the rest of your space.**

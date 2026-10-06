@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Side Tables: Stylish Storage Solutions for Every Room"
-description: "Side tables bring functionality and style to any home. These versatile pieces fit seamlessly into various spaces. From compact nightstands to elegant accent tab"
+title: 'Homegoods Side Tables: Stylish Storage Solutions for Every Room'
+description: Side tables bring functionality and style to any home. These versatile
+  pieces fit seamlessly into various spaces. From compact nightstands to elegant accent
+  tab
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-side-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Side tables bring functionality and style to any home. These versatile pieces fit seamlessly into various spaces.**

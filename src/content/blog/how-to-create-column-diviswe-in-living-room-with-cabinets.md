@@ -1,10 +1,14 @@
 ---
-title: "How to Create Column Diviswe in Living Room With Cabinets: Stunning Ideas"
-description: "Are you struggling to find the perfect way to divide your living room without losing space or style? Creating column divisions with cabinets is a smart solution"
+title: 'How to Create Column Diviswe in Living Room With Cabinets: Stunning Ideas'
+description: Are you struggling to find the perfect way to divide your living room
+  without losing space or style? Creating column divisions with cabinets is a smart
+  solution
 pubDate: 2026-03-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-column-diviswe-in-living-room-with-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-column-diviswe-in-living-room-with-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you struggling to find the perfect way to divide your living room without losing space or style? Creating column divisions with cabinets is a smart solution that adds both function and flair to your space.**

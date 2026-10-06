@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Cats: Durable, Cozy, and Easy-to-Clean Pet Mats"
-description: "Choosing the best rugs for cats helps keep your home clean and your pet happy. Cats need rugs that resist mess, provide comfort, and protect floors. Cats often "
+title: 'Best Rugs for Cats: Durable, Cozy, and Easy-to-Clean Pet Mats'
+description: 'Choosing the best rugs for cats helps keep your home clean and your
+  pet happy. Cats need rugs that resist mess, provide comfort, and protect floors.
+  Cats often '
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-cats-durable-cozy-and-easy-to-clean-pet-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-cats-durable-cozy-and-easy-to-clean-pet-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for cats helps keep your home clean and your pet happy. Cats need rugs that resist mess, provide comfort, and protect floors.**

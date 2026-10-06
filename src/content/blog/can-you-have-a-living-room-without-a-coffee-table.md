@@ -1,10 +1,14 @@
 ---
-title: "Can You Have a Living Room Without a Coffee Table? Stylish Ideas!"
-description: "Have you ever wondered if your living room really needs a coffee table? Maybe you’ve felt cramped by one, or you simply don’t like the clutter it can create. Wh"
+title: Can You Have a Living Room Without a Coffee Table? Stylish Ideas!
+description: Have you ever wondered if your living room really needs a coffee table?
+  Maybe you’ve felt cramped by one, or you simply don’t like the clutter it can create.
+  Wh
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-have-a-living-room-without-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=can-you-have-a-living-room-without-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if your living room really needs a coffee table? Maybe you’ve felt cramped by one, or you simply don’t like the clutter it can create.**

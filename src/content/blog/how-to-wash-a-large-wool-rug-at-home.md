@@ -1,10 +1,14 @@
 ---
-title: "How to Wash a Large Wool Rug at Home: Easy Steps for Deep Clean"
-description: "Washing a large wool rug at home might seem like a tough task, but it doesn’t have to be. You want your rug to look fresh and last longer, right? With the right"
+title: 'How to Wash a Large Wool Rug at Home: Easy Steps for Deep Clean'
+description: Washing a large wool rug at home might seem like a tough task, but it
+  doesn’t have to be. You want your rug to look fresh and last longer, right? With
+  the right
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-a-large-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-a-large-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Washing a large wool rug at home might seem like a tough task, but it doesn’t have to be. You want your rug to look fresh and last longer, right?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Properly Measure a Recliner for Living Room: Ultimate Guide"
-description: "Choosing the perfect recliner can transform your living room into a cozy haven. But before you buy, one crucial step often gets overlooked: measuring your space"
+title: 'How to Properly Measure a Recliner for Living Room: Ultimate Guide'
+description: 'Choosing the perfect recliner can transform your living room into a
+  cozy haven. But before you buy, one crucial step often gets overlooked: measuring
+  your space'
 pubDate: 2026-04-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-properly-measure-a-recliner-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Recliners
+heroImage: https://tse1.mm.bing.net/th?q=how-to-properly-measure-a-recliner-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect recliner can transform your living room into a cozy haven. But before you buy, one crucial step often gets overlooked: measuring your space correctly.**

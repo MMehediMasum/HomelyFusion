@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Window behind Bed: Stylish Tips"
-description: "You have a window right behind your bed, and you’re wondering how to make it look amazing. Decorating a bedroom with a window in this spot can feel tricky. You "
+title: 'How to Decorate Bedroom With Window behind Bed: Stylish Tips'
+description: 'You have a window right behind your bed, and you’re wondering how to
+  make it look amazing. Decorating a bedroom with a window in this spot can feel tricky.
+  You '
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-window-behind-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-window-behind-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **You have a window right behind your bed, and you’re wondering how to make it look amazing. Decorating a bedroom with a window in this spot can feel tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Sink: Easy Steps for a Perfect Fit"
-description: "Are you ready to give your bathroom a quick and easy upgrade? Installing a bathroom sink might sound tricky, but with the right steps, you can do it yourself an"
+title: 'How to Install Bathroom Sink: Easy Steps for a Perfect Fit'
+description: Are you ready to give your bathroom a quick and easy upgrade? Installing
+  a bathroom sink might sound tricky, but with the right steps, you can do it yourself
+  an
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Sink Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to give your bathroom a quick and easy upgrade? Installing a bathroom sink might sound tricky, but with the right steps, you can do it yourself and save money.**

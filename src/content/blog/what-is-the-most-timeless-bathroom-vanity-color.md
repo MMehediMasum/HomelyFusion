@@ -1,10 +1,14 @@
 ---
-title: "What is the Most Timeless Bathroom Vanity Color: Classic Elegance Revealed"
-description: "Choosing the right color for your bathroom vanity can feel overwhelming. You want something that looks great now but won’t go out of style quickly. What if you "
+title: 'What is the Most Timeless Bathroom Vanity Color: Classic Elegance Revealed'
+description: 'Choosing the right color for your bathroom vanity can feel overwhelming.
+  You want something that looks great now but won’t go out of style quickly. What
+  if you '
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-most-timeless-bathroom-vanity-color&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-most-timeless-bathroom-vanity-color&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right color for your bathroom vanity can feel overwhelming. You want something that looks great now but won’t go out of style quickly.**

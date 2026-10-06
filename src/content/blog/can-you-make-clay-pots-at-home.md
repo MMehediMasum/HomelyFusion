@@ -1,10 +1,14 @@
 ---
-title: "Can You Make Clay Pots at Home: Easy Steps to Craft Beautiful Pots"
-description: "Have you ever wondered if you can make clay pots right in your own home? Imagine holding a beautiful, handmade pot crafted by your own hands—a unique piece that"
+title: 'Can You Make Clay Pots at Home: Easy Steps to Craft Beautiful Pots'
+description: Have you ever wondered if you can make clay pots right in your own home?
+  Imagine holding a beautiful, handmade pot crafted by your own hands—a unique piece
+  that
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-make-clay-pots-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pottery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-make-clay-pots-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wondered if you can make clay pots right in your own home? Imagine holding a beautiful, handmade pot crafted by your own hands—a unique piece that adds charm to your space.**

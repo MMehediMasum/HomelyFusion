@@ -1,10 +1,14 @@
 ---
-title: "Home Lighting And Decor: Top Dimmable LED Lights for Cozy Ambiance"
-description: "Home lighting and decor enhance the ambiance and functionality of living spaces. Various options can transform your home effortlessly. Choosing the right lighti"
+title: 'Home Lighting And Decor: Top Dimmable LED Lights for Cozy Ambiance'
+description: Home lighting and decor enhance the ambiance and functionality of living
+  spaces. Various options can transform your home effortlessly. Choosing the right
+  lighti
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-lighting-and-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=home-lighting-and-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Home lighting and decor enhance the ambiance and functionality of living spaces. Various options can transform your home effortlessly.**

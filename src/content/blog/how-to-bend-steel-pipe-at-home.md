@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Steel Pipe at Home: Easy DIY Methods Revealed"
 description: "Have you ever needed to bend a steel pipe but thought it was too hard or expensive to do at home? What if you could shape that pipe exactly how you want, withou"
 pubDate: 2026-03-01

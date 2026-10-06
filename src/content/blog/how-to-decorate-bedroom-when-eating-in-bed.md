@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom When Eating in Bed: Stylish & Practical Tips"
-description: "Imagine cozying up in your bedroom, enjoying a meal without worrying about spills or mess. Decorating your bedroom for eating in bed doesn’t have to be tricky. "
+title: 'How to Decorate Bedroom When Eating in Bed: Stylish & Practical Tips'
+description: 'Imagine cozying up in your bedroom, enjoying a meal without worrying
+  about spills or mess. Decorating your bedroom for eating in bed doesn’t have to
+  be tricky. '
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-when-eating-in-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-when-eating-in-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Imagine cozying up in your bedroom, enjoying a meal without worrying about spills or mess. Decorating your bedroom for eating in bed doesn’t have to be tricky.**

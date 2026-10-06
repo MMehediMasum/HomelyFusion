@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Color for Beige Walls: Top Picks for Elegant Room Decor"
-description: "Choosing the best curtain color for beige walls can transform your room’s look instantly. Curtains add style, control light, and create a cozy feel. Beige walls"
+title: 'Best Curtain Color for Beige Walls: Top Picks for Elegant Room Decor'
+description: Choosing the best curtain color for beige walls can transform your room’s
+  look instantly. Curtains add style, control light, and create a cozy feel. Beige
+  walls
 pubDate: 2025-11-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-color-for-beige-walls-top-picks-for-elegant-room-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-color-for-beige-walls-top-picks-for-elegant-room-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain color for beige walls can transform your room’s look instantly. Curtains add style, control light, and create a cozy feel.**

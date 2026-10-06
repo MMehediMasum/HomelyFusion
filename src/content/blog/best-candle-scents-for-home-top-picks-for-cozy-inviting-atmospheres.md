@@ -1,10 +1,14 @@
 ---
-title: "Best Candle Scents for Home: Top Picks for Cozy, Inviting Atmospheres"
-description: "Choosing the best candle scents creates a warm, inviting home atmosphere. The right fragrance can relax, refresh, or energize any room. Candles do more than lig"
+title: 'Best Candle Scents for Home: Top Picks for Cozy, Inviting Atmospheres'
+description: Choosing the best candle scents creates a warm, inviting home atmosphere.
+  The right fragrance can relax, refresh, or energize any room. Candles do more than
+  lig
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-candle-scents-for-home-top-picks-for-cozy-inviting-atmospheres&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fragrance
+heroImage: https://tse1.mm.bing.net/th?q=best-candle-scents-for-home-top-picks-for-cozy-inviting-atmospheres&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best candle scents creates a warm, inviting home atmosphere. The right fragrance can relax, refresh, or energize any room.**

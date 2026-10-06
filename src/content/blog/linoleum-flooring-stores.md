@@ -1,10 +1,14 @@
 ---
-title: "Linoleum Flooring Stores: Top Peel & Stick Tiles for Easy Home Upgrades"
-description: "Linoleum flooring stores offer a variety of stylish and durable options for your home. Finding the right store can make your renovation seamless. Linoleum floor"
+title: 'Linoleum Flooring Stores: Top Peel & Stick Tiles for Easy Home Upgrades'
+description: Linoleum flooring stores offer a variety of stylish and durable options
+  for your home. Finding the right store can make your renovation seamless. Linoleum
+  floor
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=linoleum-flooring-stores&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=linoleum-flooring-stores&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Linoleum flooring stores offer a variety of stylish and durable options for your home. Finding the right store can make your renovation seamless.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Pads at Home: Easy, Eco-Friendly DIY Guide"
 description: "Have you ever run out of cotton pads just when you needed them most? Or wondered if there’s a simpler, cheaper way to get soft, gentle cotton pads right at home"
 pubDate: 2026-04-06

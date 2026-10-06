@@ -1,10 +1,14 @@
 ---
-title: "What is the Standard Height for Bathroom Mirror: Expert Guide"
-description: "Are you wondering how high to hang your bathroom mirror for the best look and function? Getting the height just right can make a big difference in your daily ro"
+title: 'What is the Standard Height for Bathroom Mirror: Expert Guide'
+description: Are you wondering how high to hang your bathroom mirror for the best
+  look and function? Getting the height just right can make a big difference in your
+  daily ro
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-standard-height-for-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-standard-height-for-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you wondering how high to hang your bathroom mirror for the best look and function? Getting the height just right can make a big difference in your daily routine.**

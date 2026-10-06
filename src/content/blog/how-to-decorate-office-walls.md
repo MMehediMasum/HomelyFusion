@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Office Walls: Creative Ideas for a Stylish Workspace"
-description: "Your office walls hold more power than you might think. They can inspire creativity, boost your mood, and even improve productivity. But how do you turn plain, "
+title: 'How to Decorate Office Walls: Creative Ideas for a Stylish Workspace'
+description: 'Your office walls hold more power than you might think. They can inspire
+  creativity, boost your mood, and even improve productivity. But how do you turn
+  plain, '
 pubDate: 2025-09-11
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-office-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-office-walls&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office walls hold more power than you might think. They can inspire creativity, boost your mood, and even improve productivity.**

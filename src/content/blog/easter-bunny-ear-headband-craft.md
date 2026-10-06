@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Ear Headband Craft: Fun DIY Ideas for Kids"
-description: "Are you ready to add a fun and festive touch to your Easter celebrations? Making your very own Easter Bunny Ear Headband is easier than you think—and it’s a per"
+title: 'Easter Bunny Ear Headband Craft: Fun DIY Ideas for Kids'
+description: Are you ready to add a fun and festive touch to your Easter celebrations?
+  Making your very own Easter Bunny Ear Headband is easier than you think—and it’s
+  a per
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-ear-headband-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-ear-headband-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a fun and festive touch to your Easter celebrations? Making your very own Easter Bunny Ear Headband is easier than you think—and it’s a perfect craft for you to enjoy alone or with your kids.**

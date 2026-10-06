@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamp for Office: Top Stylish and Functional LED Choices"
-description: "Choosing the best floor lamp for your office boosts comfort and productivity. Good lighting reduces eye strain and creates a welcoming workspace. A floor lamp c"
+title: 'Best Floor Lamp for Office: Top Stylish and Functional LED Choices'
+description: Choosing the best floor lamp for your office boosts comfort and productivity.
+  Good lighting reduces eye strain and creates a welcoming workspace. A floor lamp
+  c
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamp-for-office-top-stylish-and-functional-led-choices&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamp-for-office-top-stylish-and-functional-led-choices&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for your office boosts comfort and productivity. Good lighting reduces eye strain and creates a welcoming workspace.**

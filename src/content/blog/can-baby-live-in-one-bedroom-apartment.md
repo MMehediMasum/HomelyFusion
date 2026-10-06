@@ -1,10 +1,14 @@
 ---
-title: "Can Baby Live in One Bedroom Apartment? Essential Tips for Parents"
-description: "Are you wondering if your baby can comfortably live in a one-bedroom apartment? You’re not alone. Many parents face this challenge and worry about space, safety"
+title: Can Baby Live in One Bedroom Apartment? Essential Tips for Parents
+description: Are you wondering if your baby can comfortably live in a one-bedroom
+  apartment? You’re not alone. Many parents face this challenge and worry about space,
+  safety
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-baby-live-in-one-bedroom-apartment&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Window Styling
+heroImage: https://tse1.mm.bing.net/th?q=can-baby-live-in-one-bedroom-apartment&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you wondering if your baby can comfortably live in a one-bedroom apartment? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay for Slime at Home: Easy, Fun DIY Guide"
-description: "Have you ever wanted to create your own clay for slime right at home? It’s easier than you think, and you don’t need fancy ingredients or tools. Imagine having "
+title: 'How to Make Clay for Slime at Home: Easy, Fun DIY Guide'
+description: 'Have you ever wanted to create your own clay for slime right at home?
+  It’s easier than you think, and you don’t need fancy ingredients or tools. Imagine
+  having '
 pubDate: 2026-02-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-for-slime-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Crafting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-for-slime-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay for slime right at home? It’s easier than you think, and you don’t need fancy ingredients or tools.**

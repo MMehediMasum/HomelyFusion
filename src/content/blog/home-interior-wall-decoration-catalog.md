@@ -1,10 +1,15 @@
 ---
-title: "Home Interior Wall Decoration Catalog: Rustic & Modern Farmhouse Wall Art Ideas"
-description: "Explore the perfect blend of style and charm with our Home Interior Wall Decoration Catalog. Discover unique pieces to elevate your space. Decorating walls can "
+title: 'Home Interior Wall Decoration Catalog: Rustic & Modern Farmhouse Wall Art
+  Ideas'
+description: 'Explore the perfect blend of style and charm with our Home Interior
+  Wall Decoration Catalog. Discover unique pieces to elevate your space. Decorating
+  walls can '
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-wall-decoration-catalog&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-wall-decoration-catalog&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Explore the perfect blend of style and charm with our Home Interior Wall Decoration Catalog. Discover unique pieces to elevate your space.**

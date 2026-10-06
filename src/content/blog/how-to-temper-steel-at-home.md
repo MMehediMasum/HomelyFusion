@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Temper Steel at Home: Expert Tips for Perfect Results"
 description: "If you’ve ever wanted to make your steel stronger, tougher, and more reliable, learning how to temper steel at home is a skill you don’t want to miss. Imagine t"
 pubDate: 2026-02-21

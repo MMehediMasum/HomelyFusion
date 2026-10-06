@@ -1,10 +1,14 @@
 ---
-title: "How to Make Antique Dresser Work in Bedroom: Stylish & Functional Ideas"
-description: "Your bedroom deserves a touch of timeless charm, and an antique dresser can bring just that. But how do you make this classic piece fit perfectly with your mode"
+title: 'How to Make Antique Dresser Work in Bedroom: Stylish & Functional Ideas'
+description: Your bedroom deserves a touch of timeless charm, and an antique dresser
+  can bring just that. But how do you make this classic piece fit perfectly with your
+  mode
 pubDate: 2026-05-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-antique-dresser-work-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-antique-dresser-work-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom deserves a touch of timeless charm, and an antique dresser can bring just that. But how do you make this classic piece fit perfectly with your modern space?**

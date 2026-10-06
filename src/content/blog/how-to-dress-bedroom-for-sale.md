@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Bedroom for Sale: Expert Tips to Impress Buyers"
-description: "Selling your home can feel overwhelming, especially when it comes to making your bedroom look its best. But did you know that how you dress your bedroom can mak"
+title: 'How to Dress Bedroom for Sale: Expert Tips to Impress Buyers'
+description: Selling your home can feel overwhelming, especially when it comes to
+  making your bedroom look its best. But did you know that how you dress your bedroom
+  can mak
 pubDate: 2026-05-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-for-sale&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-bedroom-for-sale&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Selling your home can feel overwhelming, especially when it comes to making your bedroom look its best. But did you know that how you dress your bedroom can make a huge difference in attracting buyers and increasing your home's value?**

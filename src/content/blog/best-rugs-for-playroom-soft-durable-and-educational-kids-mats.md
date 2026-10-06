@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Playroom: Soft, Durable, and Educational Kids Mats"
-description: "Choosing the best rugs for a playroom creates a safe, fun space for children. Soft, durable rugs protect floors and add color to the room. Playroom rugs need to"
+title: 'Best Rugs for Playroom: Soft, Durable, and Educational Kids Mats'
+description: Choosing the best rugs for a playroom creates a safe, fun space for children.
+  Soft, durable rugs protect floors and add color to the room. Playroom rugs need
+  to
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-playroom-soft-durable-and-educational-kids-mats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-playroom-soft-durable-and-educational-kids-mats&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for a playroom creates a safe, fun space for children. Soft, durable rugs protect floors and add color to the room.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Dark Blue Sofas: Stunning Ideas"
-description: "Are you thinking about adding a dark blue sofa to your living room but unsure how to make it look amazing? Dark blue sofas are bold, stylish, and full of person"
+title: 'How to Decorate a Living Room With Dark Blue Sofas: Stunning Ideas'
+description: Are you thinking about adding a dark blue sofa to your living room but
+  unsure how to make it look amazing? Dark blue sofas are bold, stylish, and full
+  of person
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-dark-blue-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Black Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-dark-blue-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a dark blue sofa to your living room but unsure how to make it look amazing? Dark blue sofas are bold, stylish, and full of personality.**

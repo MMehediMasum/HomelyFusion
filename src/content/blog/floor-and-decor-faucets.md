@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Faucets: Stylish Freestanding Tub & Outdoor Water Features"
-description: "Floor and Decor faucets offer stylish and functional solutions for bathrooms and outdoor spaces. These faucets blend modern design with practical features for e"
+title: 'Floor And Decor Faucets: Stylish Freestanding Tub & Outdoor Water Features'
+description: Floor and Decor faucets offer stylish and functional solutions for bathrooms
+  and outdoor spaces. These faucets blend modern design with practical features for
+  e
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-faucets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-faucets&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor faucets offer stylish and functional solutions for bathrooms and outdoor spaces. These faucets blend modern design with practical features for everyday use.**

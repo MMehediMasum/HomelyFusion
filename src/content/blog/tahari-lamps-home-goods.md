@@ -1,10 +1,14 @@
 ---
-title: "Tahari Lamps Home Goods: Elegant Marble Table Lamps with USB Ports"
-description: "Tahari lamps bring style and function to your home with elegant lighting options. Their collection offers various table lamps perfect for living rooms and bedro"
+title: 'Tahari Lamps Home Goods: Elegant Marble Table Lamps with USB Ports'
+description: Tahari lamps bring style and function to your home with elegant lighting
+  options. Their collection offers various table lamps perfect for living rooms and
+  bedro
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=tahari-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Tahari lamps bring style and function to your home with elegant lighting options. Their collection offers various table lamps perfect for living rooms and bedrooms.**

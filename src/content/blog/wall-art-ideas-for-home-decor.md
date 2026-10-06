@@ -1,10 +1,14 @@
 ---
-title: "Wall Art Ideas for Home Decor: Rustic and Boho Styles to Transform Spaces"
-description: "Wall art adds personality and charm to your home decor. Explore creative ideas to transform your living space. Decorating your home with wall art can enhance it"
+title: 'Wall Art Ideas for Home Decor: Rustic and Boho Styles to Transform Spaces'
+description: Wall art adds personality and charm to your home decor. Explore creative
+  ideas to transform your living space. Decorating your home with wall art can enhance
+  it
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-art-ideas-for-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-art-ideas-for-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall art adds personality and charm to your home decor. Explore creative ideas to transform your living space.**

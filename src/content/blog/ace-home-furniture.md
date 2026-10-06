@@ -1,10 +1,14 @@
 ---
-title: "Ace Home Furniture: Stylish, Functional Pieces to Transform Your Living Space"
-description: "Ace Home Furniture offers practical and stylish pieces for every room. From active seating to smart storage, each item fits daily needs. This collection include"
+title: 'Ace Home Furniture: Stylish, Functional Pieces to Transform Your Living Space'
+description: Ace Home Furniture offers practical and stylish pieces for every room.
+  From active seating to smart storage, each item fits daily needs. This collection
+  include
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ace-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Furniture
+heroImage: https://tse1.mm.bing.net/th?q=ace-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ace Home Furniture offers practical and stylish pieces for every room. From active seating to smart storage, each item fits daily needs.**

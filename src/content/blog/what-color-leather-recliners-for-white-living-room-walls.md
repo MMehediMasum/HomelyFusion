@@ -1,10 +1,14 @@
 ---
-title: "What Color Leather Recliners for White Living Room Walls: Stunning Choices"
-description: "Choosing the right color leather recliner for your white living room walls can completely change the vibe of your space. You want something that stands out but "
+title: 'What Color Leather Recliners for White Living Room Walls: Stunning Choices'
+description: 'Choosing the right color leather recliner for your white living room
+  walls can completely change the vibe of your space. You want something that stands
+  out but '
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-leather-recliners-for-white-living-room-walls&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=what-color-leather-recliners-for-white-living-room-walls&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right color leather recliner for your white living room walls can completely change the vibe of your space. You want something that stands out but still feels cozy and inviting.**

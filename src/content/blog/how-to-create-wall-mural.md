@@ -1,10 +1,14 @@
 ---
-title: "How to Create Wall Mural: Stunning Ideas to Transform Your Space"
-description: "Have you ever looked at a blank wall and wished it could come alive with color and creativity? Creating a wall mural is a powerful way to transform any space an"
+title: 'How to Create Wall Mural: Stunning Ideas to Transform Your Space'
+description: Have you ever looked at a blank wall and wished it could come alive with
+  color and creativity? Creating a wall mural is a powerful way to transform any space
+  an
 pubDate: 2026-01-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-wall-mural&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-wall-mural&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever looked at a blank wall and wished it could come alive with color and creativity? Creating a wall mural is a powerful way to transform any space and make it truly yours.**

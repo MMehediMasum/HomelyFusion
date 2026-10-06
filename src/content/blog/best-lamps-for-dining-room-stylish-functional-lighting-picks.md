@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Dining Room: Stylish & Functional Lighting Picks"
-description: "Choosing the best lamps for your dining room sets the mood for every meal and gathering. The right lighting blends style and function to create a warm, inviting"
+title: 'Best Lamps for Dining Room: Stylish & Functional Lighting Picks'
+description: Choosing the best lamps for your dining room sets the mood for every
+  meal and gathering. The right lighting blends style and function to create a warm,
+  inviting
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-dining-room-stylish-functional-lighting-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-dining-room-stylish-functional-lighting-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for your dining room sets the mood for every meal and gathering. The right lighting blends style and function to create a warm, inviting space.**

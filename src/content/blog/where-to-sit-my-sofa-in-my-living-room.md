@@ -1,10 +1,14 @@
 ---
-title: "Where to Sit My Sofa in My Living Room: Expert Placement Tips"
-description: "Are you wondering where to sit your sofa in your living room to make the space feel just right? Choosing the perfect spot for your sofa can change the entire vi"
+title: 'Where to Sit My Sofa in My Living Room: Expert Placement Tips'
+description: Are you wondering where to sit your sofa in your living room to make
+  the space feel just right? Choosing the perfect spot for your sofa can change the
+  entire vi
 pubDate: 2026-03-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-sit-my-sofa-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=where-to-sit-my-sofa-in-my-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering where to sit your sofa in your living room to make the space feel just right? Choosing the perfect spot for your sofa can change the entire vibe of your room.**

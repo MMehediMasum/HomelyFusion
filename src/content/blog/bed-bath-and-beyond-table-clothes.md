@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Table Clothes: Stylish Durable Covers for Every Occasion"
-description: "Bed Bath and Beyond offers a wide range of tablecloths for different needs. These table clothes suit parties, weddings, picnics, and everyday dining. Their coll"
+title: 'Bed Bath And Beyond Table Clothes: Stylish Durable Covers for Every Occasion'
+description: Bed Bath and Beyond offers a wide range of tablecloths for different
+  needs. These table clothes suit parties, weddings, picnics, and everyday dining.
+  Their coll
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-table-clothes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-table-clothes&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Bed Bath and Beyond offers a wide range of tablecloths for different needs. These table clothes suit parties, weddings, picnics, and everyday dining.**

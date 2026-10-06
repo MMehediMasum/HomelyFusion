@@ -1,10 +1,15 @@
 ---
-title: "Christmas Tree Home Decorations: Stunning Ornaments to Elevate Your Holiday Spirit"
-description: "Christmas tree home decorations bring joy and warmth to any living space during the holiday season. Choosing the right ornaments can create a festive and inviti"
+title: 'Christmas Tree Home Decorations: Stunning Ornaments to Elevate Your Holiday
+  Spirit'
+description: Christmas tree home decorations bring joy and warmth to any living space
+  during the holiday season. Choosing the right ornaments can create a festive and
+  inviti
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-tree-home-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-tree-home-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Christmas tree home decorations bring joy and warmth to any living space during the holiday season. Choosing the right ornaments can create a festive and inviting atmosphere.**

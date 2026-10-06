@@ -1,10 +1,14 @@
 ---
-title: "Best Sofa Protector for Cats to Prevent Scratches and Damage"
-description: "Cats love to scratch furniture, causing damage to sofas and walls. Protecting your sofa keeps it clean and scratch-free. Choosing the best sofa protector for ca"
+title: Best Sofa Protector for Cats to Prevent Scratches and Damage
+description: Cats love to scratch furniture, causing damage to sofas and walls. Protecting
+  your sofa keeps it clean and scratch-free. Choosing the best sofa protector for
+  ca
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sofa-protector-for-cats-to-prevent-scratches-and-damage&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=best-sofa-protector-for-cats-to-prevent-scratches-and-damage&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Cats love to scratch furniture, causing damage to sofas and walls. Protecting your sofa keeps it clean and scratch-free.**

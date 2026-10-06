@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate above Kitchen Cabinets for Christmas: Stunning Ideas"
-description: "Are you looking to add a magical touch to your kitchen this Christmas? Decorating above your kitchen cabinets is a simple way to bring festive cheer into one of"
+title: 'How to Decorate above Kitchen Cabinets for Christmas: Stunning Ideas'
+description: Are you looking to add a magical touch to your kitchen this Christmas?
+  Decorating above your kitchen cabinets is a simple way to bring festive cheer into
+  one of
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-above-kitchen-cabinets-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a magical touch to your kitchen this Christmas? Decorating above your kitchen cabinets is a simple way to bring festive cheer into one of the busiest rooms in your home.**

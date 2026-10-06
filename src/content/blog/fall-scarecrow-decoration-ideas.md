@@ -1,10 +1,14 @@
 ---
-title: "Fall Scarecrow Decoration Ideas: Creative & Cozy Autumn Crafts"
-description: "Are you ready to bring a warm, cozy touch to your home this fall? Fall scarecrow decorations are a perfect way to welcome the season and add charm to your porch"
+title: 'Fall Scarecrow Decoration Ideas: Creative & Cozy Autumn Crafts'
+description: Are you ready to bring a warm, cozy touch to your home this fall? Fall
+  scarecrow decorations are a perfect way to welcome the season and add charm to your
+  porch
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-scarecrow-decoration-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-scarecrow-decoration-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring a warm, cozy touch to your home this fall? Fall scarecrow decorations are a perfect way to welcome the season and add charm to your porch, garden, or living room.**

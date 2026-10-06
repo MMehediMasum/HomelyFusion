@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Staircase Wall With Pictures: Stunning Ideas Revealed"
-description: "Your staircase wall is a perfect blank canvas waiting to come alive. Imagine turning that plain space into a stunning gallery that tells your story and adds cha"
+title: 'How to Decorate Staircase Wall With Pictures: Stunning Ideas Revealed'
+description: Your staircase wall is a perfect blank canvas waiting to come alive.
+  Imagine turning that plain space into a stunning gallery that tells your story and
+  adds cha
 pubDate: 2026-01-19
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-staircase-wall-with-pictures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-staircase-wall-with-pictures&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your staircase wall is a perfect blank canvas waiting to come alive. Imagine turning that plain space into a stunning gallery that tells your story and adds charm to your home.**

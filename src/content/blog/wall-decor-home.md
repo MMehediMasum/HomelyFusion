@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Home Ideas: Transform Your Space with Stylish Accents"
-description: "Transform your living space with unique wall decor that suits any style. Elevate your home's ambiance effortlessly. Wall decor adds personality and charm to any"
+title: 'Wall Decor Home Ideas: Transform Your Space with Stylish Accents'
+description: Transform your living space with unique wall decor that suits any style.
+  Elevate your home's ambiance effortlessly. Wall decor adds personality and charm
+  to any
 pubDate: 2026-07-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-home&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living space with unique wall decor that suits any style. Elevate your home's ambiance effortlessly.**

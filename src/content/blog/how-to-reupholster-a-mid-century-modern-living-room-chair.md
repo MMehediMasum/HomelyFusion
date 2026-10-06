@@ -1,10 +1,13 @@
 ---
-title: "How to Reupholster a Mid-Century Modern Living Room Chair: Easy Steps"
-description: "Are you ready to give your mid-century modern living room chair a fresh new look? Reupholstering might sound tricky, but with the right steps, you can transform"
+title: 'How to Reupholster a Mid-Century Modern Living Room Chair: Easy Steps'
+description: Are you ready to give your mid-century modern living room chair a fresh
+  new look? Reupholstering might sound tricky, but with the right steps, you can transform
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-mid-century-modern-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-mid-century-modern-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you ready to give your mid-century modern living room chair a fresh new look? Reupholstering might sound tricky, but with the right steps, you can transform your favorite chair without spending a fortune.**

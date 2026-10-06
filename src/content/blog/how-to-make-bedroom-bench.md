@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bedroom Bench: Easy DIY Steps for Stylish Comfort"
-description: "Looking to add a stylish and practical touch to your bedroom? A bedroom bench is just what you need. It can serve as a cozy spot to sit, a place to lay out your"
+title: 'How to Make Bedroom Bench: Easy DIY Steps for Stylish Comfort'
+description: Looking to add a stylish and practical touch to your bedroom? A bedroom
+  bench is just what you need. It can serve as a cozy spot to sit, a place to lay
+  out your
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bedroom-bench&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bedroom-bench&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to add a stylish and practical touch to your bedroom? A bedroom bench is just what you need.**

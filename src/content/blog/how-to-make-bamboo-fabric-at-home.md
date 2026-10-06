@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Fabric at Home: Easy DIY Guide"
 description: "Have you ever wondered how bamboo fabric is made? Imagine creating your own soft, eco-friendly fabric right at home. It’s easier than you think, and the process"
 pubDate: 2026-02-07

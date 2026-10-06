@@ -1,10 +1,13 @@
 ---
-title: "Is Plywood Good for Bathroom Vanity: Expert Tips & Benefits"
-description: "Are you wondering if plywood is the right choice for your bathroom vanity? Choosing the best material can feel overwhelming, especially when you want something "
+title: 'Is Plywood Good for Bathroom Vanity: Expert Tips & Benefits'
+description: 'Are you wondering if plywood is the right choice for your bathroom vanity?
+  Choosing the best material can feel overwhelming, especially when you want something '
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-plywood-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-plywood-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if plywood is the right choice for your bathroom vanity? Choosing the best material can feel overwhelming, especially when you want something that looks great and lasts through moisture and daily use.**

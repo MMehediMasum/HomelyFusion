@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Couch: Stunning Tips for a Cozy Living Room"
-description: "Your couch is more than just a place to sit—it’s the heart of your living space. Decorating it the right way can instantly lift the look and feel of your entire"
+title: 'How to Decorate a Couch: Stunning Tips for a Cozy Living Room'
+description: Your couch is more than just a place to sit—it’s the heart of your living
+  space. Decorating it the right way can instantly lift the look and feel of your
+  entire
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reclining Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-couch&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your couch is more than just a place to sit—it’s the heart of your living space. Decorating it the right way can instantly lift the look and feel of your entire room.**

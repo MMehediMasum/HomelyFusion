@@ -1,10 +1,14 @@
 ---
-title: "Should Bar Stools Match Living Room Chairs? Expert Design Tips"
-description: "Are you wondering if your bar stools should match your living room chairs? It’s a common question that can feel tricky to answer. Choosing the right style can m"
+title: Should Bar Stools Match Living Room Chairs? Expert Design Tips
+description: Are you wondering if your bar stools should match your living room chairs?
+  It’s a common question that can feel tricky to answer. Choosing the right style
+  can m
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bar-stools-match-living-room-chairs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=should-bar-stools-match-living-room-chairs&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if your bar stools should match your living room chairs? It’s a common question that can feel tricky to answer.**

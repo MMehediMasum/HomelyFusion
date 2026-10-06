@@ -1,10 +1,14 @@
 ---
-title: "Grey Front Room Accessories to Elevate Your Living Space Style"
-description: "Grey front room accessories can transform your living space into a stylish and cohesive environment. They offer a perfect blend of elegance and functionality. W"
+title: Grey Front Room Accessories to Elevate Your Living Space Style
+description: Grey front room accessories can transform your living space into a stylish
+  and cohesive environment. They offer a perfect blend of elegance and functionality.
+  W
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=grey-front-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=grey-front-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Grey front room accessories can transform your living space into a stylish and cohesive environment. They offer a perfect blend of elegance and functionality.**

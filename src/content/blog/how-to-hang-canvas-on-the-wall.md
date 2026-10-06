@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Canvas on the Wall: Easy Steps for Perfect Display"
-description: "Want to give your room an instant style boost? Hanging a canvas on your wall is one of the easiest ways to do just that. But if you’re unsure how to hang your c"
+title: 'How to Hang Canvas on the Wall: Easy Steps for Perfect Display'
+description: Want to give your room an instant style boost? Hanging a canvas on your
+  wall is one of the easiest ways to do just that. But if you’re unsure how to hang
+  your c
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-canvas-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-canvas-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to give your room an instant style boost? Hanging a canvas on your wall is one of the easiest ways to do just that.**

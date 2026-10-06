@@ -1,10 +1,13 @@
 ---
-title: "Fall Cozy Throw Blanket Decor: Transform Your Home with Warmth"
-description: "When the air turns crisp and the leaves start to change, your home deserves a touch of warmth and comfort. A fall cozy throw blanket isn’t just a piece of fabri"
+title: 'Fall Cozy Throw Blanket Decor: Transform Your Home with Warmth'
+description: When the air turns crisp and the leaves start to change, your home deserves
+  a touch of warmth and comfort. A fall cozy throw blanket isn’t just a piece of fabri
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cozy-throw-blanket-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-cozy-throw-blanket-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **When the air turns crisp and the leaves start to change, your home deserves a touch of warmth and comfort. A fall cozy throw blanket isn’t just a piece of fabric—it’s the secret to creating a space that feels inviting and snug the moment you step inside.**

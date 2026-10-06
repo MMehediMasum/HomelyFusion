@@ -1,10 +1,14 @@
 ---
-title: "Ornamental Furniture Ideas to Elevate Your Home Decor Instantly"
-description: "Ornamental furniture adds charm and style to any room. These pieces combine function with beautiful decorative details. Ornamental furniture includes items with"
+title: Ornamental Furniture Ideas to Elevate Your Home Decor Instantly
+description: Ornamental furniture adds charm and style to any room. These pieces combine
+  function with beautiful decorative details. Ornamental furniture includes items
+  with
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ornamental-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Stores
+heroImage: https://tse1.mm.bing.net/th?q=ornamental-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Ornamental furniture adds charm and style to any room. These pieces combine function with beautiful decorative details.**

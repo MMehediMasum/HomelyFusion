@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home As Bluetooth Speaker: Ultimate Guide"
 description: "Looking to boost your music experience without buying extra gadgets? Your Google Home can do more than just answer questions—it can become your powerful Bluetoo"
 pubDate: 2025-10-15

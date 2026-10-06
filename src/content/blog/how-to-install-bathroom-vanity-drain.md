@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity Drain: Easy Step-by-Step Guide"
-description: "Are you ready to upgrade your bathroom and save money by doing the work yourself? Installing a bathroom vanity drain might sound tricky, but with the right step"
+title: 'How to Install Bathroom Vanity Drain: Easy Step-by-Step Guide'
+description: Are you ready to upgrade your bathroom and save money by doing the work
+  yourself? Installing a bathroom vanity drain might sound tricky, but with the right
+  step
 pubDate: 2025-10-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-drain&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-drain&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to upgrade your bathroom and save money by doing the work yourself? Installing a bathroom vanity drain might sound tricky, but with the right steps, you can handle it easily.**

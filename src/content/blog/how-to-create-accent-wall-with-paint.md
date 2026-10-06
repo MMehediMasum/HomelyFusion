@@ -1,10 +1,14 @@
 ---
-title: "How to Create Accent Wall With Paint: Stunning Ideas That Transform"
-description: "Want to transform a plain room into something stylish and eye-catching? Creating an accent wall with paint is one of the easiest and most affordable ways to do "
+title: 'How to Create Accent Wall With Paint: Stunning Ideas That Transform'
+description: 'Want to transform a plain room into something stylish and eye-catching?
+  Creating an accent wall with paint is one of the easiest and most affordable ways
+  to do '
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-accent-wall-with-paint&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Ombre Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-accent-wall-with-paint&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to transform a plain room into something stylish and eye-catching? Creating an accent wall with paint is one of the easiest and most affordable ways to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Brown Sofa: Stunning Style Tips"
-description: "A brown sofa is a timeless piece that can bring warmth and comfort to your living room. But how do you make sure it stands out and fits perfectly with your styl"
+title: 'How to Decorate a Living Room With Brown Sofa: Stunning Style Tips'
+description: A brown sofa is a timeless piece that can bring warmth and comfort to
+  your living room. But how do you make sure it stands out and fits perfectly with
+  your styl
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-brown-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Brown Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-brown-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A brown sofa is a timeless piece that can bring warmth and comfort to your living room. But how do you make sure it stands out and fits perfectly with your style?**

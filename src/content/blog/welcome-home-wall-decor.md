@@ -1,10 +1,14 @@
 ---
-title: "Welcome Home Wall Decor Ideas to Transform Your Living Space Instantly"
-description: "Welcome home wall decor adds warmth and charm to any living space. These decorations create a cozy and inviting atmosphere instantly. Decorating your home with "
+title: Welcome Home Wall Decor Ideas to Transform Your Living Space Instantly
+description: 'Welcome home wall decor adds warmth and charm to any living space. These
+  decorations create a cozy and inviting atmosphere instantly. Decorating your home
+  with '
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=welcome-home-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=welcome-home-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Welcome home wall decor adds warmth and charm to any living space. These decorations create a cozy and inviting atmosphere instantly.**

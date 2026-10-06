@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room Two Piece Leather Sofa: Stylish Ideas"
-description: "Your two-piece leather sofa is more than just a place to sit—it’s the centerpiece of your living room. But how do you decorate around it to make your space feel"
+title: 'How to Decorate Living Room Two Piece Leather Sofa: Stylish Ideas'
+description: Your two-piece leather sofa is more than just a place to sit—it’s the
+  centerpiece of your living room. But how do you decorate around it to make your
+  space feel
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-two-piece-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-two-piece-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your two-piece leather sofa is more than just a place to sit—it’s the centerpiece of your living room. But how do you decorate around it to make your space feel cozy, stylish, and truly yours?**

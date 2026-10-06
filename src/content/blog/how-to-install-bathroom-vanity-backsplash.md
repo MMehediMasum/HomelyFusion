@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity Backsplash: Easy Step-by-Step Guide"
-description: "Are you ready to give your bathroom a fresh, stylish upgrade? Installing a bathroom vanity backsplash is one of the easiest and most effective ways to do just t"
+title: 'How to Install Bathroom Vanity Backsplash: Easy Step-by-Step Guide'
+description: Are you ready to give your bathroom a fresh, stylish upgrade? Installing
+  a bathroom vanity backsplash is one of the easiest and most effective ways to do
+  just t
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-backsplash&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-backsplash&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to give your bathroom a fresh, stylish upgrade? Installing a bathroom vanity backsplash is one of the easiest and most effective ways to do just that.**

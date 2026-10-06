@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Red Leather Sofa: Stunning Ideas"
-description: "A red leather sofa is more than just a piece of furniture—it’s a bold statement that can transform your living room. But how do you make sure it fits perfectly "
+title: 'How to Decorate Living Room With Red Leather Sofa: Stunning Ideas'
+description: 'A red leather sofa is more than just a piece of furniture—it’s a bold
+  statement that can transform your living room. But how do you make sure it fits
+  perfectly '
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-red-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-red-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A red leather sofa is more than just a piece of furniture—it’s a bold statement that can transform your living room. But how do you make sure it fits perfectly with the rest of your space?**

@@ -1,10 +1,14 @@
 ---
-title: "Stearns And Foster Pillows Home Goods: Ultimate Comfort and Support Guide"
-description: "Stearns and Foster pillows are renowned for their comfort and quality. They offer a range of pillows for every sleep preference. Finding the right pillow can tr"
+title: 'Stearns And Foster Pillows Home Goods: Ultimate Comfort and Support Guide'
+description: Stearns and Foster pillows are renowned for their comfort and quality.
+  They offer a range of pillows for every sleep preference. Finding the right pillow
+  can tr
 pubDate: 2026-06-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=stearns-and-foster-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=stearns-and-foster-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Stearns and Foster pillows are renowned for their comfort and quality. They offer a range of pillows for every sleep preference.**

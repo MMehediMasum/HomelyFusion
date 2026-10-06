@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate With Flameless Candles: Stunning Ideas for Every Room"
-description: "Imagine creating a warm, inviting atmosphere in your home without worrying about open flames or melted wax. Flameless candles give you that cozy glow safely and"
+title: 'How to Decorate With Flameless Candles: Stunning Ideas for Every Room'
+description: Imagine creating a warm, inviting atmosphere in your home without worrying
+  about open flames or melted wax. Flameless candles give you that cozy glow safely
+  and
 pubDate: 2025-09-25
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-with-flameless-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flameless Candle Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-with-flameless-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Imagine creating a warm, inviting atmosphere in your home without worrying about open flames or melted wax. Flameless candles give you that cozy glow safely and easily.**

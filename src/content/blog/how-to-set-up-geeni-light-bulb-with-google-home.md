@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Geeni Light Bulb With Google Home: Easy Guide"
-description: "Are you ready to make your home smarter and lighting easier to control? Setting up your Geeni light bulb with Google Home can transform the way you brighten you"
+title: 'How to Set Up Geeni Light Bulb With Google Home: Easy Guide'
+description: Are you ready to make your home smarter and lighting easier to control?
+  Setting up your Geeni light bulb with Google Home can transform the way you brighten
+  you
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-geeni-light-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-geeni-light-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and lighting easier to control? Setting up your Geeni light bulb with Google Home can transform the way you brighten your space.**

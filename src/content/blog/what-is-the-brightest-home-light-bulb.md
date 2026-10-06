@@ -1,10 +1,14 @@
 ---
-title: "What is the Brightest Home Light Bulb: Ultimate Brightness Guide"
-description: "Are you tired of dull, dim lighting in your home? Finding the brightest home light bulb can completely transform your space. Imagine walking into a room filled "
+title: 'What is the Brightest Home Light Bulb: Ultimate Brightness Guide'
+description: 'Are you tired of dull, dim lighting in your home? Finding the brightest
+  home light bulb can completely transform your space. Imagine walking into a room
+  filled '
 pubDate: 2026-05-01
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-brightest-home-light-bulb&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-brightest-home-light-bulb&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you tired of dull, dim lighting in your home? Finding the brightest home light bulb can completely transform your space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Install Shower Wall Panels: Easy Steps for a Stunning Bathroom"
-description: "Are you ready to transform your bathroom quickly and easily? Installing shower wall panels might be the perfect solution for you. Not only do they give your sho"
+title: 'How to Install Shower Wall Panels: Easy Steps for a Stunning Bathroom'
+description: Are you ready to transform your bathroom quickly and easily? Installing
+  shower wall panels might be the perfect solution for you. Not only do they give
+  your sho
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-shower-wall-panels&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-shower-wall-panels&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to transform your bathroom quickly and easily? Installing shower wall panels might be the perfect solution for you.**

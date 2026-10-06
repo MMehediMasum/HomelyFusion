@@ -1,10 +1,14 @@
 ---
-title: "Home Wall Decore Ideas: Rustic Signs, Shelves & Mirrors for Every Room"
-description: "Transform your home with stunning wall decor that speaks to your style. Whether it's a rustic farmhouse vibe or a sleek modern look, the right pieces can make a"
+title: 'Home Wall Decore Ideas: Rustic Signs, Shelves & Mirrors for Every Room'
+description: Transform your home with stunning wall decor that speaks to your style.
+  Whether it's a rustic farmhouse vibe or a sleek modern look, the right pieces can
+  make a
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decore&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decore&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your home with stunning wall decor that speaks to your style. Whether it's a rustic farmhouse vibe or a sleek modern look, the right pieces can make all the difference.**

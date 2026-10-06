@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Stairwell for Christmas: Stunning Festive Ideas"
-description: "Your stairwell is more than just a passage between floors—it’s a perfect spot to spread holiday cheer. Imagine stepping into your home and being greeted by twin"
+title: 'How to Decorate a Stairwell for Christmas: Stunning Festive Ideas'
+description: Your stairwell is more than just a passage between floors—it’s a perfect
+  spot to spread holiday cheer. Imagine stepping into your home and being greeted
+  by twin
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-stairwell-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-stairwell-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Your stairwell is more than just a passage between floors—it’s a perfect spot to spread holiday cheer. Imagine stepping into your home and being greeted by twinkling lights, festive garlands, and charming decorations that instantly lift your spirits.**

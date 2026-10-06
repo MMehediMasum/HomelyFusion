@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Side Table in Living Room: Stunning Ideas Revealed"
-description: "Your living room’s side table might seem small, but it holds huge potential to transform your space. How you decorate it can bring warmth, style, and personalit"
+title: 'How to Decorate a Side Table in Living Room: Stunning Ideas Revealed'
+description: Your living room’s side table might seem small, but it holds huge potential
+  to transform your space. How you decorate it can bring warmth, style, and personalit
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-side-table-in-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your living room’s side table might seem small, but it holds huge potential to transform your space. How you decorate it can bring warmth, style, and personality to the entire room.**

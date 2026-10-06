@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Hot Buttered Rum Recipe: Ultimate Cozy Winter Drink Guide"
 description: "Looking for a cozy drink to warm up your holiday season? You’re about to discover a Holiday Hot Buttered Rum Recipe that’s rich, smooth, and perfect for those c"
 pubDate: 2026-01-12

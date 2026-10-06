@@ -1,10 +1,13 @@
 ---
-title: "Fall Mason Jar Leaf Lantern DIY: Stunning Autumn Decor Ideas"
-description: "Imagine adding a cozy, warm glow to your home this fall with a simple, beautiful craft you can make yourself. You don’t need fancy tools or expensive materials—"
+title: 'Fall Mason Jar Leaf Lantern DIY: Stunning Autumn Decor Ideas'
+description: Imagine adding a cozy, warm glow to your home this fall with a simple,
+  beautiful craft you can make yourself. You don’t need fancy tools or expensive materials—
 pubDate: 2025-12-20
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-mason-jar-leaf-lantern-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-mason-jar-leaf-lantern-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine adding a cozy, warm glow to your home this fall with a simple, beautiful craft you can make yourself. You don’t need fancy tools or expensive materials—just a few leaves, a mason jar, and some creativity.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Place Ottoman in Living Room: Stylish Tips for Perfect Decor"
-description: "Are you wondering how to place an ottoman in your living room to make the space both stylish and functional? The right ottoman can transform your room, offering"
+title: 'How to Place Ottoman in Living Room: Stylish Tips for Perfect Decor'
+description: Are you wondering how to place an ottoman in your living room to make
+  the space both stylish and functional? The right ottoman can transform your room,
+  offering
 pubDate: 2026-03-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-place-ottoman-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-place-ottoman-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to place an ottoman in your living room to make the space both stylish and functional? The right ottoman can transform your room, offering extra seating, a footrest, or even a coffee table.**

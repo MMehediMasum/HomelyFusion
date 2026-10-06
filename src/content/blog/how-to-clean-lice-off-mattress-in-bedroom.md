@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Clean Lice off Mattress in Bedroom: Easy, Effective Steps"
 description: "Dealing with lice is stressful enough, but what about when they invade your mattress? You might be wondering how to make sure your bedroom is truly lice-free an"
 pubDate: 2025-10-15

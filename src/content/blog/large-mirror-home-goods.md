@@ -1,10 +1,14 @@
 ---
-title: "Large Mirror Home Goods: Stylish Full-Length Mirrors to Elevate Any Room"
-description: "Large mirrors add style and space to any room. They brighten rooms and help you see your full reflection. Choosing the right large mirror for your home can chan"
+title: 'Large Mirror Home Goods: Stylish Full-Length Mirrors to Elevate Any Room'
+description: Large mirrors add style and space to any room. They brighten rooms and
+  help you see your full reflection. Choosing the right large mirror for your home
+  can chan
 pubDate: 2026-08-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=large-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=large-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Large mirrors add style and space to any room. They brighten rooms and help you see your full reflection.**

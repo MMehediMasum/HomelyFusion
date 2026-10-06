@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Heated Floors: Top Warmth and Comfort Picks"
-description: "Choosing the best rugs for heated floors ensures warmth and safety in your home. Not all rugs work well with floor heating systems. Heated floors keep your spac"
+title: 'Best Rugs for Heated Floors: Top Warmth and Comfort Picks'
+description: Choosing the best rugs for heated floors ensures warmth and safety in
+  your home. Not all rugs work well with floor heating systems. Heated floors keep
+  your spac
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-heated-floors-top-warmth-and-comfort-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pet Friendly Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-heated-floors-top-warmth-and-comfort-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for heated floors ensures warmth and safety in your home. Not all rugs work well with floor heating systems.**

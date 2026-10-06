@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Steel Frame Homes Cheaper to Build? Uncover the Truth!"
 description: "Are you wondering if building a steel frame home could save you money? Choosing the right materials can make a big difference in your budget. Steel frame homes "
 pubDate: 2025-11-21

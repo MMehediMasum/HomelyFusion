@@ -1,10 +1,14 @@
 ---
-title: "How to Raise a Bathroom Vanity: Easy Steps for a Stylish Upgrade"
-description: "Are you tired of bending down every time you use your bathroom vanity? Raising your bathroom vanity can make a huge difference in comfort and style. Imagine a v"
+title: 'How to Raise a Bathroom Vanity: Easy Steps for a Stylish Upgrade'
+description: Are you tired of bending down every time you use your bathroom vanity?
+  Raising your bathroom vanity can make a huge difference in comfort and style. Imagine
+  a v
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-raise-a-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-raise-a-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of bending down every time you use your bathroom vanity? Raising your bathroom vanity can make a huge difference in comfort and style.**

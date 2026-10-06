@@ -1,10 +1,13 @@
 ---
-title: "How to Frame a Picture Wall: Stunning Tips for Perfect Display"
-description: "Are you ready to transform your blank wall into a stunning display of your favorite memories and art? Framing a picture wall is a simple way to add personality "
+title: 'How to Frame a Picture Wall: Stunning Tips for Perfect Display'
+description: 'Are you ready to transform your blank wall into a stunning display of
+  your favorite memories and art? Framing a picture wall is a simple way to add personality '
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-picture-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-picture-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your blank wall into a stunning display of your favorite memories and art? Framing a picture wall is a simple way to add personality and warmth to any room.**

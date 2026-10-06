@@ -1,10 +1,14 @@
 ---
-title: "Hobby Lobby Desk Accessories: Unique Rustic Decor for Office and Home"
-description: "Spruce up your workspace with Hobby Lobby's unique desk accessories. These pieces blend style and functionality seamlessly. Hobby Lobby offers a variety of desk"
+title: 'Hobby Lobby Desk Accessories: Unique Rustic Decor for Office and Home'
+description: Spruce up your workspace with Hobby Lobby's unique desk accessories.
+  These pieces blend style and functionality seamlessly. Hobby Lobby offers a variety
+  of desk
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-desk-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-desk-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Spruce up your workspace with Hobby Lobby's unique desk accessories. These pieces blend style and functionality seamlessly.**

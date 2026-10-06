@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Rugs Home Goods: Stylish Indoor Outdoor Area Rugs Guide"
-description: "Nicole Miller rugs blend style and functionality, offering versatile options for any home. These rugs enhance both indoor and outdoor spaces with their unique d"
+title: 'Nicole Miller Rugs Home Goods: Stylish Indoor Outdoor Area Rugs Guide'
+description: Nicole Miller rugs blend style and functionality, offering versatile
+  options for any home. These rugs enhance both indoor and outdoor spaces with their
+  unique d
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-rugs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Rugs
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-rugs-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nicole Miller rugs blend style and functionality, offering versatile options for any home. These rugs enhance both indoor and outdoor spaces with their unique designs.**

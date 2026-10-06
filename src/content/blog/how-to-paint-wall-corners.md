@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Wall Corners: Expert Tips for Flawless Edges"
-description: "Painting wall corners can feel tricky, can’t it? You want a clean, sharp look, but it’s easy to end up with messy lines or uneven paint. What if you could maste"
+title: 'How to Paint Wall Corners: Expert Tips for Flawless Edges'
+description: Painting wall corners can feel tricky, can’t it? You want a clean, sharp
+  look, but it’s easy to end up with messy lines or uneven paint. What if you could
+  maste
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-wall-corners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Painting Techniques
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-wall-corners&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Painting wall corners can feel tricky, can’t it? You want a clean, sharp look, but it’s easy to end up with messy lines or uneven paint.**

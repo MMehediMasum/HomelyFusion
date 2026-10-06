@@ -1,10 +1,14 @@
 ---
-title: "Table Lamp Home Decor: Transform Your Space with Stylish Illumination"
-description: "Table lamps add style and function to any room. They brighten spaces and create a cozy atmosphere. A table lamp is more than just a light source. It enhances yo"
+title: 'Table Lamp Home Decor: Transform Your Space with Stylish Illumination'
+description: Table lamps add style and function to any room. They brighten spaces
+  and create a cozy atmosphere. A table lamp is more than just a light source. It
+  enhances yo
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=table-lamp-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=table-lamp-home-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Table lamps add style and function to any room. They brighten spaces and create a cozy atmosphere.**

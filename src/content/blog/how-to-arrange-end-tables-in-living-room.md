@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange End Tables in Living Room: Stylish & Functional Tips"
-description: "Are you struggling to find the perfect spot for your end tables in the living room? You’re not alone. How you arrange these small but mighty pieces can change t"
+title: 'How to Arrange End Tables in Living Room: Stylish & Functional Tips'
+description: Are you struggling to find the perfect spot for your end tables in the
+  living room? You’re not alone. How you arrange these small but mighty pieces can
+  change t
 pubDate: 2026-05-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-end-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- End Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-end-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you struggling to find the perfect spot for your end tables in the living room? You’re not alone.**

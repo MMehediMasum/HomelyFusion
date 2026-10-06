@@ -1,10 +1,13 @@
 ---
-title: "Wall Decor for Home Bar: Stylish Signs and Shelves to Elevate Ambiance"
-description: "Wall decor transforms a home bar into a stylish and inviting space. Choosing the right pieces adds character and sets the mood for gatherings. Decorating a home"
+title: 'Wall Decor for Home Bar: Stylish Signs and Shelves to Elevate Ambiance'
+description: Wall decor transforms a home bar into a stylish and inviting space. Choosing
+  the right pieces adds character and sets the mood for gatherings. Decorating a home
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-for-home-bar&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gym Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-for-home-bar&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor transforms a home bar into a stylish and inviting space. Choosing the right pieces adds character and sets the mood for gatherings.**

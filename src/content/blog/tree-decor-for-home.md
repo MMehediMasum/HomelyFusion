@@ -1,10 +1,14 @@
 ---
-title: "Tree Decor for Home: Top Artificial Olive Trees to Brighten Your Space"
-description: "Tree decor adds life and charm to any indoor space. Artificial trees bring greenery without the care real plants need. Choosing the right artificial tree can br"
+title: 'Tree Decor for Home: Top Artificial Olive Trees to Brighten Your Space'
+description: Tree decor adds life and charm to any indoor space. Artificial trees
+  bring greenery without the care real plants need. Choosing the right artificial
+  tree can br
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tree-decor-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=tree-decor-for-home&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Tree decor adds life and charm to any indoor space. Artificial trees bring greenery without the care real plants need.**

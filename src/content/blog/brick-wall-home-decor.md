@@ -1,10 +1,14 @@
 ---
-title: "Brick Wall Home Decor Ideas to Transform Your Living Space Instantly"
-description: "Brick wall home decor adds texture and charm to any space. It blends rustic style with modern design for a cozy feel. Brick walls create a warm, inviting look i"
+title: Brick Wall Home Decor Ideas to Transform Your Living Space Instantly
+description: Brick wall home decor adds texture and charm to any space. It blends
+  rustic style with modern design for a cozy feel. Brick walls create a warm, inviting
+  look i
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brick-wall-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=brick-wall-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Brick wall home decor adds texture and charm to any space. It blends rustic style with modern design for a cozy feel.**

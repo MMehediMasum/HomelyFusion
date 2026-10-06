@@ -1,10 +1,14 @@
 ---
-title: "Where to Shop for Bathroom Vanities: Top Picks & Expert Tips"
-description: "Looking for the perfect bathroom vanity can feel overwhelming. You want something that fits your style, budget, and space—but where do you start? Whether you’re"
+title: 'Where to Shop for Bathroom Vanities: Top Picks & Expert Tips'
+description: Looking for the perfect bathroom vanity can feel overwhelming. You want
+  something that fits your style, budget, and space—but where do you start? Whether
+  you’re
 pubDate: 2025-10-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-shop-for-bathroom-vanities&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Choosing Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=where-to-shop-for-bathroom-vanities&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking for the perfect bathroom vanity can feel overwhelming. You want something that fits your style, budget, and space—but where do you start?**

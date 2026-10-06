@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Outdoor Tile Ideas for Stylish and Durable Patio Flooring"
-description: "Outdoor spaces deserve a touch of elegance and practicality, and outdoor tiles from Floor and Decor offer just that. These tiles enhance patios, porches, and po"
+title: Floor And Decor Outdoor Tile Ideas for Stylish and Durable Patio Flooring
+description: Outdoor spaces deserve a touch of elegance and practicality, and outdoor
+  tiles from Floor and Decor offer just that. These tiles enhance patios, porches,
+  and po
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-outdoor-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-outdoor-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Outdoor spaces deserve a touch of elegance and practicality, and outdoor tiles from Floor and Decor offer just that. These tiles enhance patios, porches, and pool decks with style and durability.**

@@ -1,10 +1,13 @@
 ---
-title: "What Shape Mirror for Small Bathroom: Top Picks to Maximize Space"
-description: "Choosing the right mirror shape for your small bathroom can change everything. You want your space to feel bigger, brighter, and more inviting—but how do you pi"
+title: 'What Shape Mirror for Small Bathroom: Top Picks to Maximize Space'
+description: Choosing the right mirror shape for your small bathroom can change everything.
+  You want your space to feel bigger, brighter, and more inviting—but how do you pi
 pubDate: 2025-10-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-shape-mirror-for-small-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=what-shape-mirror-for-small-bathroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right mirror shape for your small bathroom can change everything. You want your space to feel bigger, brighter, and more inviting—but how do you pick the perfect mirror?**

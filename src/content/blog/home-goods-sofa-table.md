@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Sofa Table: Stylish Narrow Console Tables with Charging Ports"
-description: "Sofa tables blend functionality with style. They offer versatile uses in living rooms, hallways, and entryways. Sofa tables are a smart addition to any home. Th"
+title: 'Home Goods Sofa Table: Stylish Narrow Console Tables with Charging Ports'
+description: Sofa tables blend functionality with style. They offer versatile uses
+  in living rooms, hallways, and entryways. Sofa tables are a smart addition to any
+  home. Th
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-sofa-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-sofa-table&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Sofa tables blend functionality with style. They offer versatile uses in living rooms, hallways, and entryways.**

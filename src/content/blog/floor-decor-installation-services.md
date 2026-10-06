@@ -1,10 +1,14 @@
 ---
-title: "Floor Decor Installation Services: Expert Tips for Stunning, Durable Floors"
-description: "Floor decor installation enhances the beauty and functionality of any space. It offers a wide range of styles and materials. Choosing the right floor decor inst"
+title: 'Floor Decor Installation Services: Expert Tips for Stunning, Durable Floors'
+description: Floor decor installation enhances the beauty and functionality of any
+  space. It offers a wide range of styles and materials. Choosing the right floor
+  decor inst
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-decor-installation-services&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=floor-decor-installation-services&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor decor installation enhances the beauty and functionality of any space. It offers a wide range of styles and materials.**

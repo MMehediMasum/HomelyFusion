@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Up Bedroom Door: Easy Ideas for Instant Style"
-description: "Your bedroom door is more than just an entryway—it’s a chance to add personality and style to your personal space. Imagine walking into your room and being gree"
+title: 'How to Dress Up Bedroom Door: Easy Ideas for Instant Style'
+description: Your bedroom door is more than just an entryway—it’s a chance to add
+  personality and style to your personal space. Imagine walking into your room and
+  being gree
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-up-bedroom-door&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom door is more than just an entryway—it’s a chance to add personality and style to your personal space. Imagine walking into your room and being greeted by a door that reflects your taste and creativity.**

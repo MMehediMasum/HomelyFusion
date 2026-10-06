@@ -1,10 +1,14 @@
 ---
-title: "How to Make Air Dry Clay at Home Without Cornstarch: Easy DIY Guide"
-description: "Are you ready to get creative with air dry clay but don’t have cornstarch on hand? Making your own air dry clay at home is easier than you think—and you can do "
+title: 'How to Make Air Dry Clay at Home Without Cornstarch: Easy DIY Guide'
+description: 'Are you ready to get creative with air dry clay but don’t have cornstarch
+  on hand? Making your own air dry clay at home is easier than you think—and you can
+  do '
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-without-cornstarch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-air-dry-clay-at-home-without-cornstarch&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to get creative with air dry clay but don’t have cornstarch on hand? Making your own air dry clay at home is easier than you think—and you can do it without cornstarch!**

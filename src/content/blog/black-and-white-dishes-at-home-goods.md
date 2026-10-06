@@ -1,10 +1,14 @@
 ---
-title: "Black And White Dishes at Home Goods: Stylish Dinnerware Sets for Every Home"
-description: "Black and white dishes add elegance to any table setting. Home Goods offers a range of stylish options for your home. Exploring their collection, you'll find th"
+title: 'Black And White Dishes at Home Goods: Stylish Dinnerware Sets for Every Home'
+description: Black and white dishes add elegance to any table setting. Home Goods
+  offers a range of stylish options for your home. Exploring their collection, you'll
+  find th
 pubDate: 2026-08-01
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-and-white-dishes-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=black-and-white-dishes-at-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Black and white dishes add elegance to any table setting. Home Goods offers a range of stylish options for your home.**

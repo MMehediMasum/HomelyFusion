@@ -1,10 +1,15 @@
 ---
-title: "Bedroom Decorations Wall Ideas: Enhance Your Space with Stylish Shelves and Greenery"
-description: "Bedroom decorations wall ideas can transform your personal space quickly and easily. Simple additions bring style and comfort to any room. Adding fake vines, fl"
+title: 'Bedroom Decorations Wall Ideas: Enhance Your Space with Stylish Shelves and
+  Greenery'
+description: Bedroom decorations wall ideas can transform your personal space quickly
+  and easily. Simple additions bring style and comfort to any room. Adding fake vines,
+  fl
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-decorations-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-decorations-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bedroom decorations wall ideas can transform your personal space quickly and easily. Simple additions bring style and comfort to any room.**

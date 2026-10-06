@@ -1,10 +1,14 @@
 ---
-title: "How to Mix Different Tables in Living Room: Stylish Tips & Tricks"
-description: "Are you wondering how to mix different tables in your living room without making it look cluttered or mismatched? You’re not alone. Combining various styles, sh"
+title: 'How to Mix Different Tables in Living Room: Stylish Tips & Tricks'
+description: Are you wondering how to mix different tables in your living room without
+  making it look cluttered or mismatched? You’re not alone. Combining various styles,
+  sh
 pubDate: 2025-09-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-mix-different-tables-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-mix-different-tables-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to mix different tables in your living room without making it look cluttered or mismatched? You’re not alone.**

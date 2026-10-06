@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Bedroom: Stylish Tips for Cozy Spaces"
-description: "Your small bedroom doesn’t have to feel cramped or cluttered. Imagine walking into a space that feels cozy, stylish, and perfectly organized—despite its size. Y"
+title: 'How to Decorate a Small Bedroom: Stylish Tips for Cozy Spaces'
+description: Your small bedroom doesn’t have to feel cramped or cluttered. Imagine
+  walking into a space that feels cozy, stylish, and perfectly organized—despite its
+  size. Y
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your small bedroom doesn’t have to feel cramped or cluttered. Imagine walking into a space that feels cozy, stylish, and perfectly organized—despite its size.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Crucible Steel at Home: Ultimate DIY Guide"
 description: "Have you ever wondered how to make crucible steel at home? Imagine creating a strong, durable metal right in your own workshop. It’s not as hard as you might th"
 pubDate: 2026-02-06

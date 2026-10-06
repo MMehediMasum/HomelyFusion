@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Herb Roasted Chicken: Irresistible Flavor Made Easy"
 description: "Are you ready to make your Thanksgiving dinner truly unforgettable? Imagine the aroma of fresh herbs and perfectly roasted chicken filling your home, drawing ev"
 pubDate: 2025-12-24

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Watercolor Effect on Wall: Stunning DIY Guide"
-description: "Have you ever wanted to give your walls a fresh, artistic look without spending a fortune? Painting a watercolor effect on your wall is a simple way to add a so"
+title: 'How to Paint Watercolor Effect on Wall: Stunning DIY Guide'
+description: Have you ever wanted to give your walls a fresh, artistic look without
+  spending a fortune? Painting a watercolor effect on your wall is a simple way to
+  add a so
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-watercolor-effect-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-watercolor-effect-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to give your walls a fresh, artistic look without spending a fortune? Painting a watercolor effect on your wall is a simple way to add a soft, dreamy vibe to any room.**

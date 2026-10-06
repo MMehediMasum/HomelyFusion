@@ -1,10 +1,15 @@
 ---
-title: "Floor And Decor Large Format Tile: Stylish Peel & Stick Options for Every Room"
-description: "Floor and Decor offers a wide range of large format tiles that suit many styles and spaces. These tiles are easy to install and bring a fresh look to any room. "
+title: 'Floor And Decor Large Format Tile: Stylish Peel & Stick Options for Every
+  Room'
+description: 'Floor and Decor offers a wide range of large format tiles that suit
+  many styles and spaces. These tiles are easy to install and bring a fresh look to
+  any room. '
 pubDate: 2026-08-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-large-format-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-large-format-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a wide range of large format tiles that suit many styles and spaces. These tiles are easy to install and bring a fresh look to any room.**

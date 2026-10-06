@@ -1,10 +1,14 @@
 ---
-title: "Halloween Spooky Centerpiece Ideas: Hauntingly Creative Decor Tips"
-description: "Are you ready to transform your Halloween party into a spooky sensation? Your centerpiece sets the mood for the entire room, grabbing attention and sparking exc"
+title: 'Halloween Spooky Centerpiece Ideas: Hauntingly Creative Decor Tips'
+description: Are you ready to transform your Halloween party into a spooky sensation?
+  Your centerpiece sets the mood for the entire room, grabbing attention and sparking
+  exc
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-spooky-centerpiece-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-spooky-centerpiece-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Halloween party into a spooky sensation? Your centerpiece sets the mood for the entire room, grabbing attention and sparking excitement.**

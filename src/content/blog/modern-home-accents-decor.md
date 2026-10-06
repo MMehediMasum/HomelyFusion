@@ -1,10 +1,14 @@
 ---
-title: "Modern Home Accents Decor: Stylish Essentials to Elevate Your Space"
-description: "Modern home accents bring personality and style to any space. They offer unique charm and elevate home decor effortlessly. Home accents play a crucial role in t"
+title: 'Modern Home Accents Decor: Stylish Essentials to Elevate Your Space'
+description: Modern home accents bring personality and style to any space. They offer
+  unique charm and elevate home decor effortlessly. Home accents play a crucial role
+  in t
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-home-accents-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Organic Decor
+heroImage: https://tse1.mm.bing.net/th?q=modern-home-accents-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Modern home accents bring personality and style to any space. They offer unique charm and elevate home decor effortlessly.**

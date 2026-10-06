@@ -1,10 +1,14 @@
 ---
-title: "How to Reupholster a Big Living Room Chair With Piping: Step-by-Step Guide"
-description: "Is your big living room chair looking tired or outdated? Reupholstering it with piping can give it a fresh, stylish look that stands out. You might think this i"
+title: 'How to Reupholster a Big Living Room Chair With Piping: Step-by-Step Guide'
+description: Is your big living room chair looking tired or outdated? Reupholstering
+  it with piping can give it a fresh, stylish look that stands out. You might think
+  this i
 pubDate: 2026-04-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-big-living-room-chair-with-piping&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-big-living-room-chair-with-piping&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your big living room chair looking tired or outdated? Reupholstering it with piping can give it a fresh, stylish look that stands out.**

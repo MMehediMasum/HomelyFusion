@@ -1,10 +1,14 @@
 ---
-title: "Are Mirrors Okay in Bedroom: Surprising Truths Revealed"
-description: "Have you ever wondered if mirrors in your bedroom are a good idea or not? You might feel unsure about where to place them or if they could affect your sleep or "
+title: 'Are Mirrors Okay in Bedroom: Surprising Truths Revealed'
+description: 'Have you ever wondered if mirrors in your bedroom are a good idea or
+  not? You might feel unsure about where to place them or if they could affect your
+  sleep or '
 pubDate: 2026-05-25
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-mirrors-okay-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=are-mirrors-okay-in-bedroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wondered if mirrors in your bedroom are a good idea or not? You might feel unsure about where to place them or if they could affect your sleep or energy.**

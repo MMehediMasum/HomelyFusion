@@ -1,10 +1,15 @@
 ---
-title: "Heather Ann Decorative Home Collection Vases: Elegant Centerpieces for Every Room"
-description: "Heather Ann Decorative Home Collection offers a stunning range of vases that enhance any room’s style. These vases blend classic charm with modern design, perfe"
+title: 'Heather Ann Decorative Home Collection Vases: Elegant Centerpieces for Every
+  Room'
+description: Heather Ann Decorative Home Collection offers a stunning range of vases
+  that enhance any room’s style. These vases blend classic charm with modern design,
+  perfe
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=heather-ann-decorative-home-collection-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=heather-ann-decorative-home-collection-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Heather Ann Decorative Home Collection offers a stunning range of vases that enhance any room’s style. These vases blend classic charm with modern design, perfect for home decoration.**

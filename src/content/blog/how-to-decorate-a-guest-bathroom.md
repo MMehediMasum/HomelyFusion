@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Guest Bathroom: Stunning Ideas for a Cozy Space"
-description: "Your guest bathroom is more than just a space—it’s a chance to make your visitors feel welcome and comfortable. But how do you create a stylish, inviting bathro"
+title: 'How to Decorate a Guest Bathroom: Stunning Ideas for a Cozy Space'
+description: Your guest bathroom is more than just a space—it’s a chance to make your
+  visitors feel welcome and comfortable. But how do you create a stylish, inviting
+  bathro
 pubDate: 2025-09-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-guest-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-guest-bathroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your guest bathroom is more than just a space—it’s a chance to make your visitors feel welcome and comfortable. But how do you create a stylish, inviting bathroom without spending a fortune or turning it into a complicated project?**

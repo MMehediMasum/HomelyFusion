@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Bathroom Sinks: Top Stores for Stylish Choices"
-description: "Looking to upgrade your bathroom but not sure where to buy the perfect sink? You want something that fits your style, budget, and space without the hassle. Find"
+title: 'Where to Buy Bathroom Sinks: Top Stores for Stylish Choices'
+description: Looking to upgrade your bathroom but not sure where to buy the perfect
+  sink? You want something that fits your style, budget, and space without the hassle.
+  Find
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-sinks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-bathroom-sinks&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking to upgrade your bathroom but not sure where to buy the perfect sink? You want something that fits your style, budget, and space without the hassle.**

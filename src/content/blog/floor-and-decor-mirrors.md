@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Mirrors: Stylish Full-Length Options for Every Room"
-description: "Floor and Decor mirrors blend style and function for any room. They offer full-length views with modern, durable designs. These mirrors come in various shapes a"
+title: 'Floor And Decor Mirrors: Stylish Full-Length Options for Every Room'
+description: Floor and Decor mirrors blend style and function for any room. They offer
+  full-length views with modern, durable designs. These mirrors come in various shapes
+  a
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Floor and Decor mirrors blend style and function for any room. They offer full-length views with modern, durable designs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bedroom Vanity from Dresser: Easy DIY Transformation Tips"
-description: "Imagine waking up every day to a beautiful vanity that fits perfectly in your bedroom—without spending a fortune or buying something new. What if you could tran"
+title: 'How to Make Bedroom Vanity from Dresser: Easy DIY Transformation Tips'
+description: Imagine waking up every day to a beautiful vanity that fits perfectly
+  in your bedroom—without spending a fortune or buying something new. What if you
+  could tran
 pubDate: 2026-05-28
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bedroom-vanity-from-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bedroom-vanity-from-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Imagine waking up every day to a beautiful vanity that fits perfectly in your bedroom—without spending a fortune or buying something new. What if you could transform an old dresser into a stylish, functional vanity that reflects your personality?**

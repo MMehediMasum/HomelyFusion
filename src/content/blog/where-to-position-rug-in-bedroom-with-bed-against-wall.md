@@ -1,10 +1,14 @@
 ---
-title: "Where to Position Rug in Bedroom With Bed against Wall: Expert Tips"
-description: "Are you wondering where to place a rug in your bedroom when your bed is pushed against the wall? Getting this right can change the entire feel of your room. The"
+title: 'Where to Position Rug in Bedroom With Bed against Wall: Expert Tips'
+description: Are you wondering where to place a rug in your bedroom when your bed
+  is pushed against the wall? Getting this right can change the entire feel of your
+  room. The
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-position-rug-in-bedroom-with-bed-against-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=where-to-position-rug-in-bedroom-with-bed-against-wall&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you wondering where to place a rug in your bedroom when your bed is pushed against the wall? Getting this right can change the entire feel of your room.**

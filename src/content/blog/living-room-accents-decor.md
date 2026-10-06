@@ -1,10 +1,15 @@
 ---
-title: "Living Room Accents Decor: Stylish Lighting and Artistic Figurines to Elevate Ambiance"
-description: "Living room accents decor adds style and personality to your space. Small details make a big difference in creating a cozy, inviting atmosphere. Accent pieces l"
+title: 'Living Room Accents Decor: Stylish Lighting and Artistic Figurines to Elevate
+  Ambiance'
+description: Living room accents decor adds style and personality to your space. Small
+  details make a big difference in creating a cozy, inviting atmosphere. Accent pieces
+  l
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=living-room-accents-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=living-room-accents-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Living room accents decor adds style and personality to your space. Small details make a big difference in creating a cozy, inviting atmosphere.**

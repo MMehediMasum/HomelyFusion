@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain for Living Room: Top Blackout and Thermal Insulated Picks"
-description: "Choosing the best curtain for your living room can change its look and feel. Curtains add style, control light, and provide privacy. Curtains come in many style"
+title: 'Best Curtain for Living Room: Top Blackout and Thermal Insulated Picks'
+description: Choosing the best curtain for your living room can change its look and
+  feel. Curtains add style, control light, and provide privacy. Curtains come in many
+  style
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-for-living-room-top-blackout-and-thermal-insulated-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thermal Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-for-living-room-top-blackout-and-thermal-insulated-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain for your living room can change its look and feel. Curtains add style, control light, and provide privacy.**

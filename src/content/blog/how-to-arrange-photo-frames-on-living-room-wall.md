@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Photo Frames on Living Room Wall: Stunning Ideas"
-description: "Are you staring at your living room wall, unsure how to bring your photo frames to life? Arranging photo frames might seem simple, but the right layout can tran"
+title: 'How to Arrange Photo Frames on Living Room Wall: Stunning Ideas'
+description: Are you staring at your living room wall, unsure how to bring your photo
+  frames to life? Arranging photo frames might seem simple, but the right layout can
+  tran
 pubDate: 2026-01-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-photo-frames-on-living-room-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-photo-frames-on-living-room-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at your living room wall, unsure how to bring your photo frames to life? Arranging photo frames might seem simple, but the right layout can transform your space and tell your story in a powerful way.**

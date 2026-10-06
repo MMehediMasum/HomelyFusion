@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Steel from Iron at Home: Easy DIY Guide"
 description: "Have you ever wondered how steel is made from iron? Imagine turning simple iron into strong, durable steel right in your own home. It might sound complicated, b"
 pubDate: 2026-02-20

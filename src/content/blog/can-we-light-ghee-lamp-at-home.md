@@ -1,10 +1,14 @@
 ---
-title: "Can We Light Ghee Lamp at Home: Benefits, Tips & Safety Guide"
-description: "Have you ever wondered if you can light a ghee lamp right in your own home? It’s a simple act, but it holds a special place in many traditions and brings a uniq"
+title: 'Can We Light Ghee Lamp at Home: Benefits, Tips & Safety Guide'
+description: Have you ever wondered if you can light a ghee lamp right in your own
+  home? It’s a simple act, but it holds a special place in many traditions and brings
+  a uniq
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-we-light-ghee-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=can-we-light-ghee-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wondered if you can light a ghee lamp right in your own home? It’s a simple act, but it holds a special place in many traditions and brings a unique warmth to your space.**

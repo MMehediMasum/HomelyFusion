@@ -1,10 +1,13 @@
 ---
-title: "Best Vase for Lego Roses: Stylish Wooden and Ceramic Options Reviewed"
-description: "Choosing the best vase for Lego roses can enhance their beauty and display. A good vase holds the flowers securely and fits the style of your space. Lego roses "
+title: 'Best Vase for Lego Roses: Stylish Wooden and Ceramic Options Reviewed'
+description: 'Choosing the best vase for Lego roses can enhance their beauty and display.
+  A good vase holds the flowers securely and fits the style of your space. Lego roses '
 pubDate: 2025-12-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-vase-for-lego-roses-stylish-wooden-and-ceramic-options-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-vase-for-lego-roses-stylish-wooden-and-ceramic-options-reviewed&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best vase for Lego roses can enhance their beauty and display. A good vase holds the flowers securely and fits the style of your space.**

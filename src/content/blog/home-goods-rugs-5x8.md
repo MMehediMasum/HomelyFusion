@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 5X8: Ultra Soft, Stylish, and Durable Area Rugs"
-description: "Finding the perfect 5x8 rug can transform your living space. These rugs add style and comfort to any room. Whether you desire a soft, fluffy rug for your bedroo"
+title: 'Home Goods Rugs 5X8: Ultra Soft, Stylish, and Durable Area Rugs'
+description: Finding the perfect 5x8 rug can transform your living space. These rugs
+  add style and comfort to any room. Whether you desire a soft, fluffy rug for your
+  bedroo
 pubDate: 2026-06-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-5x8&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-5x8&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding the perfect 5x8 rug can transform your living space. These rugs add style and comfort to any room.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Holiday Decor Storage Bag: Durable, Spacious, and Easy Organization"
-description: "Home Accents Holiday Decor Storage Bag keeps your seasonal decorations safe and organized. It fits wreaths, trees, and other holiday items neatly. Storing holid"
+title: 'Home Accents Holiday Decor Storage Bag: Durable, Spacious, and Easy Organization'
+description: Home Accents Holiday Decor Storage Bag keeps your seasonal decorations
+  safe and organized. It fits wreaths, trees, and other holiday items neatly. Storing
+  holid
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-holiday-decor-storage-bag&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-holiday-decor-storage-bag&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home Accents Holiday Decor Storage Bag keeps your seasonal decorations safe and organized. It fits wreaths, trees, and other holiday items neatly.**

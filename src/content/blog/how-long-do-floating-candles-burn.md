@@ -1,10 +1,14 @@
 ---
-title: "How Long Do Floating Candles Burn: Ultimate Guide to Burn Time"
-description: "Have you ever wondered how long floating candles actually burn? Whether you're planning a romantic dinner, a relaxing bath, or a cozy gathering, knowing the bur"
+title: 'How Long Do Floating Candles Burn: Ultimate Guide to Burn Time'
+description: Have you ever wondered how long floating candles actually burn? Whether
+  you're planning a romantic dinner, a relaxing bath, or a cozy gathering, knowing
+  the bur
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-do-floating-candles-burn&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=how-long-do-floating-candles-burn&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered how long floating candles actually burn? Whether you're planning a romantic dinner, a relaxing bath, or a cozy gathering, knowing the burn time can help you set the perfect mood without interruptions.**

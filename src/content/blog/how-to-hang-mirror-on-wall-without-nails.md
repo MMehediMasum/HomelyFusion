@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Mirror on Wall Without Nails: Easy Damage-Free Tricks"
-description: "Hanging a mirror on your wall can instantly brighten up a room and make your space feel larger. But what if you don’t want to drill holes or leave ugly nail mar"
+title: 'How to Hang Mirror on Wall Without Nails: Easy Damage-Free Tricks'
+description: Hanging a mirror on your wall can instantly brighten up a room and make
+  your space feel larger. But what if you don’t want to drill holes or leave ugly
+  nail mar
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-wall-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-mirror-on-wall-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging a mirror on your wall can instantly brighten up a room and make your space feel larger. But what if you don’t want to drill holes or leave ugly nail marks behind?**

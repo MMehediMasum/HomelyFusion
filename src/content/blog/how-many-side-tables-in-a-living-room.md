@@ -1,10 +1,14 @@
 ---
-title: "How Many Side Tables in a Living Room: Ultimate Guide to Perfect Placement"
-description: "Are you wondering how many side tables you really need in your living room? It’s a simple question, but the answer can change the way your space looks and feels"
+title: 'How Many Side Tables in a Living Room: Ultimate Guide to Perfect Placement'
+description: Are you wondering how many side tables you really need in your living
+  room? It’s a simple question, but the answer can change the way your space looks
+  and feels
 pubDate: 2026-03-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-side-tables-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-many-side-tables-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how many side tables you really need in your living room? It’s a simple question, but the answer can change the way your space looks and feels.**

@@ -1,10 +1,14 @@
 ---
-title: "Do You Need Special Light Bulbs for Google Home: Essential Guide"
-description: "Are you wondering if you need special light bulbs to make your Google Home work seamlessly? If you’ve ever thought about controlling your lights with just your "
+title: 'Do You Need Special Light Bulbs for Google Home: Essential Guide'
+description: 'Are you wondering if you need special light bulbs to make your Google
+  Home work seamlessly? If you’ve ever thought about controlling your lights with
+  just your '
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-special-light-bulbs-for-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Smart Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-special-light-bulbs-for-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering if you need special light bulbs to make your Google Home work seamlessly? If you’ve ever thought about controlling your lights with just your voice, you might be confused about what kind of bulbs to buy.**

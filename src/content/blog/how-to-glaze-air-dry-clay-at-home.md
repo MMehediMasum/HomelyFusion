@@ -1,10 +1,14 @@
 ---
-title: "How to Glaze Air Dry Clay at Home: Easy Tips for a Perfect Finish"
-description: "Are you ready to take your air dry clay creations to the next level? Glazing your clay at home can give your pieces a smooth, shiny finish that looks profession"
+title: 'How to Glaze Air Dry Clay at Home: Easy Tips for a Perfect Finish'
+description: Are you ready to take your air dry clay creations to the next level?
+  Glazing your clay at home can give your pieces a smooth, shiny finish that looks
+  profession
 pubDate: 2026-02-27
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-glaze-air-dry-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-glaze-air-dry-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you ready to take your air dry clay creations to the next level? Glazing your clay at home can give your pieces a smooth, shiny finish that looks professional and lasts longer.**

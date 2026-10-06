@@ -1,10 +1,14 @@
 ---
-title: "Furniture And Home Decor Ideas: Stylish Storage, Lighting, and Accent Pieces"
-description: "Furniture and home decor shape the look and feel of any living space. Choosing the right pieces creates comfort and style in your home. This post explores popul"
+title: 'Furniture And Home Decor Ideas: Stylish Storage, Lighting, and Accent Pieces'
+description: Furniture and home decor shape the look and feel of any living space.
+  Choosing the right pieces creates comfort and style in your home. This post explores
+  popul
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-home-decor&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Furniture and home decor shape the look and feel of any living space. Choosing the right pieces creates comfort and style in your home.**

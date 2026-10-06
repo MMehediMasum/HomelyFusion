@@ -1,10 +1,13 @@
 ---
-title: "How to Make a Wall Mirror: Easy DIY Steps for Stunning Decor"
-description: "Have you ever wanted to add a personal touch to your home décor? Making your own wall mirror is easier than you think, and it can transform any room instantly. "
+title: 'How to Make a Wall Mirror: Easy DIY Steps for Stunning Decor'
+description: 'Have you ever wanted to add a personal touch to your home décor? Making
+  your own wall mirror is easier than you think, and it can transform any room instantly. '
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to add a personal touch to your home décor? Making your own wall mirror is easier than you think, and it can transform any room instantly.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Wall With Canvas Art: Stunning Ideas That Inspire"
-description: "Are you staring at a blank wall, wondering how to bring it to life? Decorating your wall with canvas art is one of the easiest and most powerful ways to transfo"
+title: 'How to Decorate a Wall With Canvas Art: Stunning Ideas That Inspire'
+description: Are you staring at a blank wall, wondering how to bring it to life? Decorating
+  your wall with canvas art is one of the easiest and most powerful ways to transfo
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-canvas-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-canvas-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a blank wall, wondering how to bring it to life? Decorating your wall with canvas art is one of the easiest and most powerful ways to transform any room.**

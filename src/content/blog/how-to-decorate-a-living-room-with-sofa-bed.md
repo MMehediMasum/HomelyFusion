@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Sofa Bed: Stylish Space Hacks"
-description: "Are you wondering how to make your living room both stylish and functional with a sofa bed? Decorating around a sofa bed can be tricky, but it doesn’t have to b"
+title: 'How to Decorate a Living Room With Sofa Bed: Stylish Space Hacks'
+description: Are you wondering how to make your living room both stylish and functional
+  with a sofa bed? Decorating around a sofa bed can be tricky, but it doesn’t have
+  to b
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-sofa-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-sofa-bed&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room both stylish and functional with a sofa bed? Decorating around a sofa bed can be tricky, but it doesn’t have to be.**

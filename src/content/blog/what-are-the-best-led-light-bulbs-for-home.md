@@ -1,10 +1,14 @@
 ---
-title: "What are the Best Led Light Bulbs for Home: Top Bright Picks"
-description: "Are you looking to brighten your home while saving money and energy? Choosing the right LED light bulbs can make a huge difference in how your rooms look and fe"
+title: 'What are the Best Led Light Bulbs for Home: Top Bright Picks'
+description: Are you looking to brighten your home while saving money and energy?
+  Choosing the right LED light bulbs can make a huge difference in how your rooms
+  look and fe
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-best-led-light-bulbs-for-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-best-led-light-bulbs-for-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to brighten your home while saving money and energy? Choosing the right LED light bulbs can make a huge difference in how your rooms look and feel.**

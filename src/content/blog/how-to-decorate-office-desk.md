@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Office Desk: Easy Tips for a Stylish Workspace"
-description: "Your office desk is more than just a workspace—it’s a place where your creativity sparks and productivity flows. But if your desk feels cluttered or uninspiring"
+title: 'How to Decorate Office Desk: Easy Tips for a Stylish Workspace'
+description: Your office desk is more than just a workspace—it’s a place where your
+  creativity sparks and productivity flows. But if your desk feels cluttered or uninspiring
 pubDate: 2025-09-19
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-office-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-office-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your office desk is more than just a workspace—it’s a place where your creativity sparks and productivity flows. But if your desk feels cluttered or uninspiring, it can hold you back.**

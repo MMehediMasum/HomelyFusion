@@ -1,10 +1,14 @@
 ---
-title: "Dkny Outdoor Furniture: Stylish Weather-Resistant Patio Sets for Any Space"
-description: "DKNY outdoor furniture blends style with functionality. Transform your outdoor space with elegant and durable pieces. Discover the perfect outdoor furniture wit"
+title: 'Dkny Outdoor Furniture: Stylish Weather-Resistant Patio Sets for Any Space'
+description: DKNY outdoor furniture blends style with functionality. Transform your
+  outdoor space with elegant and durable pieces. Discover the perfect outdoor furniture
+  wit
 pubDate: 2025-11-07
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-outdoor-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Patio Decor
+heroImage: https://tse1.mm.bing.net/th?q=dkny-outdoor-furniture&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **DKNY outdoor furniture blends style with functionality. Transform your outdoor space with elegant and durable pieces.**

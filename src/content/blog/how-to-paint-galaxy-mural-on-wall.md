@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Galaxy Mural on Wall: Stunning Step-by-Step Guide"
-description: "Have you ever wanted to transform a plain wall into a stunning galaxy full of stars, colors, and mystery? Painting a galaxy mural on your wall is easier than yo"
+title: 'How to Paint Galaxy Mural on Wall: Stunning Step-by-Step Guide'
+description: Have you ever wanted to transform a plain wall into a stunning galaxy
+  full of stars, colors, and mystery? Painting a galaxy mural on your wall is easier
+  than yo
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-galaxy-mural-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Mural Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-galaxy-mural-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever wanted to transform a plain wall into a stunning galaxy full of stars, colors, and mystery? Painting a galaxy mural on your wall is easier than you think, and you don’t need to be an expert artist to do it.**

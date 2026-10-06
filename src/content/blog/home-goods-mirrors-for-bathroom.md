@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Mirrors for Bathroom: Stylish Black Metal Framed Vanity Picks"
-description: "Bathroom mirrors combine style and function to enhance your space. Choosing the right mirror improves light and adds charm. Home goods mirrors for bathrooms com"
+title: 'Home Goods Mirrors for Bathroom: Stylish Black Metal Framed Vanity Picks'
+description: Bathroom mirrors combine style and function to enhance your space. Choosing
+  the right mirror improves light and adds charm. Home goods mirrors for bathrooms
+  com
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-mirrors-for-bathroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-mirrors-for-bathroom&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bathroom mirrors combine style and function to enhance your space. Choosing the right mirror improves light and adds charm.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Bunk Beds: Creative Ideas That Wow"
-description: "Are you wondering how to make the most of your bedroom space while keeping it stylish and cozy? Decorating a bedroom with bunk beds can be a fun and smart way t"
+title: 'How to Decorate Bedroom With Bunk Beds: Creative Ideas That Wow'
+description: Are you wondering how to make the most of your bedroom space while keeping
+  it stylish and cozy? Decorating a bedroom with bunk beds can be a fun and smart
+  way t
 pubDate: 2025-11-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-bunk-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-bunk-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how to make the most of your bedroom space while keeping it stylish and cozy? Decorating a bedroom with bunk beds can be a fun and smart way to save space, especially if you share the room with siblings or want a spot for guests.**

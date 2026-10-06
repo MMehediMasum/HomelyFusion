@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Sofa in Small Living Room: Expert Space-Saving Tips"
-description: "Struggling to find the perfect spot for your sofa in a small living room? You’re not alone. Where you place your sofa can make all the difference between a cram"
+title: 'Where to Place Sofa in Small Living Room: Expert Space-Saving Tips'
+description: Struggling to find the perfect spot for your sofa in a small living room?
+  You’re not alone. Where you place your sofa can make all the difference between
+  a cram
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-sofa-in-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-sofa-in-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to find the perfect spot for your sofa in a small living room? You’re not alone.**

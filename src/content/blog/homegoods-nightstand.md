@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Nightstand Ideas: Stylish Charging Stations and Storage Solutions"
-description: "A nightstand is more than just a bedside table. It’s a blend of function and style for your bedroom. Selecting the right nightstand can enhance your room’s aest"
+title: 'Homegoods Nightstand Ideas: Stylish Charging Stations and Storage Solutions'
+description: A nightstand is more than just a bedside table. It’s a blend of function
+  and style for your bedroom. Selecting the right nightstand can enhance your room’s
+  aest
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A nightstand is more than just a bedside table. It’s a blend of function and style for your bedroom.**

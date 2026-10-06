@@ -1,10 +1,14 @@
 ---
-title: "Best Furniture Pads for Vinyl Plank Flooring to Prevent Scratches and Dents"
-description: "Protecting vinyl plank flooring from scratches and dents is essential. Choosing the right furniture pads helps keep floors looking new longer. Vinyl plank floor"
+title: Best Furniture Pads for Vinyl Plank Flooring to Prevent Scratches and Dents
+description: Protecting vinyl plank flooring from scratches and dents is essential.
+  Choosing the right furniture pads helps keep floors looking new longer. Vinyl plank
+  floor
 pubDate: 2025-09-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-furniture-pads-for-vinyl-plank-flooring-to-prevent-scratches-and-dents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=best-furniture-pads-for-vinyl-plank-flooring-to-prevent-scratches-and-dents&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Protecting vinyl plank flooring from scratches and dents is essential. Choosing the right furniture pads helps keep floors looking new longer.**

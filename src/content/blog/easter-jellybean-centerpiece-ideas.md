@@ -1,10 +1,14 @@
 ---
-title: "Easter Jellybean Centerpiece Ideas: Creative & Colorful DIY Decor"
-description: "Looking to add a burst of color and fun to your Easter celebration? Your table deserves a centerpiece that’s as sweet and cheerful as the holiday itself. Easter"
+title: 'Easter Jellybean Centerpiece Ideas: Creative & Colorful DIY Decor'
+description: Looking to add a burst of color and fun to your Easter celebration? Your
+  table deserves a centerpiece that’s as sweet and cheerful as the holiday itself.
+  Easter
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-jellybean-centerpiece-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-jellybean-centerpiece-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Looking to add a burst of color and fun to your Easter celebration? Your table deserves a centerpiece that’s as sweet and cheerful as the holiday itself.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Living Room Sofa: Expert Tips for Perfect Comfort"
-description: "Choosing the perfect sofa for your living room might seem simple, but it’s actually one of the most important decisions you’ll make for your home. Your sofa isn"
+title: 'How to Choose Living Room Sofa: Expert Tips for Perfect Comfort'
+description: Choosing the perfect sofa for your living room might seem simple, but
+  it’s actually one of the most important decisions you’ll make for your home. Your
+  sofa isn
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-living-room-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-living-room-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa for your living room might seem simple, but it’s actually one of the most important decisions you’ll make for your home. Your sofa isn’t just a piece of furniture—it’s where you relax after a long day, host friends, and create lasting memories.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Refinish Bathroom Vanity: Easy Steps for Stunning Results"
-description: "Is your bathroom vanity looking worn out or outdated? You don’t need to replace it to give your bathroom a fresh, new look. Refinishing your bathroom vanity is "
+title: 'How to Refinish Bathroom Vanity: Easy Steps for Stunning Results'
+description: 'Is your bathroom vanity looking worn out or outdated? You don’t need
+  to replace it to give your bathroom a fresh, new look. Refinishing your bathroom
+  vanity is '
 pubDate: 2025-08-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refinish-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Is your bathroom vanity looking worn out or outdated? You don’t need to replace it to give your bathroom a fresh, new look.**

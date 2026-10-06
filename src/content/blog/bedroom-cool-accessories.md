@@ -1,10 +1,13 @@
 ---
-title: "Bedroom Cool Accessories: Top Stylish Picks for Ultimate Room Organization"
-description: "Transform your bedroom with cool accessories that blend style and functionality. These items add personality and organization to any space. A well-decorated bed"
+title: 'Bedroom Cool Accessories: Top Stylish Picks for Ultimate Room Organization'
+description: Transform your bedroom with cool accessories that blend style and functionality.
+  These items add personality and organization to any space. A well-decorated bed
 pubDate: 2026-07-13
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bedroom-cool-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=bedroom-cool-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Transform your bedroom with cool accessories that blend style and functionality. These items add personality and organization to any space.**

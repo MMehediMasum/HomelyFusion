@@ -1,10 +1,14 @@
 ---
-title: "How High Should Bedroom Shelf Be: Perfect Height Tips for Style & Safety"
-description: "Are you wondering how high your bedroom shelf should be? Finding the perfect height can make a big difference in how your space looks and feels. Too low, and it"
+title: 'How High Should Bedroom Shelf Be: Perfect Height Tips for Style & Safety'
+description: Are you wondering how high your bedroom shelf should be? Finding the
+  perfect height can make a big difference in how your space looks and feels. Too
+  low, and it
 pubDate: 2026-05-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-should-bedroom-shelf-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-high-should-bedroom-shelf-be&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering how high your bedroom shelf should be? Finding the perfect height can make a big difference in how your space looks and feels.**

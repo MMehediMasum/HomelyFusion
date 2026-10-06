@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Mirror Lighting Ideas: Brighten Your Space with Style"
-description: "Your bathroom mirror lighting can make a huge difference in how your space feels and functions. Imagine starting your day with clear, flattering light that help"
+title: 'Bathroom Mirror Lighting Ideas: Brighten Your Space with Style'
+description: Your bathroom mirror lighting can make a huge difference in how your
+  space feels and functions. Imagine starting your day with clear, flattering light
+  that help
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-mirror-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-mirror-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your bathroom mirror lighting can make a huge difference in how your space feels and functions. Imagine starting your day with clear, flattering light that helps you get ready faster and look your best.**

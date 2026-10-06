@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Things at Home: Easy DIY Craft Ideas"
-description: "Have you ever wanted to create something unique with your own hands? Making clay things at home is easier than you think, and it’s a fun way to bring your ideas"
+title: 'How to Make Clay Things at Home: Easy DIY Craft Ideas'
+description: Have you ever wanted to create something unique with your own hands?
+  Making clay things at home is easier than you think, and it’s a fun way to bring
+  your ideas
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-things-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-things-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands? Making clay things at home is easier than you think, and it’s a fun way to bring your ideas to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Pillows Tj Maxx: Cozy Ghost & Pumpkin Decor for Your Home"
-description: "Halloween pillows at T.J. Maxx add fun and spooky charm to your home. Choose from ghost, pumpkin, spider, and skull designs. T. J. Maxx offers a great variety o"
+title: 'Halloween Pillows Tj Maxx: Cozy Ghost & Pumpkin Decor for Your Home'
+description: Halloween pillows at T.J. Maxx add fun and spooky charm to your home.
+  Choose from ghost, pumpkin, spider, and skull designs. T. J. Maxx offers a great
+  variety o
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-pillows-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-pillows-tj-maxx&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Halloween pillows at T.J. Maxx add fun and spooky charm to your home. Choose from ghost, pumpkin, spider, and skull designs.**

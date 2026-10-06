@@ -1,10 +1,15 @@
 ---
-title: "Home Decorators Collection Christmas Tree 9 Ft: Slim, Prelit, Perfect Holiday Decor"
-description: "The Home Decorators Collection Christmas Tree 9 Ft offers a tall, elegant centerpiece for holiday décor. This artificial tree combines realistic design with bui"
+title: 'Home Decorators Collection Christmas Tree 9 Ft: Slim, Prelit, Perfect Holiday
+  Decor'
+description: The Home Decorators Collection Christmas Tree 9 Ft offers a tall, elegant
+  centerpiece for holiday décor. This artificial tree combines realistic design with
+  bui
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-tree-9-ft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-christmas-tree-9-ft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Home Decorators Collection Christmas Tree 9 Ft offers a tall, elegant centerpiece for holiday décor. This artificial tree combines realistic design with built-in lights for easy setup.**

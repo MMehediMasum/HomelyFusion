@@ -1,10 +1,14 @@
 ---
-title: "What to Put on Floating Shelf in Bedroom: Stylish & Practical Ideas"
-description: "Looking to add style and personality to your bedroom without taking up floor space? Floating shelves are a simple way to do just that. But the real question is—"
+title: 'What to Put on Floating Shelf in Bedroom: Stylish & Practical Ideas'
+description: Looking to add style and personality to your bedroom without taking up
+  floor space? Floating shelves are a simple way to do just that. But the real question
+  is—
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-floating-shelf-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelves
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-floating-shelf-in-bedroom&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking to add style and personality to your bedroom without taking up floor space? Floating shelves are a simple way to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Place Sconce in Living Room Chair: Perfect Lighting Tips"
-description: "Are you wondering where to place a sconce in your living room chair area to create the perfect cozy spot? The right lighting can transform your space, making it"
+title: 'Where to Place Sconce in Living Room Chair: Perfect Lighting Tips'
+description: Are you wondering where to place a sconce in your living room chair area
+  to create the perfect cozy spot? The right lighting can transform your space, making
+  it
 pubDate: 2026-04-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-place-sconce-in-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=where-to-place-sconce-in-living-room-chair&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you wondering where to place a sconce in your living room chair area to create the perfect cozy spot? The right lighting can transform your space, making it more inviting and functional.**

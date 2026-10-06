@@ -1,10 +1,13 @@
 ---
-title: "Home Floor Decor Ideas: Stylish Lamps, Mirrors, Vases & More Essentials"
-description: "Transform your living space with stylish home floor decor. Enhance every room with functional and beautiful pieces. Floor decor plays a crucial role in setting "
+title: 'Home Floor Decor Ideas: Stylish Lamps, Mirrors, Vases & More Essentials'
+description: 'Transform your living space with stylish home floor decor. Enhance every
+  room with functional and beautiful pieces. Floor decor plays a crucial role in setting '
 pubDate: 2026-08-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-floor-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-floor-decor&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Transform your living space with stylish home floor decor. Enhance every room with functional and beautiful pieces.**

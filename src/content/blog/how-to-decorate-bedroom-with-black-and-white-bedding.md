@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate Bedroom With Black And White Bedding: Stunning Ideas"
-description: "Are you looking to give your bedroom a fresh, stylish look without overwhelming your space? Decorating with black and white bedding is a simple yet powerful way"
+title: 'How to Decorate Bedroom With Black And White Bedding: Stunning Ideas'
+description: Are you looking to give your bedroom a fresh, stylish look without overwhelming
+  your space? Decorating with black and white bedding is a simple yet powerful way
 pubDate: 2026-05-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-black-and-white-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-black-and-white-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to give your bedroom a fresh, stylish look without overwhelming your space? Decorating with black and white bedding is a simple yet powerful way to transform your room into a chic and calming retreat.**

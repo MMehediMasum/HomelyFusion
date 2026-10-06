@@ -1,10 +1,14 @@
 ---
-title: "Wall Decor Room Ideas: Boho Plants, Art, and Unique Hanging Accents"
-description: "Transform your living space with stunning wall decor that reflects your style. Personalize any room with unique touches. Wall decor brings life and character to"
+title: 'Wall Decor Room Ideas: Boho Plants, Art, and Unique Hanging Accents'
+description: Transform your living space with stunning wall decor that reflects your
+  style. Personalize any room with unique touches. Wall decor brings life and character
+  to
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living space with stunning wall decor that reflects your style. Personalize any room with unique touches.**

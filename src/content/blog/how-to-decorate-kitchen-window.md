@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Window: Stunning Ideas for a Fresh Look"
-description: "Your kitchen window is more than just a view to the outside—it’s a perfect spot to add style and personality to your space. Imagine how a simple change here can"
+title: 'How to Decorate Kitchen Window: Stunning Ideas for a Fresh Look'
+description: Your kitchen window is more than just a view to the outside—it’s a perfect
+  spot to add style and personality to your space. Imagine how a simple change here
+  can
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-window&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen window is more than just a view to the outside—it’s a perfect spot to add style and personality to your space. Imagine how a simple change here can brighten your mornings and make cooking more enjoyable.**

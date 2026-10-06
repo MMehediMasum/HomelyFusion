@@ -1,10 +1,14 @@
 ---
-title: "How to Refinish a Bathroom Vanity Cabinet: Easy Steps for Stunning Results"
-description: "Is your bathroom vanity cabinet looking worn out or outdated? You don’t need to spend a fortune replacing it. Refinishing your bathroom vanity cabinet can give "
+title: 'How to Refinish a Bathroom Vanity Cabinet: Easy Steps for Stunning Results'
+description: 'Is your bathroom vanity cabinet looking worn out or outdated? You don’t
+  need to spend a fortune replacing it. Refinishing your bathroom vanity cabinet can
+  give '
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refinish-a-bathroom-vanity-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refinish-a-bathroom-vanity-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Is your bathroom vanity cabinet looking worn out or outdated? You don’t need to spend a fortune replacing it.**

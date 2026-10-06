@@ -1,10 +1,14 @@
 ---
-title: "What to Put on a Side Table in Living Room: Stylish & Practical Ideas"
-description: "Your living room’s side table is more than just a small surface—it’s a chance to add personality and style to your space. But what should you put on it? Choosin"
+title: 'What to Put on a Side Table in Living Room: Stylish & Practical Ideas'
+description: Your living room’s side table is more than just a small surface—it’s
+  a chance to add personality and style to your space. But what should you put on
+  it? Choosin
 pubDate: 2026-03-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-on-a-side-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-on-a-side-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room’s side table is more than just a small surface—it’s a chance to add personality and style to your space. But what should you put on it?**

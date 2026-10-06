@@ -1,10 +1,15 @@
 ---
-title: "Home Goods Lamps for Bedroom: Stylish, Functional Lighting Solutions for Every Space"
-description: "Choosing the right lamp can change the feel of your bedroom instantly. Home goods lamps combine style, function, and comfort in one simple item. A good bedroom "
+title: 'Home Goods Lamps for Bedroom: Stylish, Functional Lighting Solutions for Every
+  Space'
+description: 'Choosing the right lamp can change the feel of your bedroom instantly.
+  Home goods lamps combine style, function, and comfort in one simple item. A good
+  bedroom '
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamps-for-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamps-for-bedroom&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right lamp can change the feel of your bedroom instantly. Home goods lamps combine style, function, and comfort in one simple item.**

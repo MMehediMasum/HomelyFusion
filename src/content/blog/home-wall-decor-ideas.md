@@ -1,10 +1,14 @@
 ---
-title: "Home Wall Decor Ideas: Rustic Signs, Shelves & Stylish Farmhouse Accents"
-description: "Home wall decor ideas can transform any space quickly and easily. Adding unique pieces brings personality and warmth to your rooms. Choosing the right wall deco"
+title: 'Home Wall Decor Ideas: Rustic Signs, Shelves & Stylish Farmhouse Accents'
+description: Home wall decor ideas can transform any space quickly and easily. Adding
+  unique pieces brings personality and warmth to your rooms. Choosing the right wall
+  deco
 pubDate: 2026-08-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decor-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decor-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home wall decor ideas can transform any space quickly and easily. Adding unique pieces brings personality and warmth to your rooms.**

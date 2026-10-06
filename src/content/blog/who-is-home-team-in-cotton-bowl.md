@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who is Home Team in Cotton Bowl: Ultimate Guide to 2025 Matchup"
 description: "Are you curious about which team is called the \"Home Team\" in the Cotton Bowl? Knowing this might seem like a small detail, but it can actually change how you s"
 pubDate: 2026-04-03

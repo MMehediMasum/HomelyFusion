@@ -1,10 +1,14 @@
 ---
-title: "Snoopy Stocking Holder: Charming Holiday Decor for Your Mantle"
-description: "Snoopy stocking holders add fun and charm to holiday decorations. They hold stockings securely on mantles or fireplaces. These holders feature Snoopy and other "
+title: 'Snoopy Stocking Holder: Charming Holiday Decor for Your Mantle'
+description: 'Snoopy stocking holders add fun and charm to holiday decorations. They
+  hold stockings securely on mantles or fireplaces. These holders feature Snoopy and
+  other '
 pubDate: 2025-11-12
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-stocking-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-stocking-holder&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Snoopy stocking holders add fun and charm to holiday decorations. They hold stockings securely on mantles or fireplaces.**

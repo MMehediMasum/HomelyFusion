@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Google Home to Speakers: Easy Steps for Perfect Sound"
 description: "Want to get richer, fuller sound from your Google Home? Connecting it to external speakers can take your music, podcasts, and voice responses to the next level."
 pubDate: 2026-04-28

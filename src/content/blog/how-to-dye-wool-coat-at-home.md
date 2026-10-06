@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Dye Wool Coat at Home: Easy Steps for Stunning Results"
 description: "Have you ever looked at your wool coat and wished it had a fresh, new color? Dyeing your wool coat at home might sound tricky, but it’s easier than you think. I"
 pubDate: 2026-02-25

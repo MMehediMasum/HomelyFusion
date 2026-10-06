@@ -1,10 +1,14 @@
 ---
-title: "Callisto Home Pillows Home Goods: Stylish Decorative Covers for Every Room"
-description: "Callisto Home offers a variety of stylish and comfortable pillows for your home. Their collection suits different rooms and decor styles. These pillows add comf"
+title: 'Callisto Home Pillows Home Goods: Stylish Decorative Covers for Every Room'
+description: Callisto Home offers a variety of stylish and comfortable pillows for
+  your home. Their collection suits different rooms and decor styles. These pillows
+  add comf
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=callisto-home-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Pillows
+heroImage: https://tse1.mm.bing.net/th?q=callisto-home-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Callisto Home offers a variety of stylish and comfortable pillows for your home. Their collection suits different rooms and decor styles.**

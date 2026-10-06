@@ -1,10 +1,14 @@
 ---
-title: "Max Studio Throw Blanket: Ultra Soft Cozy Comfort for Every Season"
-description: "Max Studio throw blankets offer warmth and style for any living space. They blend softness with attractive designs for year-round comfort. A Max Studio throw bl"
+title: 'Max Studio Throw Blanket: Ultra Soft Cozy Comfort for Every Season'
+description: Max Studio throw blankets offer warmth and style for any living space.
+  They blend softness with attractive designs for year-round comfort. A Max Studio
+  throw bl
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=max-studio-throw-blanket&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Blankets & Throws
+heroImage: https://tse1.mm.bing.net/th?q=max-studio-throw-blanket&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Max Studio throw blankets offer warmth and style for any living space. They blend softness with attractive designs for year-round comfort.**

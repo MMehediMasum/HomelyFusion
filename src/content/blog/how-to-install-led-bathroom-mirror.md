@@ -1,10 +1,14 @@
 ---
-title: "How to Install Led Bathroom Mirror: Easy Steps for Stunning Results"
-description: "Are you ready to transform your bathroom with a sleek, modern touch? Installing an LED bathroom mirror is easier than you think, and it can instantly brighten y"
+title: 'How to Install Led Bathroom Mirror: Easy Steps for Stunning Results'
+description: Are you ready to transform your bathroom with a sleek, modern touch?
+  Installing an LED bathroom mirror is easier than you think, and it can instantly
+  brighten y
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-led-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-led-bathroom-mirror&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to transform your bathroom with a sleek, modern touch? Installing an LED bathroom mirror is easier than you think, and it can instantly brighten your space while adding style and function.**

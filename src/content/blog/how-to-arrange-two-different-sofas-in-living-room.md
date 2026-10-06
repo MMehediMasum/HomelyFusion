@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Two Different Sofas in Living Room: Expert Tips"
-description: "Are you wondering how to make two different sofas work perfectly in your living room? It might seem tricky at first, but with the right tips, you can create a c"
+title: 'How to Arrange Two Different Sofas in Living Room: Expert Tips'
+description: Are you wondering how to make two different sofas work perfectly in your
+  living room? It might seem tricky at first, but with the right tips, you can create
+  a c
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-two-different-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-two-different-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make two different sofas work perfectly in your living room? It might seem tricky at first, but with the right tips, you can create a cozy and stylish space that feels just right.**

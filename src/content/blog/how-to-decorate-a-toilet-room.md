@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Toilet Room: Stylish Tips for a Fresh Look"
-description: "Your toilet room might be small, but that doesn’t mean it has to be boring or plain. Imagine stepping into a space that feels fresh, inviting, and perfectly sui"
+title: 'How to Decorate a Toilet Room: Stylish Tips for a Fresh Look'
+description: Your toilet room might be small, but that doesn’t mean it has to be boring
+  or plain. Imagine stepping into a space that feels fresh, inviting, and perfectly
+  sui
 pubDate: 2025-09-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-toilet-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-toilet-room&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your toilet room might be small, but that doesn’t mean it has to be boring or plain. Imagine stepping into a space that feels fresh, inviting, and perfectly suited to your style—every single day.**

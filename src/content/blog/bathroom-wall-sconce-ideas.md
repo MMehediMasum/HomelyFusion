@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Wall Sconce Ideas: Stunning Designs to Brighten Your Space"
-description: "Your bathroom deserves more than just basic lighting. The right wall sconce can transform your space, making it feel cozy, stylish, and perfectly bright. If you"
+title: 'Bathroom Wall Sconce Ideas: Stunning Designs to Brighten Your Space'
+description: Your bathroom deserves more than just basic lighting. The right wall
+  sconce can transform your space, making it feel cozy, stylish, and perfectly bright.
+  If you
 pubDate: 2026-01-12
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-wall-sconce-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-wall-sconce-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your bathroom deserves more than just basic lighting. The right wall sconce can transform your space, making it feel cozy, stylish, and perfectly bright.**

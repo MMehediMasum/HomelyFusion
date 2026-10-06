@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Cork Flooring: Top Picks for Stylish, Durable Spaces"
-description: "Floor and Decor offers a variety of cork flooring options that blend style and comfort. Cork flooring is natural, durable, and easy to install. Cork flooring pr"
+title: 'Floor And Decor Cork Flooring: Top Picks for Stylish, Durable Spaces'
+description: Floor and Decor offers a variety of cork flooring options that blend
+  style and comfort. Cork flooring is natural, durable, and easy to install. Cork
+  flooring pr
 pubDate: 2026-07-14
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-cork-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-cork-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor offers a variety of cork flooring options that blend style and comfort. Cork flooring is natural, durable, and easy to install.**

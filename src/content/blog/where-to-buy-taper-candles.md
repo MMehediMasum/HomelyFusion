@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Taper Candles: Top Spots for Elegant Lighting"
-description: "Are you looking for the perfect taper candles to brighten your home or set the mood for a special occasion? Finding the right place to buy taper candles can fee"
+title: 'Where to Buy Taper Candles: Top Spots for Elegant Lighting'
+description: Are you looking for the perfect taper candles to brighten your home or
+  set the mood for a special occasion? Finding the right place to buy taper candles
+  can fee
 pubDate: 2025-09-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-taper-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-taper-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking for the perfect taper candles to brighten your home or set the mood for a special occasion? Finding the right place to buy taper candles can feel overwhelming with so many options out there.**

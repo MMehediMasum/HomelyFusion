@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Buy Bathroom Vanity near Me: Top Local Stores Revealed"
 description: "Looking to find the perfect bathroom vanity near you? Your bathroom deserves a stylish and functional upgrade, and choosing the right vanity can make all the di"
 pubDate: 2025-10-15

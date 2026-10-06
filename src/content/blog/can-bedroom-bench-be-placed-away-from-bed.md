@@ -1,10 +1,14 @@
 ---
-title: "Can Bedroom Bench Be Placed Away from Bed? Creative Ideas!"
-description: "Have you ever wondered if your bedroom bench has to sit right at the foot of your bed? You might be surprised to learn that where you place this stylish and pra"
+title: Can Bedroom Bench Be Placed Away from Bed? Creative Ideas!
+description: Have you ever wondered if your bedroom bench has to sit right at the
+  foot of your bed? You might be surprised to learn that where you place this stylish
+  and pra
 pubDate: 2026-05-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bedroom-bench-be-placed-away-from-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Benches
+heroImage: https://tse1.mm.bing.net/th?q=can-bedroom-bench-be-placed-away-from-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your bedroom bench has to sit right at the foot of your bed? You might be surprised to learn that where you place this stylish and practical piece can change the entire feel of your room.**

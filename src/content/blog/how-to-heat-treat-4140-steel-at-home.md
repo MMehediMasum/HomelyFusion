@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat 4140 Steel at Home: Easy Step-by-Step Guide"
 description: "If you work with metal, you know how important it is to get the right strength and durability. Heating 4140 steel at home can make a huge difference in your pro"
 pubDate: 2026-03-28

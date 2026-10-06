@@ -1,10 +1,14 @@
 ---
-title: "What are Best Table Lamps for a Traditional Living Room: Timeless Elegance"
-description: "Are you looking to add a warm and inviting glow to your traditional living room? Choosing the right table lamps can completely transform your space, making it f"
+title: 'What are Best Table Lamps for a Traditional Living Room: Timeless Elegance'
+description: Are you looking to add a warm and inviting glow to your traditional living
+  room? Choosing the right table lamps can completely transform your space, making
+  it f
 pubDate: 2026-02-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-best-table-lamps-for-a-traditional-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=what-are-best-table-lamps-for-a-traditional-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to add a warm and inviting glow to your traditional living room? Choosing the right table lamps can completely transform your space, making it feel cozy and elegant at the same time.**

@@ -1,10 +1,14 @@
 ---
-title: "Christmas Snowy Pine Garland: Stunning Decor Ideas to Spark Joy"
-description: "Imagine your home wrapped in the cozy magic of a Christmas Snowy Pine Garland. You can instantly bring the fresh, wintry outdoors inside, creating a warm and fe"
+title: 'Christmas Snowy Pine Garland: Stunning Decor Ideas to Spark Joy'
+description: Imagine your home wrapped in the cozy magic of a Christmas Snowy Pine
+  Garland. You can instantly bring the fresh, wintry outdoors inside, creating a warm
+  and fe
 pubDate: 2026-01-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-snowy-pine-garland&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-snowy-pine-garland&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine your home wrapped in the cozy magic of a Christmas Snowy Pine Garland. You can instantly bring the fresh, wintry outdoors inside, creating a warm and festive atmosphere that welcomes every guest.**

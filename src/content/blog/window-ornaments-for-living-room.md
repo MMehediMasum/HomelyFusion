@@ -1,10 +1,14 @@
 ---
-title: "Window Ornaments for Living Room: Unique Decorative Ideas to Brighten Spaces"
-description: "Window ornaments can transform your living room into a charming and inviting space. They add character and reflect personal style. Choosing the right window orn"
+title: 'Window Ornaments for Living Room: Unique Decorative Ideas to Brighten Spaces'
+description: Window ornaments can transform your living room into a charming and inviting
+  space. They add character and reflect personal style. Choosing the right window
+  orn
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=window-ornaments-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=window-ornaments-for-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Window ornaments can transform your living room into a charming and inviting space. They add character and reflect personal style.**

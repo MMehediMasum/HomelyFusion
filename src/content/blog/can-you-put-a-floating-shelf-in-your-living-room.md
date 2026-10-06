@@ -1,10 +1,14 @@
 ---
-title: "Can You Put a Floating Shelf in Your Living Room? Stylish Ideas!"
-description: "Are you wondering if a floating shelf could be the perfect addition to your living room? You might be picturing a sleek, modern space where your favorite books,"
+title: Can You Put a Floating Shelf in Your Living Room? Stylish Ideas!
+description: Are you wondering if a floating shelf could be the perfect addition to
+  your living room? You might be picturing a sleek, modern space where your favorite
+  books,
 pubDate: 2026-03-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-floating-shelf-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-floating-shelf-in-your-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you wondering if a floating shelf could be the perfect addition to your living room? You might be picturing a sleek, modern space where your favorite books, plants, or photos seem to hover effortlessly on the wall.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Wall Decoration Ideas with Stylish Shelves and Faux Ivy Accents"
-description: "Home wall decoration transforms plain walls into stylish focal points. It adds personality and warmth to any room instantly. Choosing the right decor items can "
+title: Home Wall Decoration Ideas with Stylish Shelves and Faux Ivy Accents
+description: 'Home wall decoration transforms plain walls into stylish focal points.
+  It adds personality and warmth to any room instantly. Choosing the right decor items
+  can '
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-wall-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-wall-decoration&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home wall decoration transforms plain walls into stylish focal points. It adds personality and warmth to any room instantly.**

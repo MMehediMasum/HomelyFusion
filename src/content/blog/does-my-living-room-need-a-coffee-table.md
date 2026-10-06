@@ -1,10 +1,14 @@
 ---
-title: "Does My Living Room Need a Coffee Table? Essential Tips Revealed"
-description: "Is your living room missing something? Maybe you’re wondering if a coffee table is really necessary. You might think it’s just a piece of furniture, but it can "
+title: Does My Living Room Need a Coffee Table? Essential Tips Revealed
+description: 'Is your living room missing something? Maybe you’re wondering if a coffee
+  table is really necessary. You might think it’s just a piece of furniture, but it
+  can '
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-my-living-room-need-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=does-my-living-room-need-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room missing something? Maybe you’re wondering if a coffee table is really necessary.**

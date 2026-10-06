@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Picture Frame: Stylish Black Frames for Wall and Tabletop Display"
-description: "Home goods picture frames add style and protect your favorite photos. They come in many sizes and designs to fit any space. Picture frames create a warm and per"
+title: 'Home Goods Picture Frame: Stylish Black Frames for Wall and Tabletop Display'
+description: Home goods picture frames add style and protect your favorite photos.
+  They come in many sizes and designs to fit any space. Picture frames create a warm
+  and per
 pubDate: 2026-08-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-picture-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-picture-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods picture frames add style and protect your favorite photos. They come in many sizes and designs to fit any space.**

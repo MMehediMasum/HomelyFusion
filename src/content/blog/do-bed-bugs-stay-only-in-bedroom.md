@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Bed Bugs Stay Only in Bedroom? Shocking Truth Revealed!"
 description: "Are you worried about bed bugs lurking in your home? You might think they only hide in the bedroom, but the truth is more surprising—and important for your peac"
 pubDate: 2026-05-25

@@ -1,10 +1,14 @@
 ---
-title: "Halloween Creepy Skeleton Punch: Spooky, Tasty & Easy Recipe"
-description: "Are you ready to take your Halloween party to the next level? Imagine serving a spooky, delicious drink that not only tastes amazing but also adds a creepy vibe"
+title: 'Halloween Creepy Skeleton Punch: Spooky, Tasty & Easy Recipe'
+description: Are you ready to take your Halloween party to the next level? Imagine
+  serving a spooky, delicious drink that not only tastes amazing but also adds a creepy
+  vibe
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-creepy-skeleton-punch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-creepy-skeleton-punch&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to take your Halloween party to the next level? Imagine serving a spooky, delicious drink that not only tastes amazing but also adds a creepy vibe to your celebration.**

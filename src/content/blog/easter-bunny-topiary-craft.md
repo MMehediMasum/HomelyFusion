@@ -1,10 +1,14 @@
 ---
-title: "Easter Bunny Topiary Craft: Creative DIY Ideas for Spring Decor"
-description: "Are you looking for a fun and creative way to bring Easter cheer to your home? Imagine crafting your very own Easter Bunny Topiary that not only adds charm but "
+title: 'Easter Bunny Topiary Craft: Creative DIY Ideas for Spring Decor'
+description: 'Are you looking for a fun and creative way to bring Easter cheer to
+  your home? Imagine crafting your very own Easter Bunny Topiary that not only adds
+  charm but '
 pubDate: 2025-09-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-bunny-topiary-craft&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Easter Bunny Decor
+heroImage: https://tse1.mm.bing.net/th?q=easter-bunny-topiary-craft&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking for a fun and creative way to bring Easter cheer to your home? Imagine crafting your very own Easter Bunny Topiary that not only adds charm but also becomes a centerpiece everyone will admire.**

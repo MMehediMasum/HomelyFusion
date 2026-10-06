@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Christmas Ornaments: Unique Chicken and Holiday Decor Ideas"
-description: "T.J. Maxx offers a delightful array of Christmas ornaments for the 2026 holiday season. Explore unique designs and festive options that bring joy to your home. "
+title: 'Tj Maxx Christmas Ornaments: Unique Chicken and Holiday Decor Ideas'
+description: 'T.J. Maxx offers a delightful array of Christmas ornaments for the 2026
+  holiday season. Explore unique designs and festive options that bring joy to your
+  home. '
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-christmas-ornaments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Ornaments
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-christmas-ornaments&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **T.J. Maxx offers a delightful array of Christmas ornaments for the 2026 holiday season. Explore unique designs and festive options that bring joy to your home.**

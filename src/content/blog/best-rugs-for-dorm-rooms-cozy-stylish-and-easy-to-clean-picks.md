@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Dorm Rooms: Cozy, Stylish, and Easy-to-Clean Picks"
-description: "Choosing the best rugs for dorm rooms helps create a cozy and stylish space. Rugs add comfort, color, and warmth to any small dorm room. Dorm rooms often have p"
+title: 'Best Rugs for Dorm Rooms: Cozy, Stylish, and Easy-to-Clean Picks'
+description: Choosing the best rugs for dorm rooms helps create a cozy and stylish
+  space. Rugs add comfort, color, and warmth to any small dorm room. Dorm rooms often
+  have p
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-dorm-rooms-cozy-stylish-and-easy-to-clean-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Area Rug Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-dorm-rooms-cozy-stylish-and-easy-to-clean-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best rugs for dorm rooms helps create a cozy and stylish space. Rugs add comfort, color, and warmth to any small dorm room.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Bedside Tables: Stylish Storage Solutions for Every Bedroom"
-description: "Homegoods bedside tables offer practical storage and style for any bedroom. They come in various designs, sizes, and colors to fit your needs. These bedside tab"
+title: 'Homegoods Bedside Tables: Stylish Storage Solutions for Every Bedroom'
+description: Homegoods bedside tables offer practical storage and style for any bedroom.
+  They come in various designs, sizes, and colors to fit your needs. These bedside
+  tab
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-bedside-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-bedside-tables&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods bedside tables offer practical storage and style for any bedroom. They come in various designs, sizes, and colors to fit your needs.**

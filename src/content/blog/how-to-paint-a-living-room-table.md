@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Living Room Table: Easy Steps for Stunning Results"
-description: "Are you looking to give your living room table a fresh, new look without spending a fortune? Painting your table is a simple and fun way to transform your space"
+title: 'How to Paint a Living Room Table: Easy Steps for Stunning Results'
+description: Are you looking to give your living room table a fresh, new look without
+  spending a fortune? Painting your table is a simple and fun way to transform your
+  space
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you looking to give your living room table a fresh, new look without spending a fortune? Painting your table is a simple and fun way to transform your space instantly.**

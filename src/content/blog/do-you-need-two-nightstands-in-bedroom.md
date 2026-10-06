@@ -1,10 +1,14 @@
 ---
-title: "Do You Need Two Nightstands in Bedroom: Essential Design Tips"
-description: "Have you ever wondered if your bedroom really needs two nightstands? You might think one is enough, or maybe you’re unsure if two will make your space look crow"
+title: 'Do You Need Two Nightstands in Bedroom: Essential Design Tips'
+description: Have you ever wondered if your bedroom really needs two nightstands?
+  You might think one is enough, or maybe you’re unsure if two will make your space
+  look crow
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-two-nightstands-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-two-nightstands-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if your bedroom really needs two nightstands? You might think one is enough, or maybe you’re unsure if two will make your space look crowded.**

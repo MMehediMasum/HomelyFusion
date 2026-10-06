@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Sofa in a Small Living Room: Expert Space-Saving Tips"
-description: "Struggling to fit your sofa into a small living room without making the space feel cramped? You’re not alone. Arranging furniture in a tight space can be tricky"
+title: 'How to Arrange Sofa in a Small Living Room: Expert Space-Saving Tips'
+description: Struggling to fit your sofa into a small living room without making the
+  space feel cramped? You’re not alone. Arranging furniture in a tight space can be
+  tricky
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-in-a-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-sofa-in-a-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Struggling to fit your sofa into a small living room without making the space feel cramped? You’re not alone.**

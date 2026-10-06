@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Diyas at Home: Easy Steps for Beautiful Decor"
-description: "Are you looking for a fun and creative way to brighten up your home during festive times? Making clay diyas by yourself is easier than you think, and it adds a "
+title: 'How to Make Clay Diyas at Home: Easy Steps for Beautiful Decor'
+description: 'Are you looking for a fun and creative way to brighten up your home
+  during festive times? Making clay diyas by yourself is easier than you think, and
+  it adds a '
 pubDate: 2025-09-04
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-diyas-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Making DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-diyas-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking for a fun and creative way to brighten up your home during festive times? Making clay diyas by yourself is easier than you think, and it adds a personal touch to your decorations.**

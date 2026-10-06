@@ -1,10 +1,14 @@
 ---
-title: "What to Store in Living Room Cabinets: Smart & Stylish Ideas"
-description: "Your living room cabinets hold more potential than you might realize. Knowing what to store in them can transform your space from cluttered to calm, making your"
+title: 'What to Store in Living Room Cabinets: Smart & Stylish Ideas'
+description: Your living room cabinets hold more potential than you might realize.
+  Knowing what to store in them can transform your space from cluttered to calm, making
+  your
 pubDate: 2026-03-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-store-in-living-room-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=what-to-store-in-living-room-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room cabinets hold more potential than you might realize. Knowing what to store in them can transform your space from cluttered to calm, making your daily life easier and more enjoyable.**

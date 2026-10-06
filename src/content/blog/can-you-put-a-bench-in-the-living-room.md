@@ -1,10 +1,14 @@
 ---
-title: "Can You Put a Bench in the Living Room: Stylish Seating Ideas"
-description: "Have you ever wondered if a bench could fit perfectly in your living room? It’s a simple piece of furniture, but it can change the whole vibe of your space. Ima"
+title: 'Can You Put a Bench in the Living Room: Stylish Seating Ideas'
+description: Have you ever wondered if a bench could fit perfectly in your living
+  room? It’s a simple piece of furniture, but it can change the whole vibe of your
+  space. Ima
 pubDate: 2026-03-25
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-a-bench-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-a-bench-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if a bench could fit perfectly in your living room? It’s a simple piece of furniture, but it can change the whole vibe of your space.**

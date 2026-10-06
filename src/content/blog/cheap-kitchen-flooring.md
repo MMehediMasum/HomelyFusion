@@ -1,10 +1,14 @@
 ---
-title: "Cheap Kitchen Flooring Solutions: Top Cushioned Anti-Fatigue Mats for Comfort"
-description: "Finding cheap kitchen flooring that combines comfort and durability is easier than you think. Many affordable mats offer anti-fatigue features, non-slip surface"
+title: 'Cheap Kitchen Flooring Solutions: Top Cushioned Anti-Fatigue Mats for Comfort'
+description: Finding cheap kitchen flooring that combines comfort and durability is
+  easier than you think. Many affordable mats offer anti-fatigue features, non-slip
+  surface
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-kitchen-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Retailers
+heroImage: https://tse1.mm.bing.net/th?q=cheap-kitchen-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Finding cheap kitchen flooring that combines comfort and durability is easier than you think. Many affordable mats offer anti-fatigue features, non-slip surfaces, and stain resistance.**

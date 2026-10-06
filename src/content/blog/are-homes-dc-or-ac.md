@@ -1,10 +1,14 @@
 ---
-title: "Are Homes Dc Or Ac: Which Power Source Saves More Energy?"
-description: "Have you ever stopped to wonder whether the electricity powering your home is DC or AC? Knowing the difference can change how you see your daily energy use. It’"
+title: 'Are Homes Dc Or Ac: Which Power Source Saves More Energy?'
+description: Have you ever stopped to wonder whether the electricity powering your
+  home is DC or AC? Knowing the difference can change how you see your daily energy
+  use. It’
 pubDate: 2025-11-20
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-homes-dc-or-ac&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-homes-dc-or-ac&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever stopped to wonder whether the electricity powering your home is DC or AC? Knowing the difference can change how you see your daily energy use.**

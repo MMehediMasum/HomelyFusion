@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Google Home on Tv: Easy Steps for Smart Setup"
 description: "Want to control your TV with just your voice? Installing Google Home on your TV can make that happen easily. Imagine changing channels, adjusting volume, or pla"
 pubDate: 2026-04-22

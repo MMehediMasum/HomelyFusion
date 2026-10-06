@@ -1,10 +1,13 @@
 ---
-title: "What is the Average Size of a Living Room Chair: Ultimate Guide"
-description: "Are you thinking about adding a new chair to your living room but unsure about the right size? Choosing the perfect living room chair isn’t just about style—it’"
+title: 'What is the Average Size of a Living Room Chair: Ultimate Guide'
+description: Are you thinking about adding a new chair to your living room but unsure
+  about the right size? Choosing the perfect living room chair isn’t just about style—it’
 pubDate: 2026-02-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-average-size-of-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-average-size-of-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you thinking about adding a new chair to your living room but unsure about the right size? Choosing the perfect living room chair isn’t just about style—it’s about comfort and fit.**

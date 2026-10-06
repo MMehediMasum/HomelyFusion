@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Pendant Lighting Ideas: Stunning Designs to Transform Your Space"
-description: "Looking to transform your bathroom into a stylish and inviting space? Bathroom pendant lighting might be just what you need. Imagine soft, glowing lights that a"
+title: 'Bathroom Pendant Lighting Ideas: Stunning Designs to Transform Your Space'
+description: Looking to transform your bathroom into a stylish and inviting space?
+  Bathroom pendant lighting might be just what you need. Imagine soft, glowing lights
+  that a
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-pendant-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-pendant-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Looking to transform your bathroom into a stylish and inviting space? Bathroom pendant lighting might be just what you need.**

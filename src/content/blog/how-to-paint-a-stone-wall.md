@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Stone Wall: Expert Tips for a Stunning Finish"
-description: "Are you looking to transform your stone wall into a stunning feature that grabs attention? Painting a stone wall might seem tricky, but with the right steps, yo"
+title: 'How to Paint a Stone Wall: Expert Tips for a Stunning Finish'
+description: Are you looking to transform your stone wall into a stunning feature
+  that grabs attention? Painting a stone wall might seem tricky, but with the right
+  steps, yo
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-stone-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-stone-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your stone wall into a stunning feature that grabs attention? Painting a stone wall might seem tricky, but with the right steps, you can achieve a fresh, beautiful look that lasts.**

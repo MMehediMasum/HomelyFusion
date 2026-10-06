@@ -1,10 +1,14 @@
 ---
-title: "Furniture And Decoration Ideas: Stylish Storage, Lighting & Cozy Home Accents"
-description: "Creating a cozy and stylish home environment involves thoughtful choices in furniture and decoration. It's about blending functionality with aesthetics to refle"
+title: 'Furniture And Decoration Ideas: Stylish Storage, Lighting & Cozy Home Accents'
+description: Creating a cozy and stylish home environment involves thoughtful choices
+  in furniture and decoration. It's about blending functionality with aesthetics to
+  refle
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-and-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-and-decoration&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating a cozy and stylish home environment involves thoughtful choices in furniture and decoration. It's about blending functionality with aesthetics to reflect personal style.**

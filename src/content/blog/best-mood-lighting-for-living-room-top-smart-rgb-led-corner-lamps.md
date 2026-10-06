@@ -1,10 +1,13 @@
 ---
-title: "Best Mood Lighting for Living Room: Top Smart RGB LED Corner Lamps"
-description: "Choosing the best mood lighting can transform your living room into a cozy, inviting space. The right light sets the perfect tone for relaxation or entertainmen"
+title: 'Best Mood Lighting for Living Room: Top Smart RGB LED Corner Lamps'
+description: Choosing the best mood lighting can transform your living room into a
+  cozy, inviting space. The right light sets the perfect tone for relaxation or entertainmen
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mood-lighting-for-living-room-top-smart-rgb-led-corner-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Specialty Floor Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-mood-lighting-for-living-room-top-smart-rgb-led-corner-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best mood lighting can transform your living room into a cozy, inviting space. The right light sets the perfect tone for relaxation or entertainment.**

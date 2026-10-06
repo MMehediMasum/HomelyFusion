@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Flower Vases: Stylish Centerpieces for Every Room Decor"
-description: "Home goods flower vases add charm and style to any room. They brighten spaces and create a welcoming atmosphere. Flower vases come in many shapes, sizes, and ma"
+title: 'Home Goods Flower Vases: Stylish Centerpieces for Every Room Decor'
+description: Home goods flower vases add charm and style to any room. They brighten
+  spaces and create a welcoming atmosphere. Flower vases come in many shapes, sizes,
+  and ma
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-flower-vases&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Vases & Planters
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-flower-vases&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Home goods flower vases add charm and style to any room. They brighten spaces and create a welcoming atmosphere.**

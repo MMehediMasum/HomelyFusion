@@ -1,10 +1,14 @@
 ---
-title: "Avon Christmas Tree Advent Calendar: Ultimate Makeup Gift for Holiday Beauty"
-description: "The Avon Christmas Tree Advent Calendar offers 24 days of festive beauty surprises. Each day reveals a new makeup or skincare treat to enjoy. This advent calend"
+title: 'Avon Christmas Tree Advent Calendar: Ultimate Makeup Gift for Holiday Beauty'
+description: The Avon Christmas Tree Advent Calendar offers 24 days of festive beauty
+  surprises. Each day reveals a new makeup or skincare treat to enjoy. This advent
+  calend
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=avon-christmas-tree-advent-calendar&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=avon-christmas-tree-advent-calendar&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **The Avon Christmas Tree Advent Calendar offers 24 days of festive beauty surprises. Each day reveals a new makeup or skincare treat to enjoy.**

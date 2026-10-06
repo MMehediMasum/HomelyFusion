@@ -1,10 +1,13 @@
 ---
-title: "Fall Wreaths Home Goods: Stunning Autumn Decor for Front Door Style"
-description: "Fall wreaths bring warmth and charm to any home during the autumn season. These decorations create a cozy, festive feel for porches, doors, and walls. Choosing "
+title: 'Fall Wreaths Home Goods: Stunning Autumn Decor for Front Door Style'
+description: 'Fall wreaths bring warmth and charm to any home during the autumn season.
+  These decorations create a cozy, festive feel for porches, doors, and walls. Choosing '
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-wreaths-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=fall-wreaths-home-goods&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Fall wreaths bring warmth and charm to any home during the autumn season. These decorations create a cozy, festive feel for porches, doors, and walls.**

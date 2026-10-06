@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Crack in Bathroom Vanity Top: Easy DIY Repairs"
-description: "A crack in your bathroom vanity top can be more than just an eyesore—it can make you worry about water damage and costly repairs. But before you think about rep"
+title: 'How to Fix Crack in Bathroom Vanity Top: Easy DIY Repairs'
+description: A crack in your bathroom vanity top can be more than just an eyesore—it
+  can make you worry about water damage and costly repairs. But before you think about
+  rep
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **A crack in your bathroom vanity top can be more than just an eyesore—it can make you worry about water damage and costly repairs. But before you think about replacing the entire vanity, there’s good news: you can fix it yourself, quickly and easily.**

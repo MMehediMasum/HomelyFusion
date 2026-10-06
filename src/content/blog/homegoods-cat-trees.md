@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Cat Trees: Ultimate Multi-Level Play and Sleep Towers for Cats"
-description: "Cat trees are essential for indoor cats, offering them a place to play and rest. These structures provide entertainment and comfort. Cat trees, such as those fr"
+title: 'Homegoods Cat Trees: Ultimate Multi-Level Play and Sleep Towers for Cats'
+description: Cat trees are essential for indoor cats, offering them a place to play
+  and rest. These structures provide entertainment and comfort. Cat trees, such as
+  those fr
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-cat-trees&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-cat-trees&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cat trees are essential for indoor cats, offering them a place to play and rest. These structures provide entertainment and comfort.**

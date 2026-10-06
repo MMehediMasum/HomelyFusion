@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Your Office Cubicle for Christmas: Festive & Fun Ideas"
-description: "Are you ready to turn your office cubicle into a festive holiday haven? Decorating your workspace for Christmas is a fun way to boost your mood, spread cheer, a"
+title: 'How to Decorate Your Office Cubicle for Christmas: Festive & Fun Ideas'
+description: Are you ready to turn your office cubicle into a festive holiday haven?
+  Decorating your workspace for Christmas is a fun way to boost your mood, spread
+  cheer, a
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-your-office-cubicle-for-christmas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-your-office-cubicle-for-christmas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to turn your office cubicle into a festive holiday haven? Decorating your workspace for Christmas is a fun way to boost your mood, spread cheer, and make those long workdays feel a little brighter.**

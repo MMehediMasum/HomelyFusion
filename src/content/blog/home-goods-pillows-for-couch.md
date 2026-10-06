@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pillows for Couch: Stylish Comfort and Decor Essentials"
-description: "Pillows add comfort and style to your couch. They can transform your living space with ease and elegance. Discovering the right pillows for your couch can eleva"
+title: 'Home Goods Pillows for Couch: Stylish Comfort and Decor Essentials'
+description: Pillows add comfort and style to your couch. They can transform your
+  living space with ease and elegance. Discovering the right pillows for your couch
+  can eleva
 pubDate: 2026-07-12
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pillows-for-couch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pillows-for-couch&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Pillows add comfort and style to your couch. They can transform your living space with ease and elegance.**

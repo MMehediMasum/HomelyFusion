@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Kids Bedroom With Two Beds: Smart Space-Saving Ideas"
-description: "Are you struggling to find the best way to arrange your kids' bedroom with two beds? You’re not alone. Making the most of limited space while keeping the room c"
+title: 'How to Arrange Kids Bedroom With Two Beds: Smart Space-Saving Ideas'
+description: Are you struggling to find the best way to arrange your kids' bedroom
+  with two beds? You’re not alone. Making the most of limited space while keeping
+  the room c
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-kids-bedroom-with-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-kids-bedroom-with-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you struggling to find the best way to arrange your kids' bedroom with two beds? You’re not alone.**

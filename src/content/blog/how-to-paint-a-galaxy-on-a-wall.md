@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Galaxy on a Wall: Stunning DIY Wall Art Guide"
-description: "Imagine transforming your plain wall into a stunning galaxy full of stars, colors, and endless beauty. You don’t need to be an artist or have special skills to "
+title: 'How to Paint a Galaxy on a Wall: Stunning DIY Wall Art Guide'
+description: 'Imagine transforming your plain wall into a stunning galaxy full of
+  stars, colors, and endless beauty. You don’t need to be an artist or have special
+  skills to '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-galaxy-on-a-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Imagine transforming your plain wall into a stunning galaxy full of stars, colors, and endless beauty. You don’t need to be an artist or have special skills to create this breathtaking effect.**

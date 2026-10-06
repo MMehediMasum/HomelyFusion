@@ -1,10 +1,14 @@
 ---
-title: "What are Standard Bathroom Vanity Sizes: Ultimate Guide for Perfect Fit"
-description: "Choosing the right bathroom vanity size can transform your space from cramped to comfortable. But how do you know what fits best? Understanding standard bathroo"
+title: 'What are Standard Bathroom Vanity Sizes: Ultimate Guide for Perfect Fit'
+description: Choosing the right bathroom vanity size can transform your space from
+  cramped to comfortable. But how do you know what fits best? Understanding standard
+  bathroo
 pubDate: 2025-12-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-standard-bathroom-vanity-sizes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=what-are-standard-bathroom-vanity-sizes&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bathroom vanity size can transform your space from cramped to comfortable. But how do you know what fits best?**

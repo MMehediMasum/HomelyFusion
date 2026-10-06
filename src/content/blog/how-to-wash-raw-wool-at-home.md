@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Raw Wool at Home: Easy Steps for Perfect Results"
 description: "If you’ve ever wondered how to wash raw wool at home without ruining it, you’re in the right place. Cleaning raw wool can seem tricky, but with the right steps,"
 pubDate: 2026-02-11

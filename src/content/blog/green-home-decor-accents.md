@@ -1,10 +1,13 @@
 ---
-title: "Green Home Decor Accents to Refresh Your Living Space with Style"
-description: "Bringing nature indoors is a beautiful way to create a serene and inviting home atmosphere. Green home decor accents can transform your space with their soothin"
+title: Green Home Decor Accents to Refresh Your Living Space with Style
+description: Bringing nature indoors is a beautiful way to create a serene and inviting
+  home atmosphere. Green home decor accents can transform your space with their soothin
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=green-home-decor-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decor Furniture Accessories
+heroImage: https://tse1.mm.bing.net/th?q=green-home-decor-accents&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Bringing nature indoors is a beautiful way to create a serene and inviting home atmosphere. Green home decor accents can transform your space with their soothing tones and natural charm.**

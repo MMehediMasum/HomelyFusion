@@ -1,10 +1,14 @@
 ---
-title: "How to Make Paper Clay at Home: Easy DIY Craft Guide"
-description: "Have you ever wanted to create something unique with your own hands but didn’t know where to start? Making paper clay at home is easier than you think—and it op"
+title: 'How to Make Paper Clay at Home: Easy DIY Craft Guide'
+description: Have you ever wanted to create something unique with your own hands but
+  didn’t know where to start? Making paper clay at home is easier than you think—and
+  it op
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-paper-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-paper-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something unique with your own hands but didn’t know where to start? Making paper clay at home is easier than you think—and it opens up a world of creative possibilities for you.**

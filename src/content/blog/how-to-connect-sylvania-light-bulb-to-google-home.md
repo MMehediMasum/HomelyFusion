@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Sylvania Light Bulb to Google Home: Easy Setup Guide"
-description: "Are you ready to make your home smarter and more convenient? Connecting your Sylvania light bulb to Google Home lets you control your lighting with just your vo"
+title: 'How to Connect Sylvania Light Bulb to Google Home: Easy Setup Guide'
+description: Are you ready to make your home smarter and more convenient? Connecting
+  your Sylvania light bulb to Google Home lets you control your lighting with just
+  your vo
 pubDate: 2026-04-20
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-sylvania-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-sylvania-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to make your home smarter and more convenient? Connecting your Sylvania light bulb to Google Home lets you control your lighting with just your voice.**

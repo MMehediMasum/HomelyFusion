@@ -1,10 +1,15 @@
 ---
-title: "Holiday Decorations for the Home: Charming Interchangeable Seasonal Signs & Accents"
-description: "Holiday decorations bring warmth and joy to your home during special seasons. They create a festive atmosphere that welcomes family and friends. Decorating your"
+title: 'Holiday Decorations for the Home: Charming Interchangeable Seasonal Signs
+  & Accents'
+description: Holiday decorations bring warmth and joy to your home during special
+  seasons. They create a festive atmosphere that welcomes family and friends. Decorating
+  your
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-decorations-for-the-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Holiday Decorating Ideas
+heroImage: https://tse1.mm.bing.net/th?q=holiday-decorations-for-the-home&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Holiday decorations bring warmth and joy to your home during special seasons. They create a festive atmosphere that welcomes family and friends.**

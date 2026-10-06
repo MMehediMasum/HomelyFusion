@@ -1,10 +1,14 @@
 ---
-title: "Brooks Brothers Rugs Home Goods: Stylish, Durable Rugs for Every Room"
-description: "Brooks Brothers Rugs offers stylish, durable home goods to enhance any living space. Their collection features a variety of sizes, colors, and designs to fit di"
+title: 'Brooks Brothers Rugs Home Goods: Stylish, Durable Rugs for Every Room'
+description: Brooks Brothers Rugs offers stylish, durable home goods to enhance any
+  living space. Their collection features a variety of sizes, colors, and designs
+  to fit di
 pubDate: 2026-06-10
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=brooks-brothers-rugs-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=brooks-brothers-rugs-home-goods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Brooks Brothers Rugs offers stylish, durable home goods to enhance any living space. Their collection features a variety of sizes, colors, and designs to fit different tastes.**

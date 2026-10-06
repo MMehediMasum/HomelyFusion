@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Bathroom Cabinet Ideas for Stylish and Functional Storage"
-description: "A well-chosen bathroom cabinet can transform your space, adding both style and functionality. With various options available, finding the right one can seem dau"
+title: Home Decorators Bathroom Cabinet Ideas for Stylish and Functional Storage
+description: A well-chosen bathroom cabinet can transform your space, adding both
+  style and functionality. With various options available, finding the right one can
+  seem dau
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-bathroom-cabinet&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-bathroom-cabinet&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **A well-chosen bathroom cabinet can transform your space, adding both style and functionality. With various options available, finding the right one can seem daunting.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Wood Panel Wall: Easy Steps for a Stunning Makeover"
-description: "Are you looking to transform your room quickly and affordably? Painting a wood panel wall can give your space a fresh, modern look without the need for expensiv"
+title: 'How to Paint a Wood Panel Wall: Easy Steps for a Stunning Makeover'
+description: Are you looking to transform your room quickly and affordably? Painting
+  a wood panel wall can give your space a fresh, modern look without the need for
+  expensiv
 pubDate: 2026-01-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-wood-panel-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-wood-panel-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to transform your room quickly and affordably? Painting a wood panel wall can give your space a fresh, modern look without the need for expensive renovations.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Get Cotton Out of Your Ear at Home: Quick Safe Tips"
 description: "Have you ever accidentally pushed a piece of cotton deep into your ear and felt that uncomfortable blockage? It’s a common problem that can cause irritation, mu"
 pubDate: 2025-11-09

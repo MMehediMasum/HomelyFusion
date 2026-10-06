@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Heat Treat Steel at Home: Easy Steps for Perfect Results"
 description: "If you’ve ever wanted to make your steel stronger, harder, or just more durable, heat treating is the secret skill you need. Imagine being able to improve your "
 pubDate: 2026-03-21

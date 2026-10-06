@@ -1,10 +1,14 @@
 ---
-title: "Halloween Ghost Cake Pops: Spooky, Sweet Treats to Delight Kids"
-description: "Are you ready to wow your guests this Halloween with a spooky treat that's as fun to make as it is to eat? Halloween Ghost Cake Pops are the perfect way to brin"
+title: 'Halloween Ghost Cake Pops: Spooky, Sweet Treats to Delight Kids'
+description: Are you ready to wow your guests this Halloween with a spooky treat that's
+  as fun to make as it is to eat? Halloween Ghost Cake Pops are the perfect way to
+  brin
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-ghost-cake-pops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-ghost-cake-pops&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to wow your guests this Halloween with a spooky treat that's as fun to make as it is to eat? Halloween Ghost Cake Pops are the perfect way to bring a little magic and mystery to your party table.**

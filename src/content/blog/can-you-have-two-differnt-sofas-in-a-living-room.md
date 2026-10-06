@@ -1,10 +1,14 @@
 ---
-title: "Can You Have Two Different Sofas in a Living Room? Stylish Tips"
-description: "Are you wondering if you can have two different sofas in your living room without it looking messy? You’re not alone. Mixing sofas might seem risky, but it can "
+title: Can You Have Two Different Sofas in a Living Room? Stylish Tips
+description: 'Are you wondering if you can have two different sofas in your living
+  room without it looking messy? You’re not alone. Mixing sofas might seem risky,
+  but it can '
 pubDate: 2026-02-28
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-have-two-differnt-sofas-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-you-have-two-differnt-sofas-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if you can have two different sofas in your living room without it looking messy? You’re not alone.**

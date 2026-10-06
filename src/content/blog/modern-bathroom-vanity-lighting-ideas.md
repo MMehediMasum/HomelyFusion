@@ -1,10 +1,14 @@
 ---
-title: "Modern Bathroom Vanity Lighting Ideas: Brighten Your Space Stylishly"
-description: "Your bathroom deserves lighting that not only brightens the space but also highlights your style and makes daily routines easier. Choosing the right vanity ligh"
+title: 'Modern Bathroom Vanity Lighting Ideas: Brighten Your Space Stylishly'
+description: Your bathroom deserves lighting that not only brightens the space but
+  also highlights your style and makes daily routines easier. Choosing the right vanity
+  ligh
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-bathroom-vanity-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=modern-bathroom-vanity-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Your bathroom deserves lighting that not only brightens the space but also highlights your style and makes daily routines easier. Choosing the right vanity lighting can transform your bathroom from ordinary to stunning.**

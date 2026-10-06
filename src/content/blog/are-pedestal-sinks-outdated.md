@@ -1,10 +1,14 @@
 ---
-title: "Are Pedestal Sinks Outdated? Discover the Stylish Truth!"
-description: "Are pedestal sinks still a good choice for your bathroom, or have they become outdated? If you’re thinking about updating your space, this question matters more"
+title: Are Pedestal Sinks Outdated? Discover the Stylish Truth!
+description: Are pedestal sinks still a good choice for your bathroom, or have they
+  become outdated? If you’re thinking about updating your space, this question matters
+  more
 pubDate: 2026-01-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-pedestal-sinks-outdated&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=are-pedestal-sinks-outdated&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are pedestal sinks still a good choice for your bathroom, or have they become outdated? If you’re thinking about updating your space, this question matters more than you might realize.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Mobile Home Wall: Expert Tips for a Flawless Finish"
-description: "Are you ready to give your mobile home a fresh, new look without spending a fortune? Painting your mobile home wall is one of the easiest and most effective way"
+title: 'How to Paint a Mobile Home Wall: Expert Tips for a Flawless Finish'
+description: Are you ready to give your mobile home a fresh, new look without spending
+  a fortune? Painting your mobile home wall is one of the easiest and most effective
+  way
 pubDate: 2025-11-09
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-mobile-home-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Luxury Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-mobile-home-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to give your mobile home a fresh, new look without spending a fortune? Painting your mobile home wall is one of the easiest and most effective ways to transform your space.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Big Bedroom Wall: Stunning Ideas That Wow"
-description: "Your big bedroom wall is a blank canvas waiting to come alive. But filling such a large space can feel overwhelming. You might wonder how to make it look stylis"
+title: 'How to Decorate a Big Bedroom Wall: Stunning Ideas That Wow'
+description: Your big bedroom wall is a blank canvas waiting to come alive. But filling
+  such a large space can feel overwhelming. You might wonder how to make it look stylis
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-bedroom-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-big-bedroom-wall&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your big bedroom wall is a blank canvas waiting to come alive. But filling such a large space can feel overwhelming.**

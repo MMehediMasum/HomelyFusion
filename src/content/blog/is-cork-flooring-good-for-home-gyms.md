@@ -1,10 +1,14 @@
 ---
-title: "Is Cork Flooring Good for Home Gyms: Ultimate Comfort & Durability"
-description: "Are you thinking about setting up a home gym and wondering if cork flooring is the right choice for you? Choosing the right floor can make a big difference in h"
+title: 'Is Cork Flooring Good for Home Gyms: Ultimate Comfort & Durability'
+description: Are you thinking about setting up a home gym and wondering if cork flooring
+  is the right choice for you? Choosing the right floor can make a big difference
+  in h
 pubDate: 2026-02-05
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-cork-flooring-good-for-home-gyms&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=is-cork-flooring-good-for-home-gyms&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Are you thinking about setting up a home gym and wondering if cork flooring is the right choice for you? Choosing the right floor can make a big difference in how comfortable and safe your workouts feel.**

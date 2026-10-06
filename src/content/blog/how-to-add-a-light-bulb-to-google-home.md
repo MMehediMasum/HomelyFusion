@@ -1,10 +1,14 @@
 ---
-title: "How to Add a Light Bulb to Google Home: Easy Smart Setup Guide"
-description: "Imagine walking into a room and turning on the lights without lifting a finger. Sounds convenient, right? If you have a Google Home device, adding a smart light"
+title: 'How to Add a Light Bulb to Google Home: Easy Smart Setup Guide'
+description: Imagine walking into a room and turning on the lights without lifting
+  a finger. Sounds convenient, right? If you have a Google Home device, adding a smart
+  light
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-a-light-bulb-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-a-light-bulb-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine walking into a room and turning on the lights without lifting a finger. Sounds convenient, right?**

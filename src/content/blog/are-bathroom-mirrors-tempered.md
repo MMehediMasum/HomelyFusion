@@ -1,10 +1,14 @@
 ---
-title: "Are Bathroom Mirrors Tempered: Essential Safety Facts Revealed"
-description: "Have you ever stopped to think about the safety of your bathroom mirror? You use it every day, but do you really know if it’s strong enough to protect you? Unde"
+title: 'Are Bathroom Mirrors Tempered: Essential Safety Facts Revealed'
+description: Have you ever stopped to think about the safety of your bathroom mirror?
+  You use it every day, but do you really know if it’s strong enough to protect you?
+  Unde
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-bathroom-mirrors-tempered&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=are-bathroom-mirrors-tempered&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you ever stopped to think about the safety of your bathroom mirror? You use it every day, but do you really know if it’s strong enough to protect you?**

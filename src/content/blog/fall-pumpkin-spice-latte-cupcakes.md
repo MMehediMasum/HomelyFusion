@@ -1,10 +1,14 @@
 ---
-title: "Fall Pumpkin Spice Latte Cupcakes: Irresistible Autumn Delight"
-description: "Imagine biting into a cupcake that tastes just like your favorite fall drink—the pumpkin spice latte. These Fall Pumpkin Spice Latte Cupcakes bring together the"
+title: 'Fall Pumpkin Spice Latte Cupcakes: Irresistible Autumn Delight'
+description: Imagine biting into a cupcake that tastes just like your favorite fall
+  drink—the pumpkin spice latte. These Fall Pumpkin Spice Latte Cupcakes bring together
+  the
 pubDate: 2025-12-24
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-pumpkin-spice-latte-cupcakes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-pumpkin-spice-latte-cupcakes&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine biting into a cupcake that tastes just like your favorite fall drink—the pumpkin spice latte. These Fall Pumpkin Spice Latte Cupcakes bring together the cozy flavors you love in a fun, sweet treat.**

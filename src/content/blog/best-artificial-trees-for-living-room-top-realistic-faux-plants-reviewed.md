@@ -1,10 +1,14 @@
 ---
-title: "Best Artificial Trees for Living Room: Top Realistic Faux Plants Reviewed"
-description: "Artificial trees bring natural beauty and freshness to living rooms without the hassle of maintenance. They brighten spaces and add a cozy, green touch all year"
+title: 'Best Artificial Trees for Living Room: Top Realistic Faux Plants Reviewed'
+description: Artificial trees bring natural beauty and freshness to living rooms without
+  the hassle of maintenance. They brighten spaces and add a cozy, green touch all
+  year
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-artificial-trees-for-living-room-top-realistic-faux-plants-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Plants & Greenery
+heroImage: https://tse1.mm.bing.net/th?q=best-artificial-trees-for-living-room-top-realistic-faux-plants-reviewed&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Artificial trees bring natural beauty and freshness to living rooms without the hassle of maintenance. They brighten spaces and add a cozy, green touch all year round.**

@@ -1,10 +1,14 @@
 ---
-title: "Christmas Silver And Blue Tree Decor: Stunning Ideas to Wow Guests"
-description: "Are you looking to make your Christmas tree truly stand out this year? Imagine your living room glowing with the cool sparkle of silver and the calm charm of bl"
+title: 'Christmas Silver And Blue Tree Decor: Stunning Ideas to Wow Guests'
+description: Are you looking to make your Christmas tree truly stand out this year?
+  Imagine your living room glowing with the cool sparkle of silver and the calm charm
+  of bl
 pubDate: 2025-09-15
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-silver-and-blue-tree-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-silver-and-blue-tree-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to make your Christmas tree truly stand out this year? Imagine your living room glowing with the cool sparkle of silver and the calm charm of blue.**

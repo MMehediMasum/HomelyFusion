@@ -1,10 +1,14 @@
 ---
-title: "Lighted Home Decor Ideas: Stunning LED Candles and Fairy Light Trees"
-description: "Illuminate your home with stunning lighted decor options. Create a cozy, inviting atmosphere with ease. Lighted home decor offers an enchanting way to elevate y"
+title: 'Lighted Home Decor Ideas: Stunning LED Candles and Fairy Light Trees'
+description: Illuminate your home with stunning lighted decor options. Create a cozy,
+  inviting atmosphere with ease. Lighted home decor offers an enchanting way to elevate
+  y
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=lighted-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=lighted-home-decor&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Illuminate your home with stunning lighted decor options. Create a cozy, inviting atmosphere with ease.**

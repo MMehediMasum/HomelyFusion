@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Bend Stainless Steel at Home: Easy Steps for Perfect Bends"
 description: "Bending stainless steel at home might sound tricky, but it doesn’t have to be. Whether you’re working on a DIY project or need a custom piece for your repair, k"
 pubDate: 2026-04-08

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Drill Spring Steel at Home: Easy Steps for Perfect Holes"
 description: "Drilling spring steel at home can feel like a tough challenge. You might worry about breaking your drill bit or ruining the steel. But what if you had simple, c"
 pubDate: 2026-03-18

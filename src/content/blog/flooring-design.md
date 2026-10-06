@@ -1,10 +1,14 @@
 ---
-title: "Flooring Design Ideas with Stylish Lamps, Rugs, and Floor Decals"
-description: "Flooring design shapes the look and feel of any space. It blends style, function, and comfort to create inviting rooms. Choosing the right flooring design affec"
+title: Flooring Design Ideas with Stylish Lamps, Rugs, and Floor Decals
+description: Flooring design shapes the look and feel of any space. It blends style,
+  function, and comfort to create inviting rooms. Choosing the right flooring design
+  affec
 pubDate: 2026-07-05
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-design&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=flooring-design&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Flooring design shapes the look and feel of any space. It blends style, function, and comfort to create inviting rooms.**

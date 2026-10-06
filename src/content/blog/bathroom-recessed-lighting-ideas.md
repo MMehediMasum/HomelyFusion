@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Recessed Lighting Ideas: Brighten Your Space Stylishly"
-description: "Are you looking to transform your bathroom into a stylish and inviting space? Bathroom recessed lighting might be the secret you’ve been missing. It’s a simple "
+title: 'Bathroom Recessed Lighting Ideas: Brighten Your Space Stylishly'
+description: 'Are you looking to transform your bathroom into a stylish and inviting
+  space? Bathroom recessed lighting might be the secret you’ve been missing. It’s
+  a simple '
 pubDate: 2025-12-27
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-recessed-lighting-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-recessed-lighting-ideas&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to transform your bathroom into a stylish and inviting space? Bathroom recessed lighting might be the secret you’ve been missing.**

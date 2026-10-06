@@ -1,10 +1,14 @@
 ---
-title: "Christmas Santa Hat Chair Covers: Festive Magic for Your Home"
-description: "Are you ready to bring a burst of holiday cheer to your home or office? Christmas Santa Hat Chair Covers are the perfect way to transform ordinary chairs into f"
+title: 'Christmas Santa Hat Chair Covers: Festive Magic for Your Home'
+description: Are you ready to bring a burst of holiday cheer to your home or office?
+  Christmas Santa Hat Chair Covers are the perfect way to transform ordinary chairs
+  into f
 pubDate: 2026-01-05
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-santa-hat-chair-covers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Christmas Pillows
+heroImage: https://tse1.mm.bing.net/th?q=christmas-santa-hat-chair-covers&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring a burst of holiday cheer to your home or office? Christmas Santa Hat Chair Covers are the perfect way to transform ordinary chairs into festive favorites.**

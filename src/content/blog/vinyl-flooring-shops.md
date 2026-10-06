@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Flooring Shops: Top Peel & Stick Tiles for Easy DIY Upgrades"
-description: "Vinyl flooring shops offer a wide range of easy-to-install flooring options. They provide durable, stylish floors for any room in your home. Vinyl floors suit k"
+title: 'Vinyl Flooring Shops: Top Peel & Stick Tiles for Easy DIY Upgrades'
+description: Vinyl flooring shops offer a wide range of easy-to-install flooring options.
+  They provide durable, stylish floors for any room in your home. Vinyl floors suit
+  k
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-flooring-shops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-flooring-shops&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Vinyl flooring shops offer a wide range of easy-to-install flooring options. They provide durable, stylish floors for any room in your home.**

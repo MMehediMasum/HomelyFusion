@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make High Carbon Steel at Home: Ultimate DIY Guide"
 description: "Are you curious about making high carbon steel right at home? Imagine crafting strong, durable steel with your own hands—steel that can be used for tools, knive"
 pubDate: 2026-04-15

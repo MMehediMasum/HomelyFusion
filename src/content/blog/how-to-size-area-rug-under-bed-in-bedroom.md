@@ -1,10 +1,14 @@
 ---
-title: "How to Size Area Rug under Bed in Bedroom: Perfect Fit Tips"
-description: "Choosing the right area rug for your bedroom can completely change the look and feel of your space. But how do you know what size rug works best under your bed?"
+title: 'How to Size Area Rug under Bed in Bedroom: Perfect Fit Tips'
+description: Choosing the right area rug for your bedroom can completely change the
+  look and feel of your space. But how do you know what size rug works best under
+  your bed?
 pubDate: 2026-05-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-size-area-rug-under-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-size-area-rug-under-bed-in-bedroom&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right area rug for your bedroom can completely change the look and feel of your space. But how do you know what size rug works best under your bed?**

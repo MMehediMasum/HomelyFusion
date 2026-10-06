@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Island With Sink: Stunning Ideas to Inspire"
-description: "Your kitchen island with a sink is more than just a functional space—it’s the heart of your kitchen. But how do you make it look stylish while keeping it practi"
+title: 'How to Decorate Kitchen Island With Sink: Stunning Ideas to Inspire'
+description: Your kitchen island with a sink is more than just a functional space—it’s
+  the heart of your kitchen. But how do you make it look stylish while keeping it
+  practi
 pubDate: 2025-09-14
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-island-with-sink&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-island-with-sink&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your kitchen island with a sink is more than just a functional space—it’s the heart of your kitchen. But how do you make it look stylish while keeping it practical?**

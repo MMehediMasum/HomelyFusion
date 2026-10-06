@@ -1,10 +1,14 @@
 ---
-title: "Should I Have Dining Table in My Living Room: Stylish Space-Saving Tips"
-description: "Are you wondering if a dining table belongs in your living room? It’s a question many face when trying to make the most of their space. Adding a dining table ca"
+title: 'Should I Have Dining Table in My Living Room: Stylish Space-Saving Tips'
+description: Are you wondering if a dining table belongs in your living room? It’s
+  a question many face when trying to make the most of their space. Adding a dining
+  table ca
 pubDate: 2026-04-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-have-dining-table-in-my-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=should-i-have-dining-table-in-my-living-room&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you wondering if a dining table belongs in your living room? It’s a question many face when trying to make the most of their space.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Up Cycle a Glass Living Room Table: Stunning DIY Ideas"
-description: "Your glass living room table holds more potential than you might think. Instead of tossing it aside or buying new furniture, you can give it a fresh, stylish lo"
+title: 'How to Up Cycle a Glass Living Room Table: Stunning DIY Ideas'
+description: Your glass living room table holds more potential than you might think.
+  Instead of tossing it aside or buying new furniture, you can give it a fresh, stylish
+  lo
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-up-cycle-a-glass-living-room-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Names
+heroImage: https://tse1.mm.bing.net/th?q=how-to-up-cycle-a-glass-living-room-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your glass living room table holds more potential than you might think. Instead of tossing it aside or buying new furniture, you can give it a fresh, stylish look with some simple upcycling tricks.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Living Room Lounge Chair Called: Ultimate Guide Revealed"
-description: "Have you ever settled into your living room chair and wondered, “What is this lounge chair actually called?” You’re not alone. That cozy seat you love has a spe"
+title: 'What is the Living Room Lounge Chair Called: Ultimate Guide Revealed'
+description: Have you ever settled into your living room chair and wondered, “What
+  is this lounge chair actually called?” You’re not alone. That cozy seat you love
+  has a spe
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-living-room-lounge-chair-called&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-living-room-lounge-chair-called&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever settled into your living room chair and wondered, “What is this lounge chair actually called?” You’re not alone. That cozy seat you love has a special name, and knowing it can change the way you think about your space.**

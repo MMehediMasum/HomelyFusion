@@ -1,10 +1,14 @@
 ---
-title: "Halloween Creepy Punch Bowl Ideas: Spooktacular Recipes to Thrill Your Guests"
-description: "Are you ready to make your Halloween party unforgettable? Your punch bowl can be more than just a drink container—it can be the centerpiece that sets a spooky m"
+title: 'Halloween Creepy Punch Bowl Ideas: Spooktacular Recipes to Thrill Your Guests'
+description: Are you ready to make your Halloween party unforgettable? Your punch
+  bowl can be more than just a drink container—it can be the centerpiece that sets
+  a spooky m
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-creepy-punch-bowl-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Gothic Halloween Decor
+heroImage: https://tse1.mm.bing.net/th?q=halloween-creepy-punch-bowl-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Halloween party unforgettable? Your punch bowl can be more than just a drink container—it can be the centerpiece that sets a spooky mood and thrills your guests.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home As a Speaker: Ultimate Guide to Boost Sound"
 description: "Looking for a simple way to boost your music experience at home? Your Google Home device can do more than just answer questions—it can become a powerful speaker"
 pubDate: 2025-10-15

@@ -1,10 +1,14 @@
 ---
-title: "Home Good Side Tables: Stylish Storage Solutions for Small Spaces"
-description: "Side tables add style and function to any room. They fit small spaces and keep essentials close. Choosing the right side table can make your living room or bedr"
+title: 'Home Good Side Tables: Stylish Storage Solutions for Small Spaces'
+description: Side tables add style and function to any room. They fit small spaces
+  and keep essentials close. Choosing the right side table can make your living room
+  or bedr
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-side-tables&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=home-good-side-tables&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Side tables add style and function to any room. They fit small spaces and keep essentials close.**

@@ -1,10 +1,14 @@
 ---
-title: "How Many Sofas in Big Living Room: Ultimate Seating Guide"
-description: "Are you wondering how many sofas you should put in your big living room? It’s a common question that can change the entire feel of your space. Too few sofas mig"
+title: 'How Many Sofas in Big Living Room: Ultimate Seating Guide'
+description: Are you wondering how many sofas you should put in your big living room?
+  It’s a common question that can change the entire feel of your space. Too few sofas
+  mig
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-sofas-in-big-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-many-sofas-in-big-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how many sofas you should put in your big living room? It’s a common question that can change the entire feel of your space.**

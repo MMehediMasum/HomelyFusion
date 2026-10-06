@@ -1,10 +1,13 @@
 ---
-title: "Home Interior Wall Decor Catalog: Stunning Rustic & Modern Wall Art Ideas"
-description: "Explore a curated collection of exquisite home interior wall decor. Transform your spaces with unique designs and timeless elegance. Decorating your home’s wall"
+title: 'Home Interior Wall Decor Catalog: Stunning Rustic & Modern Wall Art Ideas'
+description: Explore a curated collection of exquisite home interior wall decor. Transform
+  your spaces with unique designs and timeless elegance. Decorating your home’s wall
 pubDate: 2026-08-12
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-interior-wall-decor-catalog&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Interior Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-interior-wall-decor-catalog&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Explore a curated collection of exquisite home interior wall decor. Transform your spaces with unique designs and timeless elegance.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Balloon Arch: Easy Steps for Stunning Decor"
-description: "Want to create a stunning balloon arch that grabs everyone's attention? Whether it's for a birthday, wedding, or special event, making your own balloon arch can"
+title: 'How to Make a Balloon Arch: Easy Steps for Stunning Decor'
+description: Want to create a stunning balloon arch that grabs everyone's attention?
+  Whether it's for a birthday, wedding, or special event, making your own balloon
+  arch can
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-balloon-arch&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-balloon-arch&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Want to create a stunning balloon arch that grabs everyone's attention? Whether it's for a birthday, wedding, or special event, making your own balloon arch can add a fun and colorful touch that stands out.**

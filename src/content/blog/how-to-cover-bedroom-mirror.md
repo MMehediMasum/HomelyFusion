@@ -1,10 +1,14 @@
 ---
-title: "How to Cover Bedroom Mirror: Creative Ideas for Stylish Privacy"
-description: "Is your bedroom mirror causing more stress than style? Maybe it feels like it’s taking up too much space or reflecting things you'd rather not see. You’re not a"
+title: 'How to Cover Bedroom Mirror: Creative Ideas for Stylish Privacy'
+description: Is your bedroom mirror causing more stress than style? Maybe it feels
+  like it’s taking up too much space or reflecting things you'd rather not see. You’re
+  not a
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-cover-bedroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Mirror Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-cover-bedroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your bedroom mirror causing more stress than style? Maybe it feels like it’s taking up too much space or reflecting things you'd rather not see.**

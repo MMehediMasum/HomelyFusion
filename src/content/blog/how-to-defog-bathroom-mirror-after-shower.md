@@ -1,10 +1,14 @@
 ---
-title: "How to Defog Bathroom Mirror After Shower: Quick & Easy Tips"
-description: "You know that frustrating moment when you step out of the shower, and your bathroom mirror is completely fogged up? It’s hard to see your reflection, making sim"
+title: 'How to Defog Bathroom Mirror After Shower: Quick & Easy Tips'
+description: You know that frustrating moment when you step out of the shower, and
+  your bathroom mirror is completely fogged up? It’s hard to see your reflection,
+  making sim
 pubDate: 2026-01-31
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-defog-bathroom-mirror-after-shower&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-defog-bathroom-mirror-after-shower&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **You know that frustrating moment when you step out of the shower, and your bathroom mirror is completely fogged up? It’s hard to see your reflection, making simple tasks like shaving or applying makeup much tougher.**

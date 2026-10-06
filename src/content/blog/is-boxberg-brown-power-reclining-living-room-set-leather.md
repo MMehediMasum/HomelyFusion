@@ -1,10 +1,15 @@
 ---
-title: "Is Boxberg Brown Power Reclining Living Room Set Leather: Ultimate Comfort Guide"
-description: "Are you searching for the perfect living room set that combines comfort, style, and convenience? The Boxberg Brown Power Reclining Living Room Set Leather might"
+title: 'Is Boxberg Brown Power Reclining Living Room Set Leather: Ultimate Comfort
+  Guide'
+description: Are you searching for the perfect living room set that combines comfort,
+  style, and convenience? The Boxberg Brown Power Reclining Living Room Set Leather
+  might
 pubDate: 2026-04-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-boxberg-brown-power-reclining-living-room-set-leather&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Textile Care
+heroImage: https://tse1.mm.bing.net/th?q=is-boxberg-brown-power-reclining-living-room-set-leather&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you searching for the perfect living room set that combines comfort, style, and convenience? The Boxberg Brown Power Reclining Living Room Set Leather might just be what you need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lighting for Applying Makeup: Top Adjustable Vanity Mirrors with Magnification"
 description: "Choosing the best lighting is key for flawless makeup application. Proper light shows true colors and highlights details clearly. Good lighting helps avoid unev"
 pubDate: 2025-11-14

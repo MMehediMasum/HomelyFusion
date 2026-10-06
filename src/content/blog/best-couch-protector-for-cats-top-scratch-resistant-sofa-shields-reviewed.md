@@ -1,10 +1,14 @@
 ---
-title: "Best Couch Protector for Cats: Top Scratch-Resistant Sofa Shields Reviewed"
-description: "Cats love to scratch, and your couch often suffers the damage. Choosing the best couch protector for cats helps keep furniture safe and intact. Cat claws can qu"
+title: 'Best Couch Protector for Cats: Top Scratch-Resistant Sofa Shields Reviewed'
+description: Cats love to scratch, and your couch often suffers the damage. Choosing
+  the best couch protector for cats helps keep furniture safe and intact. Cat claws
+  can qu
 pubDate: 2025-12-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-couch-protector-for-cats-top-scratch-resistant-sofa-shields-reviewed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-couch-protector-for-cats-top-scratch-resistant-sofa-shields-reviewed&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cats love to scratch, and your couch often suffers the damage. Choosing the best couch protector for cats helps keep furniture safe and intact.**

@@ -1,10 +1,13 @@
 ---
-title: "How Many Table Lamps in a Living Room: Expert Lighting Tips"
-description: "Choosing the right number of table lamps for your living room can transform the space from dull to inviting. You might wonder, how many table lamps do you reall"
+title: 'How Many Table Lamps in a Living Room: Expert Lighting Tips'
+description: Choosing the right number of table lamps for your living room can transform
+  the space from dull to inviting. You might wonder, how many table lamps do you reall
 pubDate: 2026-03-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-table-lamps-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Lamps
+heroImage: https://tse1.mm.bing.net/th?q=how-many-table-lamps-in-a-living-room&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the right number of table lamps for your living room can transform the space from dull to inviting. You might wonder, how many table lamps do you really need?**

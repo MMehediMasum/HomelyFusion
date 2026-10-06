@@ -1,10 +1,13 @@
 ---
-title: "Is Canopy Bed Good for Small Bedroom: Stylish Space-Saving Tips"
-description: "Are you wondering if a canopy bed is a smart choice for your small bedroom? You might think it’s too big or bulky for limited space, but what if it could actual"
+title: 'Is Canopy Bed Good for Small Bedroom: Stylish Space-Saving Tips'
+description: Are you wondering if a canopy bed is a smart choice for your small bedroom?
+  You might think it’s too big or bulky for limited space, but what if it could actual
 pubDate: 2026-05-11
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-canopy-bed-good-for-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=is-canopy-bed-good-for-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering if a canopy bed is a smart choice for your small bedroom? You might think it’s too big or bulky for limited space, but what if it could actually transform your room into a cozy, stylish retreat?**

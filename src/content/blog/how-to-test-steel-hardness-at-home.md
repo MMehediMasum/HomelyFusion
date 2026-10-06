@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Test Steel Hardness at Home: Easy & Accurate Methods"
 description: "Want to know if your steel is tough enough for your project? Testing steel hardness at home might sound tricky, but it’s easier than you think. Whether you’re w"
 pubDate: 2026-02-25

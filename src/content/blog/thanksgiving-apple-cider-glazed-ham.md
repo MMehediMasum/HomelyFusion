@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Apple Cider Glazed Ham: Irresistible Holiday Recipe"
 description: "Are you looking to make your Thanksgiving dinner unforgettable? Imagine serving a juicy, flavorful ham glazed with a sweet and tangy apple cider sauce that will"
 pubDate: 2026-01-16

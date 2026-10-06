@@ -1,10 +1,14 @@
 ---
-title: "Decorative Shelf Accessories to Elevate Your Home Style Instantly"
-description: "Decorative shelf accessories add charm and personality to any room. They bring life to plain shelves and create a cozy atmosphere. Small statues, vases, and dec"
+title: Decorative Shelf Accessories to Elevate Your Home Style Instantly
+description: Decorative shelf accessories add charm and personality to any room. They
+  bring life to plain shelves and create a cozy atmosphere. Small statues, vases,
+  and dec
 pubDate: 2026-08-10
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=decorative-shelf-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Shelf Decor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=decorative-shelf-accessories&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Decorative shelf accessories add charm and personality to any room. They bring life to plain shelves and create a cozy atmosphere.**

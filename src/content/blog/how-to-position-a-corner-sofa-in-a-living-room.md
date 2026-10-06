@@ -1,10 +1,14 @@
 ---
-title: "How to Position a Corner Sofa in a Living Room: Expert Tips"
-description: "Are you wondering how to make the most of your living room space with a corner sofa? Positioning a corner sofa might seem simple, but where you place it can cha"
+title: 'How to Position a Corner Sofa in a Living Room: Expert Tips'
+description: Are you wondering how to make the most of your living room space with
+  a corner sofa? Positioning a corner sofa might seem simple, but where you place
+  it can cha
 pubDate: 2026-04-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-position-a-corner-sofa-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-position-a-corner-sofa-in-a-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make the most of your living room space with a corner sofa? Positioning a corner sofa might seem simple, but where you place it can change the entire feel and flow of your room.**

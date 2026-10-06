@@ -1,10 +1,13 @@
 ---
-title: "Dkny Desk Accessories: Stylish Organizers to Elevate Your Workspace"
-description: "Dkny Desk offers stylish and practical desk accessories to keep your workspace neat and attractive. These items blend modern design with everyday functionality."
+title: 'Dkny Desk Accessories: Stylish Organizers to Elevate Your Workspace'
+description: Dkny Desk offers stylish and practical desk accessories to keep your
+  workspace neat and attractive. These items blend modern design with everyday functionality.
 pubDate: 2026-06-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dkny-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Dressing Tables
+heroImage: https://tse1.mm.bing.net/th?q=dkny-desk&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Dkny Desk offers stylish and practical desk accessories to keep your workspace neat and attractive. These items blend modern design with everyday functionality.**

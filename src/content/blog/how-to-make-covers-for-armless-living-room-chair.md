@@ -1,10 +1,14 @@
 ---
-title: "How to Make Covers for Armless Living Room Chair: Easy DIY Guide"
-description: "Are you looking to give your armless living room chair a fresh, new look without spending a lot? Making your own chair cover is easier than you think, and it’s "
+title: 'How to Make Covers for Armless Living Room Chair: Easy DIY Guide'
+description: 'Are you looking to give your armless living room chair a fresh, new
+  look without spending a lot? Making your own chair cover is easier than you think,
+  and it’s '
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-covers-for-armless-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-covers-for-armless-living-room-chair&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to give your armless living room chair a fresh, new look without spending a lot? Making your own chair cover is easier than you think, and it’s a perfect way to add style and protect your furniture at the same time.**

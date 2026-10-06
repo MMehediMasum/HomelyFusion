@@ -1,10 +1,14 @@
 ---
-title: "Room Wall Decor Ideas: Stylish Shelves, Lights, and Faux Greenery Trends"
-description: "Room wall decor transforms plain walls into inviting, stylish spaces. Simple additions create charm and improve a room’s look instantly. Decorating walls adds p"
+title: 'Room Wall Decor Ideas: Stylish Shelves, Lights, and Faux Greenery Trends'
+description: Room wall decor transforms plain walls into inviting, stylish spaces.
+  Simple additions create charm and improve a room’s look instantly. Decorating walls
+  adds p
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=room-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=room-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Room wall decor transforms plain walls into inviting, stylish spaces. Simple additions create charm and improve a room’s look instantly.**

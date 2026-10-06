@@ -1,10 +1,14 @@
 ---
-title: "Hello Kitty Vanity Mirror T.J. Maxx: Brighten Your Makeup Routine Today"
-description: "The Hello Kitty Vanity Mirror selection at T.J. Maxx offers a variety of fun and stylish options. Perfect for makeup lovers and Hello Kitty fans alike. These mi"
+title: 'Hello Kitty Vanity Mirror T.J. Maxx: Brighten Your Makeup Routine Today'
+description: The Hello Kitty Vanity Mirror selection at T.J. Maxx offers a variety
+  of fun and stylish options. Perfect for makeup lovers and Hello Kitty fans alike.
+  These mi
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hello-kitty-vanity-mirror-tj-maxx&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=hello-kitty-vanity-mirror-tj-maxx&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Hello Kitty Vanity Mirror selection at T.J. Maxx offers a variety of fun and stylish options. Perfect for makeup lovers and Hello Kitty fans alike.**

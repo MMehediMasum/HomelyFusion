@@ -1,10 +1,14 @@
 ---
-title: "How to Frame Wall for Pocket Door: Step-by-Step Expert Guide"
-description: "Are you ready to transform your space with a sleek, space-saving pocket door? Framing a wall for a pocket door might seem tricky at first, but with the right st"
+title: 'How to Frame Wall for Pocket Door: Step-by-Step Expert Guide'
+description: Are you ready to transform your space with a sleek, space-saving pocket
+  door? Framing a wall for a pocket door might seem tricky at first, but with the
+  right st
 pubDate: 2026-01-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-wall-for-pocket-door&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-wall-for-pocket-door&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with a sleek, space-saving pocket door? Framing a wall for a pocket door might seem tricky at first, but with the right steps, you can do it yourself and add a modern touch to your home.**

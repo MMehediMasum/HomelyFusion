@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Placemats: Stylish, Durable Options for Every Dining Table Decor"
-description: "Homegoods placemats add style and protection to any dining table. They come in many designs, sizes, and materials to fit your needs. Placemats from Homegoods of"
+title: 'Homegoods Placemats: Stylish, Durable Options for Every Dining Table Decor'
+description: Homegoods placemats add style and protection to any dining table. They
+  come in many designs, sizes, and materials to fit your needs. Placemats from Homegoods
+  of
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-placemats&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Placemats HomeGoods Kitchen Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-placemats&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Homegoods placemats add style and protection to any dining table. They come in many designs, sizes, and materials to fit your needs.**

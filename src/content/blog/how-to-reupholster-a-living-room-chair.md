@@ -1,10 +1,13 @@
 ---
-title: "How to Reupholster a Living Room Chair: Easy DIY Guide"
-description: "Is your living room chair looking tired or outdated? Imagine giving it a fresh, stylish new look without spending a fortune on a brand-new piece. Reupholstering"
+title: 'How to Reupholster a Living Room Chair: Easy DIY Guide'
+description: Is your living room chair looking tired or outdated? Imagine giving it
+  a fresh, stylish new look without spending a fortune on a brand-new piece. Reupholstering
 pubDate: 2026-02-26
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reupholster-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Is your living room chair looking tired or outdated? Imagine giving it a fresh, stylish new look without spending a fortune on a brand-new piece.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Green Bean Casserole Recipe: Classic & Creamy Delight"
 description: "Are you ready to make your Thanksgiving dinner unforgettable? Your guests will love this classic Thanksgiving Green Bean Casserole recipe. It’s simple, deliciou"
 pubDate: 2025-12-25

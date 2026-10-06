@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Blinds for Bedroom: Ultimate Privacy and Light Control Solutions"
-description: "Choosing the best blackout blinds for your bedroom helps create a dark, restful space. These blinds block outside light and improve sleep quality. Blackout blin"
+title: 'Best Blackout Blinds for Bedroom: Ultimate Privacy and Light Control Solutions'
+description: Choosing the best blackout blinds for your bedroom helps create a dark,
+  restful space. These blinds block outside light and improve sleep quality. Blackout
+  blin
 pubDate: 2025-10-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-blinds-for-bedroom-ultimate-privacy-and-light-control-solutions&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-blinds-for-bedroom-ultimate-privacy-and-light-control-solutions&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best blackout blinds for your bedroom helps create a dark, restful space. These blinds block outside light and improve sleep quality.**

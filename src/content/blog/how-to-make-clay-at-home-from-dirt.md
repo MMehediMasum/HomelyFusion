@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home from Dirt: Easy DIY Craft Guide"
 description: "Have you ever wanted to create your own clay without buying it from the store? Making clay at home from dirt is easier than you think. You only need simple mate"
 pubDate: 2026-03-10

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Wash Wool at Home: Easy Steps for Perfect Care"
 description: "Wool clothes are cozy, warm, and perfect for cooler days. But washing them can feel tricky. You might worry about shrinking, stretching, or ruining your favorit"
 pubDate: 2026-03-14

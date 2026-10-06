@@ -1,10 +1,14 @@
 ---
-title: "Hobby Lobby Chair Covers: Stylish, Stretchy Slipcovers for Every Occasion"
-description: "Hobby Lobby chair covers offer a simple way to refresh and protect your chairs. They fit many chair types and suit various events. Choosing the right chair cove"
+title: 'Hobby Lobby Chair Covers: Stylish, Stretchy Slipcovers for Every Occasion'
+description: Hobby Lobby chair covers offer a simple way to refresh and protect your
+  chairs. They fit many chair types and suit various events. Choosing the right chair
+  cove
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobby-lobby-chair-covers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Rail Decor
+heroImage: https://tse1.mm.bing.net/th?q=hobby-lobby-chair-covers&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hobby Lobby chair covers offer a simple way to refresh and protect your chairs. They fit many chair types and suit various events.**

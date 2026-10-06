@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Rugs 5X7: Stylish, Washable, and Non-Slip Area Rugs Guide"
-description: "Home Goods rugs sized 5x7 feet fit perfectly in many rooms. They add comfort and style without taking too much space. These rugs come in various colors and patt"
+title: 'Home Goods Rugs 5X7: Stylish, Washable, and Non-Slip Area Rugs Guide'
+description: Home Goods rugs sized 5x7 feet fit perfectly in many rooms. They add
+  comfort and style without taking too much space. These rugs come in various colors
+  and patt
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-rugs-5x7&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-rugs-5x7&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Goods rugs sized 5x7 feet fit perfectly in many rooms. They add comfort and style without taking too much space.**

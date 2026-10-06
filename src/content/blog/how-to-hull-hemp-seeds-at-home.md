@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Hull Hemp Seeds at Home: Easy Steps for Fresh Hemp Hearts"
 description: "If you’ve ever wondered how to hull hemp seeds at home, you’re in the right place. Removing the tough outer shell from hemp seeds can seem tricky, but once you "
 pubDate: 2026-03-21

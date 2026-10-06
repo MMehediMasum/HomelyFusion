@@ -1,10 +1,14 @@
 ---
-title: "What to Put in Bedroom Instead of Dresser: Stylish Space-Savers"
-description: "Are you tired of your bulky dresser taking up too much space in your bedroom? You’re not alone. Finding the right storage solution that fits your style and keep"
+title: 'What to Put in Bedroom Instead of Dresser: Stylish Space-Savers'
+description: Are you tired of your bulky dresser taking up too much space in your
+  bedroom? You’re not alone. Finding the right storage solution that fits your style
+  and keep
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-in-bedroom-instead-of-dresser&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-in-bedroom-instead-of-dresser&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you tired of your bulky dresser taking up too much space in your bedroom? You’re not alone.**

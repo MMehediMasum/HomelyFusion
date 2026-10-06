@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Light Bulb With Google Home: Easy Smart Setup Guide"
-description: "Imagine controlling your home’s lighting with just your voice. Setting up a light bulb with Google Home can make your daily routine easier and more fun. If you’"
+title: 'How to Set Up Light Bulb With Google Home: Easy Smart Setup Guide'
+description: Imagine controlling your home’s lighting with just your voice. Setting
+  up a light bulb with Google Home can make your daily routine easier and more fun.
+  If you’
 pubDate: 2025-10-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-light-bulb-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Google Home Bulb Setup
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-light-bulb-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine controlling your home’s lighting with just your voice. Setting up a light bulb with Google Home can make your daily routine easier and more fun.**

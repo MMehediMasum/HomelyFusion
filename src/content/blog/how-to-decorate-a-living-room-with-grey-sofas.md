@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room With Grey Sofas: Stylish & Cozy Ideas"
-description: "Are you wondering how to make your living room feel stylish and cozy with grey sofas? Grey is a perfect choice—it's neutral, modern, and easy to match. But deco"
+title: 'How to Decorate a Living Room With Grey Sofas: Stylish & Cozy Ideas'
+description: Are you wondering how to make your living room feel stylish and cozy
+  with grey sofas? Grey is a perfect choice—it's neutral, modern, and easy to match.
+  But deco
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-grey-sofas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-with-grey-sofas&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel stylish and cozy with grey sofas? Grey is a perfect choice—it's neutral, modern, and easy to match.**

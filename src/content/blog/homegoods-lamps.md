@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Lamps: Stylish and Functional Lighting Solutions for Every Room"
-description: "Lamps can transform a room's ambiance with style and functionality. Discover diverse Homegoods lamps perfect for any space. Homegoods lamps blend design and pra"
+title: 'Homegoods Lamps: Stylish and Functional Lighting Solutions for Every Room'
+description: Lamps can transform a room's ambiance with style and functionality. Discover
+  diverse Homegoods lamps perfect for any space. Homegoods lamps blend design and
+  pra
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Brand Lamps
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Lamps can transform a room's ambiance with style and functionality. Discover diverse Homegoods lamps perfect for any space.**

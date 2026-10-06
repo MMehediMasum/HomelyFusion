@@ -1,10 +1,14 @@
 ---
-title: "Best Pillows for Leather Sofa: Stylish Comfort and Durable Designs"
-description: "Choosing the best pillows for a leather sofa can enhance comfort and style. The right pillow protects the leather and adds a cozy touch. Leather sofas need pill"
+title: 'Best Pillows for Leather Sofa: Stylish Comfort and Durable Designs'
+description: Choosing the best pillows for a leather sofa can enhance comfort and
+  style. The right pillow protects the leather and adds a cozy touch. Leather sofas
+  need pill
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pillows-for-leather-sofa-stylish-comfort-and-durable-designs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-pillows-for-leather-sofa-stylish-comfort-and-durable-designs&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Choosing the best pillows for a leather sofa can enhance comfort and style. The right pillow protects the leather and adds a cozy touch.**

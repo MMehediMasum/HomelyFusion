@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Play Doh Clay at Home: Easy DIY Recipe for Kids"
 description: "Have you ever wished you could make your own colorful, soft Play Doh clay right at home? Imagine the fun of creating endless shapes and designs without needing "
 pubDate: 2026-03-16

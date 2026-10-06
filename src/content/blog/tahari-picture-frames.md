@@ -1,10 +1,14 @@
 ---
-title: "Tahari Picture Frames: Elegant Gold and Vintage Styles for Home Decor"
-description: "Tahari picture frames add elegance and charm to your favorite photos. These frames suit many styles and spaces with their unique designs. Tahari picture frames "
+title: 'Tahari Picture Frames: Elegant Gold and Vintage Styles for Home Decor'
+description: 'Tahari picture frames add elegance and charm to your favorite photos.
+  These frames suit many styles and spaces with their unique designs. Tahari picture
+  frames '
 pubDate: 2026-07-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tahari-picture-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=tahari-picture-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Tahari picture frames add elegance and charm to your favorite photos. These frames suit many styles and spaces with their unique designs.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Table Lamps: Stylish, Functional Lighting for Every Room"
-description: "Home goods table lamps brighten up any room with style and function. They offer light, charm, and convenience for bedrooms, living rooms, and offices. Table lam"
+title: 'Home Goods Table Lamps: Stylish, Functional Lighting for Every Room'
+description: Home goods table lamps brighten up any room with style and function.
+  They offer light, charm, and convenience for bedrooms, living rooms, and offices.
+  Table lam
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-table-lamps&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-table-lamps&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Home goods table lamps brighten up any room with style and function. They offer light, charm, and convenience for bedrooms, living rooms, and offices.**

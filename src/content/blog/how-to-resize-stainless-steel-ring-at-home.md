@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Resize Stainless Steel Ring at Home: Easy DIY Guide"
 description: "Have a stainless steel ring that no longer fits right? You don’t need to rush to a jeweler or spend a fortune to fix it. Imagine adjusting your ring’s size quic"
 pubDate: 2026-03-08

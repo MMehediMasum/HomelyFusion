@@ -1,10 +1,14 @@
 ---
-title: "What is the Table in Living Room: Ultimate Guide to Styles & Uses"
-description: "Have you ever wondered what the table in your living room really does for your space? It’s not just a piece of furniture—it’s a key player in how your room look"
+title: 'What is the Table in Living Room: Ultimate Guide to Styles & Uses'
+description: Have you ever wondered what the table in your living room really does
+  for your space? It’s not just a piece of furniture—it’s a key player in how your
+  room look
 pubDate: 2026-03-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-table-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Side Table Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-table-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered what the table in your living room really does for your space? It’s not just a piece of furniture—it’s a key player in how your room looks and feels.**

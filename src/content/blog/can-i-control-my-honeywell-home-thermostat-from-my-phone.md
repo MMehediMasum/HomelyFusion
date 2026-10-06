@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can I Control My Honeywell Home Thermostat from My Phone? Easy Tips!"
 description: "Imagine adjusting your home's temperature without ever leaving your couch. Wouldn't it be great to control your Honeywell Home thermostat right from your phone?"
 pubDate: 2026-04-12

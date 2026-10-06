@@ -1,10 +1,14 @@
 ---
-title: "Christmas Winter Wonderland Decoration: Stunning Ideas to Spark Magic"
-description: "Imagine stepping into your home and instantly feeling the magic of a Christmas Winter Wonderland. You want your space to sparkle with joy, warmth, and festive c"
+title: 'Christmas Winter Wonderland Decoration: Stunning Ideas to Spark Magic'
+description: Imagine stepping into your home and instantly feeling the magic of a
+  Christmas Winter Wonderland. You want your space to sparkle with joy, warmth, and
+  festive c
 pubDate: 2026-01-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-winter-wonderland-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-winter-wonderland-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine stepping into your home and instantly feeling the magic of a Christmas Winter Wonderland. You want your space to sparkle with joy, warmth, and festive cheer this season.**

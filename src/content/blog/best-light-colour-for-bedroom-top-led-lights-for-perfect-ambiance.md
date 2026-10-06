@@ -1,10 +1,14 @@
 ---
-title: "Best Light Colour for Bedroom: Top LED Lights for Perfect Ambiance"
-description: "Choosing the best light colour for your bedroom affects your mood and sleep quality. Soft, warm tones create a relaxing and cozy space. Bedroom lighting should "
+title: 'Best Light Colour for Bedroom: Top LED Lights for Perfect Ambiance'
+description: 'Choosing the best light colour for your bedroom affects your mood and
+  sleep quality. Soft, warm tones create a relaxing and cozy space. Bedroom lighting
+  should '
 pubDate: 2025-09-10
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-colour-for-bedroom-top-led-lights-for-perfect-ambiance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=best-light-colour-for-bedroom-top-led-lights-for-perfect-ambiance&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best light colour for your bedroom affects your mood and sleep quality. Soft, warm tones create a relaxing and cozy space.**

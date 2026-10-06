@@ -1,10 +1,14 @@
 ---
-title: "How to Create French Country Bedroom With Bedding: Cozy Elegance Tips"
-description: "Are you dreaming of a bedroom that feels warm, cozy, and full of charm? Creating a French Country bedroom with the right bedding can transform your space into a"
+title: 'How to Create French Country Bedroom With Bedding: Cozy Elegance Tips'
+description: Are you dreaming of a bedroom that feels warm, cozy, and full of charm?
+  Creating a French Country bedroom with the right bedding can transform your space
+  into a
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-french-country-bedroom-with-bedding&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-french-country-bedroom-with-bedding&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you dreaming of a bedroom that feels warm, cozy, and full of charm? Creating a French Country bedroom with the right bedding can transform your space into a peaceful retreat.**

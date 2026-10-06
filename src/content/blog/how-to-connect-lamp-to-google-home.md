@@ -1,10 +1,13 @@
 ---
-title: "How to Connect Lamp to Google Home: Easy Setup Guide"
-description: "Imagine turning your lamp on or off just by speaking to it. Sounds convenient, right? If you want to make your home smarter and more comfortable, connecting you"
+title: 'How to Connect Lamp to Google Home: Easy Setup Guide'
+description: Imagine turning your lamp on or off just by speaking to it. Sounds convenient,
+  right? If you want to make your home smarter and more comfortable, connecting you
 pubDate: 2026-04-27
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-lamp-to-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Apple & Google Smart Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-lamp-to-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine turning your lamp on or off just by speaking to it. Sounds convenient, right?**

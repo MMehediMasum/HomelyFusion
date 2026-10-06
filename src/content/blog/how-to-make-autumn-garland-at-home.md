@@ -1,10 +1,14 @@
 ---
-title: "How to Make Autumn Garland at Home: Easy DIY Decor Ideas"
-description: "Are you ready to bring the warm, cozy feeling of autumn right into your home? Making your own autumn garland is easier than you think, and it’s a fun way to add"
+title: 'How to Make Autumn Garland at Home: Easy DIY Decor Ideas'
+description: Are you ready to bring the warm, cozy feeling of autumn right into your
+  home? Making your own autumn garland is easier than you think, and it’s a fun way
+  to add
 pubDate: 2025-12-21
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-autumn-garland-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-autumn-garland-at-home&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to bring the warm, cozy feeling of autumn right into your home? Making your own autumn garland is easier than you think, and it’s a fun way to add a personal touch to your space.**

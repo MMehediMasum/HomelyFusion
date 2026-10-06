@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Pads for Face at Home: Easy DIY Guide"
 description: "Are you tired of spending money on expensive cotton pads that sometimes feel rough on your skin? What if you could make soft, gentle cotton pads right at home, "
 pubDate: 2025-11-10

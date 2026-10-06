@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Table Ideas: Stylish Compact Sets for Modern Living Spaces"
-description: "Homegoods tables offer stylish and functional solutions for every space. From dining sets to office desks, they fit various needs and styles. Choosing the right"
+title: 'Homegoods Table Ideas: Stylish Compact Sets for Modern Living Spaces'
+description: Homegoods tables offer stylish and functional solutions for every space.
+  From dining sets to office desks, they fit various needs and styles. Choosing the
+  right
 pubDate: 2026-07-22
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Tables
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Homegoods tables offer stylish and functional solutions for every space. From dining sets to office desks, they fit various needs and styles.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Position Sofa in Living Room: Expert Tips for Perfect Layout"
-description: "Your living room is more than just a space—it’s where you relax, entertain, and create memories. But have you ever felt unsure about where to place your sofa fo"
+title: 'How to Position Sofa in Living Room: Expert Tips for Perfect Layout'
+description: Your living room is more than just a space—it’s where you relax, entertain,
+  and create memories. But have you ever felt unsure about where to place your sofa
+  fo
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-position-sofa-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-position-sofa-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is more than just a space—it’s where you relax, entertain, and create memories. But have you ever felt unsure about where to place your sofa for the best look and feel?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Style a Shelf in Living Room: Stunning Tips for Chic Decor"
-description: "Your living room shelf is more than just a place to store things—it’s a chance to showcase your style and personality. But how do you turn a simple shelf into a"
+title: 'How to Style a Shelf in Living Room: Stunning Tips for Chic Decor'
+description: Your living room shelf is more than just a place to store things—it’s
+  a chance to showcase your style and personality. But how do you turn a simple shelf
+  into a
 pubDate: 2026-02-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-a-shelf-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-a-shelf-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room shelf is more than just a place to store things—it’s a chance to showcase your style and personality. But how do you turn a simple shelf into a stunning focal point that draws everyone’s attention?**

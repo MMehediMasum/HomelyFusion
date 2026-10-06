@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Bedroom With Rustic Sleigh Bed Set: Cozy Charm Ideas"
-description: "Your bedroom should be a place where comfort meets style, and a rustic sleigh bed set can be the perfect centerpiece to achieve that cozy, timeless look. But ho"
+title: 'How to Decorate Bedroom With Rustic Sleigh Bed Set: Cozy Charm Ideas'
+description: Your bedroom should be a place where comfort meets style, and a rustic
+  sleigh bed set can be the perfect centerpiece to achieve that cozy, timeless look.
+  But ho
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-rustic-sleigh-bed-set&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-bedroom-with-rustic-sleigh-bed-set&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bedroom should be a place where comfort meets style, and a rustic sleigh bed set can be the perfect centerpiece to achieve that cozy, timeless look. But how do you decorate around it to make the whole room feel warm and inviting?**

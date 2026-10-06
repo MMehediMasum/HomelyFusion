@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Halloween Monster Cookie Recipe: Irresistibly Spooky & Delicious"
 description: "Are you ready to make your Halloween celebrations extra sweet and spooky? This Halloween Monster Cookie Recipe is just what you need to impress your friends and"
 pubDate: 2026-01-23

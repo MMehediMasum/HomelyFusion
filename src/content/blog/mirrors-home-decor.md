@@ -1,10 +1,14 @@
 ---
-title: "Mirrors Home Decor: Transform Your Space with Stylish Full-Length Designs"
-description: "Mirrors can transform any space, adding depth and style. They are versatile, functional, and enhance home decor effortlessly. Mirrors are much more than just fu"
+title: 'Mirrors Home Decor: Transform Your Space with Stylish Full-Length Designs'
+description: Mirrors can transform any space, adding depth and style. They are versatile,
+  functional, and enhance home decor effortlessly. Mirrors are much more than just
+  fu
 pubDate: 2026-07-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=mirrors-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=mirrors-home-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors can transform any space, adding depth and style. They are versatile, functional, and enhance home decor effortlessly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up Generator for Home Use: Easy & Safe Steps"
-description: "Power outages can strike without warning, leaving your home dark and powerless. You don’t want to be caught unprepared when the lights go out. Knowing how to ho"
+title: 'How to Hook Up Generator for Home Use: Easy & Safe Steps'
+description: Power outages can strike without warning, leaving your home dark and
+  powerless. You don’t want to be caught unprepared when the lights go out. Knowing
+  how to ho
 pubDate: 2026-04-21
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-for-home-use&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-generator-for-home-use&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Power outages can strike without warning, leaving your home dark and powerless. You don’t want to be caught unprepared when the lights go out.**

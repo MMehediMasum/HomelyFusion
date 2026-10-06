@@ -1,10 +1,14 @@
 ---
-title: "What Size Sofa for Small Living Room: Ultimate Space-Saving Guide"
-description: "Choosing the right sofa for your small living room can feel tricky. You want something comfortable and stylish, but it can’t take over the whole space. If you p"
+title: 'What Size Sofa for Small Living Room: Ultimate Space-Saving Guide'
+description: Choosing the right sofa for your small living room can feel tricky. You
+  want something comfortable and stylish, but it can’t take over the whole space.
+  If you p
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-sofa-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=what-size-sofa-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa for your small living room can feel tricky. You want something comfortable and stylish, but it can’t take over the whole space.**

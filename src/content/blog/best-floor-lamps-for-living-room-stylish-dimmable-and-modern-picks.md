@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Lamps for Living Room: Stylish, Dimmable, and Modern Picks"
-description: "Choosing the best floor lamp for your living room can brighten the space and add style. Floor lamps provide both light and decoration without taking up much roo"
+title: 'Best Floor Lamps for Living Room: Stylish, Dimmable, and Modern Picks'
+description: Choosing the best floor lamp for your living room can brighten the space
+  and add style. Floor lamps provide both light and decoration without taking up much
+  roo
 pubDate: 2025-10-09
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-lamps-for-living-room-stylish-dimmable-and-modern-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-lamps-for-living-room-stylish-dimmable-and-modern-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best floor lamp for your living room can brighten the space and add style. Floor lamps provide both light and decoration without taking up much room.**

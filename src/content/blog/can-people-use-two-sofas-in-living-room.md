@@ -1,10 +1,14 @@
 ---
-title: "Can People Use Two Sofas in Living Room: Stylish Tips & Ideas"
-description: "Have you ever wondered if you can use two sofas in your living room without making it look crowded or cluttered? If you’re trying to create a cozy yet stylish s"
+title: 'Can People Use Two Sofas in Living Room: Stylish Tips & Ideas'
+description: Have you ever wondered if you can use two sofas in your living room without
+  making it look crowded or cluttered? If you’re trying to create a cozy yet stylish
+  s
 pubDate: 2026-04-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-people-use-two-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=can-people-use-two-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever wondered if you can use two sofas in your living room without making it look crowded or cluttered? If you’re trying to create a cozy yet stylish space, this idea might seem tricky.**

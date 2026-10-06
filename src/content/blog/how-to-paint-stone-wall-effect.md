@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Stone Wall Effect: Easy Steps for Stunning Results"
-description: "Want to transform your plain walls into a stunning stone masterpiece without the heavy cost or hassle of real stone? You’re in the right place. Painting a stone"
+title: 'How to Paint Stone Wall Effect: Easy Steps for Stunning Results'
+description: Want to transform your plain walls into a stunning stone masterpiece
+  without the heavy cost or hassle of real stone? You’re in the right place. Painting
+  a stone
 pubDate: 2026-02-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-stone-wall-effect&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Stone Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-stone-wall-effect&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to transform your plain walls into a stunning stone masterpiece without the heavy cost or hassle of real stone? You’re in the right place.**

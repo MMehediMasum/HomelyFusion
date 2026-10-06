@@ -1,10 +1,14 @@
 ---
-title: "Nicole Miller Table Runner: Stylish Floral Designs for Elegant Dining Decor"
-description: "Nicole Miller's table runners offer elegance and functionality for any dining setting. These runners blend style with practicality. Transform your dining experi"
+title: 'Nicole Miller Table Runner: Stylish Floral Designs for Elegant Dining Decor'
+description: Nicole Miller's table runners offer elegance and functionality for any
+  dining setting. These runners blend style with practicality. Transform your dining
+  experi
 pubDate: 2026-07-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nicole-miller-table-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=nicole-miller-table-runner&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Nicole Miller's table runners offer elegance and functionality for any dining setting. These runners blend style with practicality.**

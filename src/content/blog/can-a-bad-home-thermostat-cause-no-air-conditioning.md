@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can a Bad Home Thermostat Cause No Air Conditioning? Find Out Now!"
 description: "Is your air conditioner not blowing cold air when you need it most? You might be surprised to learn that your thermostat could be the hidden culprit. When your "
 pubDate: 2026-04-12

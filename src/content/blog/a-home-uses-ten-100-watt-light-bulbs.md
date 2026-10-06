@@ -1,10 +1,14 @@
 ---
-title: "A Home Uses Ten 100 Watt Light Bulbs: Save Energy Now!"
-description: "Imagine your home filled with ten 100-watt light bulbs burning brightly. Have you ever wondered how much energy that really uses? Or how it affects your electri"
+title: 'A Home Uses Ten 100 Watt Light Bulbs: Save Energy Now!'
+description: Imagine your home filled with ten 100-watt light bulbs burning brightly.
+  Have you ever wondered how much energy that really uses? Or how it affects your
+  electri
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-home-uses-ten-100-watt-light-bulbs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Basics
+heroImage: https://tse1.mm.bing.net/th?q=a-home-uses-ten-100-watt-light-bulbs&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Imagine your home filled with ten 100-watt light bulbs burning brightly. Have you ever wondered how much energy that really uses?**

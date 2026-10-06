@@ -1,10 +1,14 @@
 ---
-title: "A Potty Chair in the Living Room is Unacceptable: Why It Harms Home Harmony"
-description: "You might think having a potty chair in your living room is just a small, harmless convenience. But have you ever stopped to consider how it really makes you an"
+title: 'A Potty Chair in the Living Room is Unacceptable: Why It Harms Home Harmony'
+description: You might think having a potty chair in your living room is just a small,
+  harmless convenience. But have you ever stopped to consider how it really makes
+  you an
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-potty-chair-in-the-living-room-is-unacceptable&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=a-potty-chair-in-the-living-room-is-unacceptable&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **You might think having a potty chair in your living room is just a small, harmless convenience. But have you ever stopped to consider how it really makes you and your guests feel?**

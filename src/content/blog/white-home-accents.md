@@ -1,10 +1,14 @@
 ---
-title: "White Home Accents: Stylish Rustic and Modern Decor Ideas for Every Room"
-description: "White home accents add a touch of elegance and simplicity to any space. They blend seamlessly with various styles, offering versatility and charm. Whether you'r"
+title: 'White Home Accents: Stylish Rustic and Modern Decor Ideas for Every Room'
+description: White home accents add a touch of elegance and simplicity to any space.
+  They blend seamlessly with various styles, offering versatility and charm. Whether
+  you'r
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=white-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=white-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **White home accents add a touch of elegance and simplicity to any space. They blend seamlessly with various styles, offering versatility and charm.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Art on Plaster Wall: Easy Tips for Perfect Display"
-description: "Hanging art on a plaster wall can feel tricky, especially if you want to avoid cracks or holes. You want your favorite pieces to look perfect, but plaster walls"
+title: 'How to Hang Art on Plaster Wall: Easy Tips for Perfect Display'
+description: Hanging art on a plaster wall can feel tricky, especially if you want
+  to avoid cracks or holes. You want your favorite pieces to look perfect, but plaster
+  walls
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-art-on-plaster-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-art-on-plaster-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging art on a plaster wall can feel tricky, especially if you want to avoid cracks or holes. You want your favorite pieces to look perfect, but plaster walls need special care.**

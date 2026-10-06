@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room Console Table: Stunning Style Tips"
-description: "Your living room console table is more than just a piece of furniture—it’s a chance to showcase your style and make your space feel inviting. But decorating it "
+title: 'How to Decorate a Living Room Console Table: Stunning Style Tips'
+description: 'Your living room console table is more than just a piece of furniture—it’s
+  a chance to showcase your style and make your space feel inviting. But decorating
+  it '
 pubDate: 2026-02-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-console-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Console Tables
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-console-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room console table is more than just a piece of furniture—it’s a chance to showcase your style and make your space feel inviting. But decorating it can be tricky.**

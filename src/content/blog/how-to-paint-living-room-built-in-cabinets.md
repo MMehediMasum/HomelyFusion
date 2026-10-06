@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Living Room Built in Cabinets: Easy Steps for Stunning Results"
-description: "Are your living room built-in cabinets looking tired or outdated? Painting them can completely transform the space, making your room feel fresh and inviting wit"
+title: 'How to Paint Living Room Built in Cabinets: Easy Steps for Stunning Results'
+description: Are your living room built-in cabinets looking tired or outdated? Painting
+  them can completely transform the space, making your room feel fresh and inviting
+  wit
 pubDate: 2026-04-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-living-room-built-in-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-living-room-built-in-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are your living room built-in cabinets looking tired or outdated? Painting them can completely transform the space, making your room feel fresh and inviting without a full renovation.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Choose Sofa for Small Living Room: Expert Tips & Tricks"
-description: "Choosing the right sofa for your small living room can feel like a tricky puzzle. You want it to be comfortable, stylish, and fit perfectly without making the s"
+title: 'How to Choose Sofa for Small Living Room: Expert Tips & Tricks'
+description: Choosing the right sofa for your small living room can feel like a tricky
+  puzzle. You want it to be comfortable, stylish, and fit perfectly without making
+  the s
 pubDate: 2026-04-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-sofa-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Room Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-sofa-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa for your small living room can feel like a tricky puzzle. You want it to be comfortable, stylish, and fit perfectly without making the space feel cramped.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wood Panel Wall: Easy Steps for Stunning Results"
-description: "Are you looking to add warmth and style to your space without spending a fortune? Building a wood panel wall might be the perfect solution for you. It’s easier "
+title: 'How to Build a Wood Panel Wall: Easy Steps for Stunning Results'
+description: 'Are you looking to add warmth and style to your space without spending
+  a fortune? Building a wood panel wall might be the perfect solution for you. It’s
+  easier '
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wood-panel-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wood-panel-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add warmth and style to your space without spending a fortune? Building a wood panel wall might be the perfect solution for you.**

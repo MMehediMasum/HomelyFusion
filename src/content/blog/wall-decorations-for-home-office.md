@@ -1,10 +1,14 @@
 ---
-title: "Wall Decorations for Home Office: Top Motivational and Rustic Wall Art Ideas"
-description: "Creating a productive and inspiring home office space starts with the right wall decorations. Transforming your workspace with motivational art and decor can bo"
+title: 'Wall Decorations for Home Office: Top Motivational and Rustic Wall Art Ideas'
+description: Creating a productive and inspiring home office space starts with the
+  right wall decorations. Transforming your workspace with motivational art and decor
+  can bo
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decorations-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=wall-decorations-for-home-office&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating a productive and inspiring home office space starts with the right wall decorations. Transforming your workspace with motivational art and decor can boost your mood and creativity.**

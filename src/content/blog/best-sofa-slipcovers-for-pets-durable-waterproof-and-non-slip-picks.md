@@ -1,10 +1,14 @@
 ---
-title: "Best Sofa Slipcovers for Pets: Durable, Waterproof, and Non-Slip Picks"
-description: "Protect your sofa from pet hair, scratches, and spills with the best sofa slipcovers for pets. These covers keep your furniture clean and last longer. Pets can "
+title: 'Best Sofa Slipcovers for Pets: Durable, Waterproof, and Non-Slip Picks'
+description: 'Protect your sofa from pet hair, scratches, and spills with the best
+  sofa slipcovers for pets. These covers keep your furniture clean and last longer.
+  Pets can '
 pubDate: 2025-12-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sofa-slipcovers-for-pets-durable-waterproof-and-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Slipcovers
+heroImage: https://tse1.mm.bing.net/th?q=best-sofa-slipcovers-for-pets-durable-waterproof-and-non-slip-picks&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Protect your sofa from pet hair, scratches, and spills with the best sofa slipcovers for pets. These covers keep your furniture clean and last longer.**

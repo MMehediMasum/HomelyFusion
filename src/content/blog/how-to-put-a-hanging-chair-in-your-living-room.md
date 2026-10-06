@@ -1,10 +1,14 @@
 ---
-title: "How to Put a Hanging Chair in Your Living Room: Stylish & Easy Tips"
-description: "Imagine adding a cozy, stylish spot right in your living room where you can relax, read, or simply unwind. A hanging chair can do just that, transforming your s"
+title: 'How to Put a Hanging Chair in Your Living Room: Stylish & Easy Tips'
+description: Imagine adding a cozy, stylish spot right in your living room where you
+  can relax, read, or simply unwind. A hanging chair can do just that, transforming
+  your s
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-a-hanging-chair-in-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Chairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-a-hanging-chair-in-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine adding a cozy, stylish spot right in your living room where you can relax, read, or simply unwind. A hanging chair can do just that, transforming your space into a personal retreat.**

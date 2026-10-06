@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Decorations: Stylish Ideas for Modern Farmhouse Living Rooms"
-description: "Transform your living spaces with beautiful wall decorations. Enhance any room with stylish and functional decor pieces. Wall decorations add character and warm"
+title: 'Home Goods Wall Decorations: Stylish Ideas for Modern Farmhouse Living Rooms'
+description: Transform your living spaces with beautiful wall decorations. Enhance
+  any room with stylish and functional decor pieces. Wall decorations add character
+  and warm
 pubDate: 2026-07-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-decorations&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Transform your living spaces with beautiful wall decorations. Enhance any room with stylish and functional decor pieces.**

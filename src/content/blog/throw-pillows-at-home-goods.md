@@ -1,10 +1,14 @@
 ---
-title: "Throw Pillows at Home Goods: Cozy Styles to Elevate Your Living Space"
-description: "Throw pillows can transform any space, adding comfort and style to your home. Home Goods offers a diverse selection. From vibrant colors to soft textures, throw"
+title: 'Throw Pillows at Home Goods: Cozy Styles to Elevate Your Living Space'
+description: Throw pillows can transform any space, adding comfort and style to your
+  home. Home Goods offers a diverse selection. From vibrant colors to soft textures,
+  throw
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=throw-pillows-at-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Throw Pillows
+heroImage: https://tse1.mm.bing.net/th?q=throw-pillows-at-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Throw pillows can transform any space, adding comfort and style to your home. Home Goods offers a diverse selection.**

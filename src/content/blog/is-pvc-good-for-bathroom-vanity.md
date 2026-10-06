@@ -1,10 +1,14 @@
 ---
-title: "Is PVC Good for Bathroom Vanity: Durable, Affordable & Stylish Choices"
-description: "When choosing materials for your bathroom vanity, you want something that lasts, looks great, and fits your budget. But is PVC the right choice for your bathroo"
+title: 'Is PVC Good for Bathroom Vanity: Durable, Affordable & Stylish Choices'
+description: When choosing materials for your bathroom vanity, you want something
+  that lasts, looks great, and fits your budget. But is PVC the right choice for your
+  bathroo
 pubDate: 2026-01-29
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-pvc-good-for-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=is-pvc-good-for-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **When choosing materials for your bathroom vanity, you want something that lasts, looks great, and fits your budget. But is PVC the right choice for your bathroom vanity?**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Galvanize Steel at Home: Easy Steps for Lasting Protection"
 description: "Are you looking to protect your steel projects from rust and wear without spending a fortune? Learning how to galvanize steel at home can save you money and ext"
 pubDate: 2026-03-13

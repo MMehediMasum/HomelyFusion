@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home With Flour: Easy, Safe DIY Recipe"
 description: "Looking for a fun, easy way to get creative right at home? Making clay with flour is a simple and affordable solution you can try right now. You don’t need any "
 pubDate: 2025-09-27

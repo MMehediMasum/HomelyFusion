@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Living Room Table from Crates: Easy DIY Guide"
-description: "Looking for a unique and budget-friendly way to upgrade your living room? Making a living room table from crates is easier than you might think—and it adds a ch"
+title: 'How to Make a Living Room Table from Crates: Easy DIY Guide'
+description: Looking for a unique and budget-friendly way to upgrade your living room?
+  Making a living room table from crates is easier than you might think—and it adds
+  a ch
 pubDate: 2026-05-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-table-from-crates&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-living-room-table-from-crates&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Looking for a unique and budget-friendly way to upgrade your living room? Making a living room table from crates is easier than you might think—and it adds a charming, rustic touch to your space.**

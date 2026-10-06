@@ -1,10 +1,13 @@
 ---
-title: "Awesome Bedroom Accessories to Transform Your Space with Style and Function"
-description: "Awesome bedroom accessories can transform your space into a cozy, organized, and stylish retreat. Small additions make a big difference in comfort and convenien"
+title: Awesome Bedroom Accessories to Transform Your Space with Style and Function
+description: Awesome bedroom accessories can transform your space into a cozy, organized,
+  and stylish retreat. Small additions make a big difference in comfort and convenien
 pubDate: 2026-07-10
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=awesome-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=awesome-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Awesome bedroom accessories can transform your space into a cozy, organized, and stylish retreat. Small additions make a big difference in comfort and convenience.**

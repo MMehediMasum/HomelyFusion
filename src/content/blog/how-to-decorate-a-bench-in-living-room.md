@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Bench in Living Room: Stunning Style Ideas"
-description: "Your living room bench is more than just a place to sit—it’s a chance to add style and comfort to your space. But how do you decorate it so it looks inviting an"
+title: 'How to Decorate a Bench in Living Room: Stunning Style Ideas'
+description: Your living room bench is more than just a place to sit—it’s a chance
+  to add style and comfort to your space. But how do you decorate it so it looks inviting
+  an
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-bench-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Ottomans
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-bench-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room bench is more than just a place to sit—it’s a chance to add style and comfort to your space. But how do you decorate it so it looks inviting and fits your personality?**

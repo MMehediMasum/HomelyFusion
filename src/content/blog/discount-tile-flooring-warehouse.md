@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Discount Tile Flooring Warehouse: Top Cleaning Tools and Durable Floor Tiles"
 description: "Discount Tile Flooring Warehouse offers quality flooring products at lower prices. Find durable tiles and cleaning tools suitable for homes and businesses. This"
 pubDate: 2026-06-28

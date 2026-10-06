@@ -1,10 +1,14 @@
 ---
-title: "How Wide Should Bathroom Mirror Be: Expert Tips for Perfect Fit"
-description: "Choosing the right size for your bathroom mirror can feel trickier than it sounds. You want it to look great, fit your space perfectly, and serve your daily nee"
+title: 'How Wide Should Bathroom Mirror Be: Expert Tips for Perfect Fit'
+description: Choosing the right size for your bathroom mirror can feel trickier than
+  it sounds. You want it to look great, fit your space perfectly, and serve your daily
+  nee
 pubDate: 2026-01-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-wide-should-bathroom-mirror-be&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-wide-should-bathroom-mirror-be&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the right size for your bathroom mirror can feel trickier than it sounds. You want it to look great, fit your space perfectly, and serve your daily needs without overwhelming the room.**

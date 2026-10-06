@@ -1,10 +1,13 @@
 ---
-title: "How to Wash Woolen Shawl at Home: Easy Steps for Gentle Care"
-description: "Your woolen shawl is more than just a piece of clothing—it’s a cozy companion that keeps you warm and adds charm to your outfit. But washing it at home can feel"
+title: 'How to Wash Woolen Shawl at Home: Easy Steps for Gentle Care'
+description: Your woolen shawl is more than just a piece of clothing—it’s a cozy companion
+  that keeps you warm and adds charm to your outfit. But washing it at home can feel
 pubDate: 2026-03-03
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-woolen-shawl-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-woolen-shawl-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your woolen shawl is more than just a piece of clothing—it’s a cozy companion that keeps you warm and adds charm to your outfit. But washing it at home can feel tricky.**

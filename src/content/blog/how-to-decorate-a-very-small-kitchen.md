@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Very Small Kitchen: Clever Tips for Maximum Space"
-description: "Is your kitchen feeling cramped and cluttered? You’re not alone. Decorating a very small kitchen can be tricky, but it doesn’t have to be frustrating. Imagine t"
+title: 'How to Decorate a Very Small Kitchen: Clever Tips for Maximum Space'
+description: Is your kitchen feeling cramped and cluttered? You’re not alone. Decorating
+  a very small kitchen can be tricky, but it doesn’t have to be frustrating. Imagine
+  t
 pubDate: 2025-11-03
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-very-small-kitchen&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-very-small-kitchen&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Is your kitchen feeling cramped and cluttered? You’re not alone.**

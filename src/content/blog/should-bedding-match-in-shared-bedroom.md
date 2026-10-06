@@ -1,10 +1,14 @@
 ---
-title: "Should Bedding Match in Shared Bedroom? Expert Tips & Ideas"
-description: "Have you ever wondered if bedding in a shared bedroom should match? You might think matching sets create a neat and cozy space. But what if mixing patterns and "
+title: Should Bedding Match in Shared Bedroom? Expert Tips & Ideas
+description: 'Have you ever wondered if bedding in a shared bedroom should match?
+  You might think matching sets create a neat and cozy space. But what if mixing patterns
+  and '
 pubDate: 2026-05-17
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-bedding-match-in-shared-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=should-bedding-match-in-shared-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if bedding in a shared bedroom should match? You might think matching sets create a neat and cozy space.**

@@ -1,10 +1,14 @@
 ---
-title: "Magaschoni Home Pillow Home Goods: Cozy Decorative Throw Pillow Covers Guide"
-description: "Magaschoni Home Pillow Home Goods offer cozy and stylish pillow covers that brighten any room. These cushions blend comfort and decor in simple, elegant designs"
+title: 'Magaschoni Home Pillow Home Goods: Cozy Decorative Throw Pillow Covers Guide'
+description: Magaschoni Home Pillow Home Goods offer cozy and stylish pillow covers
+  that brighten any room. These cushions blend comfort and decor in simple, elegant
+  designs
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=magaschoni-home-pillow-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Pillows & Throws
+heroImage: https://tse1.mm.bing.net/th?q=magaschoni-home-pillow-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Magaschoni Home Pillow Home Goods offer cozy and stylish pillow covers that brighten any room. These cushions blend comfort and decor in simple, elegant designs.**

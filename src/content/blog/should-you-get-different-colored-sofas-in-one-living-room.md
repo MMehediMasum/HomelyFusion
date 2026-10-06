@@ -1,10 +1,14 @@
 ---
-title: "Should You Get Different Colored Sofas in One Living Room? Bold Style Tips"
-description: "Are you wondering if mixing different colored sofas in your living room is a good idea? You might think it’s risky or that it could make your space look messy. "
+title: Should You Get Different Colored Sofas in One Living Room? Bold Style Tips
+description: 'Are you wondering if mixing different colored sofas in your living room
+  is a good idea? You might think it’s risky or that it could make your space look
+  messy. '
 pubDate: 2026-05-03
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-you-get-different-colored-sofas-in-one-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=should-you-get-different-colored-sofas-in-one-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if mixing different colored sofas in your living room is a good idea? You might think it’s risky or that it could make your space look messy.**

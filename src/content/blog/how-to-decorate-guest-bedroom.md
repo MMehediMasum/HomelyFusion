@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Guest Bedroom: Stylish Tips for Cozy Comfort"
-description: "Your guest bedroom is more than just an extra room—it’s a chance to make your visitors feel truly welcome and comfortable. But how do you create a space that’s "
+title: 'How to Decorate Guest Bedroom: Stylish Tips for Cozy Comfort'
+description: 'Your guest bedroom is more than just an extra room—it’s a chance to
+  make your visitors feel truly welcome and comfortable. But how do you create a space
+  that’s '
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-guest-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-guest-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your guest bedroom is more than just an extra room—it’s a chance to make your visitors feel truly welcome and comfortable. But how do you create a space that’s both stylish and inviting without spending a fortune or turning it into a cluttered mess?**

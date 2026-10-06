@@ -1,10 +1,14 @@
 ---
-title: "How to Make Salt Clay at Home: Easy & Fun DIY Craft Recipe"
-description: "Have you ever wanted to create something fun and unique with your own hands? Making salt clay at home is an easy and exciting way to do just that. With just a f"
+title: 'How to Make Salt Clay at Home: Easy & Fun DIY Craft Recipe'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? Making salt clay at home is an easy and exciting way to do just that. With
+  just a f
 pubDate: 2026-03-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-salt-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Sculpture DIY
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-salt-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? Making salt clay at home is an easy and exciting way to do just that.**

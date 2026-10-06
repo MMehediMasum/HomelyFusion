@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Home: Easy Steps for Stunning DIY Decor"
-description: "Have you ever wanted to create your own clay home from scratch? Imagine shaping every wall, molding every corner, and crafting a space that truly reflects your "
+title: 'How to Make Clay Home: Easy Steps for Stunning DIY Decor'
+description: 'Have you ever wanted to create your own clay home from scratch? Imagine
+  shaping every wall, molding every corner, and crafting a space that truly reflects
+  your '
 pubDate: 2026-03-01
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Porcelain Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay home from scratch? Imagine shaping every wall, molding every corner, and crafting a space that truly reflects your personality.**

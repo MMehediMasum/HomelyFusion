@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Use Google Home Speaker for Music: Ultimate Guide & Tips"
 description: "Imagine walking into your room and instantly filling it with your favorite tunes, all without lifting a finger. With your Google Home speaker, this is not just "
 pubDate: 2025-10-27

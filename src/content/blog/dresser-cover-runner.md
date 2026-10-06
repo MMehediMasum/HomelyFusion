@@ -1,10 +1,14 @@
 ---
-title: "Dresser Cover Runner Ideas to Elevate Your Rustic Farmhouse Decor"
-description: "Dresser cover runners add style and protection to your furniture. They enhance your room's decor with ease. These versatile runners come in various designs and "
+title: Dresser Cover Runner Ideas to Elevate Your Rustic Farmhouse Decor
+description: 'Dresser cover runners add style and protection to your furniture. They
+  enhance your room''s decor with ease. These versatile runners come in various designs
+  and '
 pubDate: 2026-06-27
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=dresser-cover-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Dresser Sizing
+heroImage: https://tse1.mm.bing.net/th?q=dresser-cover-runner&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Dresser cover runners add style and protection to your furniture. They enhance your room's decor with ease.**

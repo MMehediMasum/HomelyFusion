@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Picture Ledges on Wall: Easy Steps for Perfect Display"
-description: "Are you ready to transform your walls without drilling endless holes or cluttering your space? Hanging picture ledges is a simple, stylish way to showcase your "
+title: 'How to Hang Picture Ledges on Wall: Easy Steps for Perfect Display'
+description: 'Are you ready to transform your walls without drilling endless holes
+  or cluttering your space? Hanging picture ledges is a simple, stylish way to showcase
+  your '
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-picture-ledges-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-picture-ledges-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your walls without drilling endless holes or cluttering your space? Hanging picture ledges is a simple, stylish way to showcase your favorite photos, artwork, or keepsakes.**

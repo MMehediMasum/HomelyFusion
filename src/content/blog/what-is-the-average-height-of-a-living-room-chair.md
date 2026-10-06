@@ -1,10 +1,14 @@
 ---
-title: "What is the Average Height of a Living Room Chair: Expert Guide"
-description: "When choosing the perfect chair for your living room, one question often comes up: what is the average height of a living room chair? Getting this right can mak"
+title: 'What is the Average Height of a Living Room Chair: Expert Guide'
+description: 'When choosing the perfect chair for your living room, one question often
+  comes up: what is the average height of a living room chair? Getting this right
+  can mak'
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-average-height-of-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Reupholstery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-average-height-of-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **When choosing the perfect chair for your living room, one question often comes up: what is the average height of a living room chair? Getting this right can make a huge difference in comfort and style.**

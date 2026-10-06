@@ -1,10 +1,14 @@
 ---
-title: "Nautica Rugs 8X10: Stylish, Durable Coastal Rugs for Every Room"
-description: "Nautica Rugs 8x10 offer stylish and functional floor coverings for various rooms. These rugs combine coastal charm with durable, easy-care materials. Designed f"
+title: 'Nautica Rugs 8X10: Stylish, Durable Coastal Rugs for Every Room'
+description: Nautica Rugs 8x10 offer stylish and functional floor coverings for various
+  rooms. These rugs combine coastal charm with durable, easy-care materials. Designed
+  f
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-rugs-8x10&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Rug Sizing
+heroImage: https://tse1.mm.bing.net/th?q=nautica-rugs-8x10&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Nautica Rugs 8x10 offer stylish and functional floor coverings for various rooms. These rugs combine coastal charm with durable, easy-care materials.**

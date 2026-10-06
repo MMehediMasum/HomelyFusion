@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Vinyl Plank Flooring: Easy Peel & Stick DIY Solutions"
-description: "Vinyl plank flooring is a popular choice for home decor. It's stylish, durable, and easy to install. Vinyl plank flooring offers a versatile solution for upgrad"
+title: 'Home Decor Vinyl Plank Flooring: Easy Peel & Stick DIY Solutions'
+description: Vinyl plank flooring is a popular choice for home decor. It's stylish,
+  durable, and easy to install. Vinyl plank flooring offers a versatile solution for
+  upgrad
 pubDate: 2026-07-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-vinyl-plank-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-vinyl-plank-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Vinyl plank flooring is a popular choice for home decor. It's stylish, durable, and easy to install.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Stripped Floral Sofa: Stylish Tips"
-description: "Your living room is the heart of your home, and choosing the right sofa can change its entire vibe. If you have a striped floral sofa, you already have a unique"
+title: 'How to Decorate Living Room With Stripped Floral Sofa: Stylish Tips'
+description: Your living room is the heart of your home, and choosing the right sofa
+  can change its entire vibe. If you have a striped floral sofa, you already have
+  a unique
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-stripped-floral-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-stripped-floral-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is the heart of your home, and choosing the right sofa can change its entire vibe. If you have a striped floral sofa, you already have a unique piece that blends patterns and colors beautifully.**

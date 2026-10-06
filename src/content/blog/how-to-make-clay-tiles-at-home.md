@@ -1,10 +1,14 @@
 ---
-title: "How to Make Clay Tiles at Home: Easy Step-by-Step Guide"
-description: "Have you ever wanted to add a personal touch to your home with unique, handmade clay tiles? Making clay tiles at home is easier than you might think, and it let"
+title: 'How to Make Clay Tiles at Home: Easy Step-by-Step Guide'
+description: Have you ever wanted to add a personal touch to your home with unique,
+  handmade clay tiles? Making clay tiles at home is easier than you might think, and
+  it let
 pubDate: 2026-02-11
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-clay-tiles-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tiles Flooring Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-clay-tiles-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Have you ever wanted to add a personal touch to your home with unique, handmade clay tiles? Making clay tiles at home is easier than you might think, and it lets you create designs that perfectly match your style.**

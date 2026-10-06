@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Plastered Wall: Easy Steps for a Flawless Finish"
-description: "Painting a plastered wall might seem simple, but getting a smooth, lasting finish takes the right steps. If you want your walls to look fresh and flawless, you "
+title: 'How to Paint a Plastered Wall: Easy Steps for a Flawless Finish'
+description: 'Painting a plastered wall might seem simple, but getting a smooth, lasting
+  finish takes the right steps. If you want your walls to look fresh and flawless,
+  you '
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-plastered-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Gradient Wall Painting
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-plastered-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Painting a plastered wall might seem simple, but getting a smooth, lasting finish takes the right steps. If you want your walls to look fresh and flawless, you need to prepare carefully and use the best techniques.**

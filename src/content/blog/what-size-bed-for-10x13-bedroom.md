@@ -1,10 +1,14 @@
 ---
-title: "What Size Bed for 10X13 Bedroom: Perfect Fit Guide Revealed"
-description: "Choosing the right bed size for your 10x13 bedroom can feel tricky. You want a bed that fits comfortably without making the room feel cramped. Imagine waking up"
+title: 'What Size Bed for 10X13 Bedroom: Perfect Fit Guide Revealed'
+description: Choosing the right bed size for your 10x13 bedroom can feel tricky. You
+  want a bed that fits comfortably without making the room feel cramped. Imagine waking
+  up
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-for-10x13-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-for-10x13-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bed size for your 10x13 bedroom can feel tricky. You want a bed that fits comfortably without making the room feel cramped.**

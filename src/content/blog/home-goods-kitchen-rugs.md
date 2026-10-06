@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Kitchen Rugs: Stylish, Non-Slip, and Comfortable Kitchen Mats"
-description: "Home goods kitchen rugs add comfort and style to your cooking space. They protect floors and reduce fatigue during long kitchen tasks. Kitchen rugs come in many"
+title: 'Home Goods Kitchen Rugs: Stylish, Non-Slip, and Comfortable Kitchen Mats'
+description: Home goods kitchen rugs add comfort and style to your cooking space.
+  They protect floors and reduce fatigue during long kitchen tasks. Kitchen rugs come
+  in many
 pubDate: 2026-07-15
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-kitchen-rugs&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Rug Sizes
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-kitchen-rugs&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods kitchen rugs add comfort and style to your cooking space. They protect floors and reduce fatigue during long kitchen tasks.**

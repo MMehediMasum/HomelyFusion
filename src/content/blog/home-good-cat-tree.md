@@ -1,10 +1,14 @@
 ---
-title: "Home Good Cat Tree: Ultimate Multi-Level Fun and Cozy Cat Condo"
-description: "A home good cat tree offers cats a fun and cozy space to play, scratch, and rest. It keeps cats active and happy indoors. Cat trees come in many styles and size"
+title: 'Home Good Cat Tree: Ultimate Multi-Level Fun and Cozy Cat Condo'
+description: A home good cat tree offers cats a fun and cozy space to play, scratch,
+  and rest. It keeps cats active and happy indoors. Cat trees come in many styles
+  and size
 pubDate: 2026-08-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-good-cat-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=home-good-cat-tree&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A home good cat tree offers cats a fun and cozy space to play, scratch, and rest. It keeps cats active and happy indoors.**

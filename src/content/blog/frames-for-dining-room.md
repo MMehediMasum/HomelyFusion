@@ -1,10 +1,14 @@
 ---
-title: "Frames for Dining Room: Stylish Multi-Size Collage Sets for Wall Display"
-description: "Frames for dining room walls add style and warmth to your space. They display memories and artwork beautifully. Choosing the right frames can change your dining"
+title: 'Frames for Dining Room: Stylish Multi-Size Collage Sets for Wall Display'
+description: Frames for dining room walls add style and warmth to your space. They
+  display memories and artwork beautifully. Choosing the right frames can change your
+  dining
 pubDate: 2026-08-14
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-for-dining-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Picture Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-for-dining-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames for dining room walls add style and warmth to your space. They display memories and artwork beautifully.**

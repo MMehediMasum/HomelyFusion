@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Blank Wall in Bedroom: Stunning Ideas That Wow"
-description: "Looking at a blank wall in your bedroom can feel like a missed opportunity. That empty space is waiting to become the highlight of your room, reflecting your st"
+title: 'How to Decorate a Blank Wall in Bedroom: Stunning Ideas That Wow'
+description: Looking at a blank wall in your bedroom can feel like a missed opportunity.
+  That empty space is waiting to become the highlight of your room, reflecting your
+  st
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-blank-wall-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Styling Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-blank-wall-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Looking at a blank wall in your bedroom can feel like a missed opportunity. That empty space is waiting to become the highlight of your room, reflecting your style and making your space feel cozy and inviting.**

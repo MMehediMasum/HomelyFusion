@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Storage Baskets: Stylish Solutions for Organized Living Spaces"
-description: "Home goods storage baskets offer a simple way to organize any space. They keep items neat and easy to find. These baskets come in many styles, sizes, and materi"
+title: 'Home Goods Storage Baskets: Stylish Solutions for Organized Living Spaces'
+description: Home goods storage baskets offer a simple way to organize any space.
+  They keep items neat and easy to find. These baskets come in many styles, sizes,
+  and materi
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-storage-baskets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shoe Storage
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-storage-baskets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Home goods storage baskets offer a simple way to organize any space. They keep items neat and easy to find.**

@@ -1,10 +1,14 @@
 ---
-title: "Frames And Wall Decor: Top Picture Frame Sets for Stunning Gallery Walls"
-description: "Frames and wall decor can transform any space, adding personality and warmth to your home. With versatile options like upsimples, Vittanly, and LUCKYLIFE, you c"
+title: 'Frames And Wall Decor: Top Picture Frame Sets for Stunning Gallery Walls'
+description: Frames and wall decor can transform any space, adding personality and
+  warmth to your home. With versatile options like upsimples, Vittanly, and LUCKYLIFE,
+  you c
 pubDate: 2026-08-18
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=frames-and-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=frames-and-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Frames and wall decor can transform any space, adding personality and warmth to your home. With versatile options like upsimples, Vittanly, and LUCKYLIFE, you can create a stunning gallery wall.**

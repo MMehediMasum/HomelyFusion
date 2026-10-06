@@ -1,10 +1,14 @@
 ---
-title: "How to Make Lamp at Home: Easy DIY Ideas for Stunning Lighting"
-description: "Have you ever wanted a unique lamp that fits perfectly with your style and adds a cozy glow to your space? Making a lamp at home is easier than you think, and i"
+title: 'How to Make Lamp at Home: Easy DIY Ideas for Stunning Lighting'
+description: Have you ever wanted a unique lamp that fits perfectly with your style
+  and adds a cozy glow to your space? Making a lamp at home is easier than you think,
+  and i
 pubDate: 2026-05-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-lamp-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- DIY Lamp Making
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-lamp-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever wanted a unique lamp that fits perfectly with your style and adds a cozy glow to your space? Making a lamp at home is easier than you think, and it can be a fun project that saves you money.**

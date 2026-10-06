@@ -1,10 +1,14 @@
 ---
-title: "Best Wall Mount for Samsung Frame TV: Ultra Slim, Sturdy & Easy Install"
-description: "Choosing the best wall mount for your Samsung Frame TV ensures a sleek look and secure fit. The right mount keeps your TV close to the wall and supports its wei"
+title: 'Best Wall Mount for Samsung Frame TV: Ultra Slim, Sturdy & Easy Install'
+description: Choosing the best wall mount for your Samsung Frame TV ensures a sleek
+  look and secure fit. The right mount keeps your TV close to the wall and supports
+  its wei
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wall-mount-for-samsung-frame-tv-ultra-slim-sturdy-easy-install&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Frames
+heroImage: https://tse1.mm.bing.net/th?q=best-wall-mount-for-samsung-frame-tv-ultra-slim-sturdy-easy-install&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best wall mount for your Samsung Frame TV ensures a sleek look and secure fit. The right mount keeps your TV close to the wall and supports its weight safely.**

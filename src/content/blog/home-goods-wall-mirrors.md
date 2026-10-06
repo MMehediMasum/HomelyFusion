@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Mirrors: Stylish Full-Length Options for Every Room"
-description: "Wall mirrors add depth and style to any space, enhancing the visual appeal of your home. Their versatility makes them suitable for various rooms and purposes. W"
+title: 'Home Goods Wall Mirrors: Stylish Full-Length Options for Every Room'
+description: Wall mirrors add depth and style to any space, enhancing the visual appeal
+  of your home. Their versatility makes them suitable for various rooms and purposes.
+  W
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall mirrors add depth and style to any space, enhancing the visual appeal of your home. Their versatility makes them suitable for various rooms and purposes.**

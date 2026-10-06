@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Small Wall With Frames: Stunning Ideas to Transform Space"
-description: "Are you staring at a small, empty wall and wondering how to make it come alive? Decorating a small wall with frames can transform your space instantly, adding p"
+title: 'How to Decorate Small Wall With Frames: Stunning Ideas to Transform Space'
+description: Are you staring at a small, empty wall and wondering how to make it come
+  alive? Decorating a small wall with frames can transform your space instantly, adding
+  p
 pubDate: 2026-02-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-small-wall-with-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-small-wall-with-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at a small, empty wall and wondering how to make it come alive? Decorating a small wall with frames can transform your space instantly, adding personality and style without overwhelming the room.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Thanksgiving Pumpkin Cheesecake Bars: Irresistible Festive Treats"
 description: "If you’re looking to wow your guests this Thanksgiving, these Pumpkin Cheesecake Bars are exactly what you need. Imagine creamy, rich cheesecake blended with th"
 pubDate: 2025-11-07

@@ -1,10 +1,14 @@
 ---
-title: "Christmas Rustic Farmhouse Tree Decor: Cozy Ideas to Inspire Your Holiday"
-description: "Are you ready to transform your Christmas tree into a warm, cozy centerpiece that feels like home? Christmas Rustic Farmhouse Tree Decor is the perfect way to b"
+title: 'Christmas Rustic Farmhouse Tree Decor: Cozy Ideas to Inspire Your Holiday'
+description: Are you ready to transform your Christmas tree into a warm, cozy centerpiece
+  that feels like home? Christmas Rustic Farmhouse Tree Decor is the perfect way to
+  b
 pubDate: 2025-12-19
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-rustic-farmhouse-tree-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-rustic-farmhouse-tree-decor&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to transform your Christmas tree into a warm, cozy centerpiece that feels like home? Christmas Rustic Farmhouse Tree Decor is the perfect way to bring charm and simplicity to your holiday season.**

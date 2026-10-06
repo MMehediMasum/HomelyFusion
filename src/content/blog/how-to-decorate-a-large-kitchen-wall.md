@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Large Kitchen Wall: Stunning Ideas to Transform Space"
-description: "Your large kitchen wall holds more potential than you might think. Instead of leaving it bare or cluttered, you can transform it into a stunning focal point tha"
+title: 'How to Decorate a Large Kitchen Wall: Stunning Ideas to Transform Space'
+description: Your large kitchen wall holds more potential than you might think. Instead
+  of leaving it bare or cluttered, you can transform it into a stunning focal point
+  tha
 pubDate: 2025-09-06
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-kitchen-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-large-kitchen-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your large kitchen wall holds more potential than you might think. Instead of leaving it bare or cluttered, you can transform it into a stunning focal point that reflects your style and makes your kitchen feel inviting.**

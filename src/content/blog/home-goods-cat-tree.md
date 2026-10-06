@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Cat Tree: Ultimate Multi-Level Play and Sleep Haven for Cats"
-description: "A Home Goods Cat Tree offers cats a fun and cozy place to play, scratch, and rest indoors. These cat trees come in various sizes and features to suit different "
+title: 'Home Goods Cat Tree: Ultimate Multi-Level Play and Sleep Haven for Cats'
+description: 'A Home Goods Cat Tree offers cats a fun and cozy place to play, scratch,
+  and rest indoors. These cat trees come in various sizes and features to suit different '
 pubDate: 2026-06-29
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-cat-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-cat-tree&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **A Home Goods Cat Tree offers cats a fun and cozy place to play, scratch, and rest indoors. These cat trees come in various sizes and features to suit different cats’ needs and home spaces.**

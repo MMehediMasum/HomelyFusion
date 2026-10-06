@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Work Cubicle: Creative Tips for a Stylish Space"
-description: "Your work cubicle is more than just a place to get tasks done—it’s your personal space during the workday. How you decorate it can boost your mood, improve focu"
+title: 'How to Decorate Work Cubicle: Creative Tips for a Stylish Space'
+description: Your work cubicle is more than just a place to get tasks done—it’s your
+  personal space during the workday. How you decorate it can boost your mood, improve
+  focu
 pubDate: 2025-09-18
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-work-cubicle&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-work-cubicle&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your work cubicle is more than just a place to get tasks done—it’s your personal space during the workday. How you decorate it can boost your mood, improve focus, and even spark creativity.**

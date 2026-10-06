@@ -1,10 +1,14 @@
 ---
-title: "Funky Bedroom Accessories That Transform Your Space with Retro Vibes"
-description: "Funky bedroom accessories bring color and personality to any space. They turn plain rooms into lively, inviting places. Adding unique items like disco mirrors, "
+title: Funky Bedroom Accessories That Transform Your Space with Retro Vibes
+description: 'Funky bedroom accessories bring color and personality to any space.
+  They turn plain rooms into lively, inviting places. Adding unique items like disco
+  mirrors, '
 pubDate: 2026-06-11
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=funky-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=funky-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Funky bedroom accessories bring color and personality to any space. They turn plain rooms into lively, inviting places.**

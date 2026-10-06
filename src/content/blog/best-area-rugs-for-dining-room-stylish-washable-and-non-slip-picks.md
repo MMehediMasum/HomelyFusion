@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rugs for Dining Room: Stylish, Washable, and Non-Slip Picks"
-description: "Choosing the best area rug can transform your dining room’s look and feel. The right rug adds comfort, style, and protects your floor. Dining rooms need rugs th"
+title: 'Best Area Rugs for Dining Room: Stylish, Washable, and Non-Slip Picks'
+description: Choosing the best area rug can transform your dining room’s look and
+  feel. The right rug adds comfort, style, and protects your floor. Dining rooms need
+  rugs th
 pubDate: 2025-10-18
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rugs-for-dining-room-stylish-washable-and-non-slip-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Wood Floor Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rugs-for-dining-room-stylish-washable-and-non-slip-picks&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug can transform your dining room’s look and feel. The right rug adds comfort, style, and protects your floor.**

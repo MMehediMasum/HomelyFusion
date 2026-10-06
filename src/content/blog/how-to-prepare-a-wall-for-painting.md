@@ -1,10 +1,14 @@
 ---
-title: "How to Prepare a Wall for Painting: Ultimate Step-by-Step Guide"
-description: "Getting your walls ready before painting might seem like a chore, but it’s the secret to a flawless finish. If you want your new paint to look fresh, smooth, an"
+title: 'How to Prepare a Wall for Painting: Ultimate Step-by-Step Guide'
+description: Getting your walls ready before painting might seem like a chore, but
+  it’s the secret to a flawless finish. If you want your new paint to look fresh,
+  smooth, an
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-prepare-a-wall-for-painting&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-prepare-a-wall-for-painting&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Getting your walls ready before painting might seem like a chore, but it’s the secret to a flawless finish. If you want your new paint to look fresh, smooth, and last for years, how you prepare your wall matters more than you think.**

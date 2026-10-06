@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Brick Wall: Stunning Ideas to Transform Your Space"
-description: "Are you staring at that plain brick wall and wondering how to make it a stunning part of your space? Decorating a brick wall might seem tricky, but with the rig"
+title: 'How to Decorate Brick Wall: Stunning Ideas to Transform Your Space'
+description: Are you staring at that plain brick wall and wondering how to make it
+  a stunning part of your space? Decorating a brick wall might seem tricky, but with
+  the rig
 pubDate: 2025-10-26
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you staring at that plain brick wall and wondering how to make it a stunning part of your space? Decorating a brick wall might seem tricky, but with the right ideas, you can turn it into a beautiful feature that reflects your style.**

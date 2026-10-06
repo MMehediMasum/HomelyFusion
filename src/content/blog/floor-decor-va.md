@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor Decor Va: Stylish Modern Lamps, Mirrors, and Vases for Every Room"
 description: "Discover the perfect blend of style and functionality with top floor decor items available in Virginia. Transform your living spaces effortlessly. Elevate your "
 pubDate: 2026-08-01

@@ -1,10 +1,14 @@
 ---
-title: "Home Decoration Wall Ideas to Elevate Your Rustic Farmhouse Style"
-description: "Creating a cozy and inviting home environment starts with the right wall decor. Transform your space with stylish and unique wall decorations that reflect your "
+title: Home Decoration Wall Ideas to Elevate Your Rustic Farmhouse Style
+description: 'Creating a cozy and inviting home environment starts with the right
+  wall decor. Transform your space with stylish and unique wall decorations that reflect
+  your '
 pubDate: 2026-07-27
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decoration-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Office Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decoration-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Creating a cozy and inviting home environment starts with the right wall decor. Transform your space with stylish and unique wall decorations that reflect your personality.**

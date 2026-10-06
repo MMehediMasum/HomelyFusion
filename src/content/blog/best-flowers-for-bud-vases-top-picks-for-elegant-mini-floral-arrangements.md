@@ -1,10 +1,14 @@
 ---
-title: "Best Flowers for Bud Vases: Top Picks for Elegant Mini Floral Arrangements"
-description: "Bud vases highlight single flowers with charm and elegance. Choosing the right flowers makes them stand out beautifully. Bud vases are small containers designed"
+title: 'Best Flowers for Bud Vases: Top Picks for Elegant Mini Floral Arrangements'
+description: Bud vases highlight single flowers with charm and elegance. Choosing
+  the right flowers makes them stand out beautifully. Bud vases are small containers
+  designed
 pubDate: 2025-12-14
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-flowers-for-bud-vases-top-picks-for-elegant-mini-floral-arrangements&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vase Decorating
+heroImage: https://tse1.mm.bing.net/th?q=best-flowers-for-bud-vases-top-picks-for-elegant-mini-floral-arrangements&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Bud vases highlight single flowers with charm and elegance. Choosing the right flowers makes them stand out beautifully.**

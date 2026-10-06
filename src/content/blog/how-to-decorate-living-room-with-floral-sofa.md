@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Floral Sofa: Stunning Style Tips"
-description: "Are you wondering how to make your living room feel fresh, inviting, and full of personality? A floral sofa might be the perfect key to transforming your space."
+title: 'How to Decorate Living Room With Floral Sofa: Stunning Style Tips'
+description: Are you wondering how to make your living room feel fresh, inviting,
+  and full of personality? A floral sofa might be the perfect key to transforming
+  your space.
 pubDate: 2026-04-10
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-floral-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-floral-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to make your living room feel fresh, inviting, and full of personality? A floral sofa might be the perfect key to transforming your space.**

@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Santa Wine Bottle Holder: Festive Holiday Decor and Gift Idea"
-description: "Discover the charm of the Homegoods Santa Wine Bottle Holder. A festive addition to your holiday decor. This delightful wine bottle holder adds a whimsical touc"
+title: 'Homegoods Santa Wine Bottle Holder: Festive Holiday Decor and Gift Idea'
+description: Discover the charm of the Homegoods Santa Wine Bottle Holder. A festive
+  addition to your holiday decor. This delightful wine bottle holder adds a whimsical
+  touc
 pubDate: 2026-07-11
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-santa-wine-bottle-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Stocking Holders
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-santa-wine-bottle-holder&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Discover the charm of the Homegoods Santa Wine Bottle Holder. A festive addition to your holiday decor.**

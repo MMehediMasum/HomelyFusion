@@ -1,10 +1,14 @@
 ---
-title: "What Colour Carpet Goes With Grey Sofa Living Room: Stunning Ideas"
-description: "Choosing the perfect carpet to match your grey sofa can feel tricky. You want your living room to look stylish and inviting, but picking the right color isn’t a"
+title: 'What Colour Carpet Goes With Grey Sofa Living Room: Stunning Ideas'
+description: Choosing the perfect carpet to match your grey sofa can feel tricky.
+  You want your living room to look stylish and inviting, but picking the right color
+  isn’t a
 pubDate: 2026-04-05
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colour-carpet-goes-with-grey-sofa-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Grey Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=what-colour-carpet-goes-with-grey-sofa-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect carpet to match your grey sofa can feel tricky. You want your living room to look stylish and inviting, but picking the right color isn’t always easy.**

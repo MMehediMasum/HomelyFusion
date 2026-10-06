@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Honeywell Thermostat Connect to Google Home: Ultimate Guide"
 description: "Are you wondering if your Honeywell thermostat can connect to Google Home? Imagine controlling your home's temperature with just your voice—no need to get up or"
 pubDate: 2026-04-08

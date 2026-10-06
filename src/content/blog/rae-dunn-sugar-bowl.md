@@ -1,10 +1,14 @@
 ---
-title: "Rae Dunn Sugar Bowl: Elegant Farmhouse Style for Your Coffee Bar"
-description: "The Rae Dunn Sugar Bowl blends simple design with practical use. It fits well in kitchens and coffee bars. This sugar bowl stands out for its clean, farmhouse s"
+title: 'Rae Dunn Sugar Bowl: Elegant Farmhouse Style for Your Coffee Bar'
+description: The Rae Dunn Sugar Bowl blends simple design with practical use. It fits
+  well in kitchens and coffee bars. This sugar bowl stands out for its clean, farmhouse
+  s
 pubDate: 2026-06-17
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rae-dunn-sugar-bowl&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=rae-dunn-sugar-bowl&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **The Rae Dunn Sugar Bowl blends simple design with practical use. It fits well in kitchens and coffee bars.**

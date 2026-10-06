@@ -1,10 +1,14 @@
 ---
-title: "Homegoods Night Stand Ideas with Charging Station and Stylish Storage Solutions"
-description: "A Homegoods night stand adds style and function to any bedroom. It offers storage, charging ports, and a place to keep essentials close. Nightstands from Homego"
+title: Homegoods Night Stand Ideas with Charging Station and Stylish Storage Solutions
+description: A Homegoods night stand adds style and function to any bedroom. It offers
+  storage, charging ports, and a place to keep essentials close. Nightstands from
+  Homego
 pubDate: 2025-11-08
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-night-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-night-stand&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **A Homegoods night stand adds style and function to any bedroom. It offers storage, charging ports, and a place to keep essentials close.**

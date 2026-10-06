@@ -1,10 +1,14 @@
 ---
-title: "Home Goods End Table Ideas: Stylish Storage and Charging Solutions"
-description: "A home goods end table adds both function and style to any room. It offers a perfect spot for lamps, books, and small items. End tables come in many designs to "
+title: 'Home Goods End Table Ideas: Stylish Storage and Charging Solutions'
+description: 'A home goods end table adds both function and style to any room. It
+  offers a perfect spot for lamps, books, and small items. End tables come in many
+  designs to '
 pubDate: 2026-07-09
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-end-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-end-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **A home goods end table adds both function and style to any room. It offers a perfect spot for lamps, books, and small items.**

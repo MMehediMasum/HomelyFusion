@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Easy Christmas Punch Recipe: Delicious & Festive Holiday Drink"
 description: "Looking for a festive drink that’s simple, delicious, and sure to impress your guests? Your search ends here with this easy Christmas punch recipe. Imagine serv"
 pubDate: 2025-10-14

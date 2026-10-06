@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Google Home to Sound System: Easy Step-by-Step Guide"
 description: "Want to get richer, clearer sound from your Google Home? Connecting it to your sound system can transform your listening experience. Imagine your favorite songs"
 pubDate: 2025-09-27

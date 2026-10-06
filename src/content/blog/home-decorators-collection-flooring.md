@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Flooring: Easy DIY Vinyl Peel and Stick Tiles"
-description: "Home Decorators Collection Flooring offers stylish and easy-to-install options for any room. These floors blend quality and design for a fresh look. The collect"
+title: 'Home Decorators Collection Flooring: Easy DIY Vinyl Peel and Stick Tiles'
+description: Home Decorators Collection Flooring offers stylish and easy-to-install
+  options for any room. These floors blend quality and design for a fresh look. The
+  collect
 pubDate: 2026-06-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators Collection Flooring offers stylish and easy-to-install options for any room. These floors blend quality and design for a fresh look.**

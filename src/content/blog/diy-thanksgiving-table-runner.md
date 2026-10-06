@@ -1,10 +1,14 @@
 ---
-title: "Diy Thanksgiving Table Runner: Easy Ideas to Wow Your Guests"
-description: "Are you ready to make your Thanksgiving table truly special this year? A DIY Thanksgiving table runner is the perfect way to add a personal touch that will wow "
+title: 'Diy Thanksgiving Table Runner: Easy Ideas to Wow Your Guests'
+description: 'Are you ready to make your Thanksgiving table truly special this year?
+  A DIY Thanksgiving table runner is the perfect way to add a personal touch that
+  will wow '
 pubDate: 2025-12-22
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-thanksgiving-table-runner&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Thanksgiving Decor
+heroImage: https://tse1.mm.bing.net/th?q=diy-thanksgiving-table-runner&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Thanksgiving table truly special this year? A DIY Thanksgiving table runner is the perfect way to add a personal touch that will wow your guests.**

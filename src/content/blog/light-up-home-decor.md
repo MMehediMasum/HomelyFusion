@@ -1,10 +1,14 @@
 ---
-title: "Light Up Home Decor Ideas: Transform Your Space with Stunning LED Lights"
-description: "Light up home decor adds warmth and charm to any room. It creates a cozy, inviting atmosphere with soft, colorful lights. Using LED night lights, moon lamps, an"
+title: 'Light Up Home Decor Ideas: Transform Your Space with Stunning LED Lights'
+description: Light up home decor adds warmth and charm to any room. It creates a cozy,
+  inviting atmosphere with soft, colorful lights. Using LED night lights, moon lamps,
+  an
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=light-up-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=light-up-home-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Light up home decor adds warmth and charm to any room. It creates a cozy, inviting atmosphere with soft, colorful lights.**

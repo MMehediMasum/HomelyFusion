@@ -1,10 +1,14 @@
 ---
-title: "Homegood Candles: Luxury Soy Wax Sets for Relaxing Aromatherapy"
-description: "Homegood candles offer a delightful way to enhance your living space. Their diverse scents create a soothing atmosphere. Candles are more than just a source of "
+title: 'Homegood Candles: Luxury Soy Wax Sets for Relaxing Aromatherapy'
+description: 'Homegood candles offer a delightful way to enhance your living space.
+  Their diverse scents create a soothing atmosphere. Candles are more than just a
+  source of '
 pubDate: 2026-07-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegood-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=homegood-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Homegood candles offer a delightful way to enhance your living space. Their diverse scents create a soothing atmosphere.**

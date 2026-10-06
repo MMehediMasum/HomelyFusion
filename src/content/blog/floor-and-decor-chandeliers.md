@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Chandeliers: Stunning Black Farmhouse Lighting Fixtures Guide"
-description: "Chandeliers add elegance and style to any space. Floor and Decor offers a wide range of chandelier options. Explore various chandelier designs that suit every r"
+title: 'Floor And Decor Chandeliers: Stunning Black Farmhouse Lighting Fixtures Guide'
+description: Chandeliers add elegance and style to any space. Floor and Decor offers
+  a wide range of chandelier options. Explore various chandelier designs that suit
+  every r
 pubDate: 2026-07-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-chandeliers&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-chandeliers&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Chandeliers add elegance and style to any space. Floor and Decor offers a wide range of chandelier options.**

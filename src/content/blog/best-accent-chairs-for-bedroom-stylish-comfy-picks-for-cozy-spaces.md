@@ -1,10 +1,14 @@
 ---
-title: "Best Accent Chairs for Bedroom: Stylish, Comfy Picks for Cozy Spaces"
-description: "Choosing the best accent chair for your bedroom adds style and comfort to your space. These chairs offer perfect spots for reading, relaxing, or welcoming guest"
+title: 'Best Accent Chairs for Bedroom: Stylish, Comfy Picks for Cozy Spaces'
+description: Choosing the best accent chair for your bedroom adds style and comfort
+  to your space. These chairs offer perfect spots for reading, relaxing, or welcoming
+  guest
 pubDate: 2025-11-16
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-accent-chairs-for-bedroom-stylish-comfy-picks-for-cozy-spaces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-accent-chairs-for-bedroom-stylish-comfy-picks-for-cozy-spaces&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the best accent chair for your bedroom adds style and comfort to your space. These chairs offer perfect spots for reading, relaxing, or welcoming guests.**

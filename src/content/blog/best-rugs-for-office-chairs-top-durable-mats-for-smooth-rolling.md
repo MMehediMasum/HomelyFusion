@@ -1,10 +1,14 @@
 ---
-title: "Best Rugs for Office Chairs: Top Durable Mats for Smooth Rolling"
-description: "Choosing the best rugs for office chairs protects floors and improves chair movement. The right rug balances durability, comfort, and style. Office chairs roll "
+title: 'Best Rugs for Office Chairs: Top Durable Mats for Smooth Rolling'
+description: 'Choosing the best rugs for office chairs protects floors and improves
+  chair movement. The right rug balances durability, comfort, and style. Office chairs
+  roll '
 pubDate: 2025-09-20
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rugs-for-office-chairs-top-durable-mats-for-smooth-rolling&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=best-rugs-for-office-chairs-top-durable-mats-for-smooth-rolling&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the best rugs for office chairs protects floors and improves chair movement. The right rug balances durability, comfort, and style.**

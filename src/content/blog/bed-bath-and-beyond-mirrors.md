@@ -1,10 +1,14 @@
 ---
-title: "Bed Bath And Beyond Mirrors: Stylish Wall and Full-Length Mirror Ideas"
-description: "Mirrors from Bed Bath & Beyond offer style and function. They transform spaces with elegant designs and practical features. Explore a wide selection of mirrors "
+title: 'Bed Bath And Beyond Mirrors: Stylish Wall and Full-Length Mirror Ideas'
+description: 'Mirrors from Bed Bath & Beyond offer style and function. They transform
+  spaces with elegant designs and practical features. Explore a wide selection of
+  mirrors '
 pubDate: 2026-06-14
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bathroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=bed-bath-and-beyond-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Mirrors from Bed Bath & Beyond offer style and function. They transform spaces with elegant designs and practical features.**

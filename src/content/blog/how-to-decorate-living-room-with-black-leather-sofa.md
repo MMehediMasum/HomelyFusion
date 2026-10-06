@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Living Room With Black Leather Sofa: Stunning Ideas"
-description: "Your black leather sofa is more than just a piece of furniture—it’s a bold statement that can transform your living room. But how do you decorate around it to c"
+title: 'How to Decorate Living Room With Black Leather Sofa: Stunning Ideas'
+description: Your black leather sofa is more than just a piece of furniture—it’s a
+  bold statement that can transform your living room. But how do you decorate around
+  it to c
 pubDate: 2026-04-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-black-leather-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Leather Sofa Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-living-room-with-black-leather-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your black leather sofa is more than just a piece of furniture—it’s a bold statement that can transform your living room. But how do you decorate around it to create a space that feels both stylish and inviting?**

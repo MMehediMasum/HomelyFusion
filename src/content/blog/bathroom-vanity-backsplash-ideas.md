@@ -1,10 +1,14 @@
 ---
-title: "Bathroom Vanity Backsplash Ideas: Stunning Designs to Transform Your Space"
-description: "Your bathroom vanity is more than just a place to wash up—it’s a key spot where style meets function. Adding a backsplash can instantly transform this area, giv"
+title: 'Bathroom Vanity Backsplash Ideas: Stunning Designs to Transform Your Space'
+description: Your bathroom vanity is more than just a place to wash up—it’s a key
+  spot where style meets function. Adding a backsplash can instantly transform this
+  area, giv
 pubDate: 2026-01-17
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-vanity-backsplash-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-vanity-backsplash-ideas&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity is more than just a place to wash up—it’s a key spot where style meets function. Adding a backsplash can instantly transform this area, giving your bathroom a fresh, polished look.**

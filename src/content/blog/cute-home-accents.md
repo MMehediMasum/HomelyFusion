@@ -1,10 +1,14 @@
 ---
-title: "Cute Home Accents to Elevate Your Living Space with Stylish Decor"
-description: "Cute home accents add charm and personality to any room. Small decorations bring warmth and style to your space. Decorating with cute home accents lets you crea"
+title: Cute Home Accents to Elevate Your Living Space with Stylish Decor
+description: Cute home accents add charm and personality to any room. Small decorations
+  bring warmth and style to your space. Decorating with cute home accents lets you
+  crea
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cute-home-accents&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Affordable Home Accents
+heroImage: https://tse1.mm.bing.net/th?q=cute-home-accents&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Cute home accents add charm and personality to any room. Small decorations bring warmth and style to your space.**

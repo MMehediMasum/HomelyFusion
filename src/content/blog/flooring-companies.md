@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Flooring Companies: Top Anti-Fatigue and Non-Slip Rubber Mats Guide"
 description: "Flooring companies offer a wide range of mats and floor protection solutions for homes and businesses. They provide durable, non-slip, and anti-fatigue mats des"
 pubDate: 2026-08-03

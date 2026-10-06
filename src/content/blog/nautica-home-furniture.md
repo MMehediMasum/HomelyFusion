@@ -1,10 +1,14 @@
 ---
-title: "Nautica Home Furniture: Stylish Coastal Oak Sideboards for Every Room"
-description: "Nautica Home Furniture offers stylish and practical pieces for every room. Their collection blends modern design with functional storage solutions. Nautica Home"
+title: 'Nautica Home Furniture: Stylish Coastal Oak Sideboards for Every Room'
+description: Nautica Home Furniture offers stylish and practical pieces for every
+  room. Their collection blends modern design with functional storage solutions. Nautica
+  Home
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=nautica-home-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=nautica-home-furniture&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Nautica Home Furniture offers stylish and practical pieces for every room. Their collection blends modern design with functional storage solutions.**

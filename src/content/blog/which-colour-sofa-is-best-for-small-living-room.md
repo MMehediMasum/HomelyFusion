@@ -1,10 +1,14 @@
 ---
-title: "Which Colour Sofa is Best for Small Living Room: Top Picks Revealed"
-description: "Choosing the right sofa for your small living room can feel tricky. You want something stylish, comfortable, and perfect for your space. But how do you pick the"
+title: 'Which Colour Sofa is Best for Small Living Room: Top Picks Revealed'
+description: Choosing the right sofa for your small living room can feel tricky. You
+  want something stylish, comfortable, and perfect for your space. But how do you
+  pick the
 pubDate: 2026-02-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-colour-sofa-is-best-for-small-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Sofa Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-colour-sofa-is-best-for-small-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa for your small living room can feel tricky. You want something stylish, comfortable, and perfect for your space.**

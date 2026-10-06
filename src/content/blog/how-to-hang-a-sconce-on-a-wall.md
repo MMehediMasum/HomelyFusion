@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Sconce on a Wall: Easy Steps for Perfect Lighting"
-description: "Are you looking to add style and warmth to your space with a beautiful wall sconce? Hanging a sconce might seem tricky, but with the right steps, you can do it "
+title: 'How to Hang a Sconce on a Wall: Easy Steps for Perfect Lighting'
+description: 'Are you looking to add style and warmth to your space with a beautiful
+  wall sconce? Hanging a sconce might seem tricky, but with the right steps, you can
+  do it '
 pubDate: 2025-11-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-sconce-on-a-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- LED Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-sconce-on-a-wall&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you looking to add style and warmth to your space with a beautiful wall sconce? Hanging a sconce might seem tricky, but with the right steps, you can do it yourself quickly and safely.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Are Home Outlets Ac Or Dc: Unveiling the Truth Behind Your Power Source"
 description: "Have you ever stopped to wonder what kind of electricity flows from your home outlets? Is it AC or DC? Knowing the answer can help you understand how your devic"
 pubDate: 2026-04-04

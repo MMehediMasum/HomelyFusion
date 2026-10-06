@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Home Insurance Cover Ac Unit? Essential Facts Revealed"
 description: "Is your air conditioning unit at risk, and you’re wondering if your home insurance can step in? You rely on your AC to keep your home cool and comfortable, espe"
 pubDate: 2026-04-04

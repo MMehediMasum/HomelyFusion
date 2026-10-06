@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room on a Budget: Stunning Tips Revealed"
-description: "Your living room is the heart of your home, but decorating it doesn’t have to drain your wallet. Imagine transforming your space into a cozy, stylish haven with"
+title: 'How to Decorate a Living Room on a Budget: Stunning Tips Revealed'
+description: Your living room is the heart of your home, but decorating it doesn’t
+  have to drain your wallet. Imagine transforming your space into a cozy, stylish
+  haven with
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-on-a-budget&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Accent Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-on-a-budget&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Your living room is the heart of your home, but decorating it doesn’t have to drain your wallet. Imagine transforming your space into a cozy, stylish haven without spending a fortune.**

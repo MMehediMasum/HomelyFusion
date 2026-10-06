@@ -1,10 +1,14 @@
 ---
-title: "Custom Frames Hobby Lobby: Unique DIY Decor and Personalized Gifts Ideas"
-description: "Hobby Lobby offers custom frames to fit many styles and needs. These frames help showcase photos and art with a personal touch. Hobby Lobby’s custom frames come"
+title: 'Custom Frames Hobby Lobby: Unique DIY Decor and Personalized Gifts Ideas'
+description: Hobby Lobby offers custom frames to fit many styles and needs. These
+  frames help showcase photos and art with a personal touch. Hobby Lobby’s custom
+  frames come
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=custom-frames-hobby-lobby&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=custom-frames-hobby-lobby&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hobby Lobby offers custom frames to fit many styles and needs. These frames help showcase photos and art with a personal touch.**

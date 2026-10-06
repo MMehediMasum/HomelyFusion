@@ -1,10 +1,14 @@
 ---
-title: "Halloween Bat Garland Diy: Easy Steps for Spooky Decor Fun"
-description: "Are you ready to add a spooky touch to your Halloween decorations? Making your own Halloween Bat Garland DIY is a fun and simple way to transform your space. Im"
+title: 'Halloween Bat Garland Diy: Easy Steps for Spooky Decor Fun'
+description: Are you ready to add a spooky touch to your Halloween decorations? Making
+  your own Halloween Bat Garland DIY is a fun and simple way to transform your space.
+  Im
 pubDate: 2026-01-23
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-bat-garland-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Halloween DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=halloween-bat-garland-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to add a spooky touch to your Halloween decorations? Making your own Halloween Bat Garland DIY is a fun and simple way to transform your space.**

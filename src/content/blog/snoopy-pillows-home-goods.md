@@ -1,10 +1,13 @@
 ---
-title: "Snoopy Pillows Home Goods: Cozy, Officially Licensed Decorative Throw Pillows"
-description: "Snoopy pillows add charm and comfort to any home. These official Peanuts-themed pillows suit all ages and spaces. Snoopy pillows bring a touch of fun and nostal"
+title: 'Snoopy Pillows Home Goods: Cozy, Officially Licensed Decorative Throw Pillows'
+description: Snoopy pillows add charm and comfort to any home. These official Peanuts-themed
+  pillows suit all ages and spaces. Snoopy pillows bring a touch of fun and nostal
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=snoopy-pillows-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Outdoor Pillows
+heroImage: https://tse1.mm.bing.net/th?q=snoopy-pillows-home-goods&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Snoopy pillows add charm and comfort to any home. These official Peanuts-themed pillows suit all ages and spaces.**

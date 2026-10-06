@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Large Wool Rug at Home: Easy Steps for Spotless Results"
-description: "Your large wool rug adds warmth and style to any room, but cleaning it can feel like a huge task. You might worry about damaging the fibers or not getting it tr"
+title: 'How to Clean a Large Wool Rug at Home: Easy Steps for Spotless Results'
+description: Your large wool rug adds warmth and style to any room, but cleaning it
+  can feel like a huge task. You might worry about damaging the fibers or not getting
+  it tr
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-large-wool-rug-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wool Rug Cleaning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-large-wool-rug-at-home&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Your large wool rug adds warmth and style to any room, but cleaning it can feel like a huge task. You might worry about damaging the fibers or not getting it truly clean.**

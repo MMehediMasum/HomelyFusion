@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Wall behind Tv Stand: Stunning Ideas for Impact"
-description: "Your TV stand is the centerpiece of your living room, but the wall behind it often gets overlooked. Imagine turning that blank space into a stylish backdrop tha"
+title: 'How to Decorate Wall behind Tv Stand: Stunning Ideas for Impact'
+description: Your TV stand is the centerpiece of your living room, but the wall behind
+  it often gets overlooked. Imagine turning that blank space into a stylish backdrop
+  tha
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-wall-behind-tv-stand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-wall-behind-tv-stand&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your TV stand is the centerpiece of your living room, but the wall behind it often gets overlooked. Imagine turning that blank space into a stylish backdrop that makes your whole room pop.**

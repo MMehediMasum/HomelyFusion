@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Scratches from Bathroom Mirror: Easy DIY Fixes"
-description: "Have you noticed scratches on your bathroom mirror ruining its perfect reflection? Those small marks can catch your eye every time you look, making your space f"
+title: 'How to Remove Scratches from Bathroom Mirror: Easy DIY Fixes'
+description: Have you noticed scratches on your bathroom mirror ruining its perfect
+  reflection? Those small marks can catch your eye every time you look, making your
+  space f
 pubDate: 2026-01-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-scratches-from-bathroom-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Mirror Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-scratches-from-bathroom-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Have you noticed scratches on your bathroom mirror ruining its perfect reflection? Those small marks can catch your eye every time you look, making your space feel less clean and polished.**

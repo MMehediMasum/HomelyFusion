@@ -1,10 +1,14 @@
 ---
-title: "Tj Maxx Sell Curtains: Best Blackout and Linen Drapes for Every Room"
-description: "Tj Maxx offers a variety of curtains that suit different styles and needs. They sell curtains ranging from blackout to sheer, perfect for any room. Tj Maxx has "
+title: 'Tj Maxx Sell Curtains: Best Blackout and Linen Drapes for Every Room'
+description: 'Tj Maxx offers a variety of curtains that suit different styles and
+  needs. They sell curtains ranging from blackout to sheer, perfect for any room.
+  Tj Maxx has '
 pubDate: 2026-07-31
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tj-maxx-sell-curtains&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- TJ Maxx Curtains
+heroImage: https://tse1.mm.bing.net/th?q=tj-maxx-sell-curtains&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Tj Maxx offers a variety of curtains that suit different styles and needs. They sell curtains ranging from blackout to sheer, perfect for any room.**

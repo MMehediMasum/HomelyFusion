@@ -1,10 +1,13 @@
 ---
-title: "How to Hang Canvases on the Wall: Easy Steps for Perfect Display"
-description: "Are you ready to transform your space with beautiful canvas art but unsure how to hang it perfectly? Hanging canvases on your wall might seem simple, but gettin"
+title: 'How to Hang Canvases on the Wall: Easy Steps for Perfect Display'
+description: Are you ready to transform your space with beautiful canvas art but unsure
+  how to hang it perfectly? Hanging canvases on your wall might seem simple, but gettin
 pubDate: 2026-01-15
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-canvases-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-canvases-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you ready to transform your space with beautiful canvas art but unsure how to hang it perfectly? Hanging canvases on your wall might seem simple, but getting it just right can make all the difference in how your room feels.**

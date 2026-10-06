@@ -1,10 +1,14 @@
 ---
-title: "Four Hands Swivel Chair Homegoods: Stylish Comfort for Dining Spaces"
-description: "Four Hands swivel chairs at Homegoods offer style and comfort for your dining or living space. These chairs spin easily and fit many room styles. Four Hands swi"
+title: 'Four Hands Swivel Chair Homegoods: Stylish Comfort for Dining Spaces'
+description: Four Hands swivel chairs at Homegoods offer style and comfort for your
+  dining or living space. These chairs spin easily and fit many room styles. Four
+  Hands swi
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=four-hands-swivel-chair-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Chairs
+heroImage: https://tse1.mm.bing.net/th?q=four-hands-swivel-chair-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Four Hands swivel chairs at Homegoods offer style and comfort for your dining or living space. These chairs spin easily and fit many room styles.**

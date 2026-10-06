@@ -1,10 +1,14 @@
 ---
-title: "Ashland Wall Decor: Elegant Fall and Halloween Home Accents to Try"
-description: "Ashland Wall Decor offers a unique blend of seasonal and rustic charm. Transform your space with these captivating pieces. Discover the enchanting world of Ashl"
+title: 'Ashland Wall Decor: Elegant Fall and Halloween Home Accents to Try'
+description: Ashland Wall Decor offers a unique blend of seasonal and rustic charm.
+  Transform your space with these captivating pieces. Discover the enchanting world
+  of Ashl
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=ashland-wall-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=ashland-wall-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Ashland Wall Decor offers a unique blend of seasonal and rustic charm. Transform your space with these captivating pieces.**

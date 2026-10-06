@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Fireplace Wall: Stunning Ideas to Transform Your Space"
-description: "Your fireplace wall is more than just a spot for warmth—it’s a chance to make a bold style statement in your home. But how do you turn that blank space into som"
+title: 'How to Decorate Fireplace Wall: Stunning Ideas to Transform Your Space'
+description: Your fireplace wall is more than just a spot for warmth—it’s a chance
+  to make a bold style statement in your home. But how do you turn that blank space
+  into som
 pubDate: 2025-09-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-fireplace-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Staircase Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-fireplace-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your fireplace wall is more than just a spot for warmth—it’s a chance to make a bold style statement in your home. But how do you turn that blank space into something eye-catching and inviting?**

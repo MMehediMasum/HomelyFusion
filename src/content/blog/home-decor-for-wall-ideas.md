@@ -1,10 +1,14 @@
 ---
-title: "Home Decor for Wall Ideas: Rustic, Modern, and Boho Inspirations"
-description: "Decorating walls adds personality and warmth to any room. Simple, stylish ideas transform plain walls into eye-catching features. Explore unique wall decor opti"
+title: 'Home Decor for Wall Ideas: Rustic, Modern, and Boho Inspirations'
+description: Decorating walls adds personality and warmth to any room. Simple, stylish
+  ideas transform plain walls into eye-catching features. Explore unique wall decor
+  opti
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-for-wall-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Art Home Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-for-wall-ideas&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Decorating walls adds personality and warmth to any room. Simple, stylish ideas transform plain walls into eye-catching features.**

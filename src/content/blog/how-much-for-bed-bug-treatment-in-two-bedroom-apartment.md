@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much for Bed Bug Treatment in Two Bedroom Apartment: Affordable Guide"
 description: "Are you worried about bed bugs invading your two-bedroom apartment? You’re not alone, and the first question on your mind is probably: how much will the treatme"
 pubDate: 2026-05-27

@@ -1,10 +1,14 @@
 ---
-title: "Who Says Every Living Room Needs a Coffee Table: Bold Design Ideas"
-description: "Who says every living room needs a coffee table? You might think it’s a must-have, but what if skipping it could make your space feel bigger, cleaner, and more "
+title: 'Who Says Every Living Room Needs a Coffee Table: Bold Design Ideas'
+description: 'Who says every living room needs a coffee table? You might think it’s
+  a must-have, but what if skipping it could make your space feel bigger, cleaner,
+  and more '
 pubDate: 2025-11-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-says-every-living-room-needs-a-coffee-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=who-says-every-living-room-needs-a-coffee-table&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Who says every living room needs a coffee table? You might think it’s a must-have, but what if skipping it could make your space feel bigger, cleaner, and more inviting?**

@@ -1,10 +1,14 @@
 ---
-title: "Luxury Vinyl Flooring Shops: Top Picks for Stylish Peel & Stick Tiles"
-description: "Luxury vinyl flooring shops offer a wide range of options for stylish and durable flooring. They cater to diverse tastes and budgets. Exploring luxury vinyl flo"
+title: 'Luxury Vinyl Flooring Shops: Top Picks for Stylish Peel & Stick Tiles'
+description: Luxury vinyl flooring shops offer a wide range of options for stylish
+  and durable flooring. They cater to diverse tastes and budgets. Exploring luxury
+  vinyl flo
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=luxury-vinyl-flooring-shops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Vinyl Flooring Stores
+heroImage: https://tse1.mm.bing.net/th?q=luxury-vinyl-flooring-shops&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Luxury vinyl flooring shops offer a wide range of options for stylish and durable flooring. They cater to diverse tastes and budgets.**

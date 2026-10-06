@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy Without Machine at Home: Easy DIY Guide"
 description: "Have you ever craved the sweet, fluffy delight of cotton candy but didn’t have a machine at home? What if you could make this fun treat yourself, using simple i"
 pubDate: 2026-03-18

@@ -1,10 +1,13 @@
 ---
-title: "Cheap Vintage Bedroom Accessories to Elevate Your Retro Room Decor"
-description: "Vintage bedroom accessories add charm without costing much. These affordable items bring warmth and style to any room instantly. Creating a cozy vintage bedroom"
+title: Cheap Vintage Bedroom Accessories to Elevate Your Retro Room Decor
+description: Vintage bedroom accessories add charm without costing much. These affordable
+  items bring warmth and style to any room instantly. Creating a cozy vintage bedroom
 pubDate: 2026-06-30
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-vintage-bedroom-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Accessories
+heroImage: https://tse1.mm.bing.net/th?q=cheap-vintage-bedroom-accessories&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Vintage bedroom accessories add charm without costing much. These affordable items bring warmth and style to any room instantly.**

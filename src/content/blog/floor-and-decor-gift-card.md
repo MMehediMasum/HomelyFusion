@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Gift Card: Perfect Choice for Home Improvement Gifts"
-description: "Floor and Decor gift cards offer a simple way to shop for home flooring and decor products. They come in various amounts to fit different budgets and needs. The"
+title: 'Floor And Decor Gift Card: Perfect Choice for Home Improvement Gifts'
+description: Floor and Decor gift cards offer a simple way to shop for home flooring
+  and decor products. They come in various amounts to fit different budgets and needs.
+  The
 pubDate: 2026-07-17
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-gift-card&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-gift-card&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Floor and Decor gift cards offer a simple way to shop for home flooring and decor products. They come in various amounts to fit different budgets and needs.**

@@ -1,10 +1,14 @@
 ---
-title: "Unusual Home Decor Accessories That Transform Your Living Space Instantly"
-description: "Unusual home decor accessories can transform any space with personality and charm. Let's explore some unique options that can add a distinctive touch to your ho"
+title: Unusual Home Decor Accessories That Transform Your Living Space Instantly
+description: Unusual home decor accessories can transform any space with personality
+  and charm. Let's explore some unique options that can add a distinctive touch to
+  your ho
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unusual-home-decor-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Home Accessories
+heroImage: https://tse1.mm.bing.net/th?q=unusual-home-decor-accessories&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Unusual home decor accessories can transform any space with personality and charm. Let's explore some unique options that can add a distinctive touch to your home.**

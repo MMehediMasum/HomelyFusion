@@ -1,10 +1,14 @@
 ---
-title: "Best Blackout Curtains for Heat Blocking and Energy Efficiency"
-description: "Blackout curtains help keep your home cool by blocking sunlight and heat. They also provide privacy and reduce noise for a better living space. Choosing the bes"
+title: Best Blackout Curtains for Heat Blocking and Energy Efficiency
+description: Blackout curtains help keep your home cool by blocking sunlight and heat.
+  They also provide privacy and reduce noise for a better living space. Choosing the
+  bes
 pubDate: 2025-12-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-heat-blocking-and-energy-efficiency&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Curtains
+heroImage: https://tse1.mm.bing.net/th?q=best-blackout-curtains-for-heat-blocking-and-energy-efficiency&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Blackout curtains help keep your home cool by blocking sunlight and heat. They also provide privacy and reduce noise for a better living space.**

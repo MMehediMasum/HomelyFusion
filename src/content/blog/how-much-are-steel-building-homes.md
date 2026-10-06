@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Much are Steel Building Homes: Affordable, Durable, and Stylish"
 description: "Are you curious about how much steel building homes really cost? Whether you’re planning to build your dream house or just exploring options, knowing the price "
 pubDate: 2026-03-14

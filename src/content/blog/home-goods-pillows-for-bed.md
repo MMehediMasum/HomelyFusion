@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Pillows for Bed: Top Picks for Comfort and Support"
-description: "Finding the perfect pillow can transform your sleep experience. Home goods offer a variety of pillows designed for comfort and support. Explore an array of pill"
+title: 'Home Goods Pillows for Bed: Top Picks for Comfort and Support'
+description: Finding the perfect pillow can transform your sleep experience. Home
+  goods offer a variety of pillows designed for comfort and support. Explore an array
+  of pill
 pubDate: 2026-07-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-pillows-for-bed&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-pillows-for-bed&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding the perfect pillow can transform your sleep experience. Home goods offer a variety of pillows designed for comfort and support.**

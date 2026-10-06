@@ -1,10 +1,14 @@
 ---
-title: "Furniture Home Decoration: Top Stylish Picks to Transform Your Living Space"
-description: "Creating a cozy and stylish home doesn't have to be complicated. Furniture and decor can transform your space effortlessly. Explore a world of possibilities wit"
+title: 'Furniture Home Decoration: Top Stylish Picks to Transform Your Living Space'
+description: Creating a cozy and stylish home doesn't have to be complicated. Furniture
+  and decor can transform your space effortlessly. Explore a world of possibilities
+  wit
 pubDate: 2026-06-13
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-home-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-home-decoration&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Creating a cozy and stylish home doesn't have to be complicated. Furniture and decor can transform your space effortlessly.**

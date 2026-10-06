@@ -1,10 +1,13 @@
 ---
-title: "Floor And Decor Granite Countertops: Top DIY Products for Stunning Surfaces"
-description: "Granite countertops offer a durable and stylish option for kitchens and bathrooms. Floor and Decor provides diverse choices for every taste. Granite countertops"
+title: 'Floor And Decor Granite Countertops: Top DIY Products for Stunning Surfaces'
+description: Granite countertops offer a durable and stylish option for kitchens and
+  bathrooms. Floor and Decor provides diverse choices for every taste. Granite countertops
 pubDate: 2026-08-02
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-granite-countertops&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Floor & Decor Flooring
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-granite-countertops&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Granite countertops offer a durable and stylish option for kitchens and bathrooms. Floor and Decor provides diverse choices for every taste.**

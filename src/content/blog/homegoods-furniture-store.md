@@ -1,10 +1,13 @@
 ---
-title: "Homegoods Furniture Store: Stylish Storage and Decor Solutions for Every Room"
-description: "Discover a world of stylish and functional furniture at Homegoods Furniture Store. Transform your living space with our diverse collection. Homegoods Furniture "
+title: 'Homegoods Furniture Store: Stylish Storage and Decor Solutions for Every Room'
+description: 'Discover a world of stylish and functional furniture at Homegoods Furniture
+  Store. Transform your living space with our diverse collection. Homegoods Furniture '
 pubDate: 2025-12-18
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=homegoods-furniture-store&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=homegoods-furniture-store&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Discover a world of stylish and functional furniture at Homegoods Furniture Store. Transform your living space with our diverse collection.**

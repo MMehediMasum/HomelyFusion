@@ -1,10 +1,14 @@
 ---
-title: "What Size Bedroom Fits Two Beds: Perfect Space Guide"
-description: "Are you wondering how much space you really need to fit two beds comfortably in your bedroom? Whether you’re sharing a room with a sibling, setting up a guest r"
+title: 'What Size Bedroom Fits Two Beds: Perfect Space Guide'
+description: Are you wondering how much space you really need to fit two beds comfortably
+  in your bedroom? Whether you’re sharing a room with a sibling, setting up a guest
+  r
 pubDate: 2026-05-15
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bedroom-fits-two-beds&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kids Bedroom Beds
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bedroom-fits-two-beds&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you wondering how much space you really need to fit two beds comfortably in your bedroom? Whether you’re sharing a room with a sibling, setting up a guest room, or creating a cozy sleep space for your kids, knowing the right bedroom size is key.**

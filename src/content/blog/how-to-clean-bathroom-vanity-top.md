@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bathroom Vanity Top: Easy Tips for a Sparkling Shine"
-description: "Your bathroom vanity top is one of the first things you notice when you step into your bathroom. But over time, water spots, soap scum, and grime can make it lo"
+title: 'How to Clean Bathroom Vanity Top: Easy Tips for a Sparkling Shine'
+description: Your bathroom vanity top is one of the first things you notice when you
+  step into your bathroom. But over time, water spots, soap scum, and grime can make
+  it lo
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-vanity-top&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bathroom-vanity-top&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your bathroom vanity top is one of the first things you notice when you step into your bathroom. But over time, water spots, soap scum, and grime can make it look dull and dirty.**

@@ -1,10 +1,14 @@
 ---
-title: "Full Length Mirror Home Goods: Stylish Full Body Mirrors for Every Room"
-description: "Full length mirrors add style and function to any room. They help you check your outfit and make spaces look bigger. These mirrors come in many designs and size"
+title: 'Full Length Mirror Home Goods: Stylish Full Body Mirrors for Every Room'
+description: Full length mirrors add style and function to any room. They help you
+  check your outfit and make spaces look bigger. These mirrors come in many designs
+  and size
 pubDate: 2026-07-04
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=full-length-mirror-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=full-length-mirror-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Full length mirrors add style and function to any room. They help you check your outfit and make spaces look bigger.**

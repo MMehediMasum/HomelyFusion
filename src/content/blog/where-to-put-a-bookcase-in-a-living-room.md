@@ -1,10 +1,13 @@
 ---
-title: "Where to Put a Bookcase in a Living Room: Expert Placement Tips"
-description: "Looking for the perfect spot to place your bookcase in your living room? You want it to look great, fit naturally, and make your space feel cozy and organized. "
+title: 'Where to Put a Bookcase in a Living Room: Expert Placement Tips'
+description: 'Looking for the perfect spot to place your bookcase in your living room?
+  You want it to look great, fit naturally, and make your space feel cozy and organized. '
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-a-bookcase-in-a-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-a-bookcase-in-a-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Looking for the perfect spot to place your bookcase in your living room? You want it to look great, fit naturally, and make your space feel cozy and organized.**

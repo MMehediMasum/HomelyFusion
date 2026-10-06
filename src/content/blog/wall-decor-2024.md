@@ -1,10 +1,13 @@
 ---
-title: "Wall Decor 2024: Top Stylish Picks for Unique Home and Bedroom Art"
-description: "Wall decor trends for 2024 offer a blend of creativity and personal expression. From music to sports, there's something for everyone. In the coming year, wall d"
+title: 'Wall Decor 2024: Top Stylish Picks for Unique Home and Bedroom Art'
+description: Wall decor trends for 2024 offer a blend of creativity and personal expression.
+  From music to sports, there's something for everyone. In the coming year, wall d
 pubDate: 2026-06-15
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=wall-decor-2024&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Decor Gifts
+heroImage: https://tse1.mm.bing.net/th?q=wall-decor-2024&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Wall decor trends for 2024 offer a blend of creativity and personal expression. From music to sports, there's something for everyone.**

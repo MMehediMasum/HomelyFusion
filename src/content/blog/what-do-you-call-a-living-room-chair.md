@@ -1,10 +1,14 @@
 ---
-title: "What Do You Call a Living Room Chair: Ultimate Guide to Styles"
-description: "Have you ever found yourself wondering what to call that cozy chair in your living room? Maybe you want to describe it perfectly to a friend or find the right n"
+title: 'What Do You Call a Living Room Chair: Ultimate Guide to Styles'
+description: Have you ever found yourself wondering what to call that cozy chair in
+  your living room? Maybe you want to describe it perfectly to a friend or find the
+  right n
 pubDate: 2026-04-24
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-call-a-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-call-a-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Have you ever found yourself wondering what to call that cozy chair in your living room? Maybe you want to describe it perfectly to a friend or find the right name when shopping online.**

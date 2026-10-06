@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Clay at Home Easily: Simple Steps for Perfect DIY Clay"
 description: "Have you ever wanted to create your own clay at home but thought it might be too tricky? What if you could make soft, moldable clay using simple ingredients you"
 pubDate: 2025-08-30

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Wall With Pictures: Stunning Ideas That Inspire"
-description: "Your walls are more than just empty spaces—they’re a chance to tell your story and bring warmth to your home. But figuring out how to decorate a wall with pictu"
+title: 'How to Decorate a Wall With Pictures: Stunning Ideas That Inspire'
+description: Your walls are more than just empty spaces—they’re a chance to tell your
+  story and bring warmth to your home. But figuring out how to decorate a wall with
+  pictu
 pubDate: 2025-09-21
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-pictures&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-wall-with-pictures&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your walls are more than just empty spaces—they’re a chance to tell your story and bring warmth to your home. But figuring out how to decorate a wall with pictures can feel overwhelming.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Shelves in Living Room: Stunning Ideas to Inspire"
-description: "Your living room shelves are more than just storage—they’re a chance to show off your style and personality. But figuring out how to decorate them can feel tric"
+title: 'How to Decorate Shelves in Living Room: Stunning Ideas to Inspire'
+description: Your living room shelves are more than just storage—they’re a chance
+  to show off your style and personality. But figuring out how to decorate them can
+  feel tric
 pubDate: 2025-10-11
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Shelf Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-shelves-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Your living room shelves are more than just storage—they’re a chance to show off your style and personality. But figuring out how to decorate them can feel tricky.**

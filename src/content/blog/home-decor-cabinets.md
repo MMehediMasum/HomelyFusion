@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Cabinets: Stylish Storage Solutions for Modern Living Spaces"
-description: "Home decor cabinets transform spaces with style and functionality. Enhance your interiors with carefully curated decorative pieces. Cabinets are more than just "
+title: 'Home Decor Cabinets: Stylish Storage Solutions for Modern Living Spaces'
+description: 'Home decor cabinets transform spaces with style and functionality. Enhance
+  your interiors with carefully curated decorative pieces. Cabinets are more than
+  just '
 pubDate: 2026-06-03
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-cabinets&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Shelves
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-cabinets&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Home decor cabinets transform spaces with style and functionality. Enhance your interiors with carefully curated decorative pieces.**

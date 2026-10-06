@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Parkerize Steel at Home: Easy Steps for Lasting Protection"
 description: "If you want to protect your steel tools or parts from rust and give them a sleek, matte finish, learning how to parkerize steel at home is a game-changer. You d"
 pubDate: 2026-03-02

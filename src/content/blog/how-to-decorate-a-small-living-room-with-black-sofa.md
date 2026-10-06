@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Small Living Room With Black Sofa: Stylish Tips"
-description: "You have a small living room and a black sofa, but you’re not sure how to make the most of the space. Decorating a small room can feel tricky, especially with a"
+title: 'How to Decorate a Small Living Room With Black Sofa: Stylish Tips'
+description: You have a small living room and a black sofa, but you’re not sure how
+  to make the most of the space. Decorating a small room can feel tricky, especially
+  with a
 pubDate: 2026-03-30
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-living-room-with-black-sofa&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sectional Sofas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-small-living-room-with-black-sofa&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **You have a small living room and a black sofa, but you’re not sure how to make the most of the space. Decorating a small room can feel tricky, especially with a dark piece like a black sofa.**

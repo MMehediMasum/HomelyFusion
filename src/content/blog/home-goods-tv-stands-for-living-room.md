@@ -1,10 +1,13 @@
 ---
-title: "Home Goods TV Stands for Living Room: Stylish Storage and Modern Designs"
-description: "Finding the perfect TV stand for your living room can enhance both functionality and style. With a variety of options available, choosing the right one might fe"
+title: 'Home Goods TV Stands for Living Room: Stylish Storage and Modern Designs'
+description: Finding the perfect TV stand for your living room can enhance both functionality
+  and style. With a variety of options available, choosing the right one might fe
 pubDate: 2026-06-04
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-tv-stands-for-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-tv-stands-for-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the perfect TV stand for your living room can enhance both functionality and style. With a variety of options available, choosing the right one might feel overwhelming.**

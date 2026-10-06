@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Bathroom Vanity: Easy Steps for a Stunning Upgrade"
-description: "Are you ready to give your bathroom a fresh, new look without spending a fortune? Replacing your bathroom vanity is one of the easiest and most effective ways t"
+title: 'How to Replace Bathroom Vanity: Easy Steps for a Stunning Upgrade'
+description: Are you ready to give your bathroom a fresh, new look without spending
+  a fortune? Replacing your bathroom vanity is one of the easiest and most effective
+  ways t
 pubDate: 2026-01-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Repairs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to give your bathroom a fresh, new look without spending a fortune? Replacing your bathroom vanity is one of the easiest and most effective ways to transform the space.**

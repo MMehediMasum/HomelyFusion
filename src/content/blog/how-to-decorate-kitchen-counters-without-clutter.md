@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate Kitchen Counters Without Clutter: Stylish Tips"
-description: "Your kitchen counters are the heart of your home, but they can easily become a cluttered mess. You want a space that feels inviting and organized, yet still sho"
+title: 'How to Decorate Kitchen Counters Without Clutter: Stylish Tips'
+description: Your kitchen counters are the heart of your home, but they can easily
+  become a cluttered mess. You want a space that feels inviting and organized, yet
+  still sho
 pubDate: 2025-11-13
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-counters-without-clutter&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-kitchen-counters-without-clutter&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your kitchen counters are the heart of your home, but they can easily become a cluttered mess. You want a space that feels inviting and organized, yet still shows off your style.**

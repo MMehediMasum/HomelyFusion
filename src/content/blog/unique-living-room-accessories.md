@@ -1,10 +1,14 @@
 ---
-title: "Unique Living Room Accessories to Elevate Your Home Decor Instantly"
-description: "Unique living room accessories add personality and style to your space. They turn ordinary rooms into warm, inviting areas. Decorative books and white faux book"
+title: Unique Living Room Accessories to Elevate Your Home Decor Instantly
+description: Unique living room accessories add personality and style to your space.
+  They turn ordinary rooms into warm, inviting areas. Decorative books and white faux
+  book
 pubDate: 2026-07-21
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=unique-living-room-accessories&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=unique-living-room-accessories&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Unique living room accessories add personality and style to your space. They turn ordinary rooms into warm, inviting areas.**

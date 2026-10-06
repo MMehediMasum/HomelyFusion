@@ -1,10 +1,14 @@
 ---
-title: "Avon Glass Candle Holder: Elegant Centerpiece for Stylish Home Décor"
-description: "Avon glass candle holders blend elegance with functionality, offering a versatile addition to any home decor. These holders come in various styles and sizes, ca"
+title: 'Avon Glass Candle Holder: Elegant Centerpiece for Stylish Home Décor'
+description: Avon glass candle holders blend elegance with functionality, offering
+  a versatile addition to any home decor. These holders come in various styles and
+  sizes, ca
 pubDate: 2026-08-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=avon-glass-candle-holder&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Accessories
+heroImage: https://tse1.mm.bing.net/th?q=avon-glass-candle-holder&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Avon glass candle holders blend elegance with functionality, offering a versatile addition to any home decor. These holders come in various styles and sizes, catering to diverse aesthetic preferences and needs.**

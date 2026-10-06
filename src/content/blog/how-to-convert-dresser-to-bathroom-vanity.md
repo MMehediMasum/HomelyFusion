@@ -1,10 +1,14 @@
 ---
-title: "How to Convert Dresser to Bathroom Vanity: Easy DIY Transformation Tips"
-description: "Are you looking to add a unique touch to your bathroom without spending a fortune? Converting a dresser into a bathroom vanity could be the perfect solution for"
+title: 'How to Convert Dresser to Bathroom Vanity: Easy DIY Transformation Tips'
+description: Are you looking to add a unique touch to your bathroom without spending
+  a fortune? Converting a dresser into a bathroom vanity could be the perfect solution
+  for
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-convert-dresser-to-bathroom-vanity&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanities
+heroImage: https://tse1.mm.bing.net/th?q=how-to-convert-dresser-to-bathroom-vanity&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you looking to add a unique touch to your bathroom without spending a fortune? Converting a dresser into a bathroom vanity could be the perfect solution for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Wall Decals: Transform Your Space with Inspiring Designs"
-description: "Home goods wall decals offer an easy way to brighten rooms without extra clutter. These stickers add personality to bedrooms, living rooms, and classrooms quick"
+title: 'Home Goods Wall Decals: Transform Your Space with Inspiring Designs'
+description: Home goods wall decals offer an easy way to brighten rooms without extra
+  clutter. These stickers add personality to bedrooms, living rooms, and classrooms
+  quick
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-wall-decals&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-wall-decals&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Home goods wall decals offer an easy way to brighten rooms without extra clutter. These stickers add personality to bedrooms, living rooms, and classrooms quickly.**

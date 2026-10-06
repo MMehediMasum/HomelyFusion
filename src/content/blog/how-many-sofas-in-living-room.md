@@ -1,10 +1,14 @@
 ---
-title: "How Many Sofas in Living Room: Ultimate Guide to Perfect Seating"
-description: "How many sofas should you have in your living room? It’s a question that might seem simple, but the answer can change the entire feel of your space. Too many so"
+title: 'How Many Sofas in Living Room: Ultimate Guide to Perfect Seating'
+description: How many sofas should you have in your living room? It’s a question that
+  might seem simple, but the answer can change the entire feel of your space. Too
+  many so
 pubDate: 2026-04-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-sofas-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Two Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-many-sofas-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **How many sofas should you have in your living room? It’s a question that might seem simple, but the answer can change the entire feel of your space.**

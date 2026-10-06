@@ -1,10 +1,14 @@
 ---
-title: "Marlow Glen Decorative Mirror: Elevate Your Space with Elegant Wall Art"
-description: "The Marlow Glen Decorative Mirror transforms any space with its elegant design and versatile functionality. Perfect for every room. Mirrors aren't just for chec"
+title: 'Marlow Glen Decorative Mirror: Elevate Your Space with Elegant Wall Art'
+description: The Marlow Glen Decorative Mirror transforms any space with its elegant
+  design and versatile functionality. Perfect for every room. Mirrors aren't just
+  for chec
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=marlow-glen-decorative-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Small Bedroom Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=marlow-glen-decorative-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **The Marlow Glen Decorative Mirror transforms any space with its elegant design and versatile functionality. Perfect for every room.**

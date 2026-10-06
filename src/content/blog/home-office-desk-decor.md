@@ -1,10 +1,14 @@
 ---
-title: "Home Office Desk Decor Ideas to Elevate Your Workspace Aesthetic"
-description: "Creating a comfortable and stylish workspace boosts focus and mood. Home office desk decor adds personality and calm to your daily routine. A well-decorated des"
+title: Home Office Desk Decor Ideas to Elevate Your Workspace Aesthetic
+description: Creating a comfortable and stylish workspace boosts focus and mood. Home
+  office desk decor adds personality and calm to your daily routine. A well-decorated
+  des
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-office-desk-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=home-office-desk-decor&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Creating a comfortable and stylish workspace boosts focus and mood. Home office desk decor adds personality and calm to your daily routine.**

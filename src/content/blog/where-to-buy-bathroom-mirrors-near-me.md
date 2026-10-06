@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where to Buy Bathroom Mirrors near Me: Top Local Stores Revealed"
 description: "Looking for the perfect bathroom mirror can feel overwhelming. You want something that fits your style, size, and budget—but where do you start? If you’ve typed"
 pubDate: 2026-01-01

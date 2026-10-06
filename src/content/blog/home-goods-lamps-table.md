@@ -1,10 +1,13 @@
 ---
-title: "Home Goods Lamps Table: Stylish and Functional Bedside Lighting Solutions"
-description: "Table lamps add warmth and style to any room. They offer light, convenience, and a cozy atmosphere. Choosing the right home goods lamps for your table can chang"
+title: 'Home Goods Lamps Table: Stylish and Functional Bedside Lighting Solutions'
+description: Table lamps add warmth and style to any room. They offer light, convenience,
+  and a cozy atmosphere. Choosing the right home goods lamps for your table can chang
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-lamps-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamps
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-lamps-table&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Table lamps add warmth and style to any room. They offer light, convenience, and a cozy atmosphere.**

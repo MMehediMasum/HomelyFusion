@@ -1,10 +1,14 @@
 ---
-title: "Christmas Star String Light Decoration: Brighten Your Holidays Instantly"
-description: "Are you looking to add a magical glow to your holiday decorations this year? Christmas Star String Light Decoration is the perfect way to brighten your home and"
+title: 'Christmas Star String Light Decoration: Brighten Your Holidays Instantly'
+description: Are you looking to add a magical glow to your holiday decorations this
+  year? Christmas Star String Light Decoration is the perfect way to brighten your
+  home and
 pubDate: 2025-12-30
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-star-string-light-decoration&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Lighting
+heroImage: https://tse1.mm.bing.net/th?q=christmas-star-string-light-decoration&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you looking to add a magical glow to your holiday decorations this year? Christmas Star String Light Decoration is the perfect way to brighten your home and create a warm, festive atmosphere.**

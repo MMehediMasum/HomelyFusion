@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make Modeling Clay at Home: Easy DIY Recipe Guide"
-description: "Have you ever wanted to create your own modeling clay right at home? Imagine having a soft, colorful material ready whenever creativity strikes, without needing"
+title: 'How Do You Make Modeling Clay at Home: Easy DIY Recipe Guide'
+description: Have you ever wanted to create your own modeling clay right at home?
+  Imagine having a soft, colorful material ready whenever creativity strikes, without
+  needing
 pubDate: 2026-02-22
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-modeling-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Air Dry Clay
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-modeling-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own modeling clay right at home? Imagine having a soft, colorful material ready whenever creativity strikes, without needing to run to the store.**

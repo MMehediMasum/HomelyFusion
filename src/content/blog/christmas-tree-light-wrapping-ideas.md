@@ -1,10 +1,14 @@
 ---
-title: "Christmas Tree Light Wrapping Ideas: Stunning Tips for a Magical Glow"
-description: "Are you ready to make your Christmas tree sparkle like never before? Wrapping your tree with lights is more than just decoration—it’s about creating a magical a"
+title: 'Christmas Tree Light Wrapping Ideas: Stunning Tips for a Magical Glow'
+description: Are you ready to make your Christmas tree sparkle like never before?
+  Wrapping your tree with lights is more than just decoration—it’s about creating
+  a magical a
 pubDate: 2025-12-26
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-tree-light-wrapping-ideas&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=christmas-tree-light-wrapping-ideas&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Are you ready to make your Christmas tree sparkle like never before? Wrapping your tree with lights is more than just decoration—it’s about creating a magical atmosphere that fills your home with warmth and joy.**

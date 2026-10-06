@@ -1,10 +1,14 @@
 ---
-title: "Which Direction is Best for Bed in Bedroom: Expert Tips Revealed"
-description: "Have you ever wondered if the direction your bed faces could affect your sleep, mood, or energy? It turns out, the way you position your bed in your bedroom can"
+title: 'Which Direction is Best for Bed in Bedroom: Expert Tips Revealed'
+description: Have you ever wondered if the direction your bed faces could affect your
+  sleep, mood, or energy? It turns out, the way you position your bed in your bedroom
+  can
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-direction-is-best-for-bed-in-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=which-direction-is-best-for-bed-in-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever wondered if the direction your bed faces could affect your sleep, mood, or energy? It turns out, the way you position your bed in your bedroom can make a big difference in how rested and refreshed you feel each day.**

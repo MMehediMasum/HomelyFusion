@@ -1,10 +1,14 @@
 ---
-title: "Don Draper Living Room Chair: Timeless Style for Modern Homes"
-description: "Imagine sinking into a chair that instantly adds style and confidence to your living room. The Don Draper Living Room Chair does just that—it’s more than furnit"
+title: 'Don Draper Living Room Chair: Timeless Style for Modern Homes'
+description: Imagine sinking into a chair that instantly adds style and confidence
+  to your living room. The Don Draper Living Room Chair does just that—it’s more than
+  furnit
 pubDate: 2026-04-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=don-draper-living-room-chair&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Chair Sizing
+heroImage: https://tse1.mm.bing.net/th?q=don-draper-living-room-chair&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Imagine sinking into a chair that instantly adds style and confidence to your living room. The Don Draper Living Room Chair does just that—it’s more than furniture; it’s a statement.**

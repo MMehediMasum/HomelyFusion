@@ -1,10 +1,14 @@
 ---
-title: "Why Do Bedroom Sets Come With One Nightstand: Surprising Reasons Revealed"
-description: "Have you ever noticed that many bedroom sets come with just one nightstand? It might seem a bit odd at first, especially if you share your bed with someone. You"
+title: 'Why Do Bedroom Sets Come With One Nightstand: Surprising Reasons Revealed'
+description: Have you ever noticed that many bedroom sets come with just one nightstand?
+  It might seem a bit odd at first, especially if you share your bed with someone.
+  You
 pubDate: 2026-05-24
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-bedroom-sets-come-with-one-nightstand&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Nightstands
+heroImage: https://tse1.mm.bing.net/th?q=why-do-bedroom-sets-come-with-one-nightstand&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Have you ever noticed that many bedroom sets come with just one nightstand? It might seem a bit odd at first, especially if you share your bed with someone.**

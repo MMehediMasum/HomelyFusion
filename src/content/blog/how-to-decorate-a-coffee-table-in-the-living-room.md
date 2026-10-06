@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Coffee Table in the Living Room: Stunning Ideas"
-description: "Your coffee table is more than just a spot to set down your cup of coffee—it’s the heart of your living room. How you decorate it can completely change the vibe"
+title: 'How to Decorate a Coffee Table in the Living Room: Stunning Ideas'
+description: Your coffee table is more than just a spot to set down your cup of coffee—it’s
+  the heart of your living room. How you decorate it can completely change the vibe
 pubDate: 2026-05-09
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-coffee-table-in-the-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Coffee Table Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-coffee-table-in-the-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your coffee table is more than just a spot to set down your cup of coffee—it’s the heart of your living room. How you decorate it can completely change the vibe of your space.**

@@ -1,10 +1,14 @@
 ---
-title: "Neon Light Home Decor: Brighten Your Space with Stylish LED Signs"
-description: "Neon light decor adds a vibrant touch to any space, creating a unique and lively atmosphere. Perfect for homes, parties, or special events, these lights offer a"
+title: 'Neon Light Home Decor: Brighten Your Space with Stylish LED Signs'
+description: Neon light decor adds a vibrant touch to any space, creating a unique
+  and lively atmosphere. Perfect for homes, parties, or special events, these lights
+  offer a
 pubDate: 2026-06-21
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=neon-light-home-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Decorative Home Lighting
+heroImage: https://tse1.mm.bing.net/th?q=neon-light-home-decor&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Neon light decor adds a vibrant touch to any space, creating a unique and lively atmosphere. Perfect for homes, parties, or special events, these lights offer a fun and modern twist to traditional decor.**

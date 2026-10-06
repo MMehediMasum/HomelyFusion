@@ -1,10 +1,15 @@
 ---
-title: "Best Portable Lighting Kit for Outdoor Photography: Top Picks for Stunning Shots"
-description: "Choosing the best portable lighting kit enhances outdoor photography with clear, bright, and natural light. Portable kits help capture sharp images anytime, any"
+title: 'Best Portable Lighting Kit for Outdoor Photography: Top Picks for Stunning
+  Shots'
+description: Choosing the best portable lighting kit enhances outdoor photography
+  with clear, bright, and natural light. Portable kits help capture sharp images anytime,
+  any
 pubDate: 2025-09-07
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-lighting-kit-for-outdoor-photography-top-picks-for-stunning-shots&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-lighting-kit-for-outdoor-photography-top-picks-for-stunning-shots&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best portable lighting kit enhances outdoor photography with clear, bright, and natural light. Portable kits help capture sharp images anytime, anywhere.**

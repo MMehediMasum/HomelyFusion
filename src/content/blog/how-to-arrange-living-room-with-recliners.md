@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room With Recliners: Ultimate Comfort Guide"
-description: "Your living room is where comfort meets style, and adding recliners can take both to the next level. But arranging recliners in a way that feels inviting and lo"
+title: 'How to Arrange Living Room With Recliners: Ultimate Comfort Guide'
+description: Your living room is where comfort meets style, and adding recliners can
+  take both to the next level. But arranging recliners in a way that feels inviting
+  and lo
 pubDate: 2026-04-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-recliners&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-recliners&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Your living room is where comfort meets style, and adding recliners can take both to the next level. But arranging recliners in a way that feels inviting and looks great can be tricky.**

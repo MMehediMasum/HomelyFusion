@@ -1,10 +1,14 @@
 ---
-title: "Do Sengled Bulbs Work With Google Home: Ultimate Compatibility Guide"
-description: "Are you thinking about making your home smarter with Sengled bulbs? You might be wondering if these bulbs will work smoothly with your Google Home. Imagine cont"
+title: 'Do Sengled Bulbs Work With Google Home: Ultimate Compatibility Guide'
+description: Are you thinking about making your home smarter with Sengled bulbs? You
+  might be wondering if these bulbs will work smoothly with your Google Home. Imagine
+  cont
 pubDate: 2026-04-26
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-sengled-bulbs-work-with-google-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Smart Bulb Compatibility
+heroImage: https://tse1.mm.bing.net/th?q=do-sengled-bulbs-work-with-google-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you thinking about making your home smarter with Sengled bulbs? You might be wondering if these bulbs will work smoothly with your Google Home.**

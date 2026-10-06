@@ -1,10 +1,14 @@
 ---
-title: "Tommy Hilfiger Furniture Homegoods: Stylish Storage and Seating Solutions"
-description: "Tommy Hilfiger furniture offers a blend of style and functionality for modern homes. Discover elegant pieces that enhance any space. Transform your living space"
+title: 'Tommy Hilfiger Furniture Homegoods: Stylish Storage and Seating Solutions'
+description: Tommy Hilfiger furniture offers a blend of style and functionality for
+  modern homes. Discover elegant pieces that enhance any space. Transform your living
+  space
 pubDate: 2026-07-20
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=tommy-hilfiger-furniture-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=tommy-hilfiger-furniture-homegoods&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Tommy Hilfiger furniture offers a blend of style and functionality for modern homes. Discover elegant pieces that enhance any space.**

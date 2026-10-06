@@ -1,10 +1,14 @@
 ---
-title: "Holiday Pumpkin Spice Latte Martini: Irresistible Festive Delight"
-description: "Imagine cozying up with a drink that brings together the warm, spicy flavors of pumpkin spice and the smooth kick of a martini. If you love festive treats and w"
+title: 'Holiday Pumpkin Spice Latte Martini: Irresistible Festive Delight'
+description: Imagine cozying up with a drink that brings together the warm, spicy
+  flavors of pumpkin spice and the smooth kick of a martini. If you love festive treats
+  and w
 pubDate: 2026-01-09
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=holiday-pumpkin-spice-latte-martini&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Winter Holiday Decor
+heroImage: https://tse1.mm.bing.net/th?q=holiday-pumpkin-spice-latte-martini&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine cozying up with a drink that brings together the warm, spicy flavors of pumpkin spice and the smooth kick of a martini. If you love festive treats and want to try something new this holiday season, the Holiday Pumpkin Spice Latte Martini is made just for you.**

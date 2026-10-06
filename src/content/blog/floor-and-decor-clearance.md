@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Clearance: Top Soft, Absorbent Bathroom Rugs Deals"
-description: "Discover incredible deals at Floor and Decor Clearance, where style meets affordability. Transform your spaces with budget-friendly home essentials. Floor and D"
+title: 'Floor And Decor Clearance: Top Soft, Absorbent Bathroom Rugs Deals'
+description: Discover incredible deals at Floor and Decor Clearance, where style meets
+  affordability. Transform your spaces with budget-friendly home essentials. Floor
+  and D
 pubDate: 2026-06-23
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-clearance&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-clearance&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Discover incredible deals at Floor and Decor Clearance, where style meets affordability. Transform your spaces with budget-friendly home essentials.**

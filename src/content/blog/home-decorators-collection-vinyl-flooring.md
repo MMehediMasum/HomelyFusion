@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Vinyl Flooring: Stylish Peel & Stick Solutions"
-description: "Home Decorators Collection Vinyl Flooring offers an affordable and stylish solution for updating any room. These versatile vinyl options make DIY projects simpl"
+title: 'Home Decorators Collection Vinyl Flooring: Stylish Peel & Stick Solutions'
+description: Home Decorators Collection Vinyl Flooring offers an affordable and stylish
+  solution for updating any room. These versatile vinyl options make DIY projects
+  simpl
 pubDate: 2026-07-07
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-vinyl-flooring&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decorators Flooring
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-vinyl-flooring&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home Decorators Collection Vinyl Flooring offers an affordable and stylish solution for updating any room. These versatile vinyl options make DIY projects simple and effective.**

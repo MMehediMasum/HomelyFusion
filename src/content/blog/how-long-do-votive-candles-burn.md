@@ -1,10 +1,14 @@
 ---
-title: "How Long Do Votive Candles Burn: Ultimate Guide to Lasting Light"
-description: "Have you ever wondered how long your votive candles will actually burn? Whether you use them for relaxation, decoration, or special moments, knowing their burn "
+title: 'How Long Do Votive Candles Burn: Ultimate Guide to Lasting Light'
+description: 'Have you ever wondered how long your votive candles will actually burn?
+  Whether you use them for relaxation, decoration, or special moments, knowing their
+  burn '
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-do-votive-candles-burn&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=how-long-do-votive-candles-burn&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Have you ever wondered how long your votive candles will actually burn? Whether you use them for relaxation, decoration, or special moments, knowing their burn time can help you plan better and get the most out of your candles.**

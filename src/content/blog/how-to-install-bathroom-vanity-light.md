@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity Light: Easy Steps for Stunning Results"
-description: "Are you ready to give your bathroom a fresh, stylish look? Installing a bathroom vanity light can instantly brighten your space and make your daily routine more"
+title: 'How to Install Bathroom Vanity Light: Easy Steps for Stunning Results'
+description: Are you ready to give your bathroom a fresh, stylish look? Installing
+  a bathroom vanity light can instantly brighten your space and make your daily routine
+  more
 pubDate: 2026-01-06
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-light&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Lighting Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-light&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Are you ready to give your bathroom a fresh, stylish look? Installing a bathroom vanity light can instantly brighten your space and make your daily routine more enjoyable.**

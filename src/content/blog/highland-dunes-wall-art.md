@@ -1,10 +1,14 @@
 ---
-title: "Highland Dunes Wall Art: Rustic Highland Cow Decor for Farmhouse Charm"
-description: "Highland Dunes Wall Art brings rustic charm and cozy farmhouse vibes to any room. These unique pieces feature beautiful highland cow designs that add warmth and"
+title: 'Highland Dunes Wall Art: Rustic Highland Cow Decor for Farmhouse Charm'
+description: Highland Dunes Wall Art brings rustic charm and cozy farmhouse vibes
+  to any room. These unique pieces feature beautiful highland cow designs that add
+  warmth and
 pubDate: 2026-08-11
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=highland-dunes-wall-art&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=highland-dunes-wall-art&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Highland Dunes Wall Art brings rustic charm and cozy farmhouse vibes to any room. These unique pieces feature beautiful highland cow designs that add warmth and character.**

@@ -1,10 +1,14 @@
 ---
-title: "Rifle Paper Rugs Homegoods: Stylish Area Rugs to Elevate Your Space"
-description: "Rifle Paper Rugs bring charm and style to any home. These rugs blend beautiful designs with quality materials. Rifle Paper Rugs from HomeGoods offer a range of "
+title: 'Rifle Paper Rugs Homegoods: Stylish Area Rugs to Elevate Your Space'
+description: 'Rifle Paper Rugs bring charm and style to any home. These rugs blend
+  beautiful designs with quality materials. Rifle Paper Rugs from HomeGoods offer
+  a range of '
 pubDate: 2026-07-24
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=rifle-paper-rugs-homegoods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Bath Rugs
+heroImage: https://tse1.mm.bing.net/th?q=rifle-paper-rugs-homegoods&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Rifle Paper Rugs bring charm and style to any home. These rugs blend beautiful designs with quality materials.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Led Bulb at Home: Easy DIY Fixes That Work"
-description: "Have you ever faced a flickering LED bulb and thought about tossing it away? What if you could fix it yourself, saving money and reducing waste? Repairing your "
+title: 'How to Repair Led Bulb at Home: Easy DIY Fixes That Work'
+description: 'Have you ever faced a flickering LED bulb and thought about tossing
+  it away? What if you could fix it yourself, saving money and reducing waste? Repairing
+  your '
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-led-bulb-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Light Bulb Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-led-bulb-at-home&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Have you ever faced a flickering LED bulb and thought about tossing it away? What if you could fix it yourself, saving money and reducing waste?**

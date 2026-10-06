@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Purchase Floating Candles: Top Trusted Stores Revealed"
-description: "Are you looking to add a magical touch to your next event or cozy night at home? Floating candles can transform any space with their soft, flickering glow and e"
+title: 'Where Can I Purchase Floating Candles: Top Trusted Stores Revealed'
+description: Are you looking to add a magical touch to your next event or cozy night
+  at home? Floating candles can transform any space with their soft, flickering glow
+  and e
 pubDate: 2025-09-24
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-purchase-floating-candles&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Taper & Pillar Candles
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-purchase-floating-candles&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Are you looking to add a magical touch to your next event or cozy night at home? Floating candles can transform any space with their soft, flickering glow and elegant charm.**

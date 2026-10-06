@@ -1,10 +1,13 @@
 ---
-title: "Do Tables in Living Room Need to Match? Stylish Tips Revealed"
-description: "Are you wondering if the tables in your living room need to match perfectly? You’re not alone. Many people struggle with creating a balanced look without making"
+title: Do Tables in Living Room Need to Match? Stylish Tips Revealed
+description: Are you wondering if the tables in your living room need to match perfectly?
+  You’re not alone. Many people struggle with creating a balanced look without making
 pubDate: 2026-03-27
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-tables-in-living-room-need-to-match&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Table Styling
+heroImage: https://tse1.mm.bing.net/th?q=do-tables-in-living-room-need-to-match&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering if the tables in your living room need to match perfectly? You’re not alone.**

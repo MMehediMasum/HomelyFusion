@@ -1,10 +1,14 @@
 ---
-title: "How to Install Wall Sconces: Easy Steps for Stunning Lighting"
-description: "Are you looking to add a touch of style and warmth to your space? Installing wall sconces is a simple way to transform any room with beautiful lighting. But if "
+title: 'How to Install Wall Sconces: Easy Steps for Stunning Lighting'
+description: 'Are you looking to add a touch of style and warmth to your space? Installing
+  wall sconces is a simple way to transform any room with beautiful lighting. But
+  if '
 pubDate: 2026-01-07
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-wall-sconces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Panels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-wall-sconces&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a touch of style and warmth to your space? Installing wall sconces is a simple way to transform any room with beautiful lighting.**

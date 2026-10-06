@@ -1,10 +1,14 @@
 ---
-title: "Home Accents Christmas Decorations: Rustic Elegance for Festive Spaces"
-description: "Home accents Christmas decorations bring warmth and charm to any space during the holiday season. They create a festive atmosphere with simple, stylish touches."
+title: 'Home Accents Christmas Decorations: Rustic Elegance for Festive Spaces'
+description: Home accents Christmas decorations bring warmth and charm to any space
+  during the holiday season. They create a festive atmosphere with simple, stylish
+  touches.
 pubDate: 2025-10-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-accents-christmas-decorations&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Christmas Trees
+heroImage: https://tse1.mm.bing.net/th?q=home-accents-christmas-decorations&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Home accents Christmas decorations bring warmth and charm to any space during the holiday season. They create a festive atmosphere with simple, stylish touches.**

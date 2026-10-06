@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Wall Frames: Creative Tips for Stunning Displays"
-description: "Are your walls feeling empty or cluttered? Knowing how to arrange wall frames can completely transform your space and give your home a fresh, personal touch. Yo"
+title: 'How to Arrange Wall Frames: Creative Tips for Stunning Displays'
+description: Are your walls feeling empty or cluttered? Knowing how to arrange wall
+  frames can completely transform your space and give your home a fresh, personal
+  touch. Yo
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-wall-frames&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-wall-frames&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are your walls feeling empty or cluttered? Knowing how to arrange wall frames can completely transform your space and give your home a fresh, personal touch.**

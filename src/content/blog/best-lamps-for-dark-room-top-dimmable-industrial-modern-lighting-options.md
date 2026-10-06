@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Dark Room: Top Dimmable Industrial & Modern Lighting Options"
-description: "Dark rooms need the right lamps to brighten spaces well and create a cozy feel. Choosing lamps with good light and useful features makes a big difference. A dar"
+title: 'Best Lamps for Dark Room: Top Dimmable Industrial & Modern Lighting Options'
+description: Dark rooms need the right lamps to brighten spaces well and create a
+  cozy feel. Choosing lamps with good light and useful features makes a big difference.
+  A dar
 pubDate: 2025-12-08
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-dark-room-top-dimmable-industrial-modern-lighting-options&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Reading Lamps
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-dark-room-top-dimmable-industrial-modern-lighting-options&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Dark rooms need the right lamps to brighten spaces well and create a cozy feel. Choosing lamps with good light and useful features makes a big difference.**

@@ -1,10 +1,14 @@
 ---
-title: "Furniture Stores Around Here: Top Sofas and Storage Benches for Your Home"
-description: "Finding the right furniture store nearby can be a rewarding experience. A variety of styles and options await. In this blog post, we explore furniture stores ar"
+title: 'Furniture Stores Around Here: Top Sofas and Storage Benches for Your Home'
+description: Finding the right furniture store nearby can be a rewarding experience.
+  A variety of styles and options await. In this blog post, we explore furniture stores
+  ar
 pubDate: 2026-06-26
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-stores-around-here&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Decor Stores
+heroImage: https://tse1.mm.bing.net/th?q=furniture-stores-around-here&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Finding the right furniture store nearby can be a rewarding experience. A variety of styles and options await.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Use Antique Bookcase in Living Room: Stylish Decor Tips"
-description: "Imagine walking into your living room and instantly feeling a warm, timeless charm. That’s exactly what an antique bookcase can bring to your space. But how do "
+title: 'How to Use Antique Bookcase in Living Room: Stylish Decor Tips'
+description: 'Imagine walking into your living room and instantly feeling a warm,
+  timeless charm. That’s exactly what an antique bookcase can bring to your space.
+  But how do '
 pubDate: 2026-05-06
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-antique-bookcase-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Shelves
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-antique-bookcase-in-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Imagine walking into your living room and instantly feeling a warm, timeless charm. That’s exactly what an antique bookcase can bring to your space.**

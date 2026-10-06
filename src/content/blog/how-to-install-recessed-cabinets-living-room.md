@@ -1,10 +1,14 @@
 ---
-title: "How to Install Recessed Cabinets Living Room: Easy Step-by-Step Guide"
-description: "Are you looking to add a sleek, space-saving touch to your living room? Installing recessed cabinets might be the perfect solution for you. Not only do they cre"
+title: 'How to Install Recessed Cabinets Living Room: Easy Step-by-Step Guide'
+description: Are you looking to add a sleek, space-saving touch to your living room?
+  Installing recessed cabinets might be the perfect solution for you. Not only do
+  they cre
 pubDate: 2026-04-15
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-recessed-cabinets-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Cabinets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-recessed-cabinets-living-room&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you looking to add a sleek, space-saving touch to your living room? Installing recessed cabinets might be the perfect solution for you.**

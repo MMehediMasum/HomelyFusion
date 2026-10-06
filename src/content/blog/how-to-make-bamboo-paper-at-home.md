@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Bamboo Paper at Home: Easy, Eco-Friendly DIY Guide"
 description: "Have you ever wondered how paper is made from bamboo right in your own home? Making bamboo paper yourself is easier than you think, and it’s a fun way to create"
 pubDate: 2026-02-06

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Photo Frames on Wall: Easy Steps for Perfect Display"
-description: "Hanging photo frames on your wall might seem simple, but getting it just right can change the entire look of your room. You want your memories and art to stand "
+title: 'How to Hang Photo Frames on Wall: Easy Steps for Perfect Display'
+description: 'Hanging photo frames on your wall might seem simple, but getting it
+  just right can change the entire look of your room. You want your memories and art
+  to stand '
 pubDate: 2025-12-31
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-photo-frames-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-photo-frames-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging photo frames on your wall might seem simple, but getting it just right can change the entire look of your room. You want your memories and art to stand out, not hang crooked or leave holes you’ll regret.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Frames on Brick Wall: Easy Tips for Perfect Display"
-description: "Hanging frames on a brick wall can feel tricky, but it doesn’t have to be. You want your pictures or artwork to look great and stay secure without damaging your"
+title: 'How to Hang Frames on Brick Wall: Easy Tips for Perfect Display'
+description: Hanging frames on a brick wall can feel tricky, but it doesn’t have to
+  be. You want your pictures or artwork to look great and stay secure without damaging
+  your
 pubDate: 2026-01-13
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-brick-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-brick-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Hanging frames on a brick wall can feel tricky, but it doesn’t have to be. You want your pictures or artwork to look great and stay secure without damaging your walls.**

@@ -1,10 +1,14 @@
 ---
-title: "How Big Should Sofa Be in Living Room: Perfect Size Guide"
-description: "Choosing the right sofa size for your living room can feel tricky. You want it to be big enough to relax comfortably but not so large that it overwhelms the spa"
+title: 'How Big Should Sofa Be in Living Room: Perfect Size Guide'
+description: Choosing the right sofa size for your living room can feel tricky. You
+  want it to be big enough to relax comfortably but not so large that it overwhelms
+  the spa
 pubDate: 2026-02-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-sofa-be-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-sofa-be-in-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa size for your living room can feel tricky. You want it to be big enough to relax comfortably but not so large that it overwhelms the space.**

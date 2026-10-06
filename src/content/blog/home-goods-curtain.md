@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Curtain Ideas for Stylish and Functional Window Treatments"
-description: "Home goods curtains blend style, comfort, and function in every room. They control light, add privacy, and enhance decor with ease. Choosing the right curtain c"
+title: Home Goods Curtain Ideas for Stylish and Functional Window Treatments
+description: Home goods curtains blend style, comfort, and function in every room.
+  They control light, add privacy, and enhance decor with ease. Choosing the right
+  curtain c
 pubDate: 2026-06-25
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-curtain&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Curtains
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-curtain&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Home goods curtains blend style, comfort, and function in every room. They control light, add privacy, and enhance decor with ease.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Decorate a Mirror Frame: Stunning Ideas to Transform Your Space"
-description: "Your mirror frame is more than just a border—it’s a chance to add personality and style to any room. Imagine transforming a simple mirror into a stunning center"
+title: 'How to Decorate a Mirror Frame: Stunning Ideas to Transform Your Space'
+description: Your mirror frame is more than just a border—it’s a chance to add personality
+  and style to any room. Imagine transforming a simple mirror into a stunning center
 pubDate: 2025-09-03
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror-frame&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Mirror Frame Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-mirror-frame&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your mirror frame is more than just a border—it’s a chance to add personality and style to any room. Imagine transforming a simple mirror into a stunning centerpiece that grabs attention the moment someone walks in.**

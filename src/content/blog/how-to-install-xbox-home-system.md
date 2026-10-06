@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Install Xbox Home System: Easy Steps for Ultimate Setup"
 description: "Are you ready to unlock the full potential of your Xbox? Installing the Xbox Home System is the key to sharing games, subscriptions, and more with your family a"
 pubDate: 2025-10-21

@@ -1,10 +1,13 @@
 ---
-title: "Bathroom Mirrors Home Goods: Stylish Black Metal Framed Vanity Picks"
-description: "Bathroom mirrors are essential home goods that blend style with functionality. They reflect light, enhance decor, and complete the look. Choosing the right bath"
+title: 'Bathroom Mirrors Home Goods: Stylish Black Metal Framed Vanity Picks'
+description: Bathroom mirrors are essential home goods that blend style with functionality.
+  They reflect light, enhance decor, and complete the look. Choosing the right bath
 pubDate: 2026-08-17
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=bathroom-mirrors-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=bathroom-mirrors-home-goods&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Bathroom mirrors are essential home goods that blend style with functionality. They reflect light, enhance decor, and complete the look.**

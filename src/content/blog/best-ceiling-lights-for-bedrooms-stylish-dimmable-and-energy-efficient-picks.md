@@ -1,10 +1,15 @@
 ---
-title: "Best Ceiling Lights for Bedrooms: Stylish, Dimmable, and Energy-Efficient Picks"
-description: "Choosing the best ceiling lights for bedrooms enhances comfort and style. Good lighting sets the right mood and improves visibility. Bedrooms need lights that b"
+title: 'Best Ceiling Lights for Bedrooms: Stylish, Dimmable, and Energy-Efficient
+  Picks'
+description: Choosing the best ceiling lights for bedrooms enhances comfort and style.
+  Good lighting sets the right mood and improves visibility. Bedrooms need lights
+  that b
 pubDate: 2025-11-06
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ceiling-lights-for-bedrooms-stylish-dimmable-and-energy-efficient-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-ceiling-lights-for-bedrooms-stylish-dimmable-and-energy-efficient-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best ceiling lights for bedrooms enhances comfort and style. Good lighting sets the right mood and improves visibility.**

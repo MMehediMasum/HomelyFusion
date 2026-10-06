@@ -1,10 +1,14 @@
 ---
-title: "Blue Accessories Living Room Ideas: Stylish Decor for a Cozy Space"
-description: "Blue accessories bring calm and style to any living room. They add color and charm without overwhelming the space. Adding blue decor items creates a fresh, peac"
+title: 'Blue Accessories Living Room Ideas: Stylish Decor for a Cozy Space'
+description: Blue accessories bring calm and style to any living room. They add color
+  and charm without overwhelming the space. Adding blue decor items creates a fresh,
+  peac
 pubDate: 2026-07-16
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=blue-accessories-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Modern Room Accessories
+heroImage: https://tse1.mm.bing.net/th?q=blue-accessories-living-room&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Blue accessories bring calm and style to any living room. They add color and charm without overwhelming the space.**

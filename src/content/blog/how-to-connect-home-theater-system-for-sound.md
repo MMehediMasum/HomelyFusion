@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater System for Sound: Ultimate Setup Guide"
 description: "Are you ready to transform your living room into a movie theater? Connecting your home theater system for the best sound can seem tricky, but it doesn’t have to"
 pubDate: 2026-04-20

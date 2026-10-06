@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Tapestry Art on Wall: Easy Steps for Stunning Decor"
-description: "Are you looking to add a splash of color and personality to your walls? Hanging tapestry art is one of the easiest and most stylish ways to transform any room. "
+title: 'How to Hang Tapestry Art on Wall: Easy Steps for Stunning Decor'
+description: 'Are you looking to add a splash of color and personality to your walls?
+  Hanging tapestry art is one of the easiest and most stylish ways to transform any
+  room. '
 pubDate: 2025-12-25
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-tapestry-art-on-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Wall Tapestries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-tapestry-art-on-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Are you looking to add a splash of color and personality to your walls? Hanging tapestry art is one of the easiest and most stylish ways to transform any room.**

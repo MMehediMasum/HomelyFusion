@@ -1,10 +1,14 @@
 ---
-title: "How to Make Oven Clay at Home: Easy DIY Crafting Guide"
-description: "Have you ever wanted to create your own clay for crafting but didn’t want to spend money on expensive materials? Making oven clay at home is easier than you thi"
+title: 'How to Make Oven Clay at Home: Easy DIY Crafting Guide'
+description: Have you ever wanted to create your own clay for crafting but didn’t
+  want to spend money on expensive materials? Making oven clay at home is easier than
+  you thi
 pubDate: 2026-04-02
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-oven-clay-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Clay Pot Firing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-oven-clay-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Have you ever wanted to create your own clay for crafting but didn’t want to spend money on expensive materials? Making oven clay at home is easier than you think, and it gives you the freedom to shape, paint, and bake your creations right in your own kitchen.**

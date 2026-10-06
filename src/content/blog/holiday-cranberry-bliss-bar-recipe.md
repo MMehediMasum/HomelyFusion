@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Holiday Cranberry Bliss Bar Recipe: Irresistible Festive Treats"
 description: "Are you ready to make your holiday season extra special? Imagine biting into a soft, sweet bar bursting with the tangy taste of cranberries and the rich flavor "
 pubDate: 2026-01-16

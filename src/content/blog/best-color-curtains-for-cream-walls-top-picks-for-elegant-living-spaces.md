@@ -1,10 +1,14 @@
 ---
-title: "Best Color Curtains for Cream Walls: Top Picks for Elegant Living Spaces"
-description: "Choosing the best color curtains for cream walls can transform any room’s look. Cream walls offer a soft, warm base that pairs well with many curtain colors. Cr"
+title: 'Best Color Curtains for Cream Walls: Top Picks for Elegant Living Spaces'
+description: Choosing the best color curtains for cream walls can transform any room’s
+  look. Cream walls offer a soft, warm base that pairs well with many curtain colors.
+  Cr
 pubDate: 2025-11-01
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-color-curtains-for-cream-walls-top-picks-for-elegant-living-spaces&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-color-curtains-for-cream-walls-top-picks-for-elegant-living-spaces&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best color curtains for cream walls can transform any room’s look. Cream walls offer a soft, warm base that pairs well with many curtain colors.**

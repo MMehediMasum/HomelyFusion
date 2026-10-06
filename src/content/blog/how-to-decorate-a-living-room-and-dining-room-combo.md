@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Living Room And Dining Room Combo: Stylish Tips"
-description: "Are you struggling to make your living room and dining room combo feel cozy and stylish? Combining two important spaces can be tricky, but with the right tips, "
+title: 'How to Decorate a Living Room And Dining Room Combo: Stylish Tips'
+description: 'Are you struggling to make your living room and dining room combo feel
+  cozy and stylish? Combining two important spaces can be tricky, but with the right
+  tips, '
 pubDate: 2025-10-31
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-and-dining-room-combo&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Kitchen Decorating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-living-room-and-dining-room-combo&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Are you struggling to make your living room and dining room combo feel cozy and stylish? Combining two important spaces can be tricky, but with the right tips, you can create a seamless and beautiful area that works perfectly for you.**

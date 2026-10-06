@@ -1,10 +1,14 @@
 ---
-title: "Best Lamps for Nightstands: Stylish, Dimmable, and USB-Enabled Picks"
-description: "Choosing the best lamps for nightstands can improve your bedroom’s look and lighting. The right lamp offers comfort, style, and useful features. Nightstand lamp"
+title: 'Best Lamps for Nightstands: Stylish, Dimmable, and USB-Enabled Picks'
+description: Choosing the best lamps for nightstands can improve your bedroom’s look
+  and lighting. The right lamp offers comfort, style, and useful features. Nightstand
+  lamp
 pubDate: 2025-12-05
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamps-for-nightstands-stylish-dimmable-and-usb-enabled-picks&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Lighting Fixtures
+heroImage: https://tse1.mm.bing.net/th?q=best-lamps-for-nightstands-stylish-dimmable-and-usb-enabled-picks&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Choosing the best lamps for nightstands can improve your bedroom’s look and lighting. The right lamp offers comfort, style, and useful features.**

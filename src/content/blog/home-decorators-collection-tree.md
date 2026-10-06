@@ -1,10 +1,14 @@
 ---
-title: "Home Decorators Collection Tree: Stunning Artificial Trees for Festive Decor"
-description: "Home Decorators Collection offers a range of stunning artificial trees for every decor style. Perfect for Christmas or year-round charm. Decorating your home wi"
+title: 'Home Decorators Collection Tree: Stunning Artificial Trees for Festive Decor'
+description: Home Decorators Collection offers a range of stunning artificial trees
+  for every decor style. Perfect for Christmas or year-round charm. Decorating your
+  home wi
 pubDate: 2026-08-08
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decorators-collection-tree&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods TV Stands
+heroImage: https://tse1.mm.bing.net/th?q=home-decorators-collection-tree&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Home Decorators Collection offers a range of stunning artificial trees for every decor style. Perfect for Christmas or year-round charm.**

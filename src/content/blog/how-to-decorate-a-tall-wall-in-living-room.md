@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Tall Wall in Living Room: Stunning Ideas That Wow"
-description: "Is your living room feeling a little empty or unbalanced because of a tall wall? You’re not alone. Tall walls can be tricky to decorate, but with the right idea"
+title: 'How to Decorate a Tall Wall in Living Room: Stunning Ideas That Wow'
+description: Is your living room feeling a little empty or unbalanced because of a
+  tall wall? You’re not alone. Tall walls can be tricky to decorate, but with the
+  right idea
 pubDate: 2025-10-19
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-tall-wall-in-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-tall-wall-in-living-room&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Is your living room feeling a little empty or unbalanced because of a tall wall? You’re not alone.**

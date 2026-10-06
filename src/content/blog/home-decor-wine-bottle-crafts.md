@@ -1,10 +1,14 @@
 ---
-title: "Home Decor Wine Bottle Crafts: Creative Ideas for Unique DIY Decorations"
-description: "Wine bottle crafts offer a creative way to enhance your home decor. They transform ordinary bottles into unique decorative pieces. These crafts can add a person"
+title: 'Home Decor Wine Bottle Crafts: Creative Ideas for Unique DIY Decorations'
+description: Wine bottle crafts offer a creative way to enhance your home decor. They
+  transform ordinary bottles into unique decorative pieces. These crafts can add a
+  person
 pubDate: 2026-06-20
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-decor-wine-bottle-crafts&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Decor Products
+heroImage: https://tse1.mm.bing.net/th?q=home-decor-wine-bottle-crafts&w=424&h=424&c=7
+topic: Home Accessories, Textiles & Plants
 ---
 
 **Wine bottle crafts offer a creative way to enhance your home decor. They transform ordinary bottles into unique decorative pieces.**

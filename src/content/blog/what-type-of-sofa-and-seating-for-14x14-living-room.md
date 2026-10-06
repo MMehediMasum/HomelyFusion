@@ -1,10 +1,14 @@
 ---
-title: "What Type of Sofa And Seating for 14X14 Living Room: Expert Picks"
-description: "Choosing the right sofa and seating for your 14x14 living room can feel tricky. You want a space that’s cozy, stylish, and perfect for your daily life. But with"
+title: 'What Type of Sofa And Seating for 14X14 Living Room: Expert Picks'
+description: Choosing the right sofa and seating for your 14x14 living room can feel
+  tricky. You want a space that’s cozy, stylish, and perfect for your daily life.
+  But with
 pubDate: 2026-02-12
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-type-of-sofa-and-seating-for-14x14-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Sofas
+heroImage: https://tse1.mm.bing.net/th?q=what-type-of-sofa-and-seating-for-14x14-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the right sofa and seating for your 14x14 living room can feel tricky. You want a space that’s cozy, stylish, and perfect for your daily life.**

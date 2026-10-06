@@ -1,10 +1,14 @@
 ---
-title: "Must Haves for Home Office Desk: Essential Gear for Productivity Boost"
-description: "Your home office desk is more than just a place to work—it’s where your ideas take shape and your productivity soars. But is your setup helping you focus or hol"
+title: 'Must Haves for Home Office Desk: Essential Gear for Productivity Boost'
+description: Your home office desk is more than just a place to work—it’s where your
+  ideas take shape and your productivity soars. But is your setup helping you focus
+  or hol
 pubDate: 2025-10-27
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=must-haves-for-home-office-desk&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Desks
+heroImage: https://tse1.mm.bing.net/th?q=must-haves-for-home-office-desk&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Your home office desk is more than just a place to work—it’s where your ideas take shape and your productivity soars. But is your setup helping you focus or holding you back?**

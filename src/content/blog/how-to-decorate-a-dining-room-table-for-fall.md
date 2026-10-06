@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate a Dining Room Table for Fall: Stunning Cozy Ideas"
-description: "As the air turns crisp and leaves change to warm shades, your dining room table is the perfect place to bring that cozy fall feeling inside. You might be wonder"
+title: 'How to Decorate a Dining Room Table for Fall: Stunning Cozy Ideas'
+description: As the air turns crisp and leaves change to warm shades, your dining
+  room table is the perfect place to bring that cozy fall feeling inside. You might
+  be wonder
 pubDate: 2025-10-28
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-room-table-for-fall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Farmhouse Fall Decor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-a-dining-room-table-for-fall&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **As the air turns crisp and leaves change to warm shades, your dining room table is the perfect place to bring that cozy fall feeling inside. You might be wondering how to make your table look inviting without spending hours or a fortune.**

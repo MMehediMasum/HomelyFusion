@@ -1,10 +1,14 @@
 ---
-title: "Best Accent Wall Colors for Bedroom to Complement Rustic Farmhouse Decor"
-description: "Choosing the best accent wall colors for a bedroom can change its whole look. The right color makes the space feel cozy and stylish. An accent wall draws attent"
+title: Best Accent Wall Colors for Bedroom to Complement Rustic Farmhouse Decor
+description: Choosing the best accent wall colors for a bedroom can change its whole
+  look. The right color makes the space feel cozy and stylish. An accent wall draws
+  attent
 pubDate: 2025-12-07
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-accent-wall-colors-for-bedroom-to-complement-rustic-farmhouse-decor&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Wall Decor
+heroImage: https://tse1.mm.bing.net/th?q=best-accent-wall-colors-for-bedroom-to-complement-rustic-farmhouse-decor&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Choosing the best accent wall colors for a bedroom can change its whole look. The right color makes the space feel cozy and stylish.**

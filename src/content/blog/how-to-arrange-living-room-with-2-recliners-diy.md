@@ -1,10 +1,14 @@
 ---
-title: "How to Arrange Living Room With 2 Recliners Diy: Stylish & Cozy Ideas"
-description: "Are you wondering how to arrange your living room when you have two recliners to fit in? It can feel tricky to balance comfort, style, and space all at once. Bu"
+title: 'How to Arrange Living Room With 2 Recliners Diy: Stylish & Cozy Ideas'
+description: Are you wondering how to arrange your living room when you have two recliners
+  to fit in? It can feel tricky to balance comfort, style, and space all at once.
+  Bu
 pubDate: 2026-03-23
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-2-recliners-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Living Room Seating
+heroImage: https://tse1.mm.bing.net/th?q=how-to-arrange-living-room-with-2-recliners-diy&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Are you wondering how to arrange your living room when you have two recliners to fit in? It can feel tricky to balance comfort, style, and space all at once.**

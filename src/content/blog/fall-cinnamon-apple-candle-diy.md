@@ -1,10 +1,14 @@
 ---
-title: "Fall Cinnamon Apple Candle DIY: Cozy, Easy, and Aromatic Guide"
-description: "Imagine filling your home with the warm, cozy scent of cinnamon and fresh apples this fall. What if you could create that inviting atmosphere yourself, with a c"
+title: 'Fall Cinnamon Apple Candle DIY: Cozy, Easy, and Aromatic Guide'
+description: Imagine filling your home with the warm, cozy scent of cinnamon and fresh
+  apples this fall. What if you could create that inviting atmosphere yourself, with
+  a c
 pubDate: 2026-01-14
-author: "gilbertpappas"
-categories: ["Seasonal & Holiday Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=fall-cinnamon-apple-candle-diy&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Fall DIY Crafts
+heroImage: https://tse1.mm.bing.net/th?q=fall-cinnamon-apple-candle-diy&w=424&h=424&c=7
+topic: Seasonal, Holiday & Outdoor Decor
 ---
 
 **Imagine filling your home with the warm, cozy scent of cinnamon and fresh apples this fall. What if you could create that inviting atmosphere yourself, with a candle made by your own hands?**

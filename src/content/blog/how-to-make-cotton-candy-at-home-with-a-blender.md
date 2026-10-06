@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Make Cotton Candy at Home With a Blender: Easy & Fun Guide"
 description: "Imagine enjoying fluffy, sweet cotton candy anytime you want, right in your own kitchen. You don’t need fancy machines or expensive equipment—just a blender and"
 pubDate: 2025-11-12

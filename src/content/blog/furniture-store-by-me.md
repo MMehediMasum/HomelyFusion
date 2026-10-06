@@ -1,10 +1,14 @@
 ---
-title: "Furniture Store by Me: Top Stylish Sofas and Storage Benches Reviewed"
-description: "Welcome to \"Furniture Store by Me,\" where style meets functionality in every piece. Explore versatile furniture for your home. Discover a world of furniture tha"
+title: 'Furniture Store by Me: Top Stylish Sofas and Storage Benches Reviewed'
+description: Welcome to "Furniture Store by Me," where style meets functionality in
+  every piece. Explore versatile furniture for your home. Discover a world of furniture
+  tha
 pubDate: 2026-06-16
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=furniture-store-by-me&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Furniture Store Decor
+heroImage: https://tse1.mm.bing.net/th?q=furniture-store-by-me&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Welcome to "Furniture Store by Me," where style meets functionality in every piece. Explore versatile furniture for your home.**

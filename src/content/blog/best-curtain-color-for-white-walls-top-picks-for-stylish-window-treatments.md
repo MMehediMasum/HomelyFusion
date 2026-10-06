@@ -1,10 +1,14 @@
 ---
-title: "Best Curtain Color for White Walls: Top Picks for Stylish Window Treatments"
-description: "Choosing the best curtain color for white walls can enhance your room’s look and feel. Curtains add style and control light, making them key in any decor. White"
+title: 'Best Curtain Color for White Walls: Top Picks for Stylish Window Treatments'
+description: Choosing the best curtain color for white walls can enhance your room’s
+  look and feel. Curtains add style and control light, making them key in any decor.
+  White
 pubDate: 2025-10-30
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-curtain-color-for-white-walls-top-picks-for-stylish-window-treatments&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Curtain Rods
+heroImage: https://tse1.mm.bing.net/th?q=best-curtain-color-for-white-walls-top-picks-for-stylish-window-treatments&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best curtain color for white walls can enhance your room’s look and feel. Curtains add style and control light, making them key in any decor.**

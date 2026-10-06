@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Furniture Online: Stylish, Functional Pieces for Every Room"
-description: "Shopping for home goods furniture online saves time and offers many options. You can find pieces that fit your space and style easily. Online stores provide var"
+title: 'Home Goods Furniture Online: Stylish, Functional Pieces for Every Room'
+description: Shopping for home goods furniture online saves time and offers many options.
+  You can find pieces that fit your space and style easily. Online stores provide
+  var
 pubDate: 2026-08-19
-author: "gilbertpappas"
-categories: ["Eco-Friendly & Minimalist Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-furniture-online&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Furniture
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-furniture-online&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Shopping for home goods furniture online saves time and offers many options. You can find pieces that fit your space and style easily.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Floor And Decor Columbus Ohio: Top Unique Home Decor & Gift Ideas"
 description: "Floor And Decor in Columbus, Ohio offers a wide range of home decor and gift items. This store features unique products that highlight the spirit of Columbus. C"
 pubDate: 2026-06-28

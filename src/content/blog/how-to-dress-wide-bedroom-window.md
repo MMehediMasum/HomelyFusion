@@ -1,10 +1,14 @@
 ---
-title: "How to Dress Wide Bedroom Window: Stunning Ideas for Style & Privacy"
-description: "Your wide bedroom window is a stunning feature, but dressing it can feel tricky. You want something that looks great, fits perfectly, and adds to your room’s co"
+title: 'How to Dress Wide Bedroom Window: Stunning Ideas for Style & Privacy'
+description: Your wide bedroom window is a stunning feature, but dressing it can feel
+  tricky. You want something that looks great, fits perfectly, and adds to your room’s
+  co
 pubDate: 2026-05-31
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dress-wide-bedroom-window&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Fireplace Styling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dress-wide-bedroom-window&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Your wide bedroom window is a stunning feature, but dressing it can feel tricky. You want something that looks great, fits perfectly, and adds to your room’s comfort.**

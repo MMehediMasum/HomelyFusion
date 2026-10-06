@@ -1,10 +1,14 @@
 ---
-title: "How to Make Balloon Arch Stand at Home: Easy DIY Guide"
-description: "Are you planning a party and want to create a stunning balloon arch without spending a lot of money? Imagine having a beautiful, colorful arch that stands tall "
+title: 'How to Make Balloon Arch Stand at Home: Easy DIY Guide'
+description: 'Are you planning a party and want to create a stunning balloon arch
+  without spending a lot of money? Imagine having a beautiful, colorful arch that
+  stands tall '
 pubDate: 2026-04-23
-author: "gilbertpappas"
-categories: ["Entryway & Hallway Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-stand-at-home&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Balloon Arch Crafts
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-balloon-arch-stand-at-home&w=424&h=424&c=7
+topic: Storage, Cleaning & DIY Projects
 ---
 
 **Are you planning a party and want to create a stunning balloon arch without spending a lot of money? Imagine having a beautiful, colorful arch that stands tall and grabs everyone’s attention—right in your own home.**

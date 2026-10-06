@@ -1,10 +1,14 @@
 ---
-title: "How to Choose the Right Sofa for Your Living Room: Ultimate Guide"
-description: "Choosing the perfect sofa for your living room isn’t just about picking a piece of furniture—it’s about finding the spot where comfort meets style in your daily"
+title: 'How to Choose the Right Sofa for Your Living Room: Ultimate Guide'
+description: Choosing the perfect sofa for your living room isn’t just about picking
+  a piece of furniture—it’s about finding the spot where comfort meets style in your
+  daily
 pubDate: 2026-04-17
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-choose-the-right-sofa-for-your-living-room&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Sofa Ideas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-choose-the-right-sofa-for-your-living-room&w=424&h=424&c=7
+topic: Sofas, Seating & Living Room Furniture
 ---
 
 **Choosing the perfect sofa for your living room isn’t just about picking a piece of furniture—it’s about finding the spot where comfort meets style in your daily life. You want a sofa that fits your space, matches your taste, and feels just right every time you sit down.**

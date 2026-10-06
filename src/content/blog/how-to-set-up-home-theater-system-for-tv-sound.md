@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Set Up Home Theater System for Tv Sound: Ultimate Guide"
 description: "Imagine turning your living room into a mini cinema where every movie sounds crystal clear and every explosion feels real. Setting up a home theater system for "
 pubDate: 2025-10-12

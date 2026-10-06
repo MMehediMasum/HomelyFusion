@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Canvas Art Without Nails: Easy, Damage-Free Tips"
-description: "Want to hang your beautiful canvas art but worried about putting holes in your walls? You’re not alone. Nails can leave marks, damage paint, and make it hard to"
+title: 'How to Hang Canvas Art Without Nails: Easy, Damage-Free Tips'
+description: Want to hang your beautiful canvas art but worried about putting holes
+  in your walls? You’re not alone. Nails can leave marks, damage paint, and make it
+  hard to
 pubDate: 2026-01-20
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-canvas-art-without-nails&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Canvas Art
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-canvas-art-without-nails&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to hang your beautiful canvas art but worried about putting holes in your walls? You’re not alone.**

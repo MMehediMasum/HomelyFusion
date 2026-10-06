@@ -1,10 +1,14 @@
 ---
-title: "How to Hang a Wall Mirror: Easy Steps for a Perfect Display"
-description: "Want to add style and light to your room quickly? Hanging a wall mirror is one of the easiest ways to do just that. But if you’ve ever struggled with crooked fr"
+title: 'How to Hang a Wall Mirror: Easy Steps for a Perfect Display'
+description: Want to add style and light to your room quickly? Hanging a wall mirror
+  is one of the easiest ways to do just that. But if you’ve ever struggled with crooked
+  fr
 pubDate: 2025-12-23
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-mirror&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Hanging Mirror Placement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-a-wall-mirror&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to add style and light to your room quickly? Hanging a wall mirror is one of the easiest ways to do just that.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Anodize Steel at Home: Easy DIY Guide for Beginners"
 description: "Have you ever wanted to give your steel projects a sleek, durable finish without spending a lot on professional services? Learning how to anodize steel at home "
 pubDate: 2026-03-04

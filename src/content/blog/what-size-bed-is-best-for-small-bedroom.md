@@ -1,10 +1,14 @@
 ---
-title: "What Size Bed is Best for Small Bedroom: Ultimate Space-Saving Guide"
-description: "Finding the perfect bed for your small bedroom can feel like a tricky puzzle. You want something comfortable to sleep on, but you also need enough space to move"
+title: 'What Size Bed is Best for Small Bedroom: Ultimate Space-Saving Guide'
+description: Finding the perfect bed for your small bedroom can feel like a tricky
+  puzzle. You want something comfortable to sleep on, but you also need enough space
+  to move
 pubDate: 2026-05-13
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-bed-is-best-for-small-bedroom&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bed Sizing
+heroImage: https://tse1.mm.bing.net/th?q=what-size-bed-is-best-for-small-bedroom&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Finding the perfect bed for your small bedroom can feel like a tricky puzzle. You want something comfortable to sleep on, but you also need enough space to move around freely.**

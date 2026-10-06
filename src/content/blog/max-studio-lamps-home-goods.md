@@ -1,10 +1,14 @@
 ---
-title: "Max Studio Lamps Home Goods: Stylish, Functional Lighting for Every Room"
-description: "Max Studio lamps offer stylish and practical lighting solutions for every room. Their range includes floor and table lamps with adjustable brightness and modern"
+title: 'Max Studio Lamps Home Goods: Stylish, Functional Lighting for Every Room'
+description: Max Studio lamps offer stylish and practical lighting solutions for every
+  room. Their range includes floor and table lamps with adjustable brightness and
+  modern
 pubDate: 2026-06-18
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=max-studio-lamps-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Lamp Shades
+heroImage: https://tse1.mm.bing.net/th?q=max-studio-lamps-home-goods&w=424&h=424&c=7
+topic: Lighting & Smart Home
 ---
 
 **Max Studio lamps offer stylish and practical lighting solutions for every room. Their range includes floor and table lamps with adjustable brightness and modern designs.**

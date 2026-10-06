@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Bed Bugs Survive in Clean Bedroom? Shocking Truth Revealed!"
 description: "You might think that keeping your bedroom spotless is enough to keep bed bugs away. But can these tiny pests still survive in a clean bedroom? If you’ve ever wo"
 pubDate: 2026-05-10

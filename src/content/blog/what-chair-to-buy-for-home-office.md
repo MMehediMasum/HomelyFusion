@@ -1,10 +1,14 @@
 ---
-title: "What Chair to Buy for Home Office: Ultimate Comfort and Style Guide"
-description: "Choosing the right chair for your home office can make a huge difference in your comfort and productivity. You spend hours sitting at your desk, so why settle f"
+title: 'What Chair to Buy for Home Office: Ultimate Comfort and Style Guide'
+description: Choosing the right chair for your home office can make a huge difference
+  in your comfort and productivity. You spend hours sitting at your desk, so why settle
+  f
 pubDate: 2025-10-21
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-chair-to-buy-for-home-office&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Chairs
+heroImage: https://tse1.mm.bing.net/th?q=what-chair-to-buy-for-home-office&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Choosing the right chair for your home office can make a huge difference in your comfort and productivity. You spend hours sitting at your desk, so why settle for a chair that leaves you tired or sore?**

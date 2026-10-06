@@ -1,10 +1,14 @@
 ---
-title: "Best Area Rug for Pets: Soft, Washable, Non-Slip, and Stain Resistant"
-description: "Choosing the best area rug for pets helps protect your floors and keep your home clean. Durable, washable rugs make life easier with pets around. Pets often bri"
+title: 'Best Area Rug for Pets: Soft, Washable, Non-Slip, and Stain Resistant'
+description: Choosing the best area rug for pets helps protect your floors and keep
+  your home clean. Durable, washable rugs make life easier with pets around. Pets
+  often bri
 pubDate: 2025-12-13
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-area-rug-for-pets-soft-washable-non-slip-and-stain-resistant&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Non Slip Stair Rugs
+heroImage: https://tse1.mm.bing.net/th?q=best-area-rug-for-pets-soft-washable-non-slip-and-stain-resistant&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the best area rug for pets helps protect your floors and keep your home clean. Durable, washable rugs make life easier with pets around.**

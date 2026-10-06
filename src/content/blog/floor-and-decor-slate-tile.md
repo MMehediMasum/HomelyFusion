@@ -1,10 +1,14 @@
 ---
-title: "Floor And Decor Slate Tile: Stylish Peel & Stick Options for Easy Flooring"
-description: "Slate tile offers a natural, elegant look for floors and walls. Floor And Decor provides various slate tile options for different spaces. Slate tile suits kitch"
+title: 'Floor And Decor Slate Tile: Stylish Peel & Stick Options for Easy Flooring'
+description: Slate tile offers a natural, elegant look for floors and walls. Floor
+  And Decor provides various slate tile options for different spaces. Slate tile suits
+  kitch
 pubDate: 2026-07-29
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=floor-and-decor-slate-tile&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Tile Floor Ideas
+heroImage: https://tse1.mm.bing.net/th?q=floor-and-decor-slate-tile&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Slate tile offers a natural, elegant look for floors and walls. Floor And Decor provides various slate tile options for different spaces.**

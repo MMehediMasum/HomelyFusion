@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Hard Drive And Modems Home Office Organization: Ultimate Tips"
-description: "Struggling to find the perfect spot for your hard drive and modem in your home office? You’re not alone. Cluttered desks and tangled wires can slow you down and"
+title: 'Where to Put Hard Drive And Modems Home Office Organization: Ultimate Tips'
+description: Struggling to find the perfect spot for your hard drive and modem in
+  your home office? You’re not alone. Cluttered desks and tangled wires can slow you
+  down and
 pubDate: 2025-10-25
-author: "gilbertpappas"
-categories: ["Home Office Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-hard-drive-and-modems-home-office-organization&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Home Office Decor
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-hard-drive-and-modems-home-office-organization&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Struggling to find the perfect spot for your hard drive and modem in your home office? You’re not alone.**

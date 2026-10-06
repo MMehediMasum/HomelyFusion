@@ -1,10 +1,14 @@
 ---
-title: "Coffee Table Home Goods: Stylish Foldable Trays and Decorative Accents"
-description: "Coffee tables do more than just hold your coffee. They reflect your style and enhance your living space. Exploring coffee table home goods can elevate your deco"
+title: 'Coffee Table Home Goods: Stylish Foldable Trays and Decorative Accents'
+description: Coffee tables do more than just hold your coffee. They reflect your style
+  and enhance your living space. Exploring coffee table home goods can elevate your
+  deco
 pubDate: 2026-08-16
-author: "gilbertpappas"
-categories: ["Living Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=coffee-table-home-goods&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=coffee-table-home-goods&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Coffee tables do more than just hold your coffee. They reflect your style and enhance your living space.**

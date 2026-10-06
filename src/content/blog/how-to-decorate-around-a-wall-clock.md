@@ -1,10 +1,14 @@
 ---
-title: "How to Decorate around a Wall Clock: Stunning Ideas for Every Room"
-description: "Your wall clock is more than just a way to keep time—it’s a statement piece that can transform your entire room. But how do you decorate around it so that it st"
+title: 'How to Decorate around a Wall Clock: Stunning Ideas for Every Room'
+description: Your wall clock is more than just a way to keep time—it’s a statement
+  piece that can transform your entire room. But how do you decorate around it so
+  that it st
 pubDate: 2025-12-28
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-wall-clock&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-decorate-around-a-wall-clock&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Your wall clock is more than just a way to keep time—it’s a statement piece that can transform your entire room. But how do you decorate around it so that it stands out without overwhelming your space?**

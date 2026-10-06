@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bathroom Vanity Plumbing: Easy Step-by-Step Guide"
-description: "Are you ready to upgrade your bathroom with a new vanity but worried about the plumbing part? Installing bathroom vanity plumbing might sound tricky, but with t"
+title: 'How to Install Bathroom Vanity Plumbing: Easy Step-by-Step Guide'
+description: Are you ready to upgrade your bathroom with a new vanity but worried
+  about the plumbing part? Installing bathroom vanity plumbing might sound tricky,
+  but with t
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-plumbing&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bathroom Vanity Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bathroom-vanity-plumbing&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Are you ready to upgrade your bathroom with a new vanity but worried about the plumbing part? Installing bathroom vanity plumbing might sound tricky, but with the right steps, you can do it yourself and save money.**

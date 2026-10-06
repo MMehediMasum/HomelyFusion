@@ -1,10 +1,14 @@
 ---
-title: "Flooring Ideas for Homes: Transform Spaces with Stylish Lighting Solutions"
-description: "Choosing the right flooring ideas for homes can transform any space into a cozy and stylish haven. Flooring sets the tone for your rooms and affects comfort and"
+title: 'Flooring Ideas for Homes: Transform Spaces with Stylish Lighting Solutions'
+description: Choosing the right flooring ideas for homes can transform any space into
+  a cozy and stylish haven. Flooring sets the tone for your rooms and affects comfort
+  and
 pubDate: 2026-08-06
-author: "gilbertpappas"
-categories: ["Lighting & Ambiance"]
-heroImage: "https://tse1.mm.bing.net/th?q=flooring-ideas-for-homes&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Flooring Design
+heroImage: https://tse1.mm.bing.net/th?q=flooring-ideas-for-homes&w=424&h=424&c=7
+topic: Rugs, Flooring & Window Treatments
 ---
 
 **Choosing the right flooring ideas for homes can transform any space into a cozy and stylish haven. Flooring sets the tone for your rooms and affects comfort and cleaning ease.**

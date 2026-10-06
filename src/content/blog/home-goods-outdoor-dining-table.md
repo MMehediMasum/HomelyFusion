@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Outdoor Dining Table Ideas for Stylish and Durable Patios"
-description: "Outdoor dining tables transform any patio, garden, or backyard into an inviting dining space. They blend style with functionality, enhancing your outdoor experi"
+title: Home Goods Outdoor Dining Table Ideas for Stylish and Durable Patios
+description: Outdoor dining tables transform any patio, garden, or backyard into an
+  inviting dining space. They blend style with functionality, enhancing your outdoor
+  experi
 pubDate: 2026-06-08
-author: "gilbertpappas"
-categories: ["Kitchen & Dining Room Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-outdoor-dining-table&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Dining Tables
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-outdoor-dining-table&w=424&h=424&c=7
+topic: Dining, Kitchen & Home Office
 ---
 
 **Outdoor dining tables transform any patio, garden, or backyard into an inviting dining space. They blend style with functionality, enhancing your outdoor experience.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Hang Frames on the Wall: Easy Steps for Perfect Display"
-description: "Want to transform your space instantly? Hanging frames on your wall is one of the easiest and most effective ways to add personality and style to any room. But "
+title: 'How to Hang Frames on the Wall: Easy Steps for Perfect Display'
+description: 'Want to transform your space instantly? Hanging frames on your wall
+  is one of the easiest and most effective ways to add personality and style to any
+  room. But '
 pubDate: 2026-02-02
-author: "gilbertpappas"
-categories: ["Wall Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-the-wall&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Wall Frames
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hang-frames-on-the-wall&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Want to transform your space instantly? Hanging frames on your wall is one of the easiest and most effective ways to add personality and style to any room.**

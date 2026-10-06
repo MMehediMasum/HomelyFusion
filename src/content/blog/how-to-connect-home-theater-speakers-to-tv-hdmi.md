@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Connect Home Theater Speakers to Tv Hdmi: Ultimate Guide"
 description: "Are you ready to turn your living room into a true cinema experience? Connecting your home theater speakers to your TV using HDMI might sound tricky, but it’s e"
 pubDate: 2025-11-18

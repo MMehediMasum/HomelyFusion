@@ -1,10 +1,14 @@
 ---
-title: "What Color Bedding Goes With Black Bedroom Furniture: Stunning Ideas"
-description: "Choosing the right bedding color for your black bedroom furniture can feel tricky. You want your room to look stylish and inviting, but you might worry about co"
+title: 'What Color Bedding Goes With Black Bedroom Furniture: Stunning Ideas'
+description: Choosing the right bedding color for your black bedroom furniture can
+  feel tricky. You want your room to look stylish and inviting, but you might worry
+  about co
 pubDate: 2025-11-14
-author: "gilbertpappas"
-categories: ["Bedroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-bedding-goes-with-black-bedroom-furniture&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- Bedroom Bedding
+heroImage: https://tse1.mm.bing.net/th?q=what-color-bedding-goes-with-black-bedroom-furniture&w=424&h=424&c=7
+topic: Bedroom & Bathroom Decor
 ---
 
 **Choosing the right bedding color for your black bedroom furniture can feel tricky. You want your room to look stylish and inviting, but you might worry about colors clashing or making the space feel too dark.**

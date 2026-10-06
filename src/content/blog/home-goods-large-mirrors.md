@@ -1,10 +1,14 @@
 ---
-title: "Home Goods Large Mirrors: Stylish Full-Length Options for Every Room"
-description: "Large mirrors add style and function to any home space. They create light, depth, and a polished look instantly. Choosing the right large mirror can change a ro"
+title: 'Home Goods Large Mirrors: Stylish Full-Length Options for Every Room'
+description: Large mirrors add style and function to any home space. They create light,
+  depth, and a polished look instantly. Choosing the right large mirror can change
+  a ro
 pubDate: 2025-10-24
-author: "gilbertpappas"
-categories: ["Bathroom Decor"]
-heroImage: "https://tse1.mm.bing.net/th?q=home-goods-large-mirrors&w=424&h=424&c=7"
+author: gilbertpappas
+categories:
+- HomeGoods Large Mirrors
+heroImage: https://tse1.mm.bing.net/th?q=home-goods-large-mirrors&w=424&h=424&c=7
+topic: Wall Decor, Mirrors & Frames
 ---
 
 **Large mirrors add style and function to any home space. They create light, depth, and a polished look instantly.**
