@@ -130,7 +130,7 @@ Beyond their aesthetic appeal, these pillows contribute to a warm and inviting a
 ## <a href="https://www.amazon.com/dp/B0F2HL2ZHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aels Ghost Decorative Throw Pillow Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2HL2ZHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" alt="AELS 19.6" bedroom,="" decor="" decorations,="" decorative="" for="" ghost="" halloween="" holiday="" home,="" living="" of="" party="" pillow="" pillows="" pillows,="" plush="" room="" set="" shaped="" spooky="" src="https://m.media-amazon.com/images/I/51XW1UeDfAL._SL500_.jpg" throw="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B0F2HL2ZHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Aels Ghost Decorative Throw Pillow Set Of 2" src="https://m.media-amazon.com/images/I/51XW1UeDfAL._SL500_.jpg" /></a>
 
 
 The **AELS 19.6" Ghost Decorative Throw Pillow Set of 2** is perfect for individuals who want to add a festive and spooky touch to their home during the **Halloween** season. Ideal for homeowners, party hosts, or anyone looking to enhance their **holiday party** décor, these pillows bring a fun and cozy element to living rooms, bedrooms, or any space in need of **seasonal decoration**.
