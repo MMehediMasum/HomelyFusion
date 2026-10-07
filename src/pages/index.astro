@@ -1,4 +1,5 @@
 ---
+import { slugify } from '../utils/slug';
 import { getCollection } from 'astro:content';
 import BaseHead from '../components/BaseHead.astro';
 import Header from '../components/Header.astro';
@@ -717,7 +718,7 @@ function styleFor(topic: string) {
 								const s = styleFor(topic);
 								return (
 									<li style={`--c1:${s.c1};--c2:${s.c2}`}>
-										<a class="frame" href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}>
+										<a class="frame" href={`/topic/${slugify(topic)}/`}>
 											<div class="art">
 												<span class="wm" set:html={s.icon} />
 												<img src={thumbUrl(topic, 600, 600)} alt="" loading="lazy" onerror="this.style.display='none'" />
