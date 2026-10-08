@@ -1,140 +1,274 @@
 ---
-import { SITE_TITLE } from '../consts';
+import { getCollection } from "astro:content";
+import { slugify } from "../utils/slug";
+import { SITE_TITLE } from "../consts";
 
 const today = new Date();
 
-const normalize = (path: string) => path.replace(/\/+$/, '') || '/';
+const normalize = (path: string) => path.replace(/\/+$/, "") || "/";
+const current = normalize(Astro.url.pathname);
 
-// Shown as "More on Homely Fusion" pills. The page you're currently on is left out.
-const footerLinks = [
-	{ href: '/about/', label: 'About Us', icon: '🏡' },
-	{ href: '/contact/', label: 'Contact', icon: '📬' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
-	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
-	{ href: '/terms/', label: 'Terms', icon: '📜' },
-].filter((link) => normalize(link.href) !== normalize(Astro.url.pathname));
+const posts = await getCollection("blog");
+const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))].sort();
+
+const company = [
+	{ href: "/about/", label: "About Us" },
+	{ href: "/contact/", label: "Contact" },
+];
+const legal = [
+	{ href: "/privacy-policy/", label: "Privacy Policy" },
+	{ href: "/disclosure/", label: "Disclosure" },
+	{ href: "/terms/", label: "Terms" },
+];
 ---
+
 <footer>
-	<nav class="related-nav" aria-label="More pages">
-		<h2>More on {SITE_TITLE}</h2>
-		<ul class="related-links">
+	<div class="footer-inner">
+		<div class="footer-top">
+			<div class="footer-brand">
+				<a class="brand" href="/" aria-label={`${SITE_TITLE} – home`}>
+					<span class="brand-mark" aria-hidden="true">
+						<svg viewBox="0 0 24 24" width="20" height="20" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round">
+							<path d="M3 11.5 12 4l9 7.5" />
+							<path d="M5.5 10v9.5h13V10" />
+							<path d="M10 19.5v-5h4v5" />
+						</svg>
+					</span>
+					<span class="brand-name">{SITE_TITLE}</span>
+				</a>
+				<p class="tagline">
+					Home decor inspiration, styling ideas and practical buying guides for spaces that feel
+					beautiful and lived-in.
+				</p>
+				<div class="social-links">
+					<a
+						href="https://www.facebook.com/GilbertPappas/"
+						target="_blank"
+						rel="nofollow noopener noreferrer"
+					>
+						<span class="sr-only">Follow Homely Fusion on Facebook</span>
+						<svg viewBox="0 0 16 16" aria-hidden="true" width="20" height="20">
+							<path
+								fill="currentColor"
+								d="M9.25 16V8.703h2.45l.367-2.845H9.25V4.04c0-.824.229-1.386 1.411-1.386h1.508V.11A20.21 20.21 0 0 0 9.97 0C7.795 0 6.305 1.327 6.305 3.764v2.094H3.846v2.845h2.459V16h2.945z"
+							></path>
+						</svg>
+					</a>
+				</div>
+			</div>
+
 			{
-				footerLinks.map((link) => (
-					<li>
-						<a href={link.href}>
-							<span aria-hidden="true">{link.icon}</span> {link.label}
-						</a>
-					</li>
-				))
+				topics.length > 0 && (
+					<nav class="footer-col footer-topics" aria-label="Topics">
+						<h2>Explore Topics</h2>
+						<ul>
+							{topics.map((topic) => (
+								<li>
+									<a
+										href={`/topic/${slugify(topic)}/`}
+										aria-current={current === `/topic/${slugify(topic)}` ? "page" : undefined}
+									>
+										{topic}
+									</a>
+								</li>
+							))}
+						</ul>
+					</nav>
+				)
 			}
-		</ul>
-	</nav>
 
-	&copy; {today.getFullYear()} {SITE_TITLE}. All rights reserved.
-	<div class="social-links">
-	    <a
-            href="https://www.facebook.com/GilbertPappas/" target="_blank" rel="nofollow noopener noreferrer">
-            <span class="sr-only">Follow Homely Fusion on Facebook</span>
-            <svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32">
-                <path
-                    fill="currentColor"
-                    d="M9.25 16V8.703h2.45l.367-2.845H9.25V4.04c0-.824.229-1.386 1.411-1.386h1.508V.11A20.21 20.21 0 0 0 9.97 0C7.795 0 6.305 1.327 6.305 3.764v2.094H3.846v2.845h2.459V16h2.945z"
-                ></path>
-            </svg>
-        </a>
-		<a href="#" target="_blank">
-			<span class="sr-only">Follow Homely Fusion on Twitter</span>
-			<svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32" astro-icon="social/twitter"
-				><path
-					fill="currentColor"
-					d="M5.026 15c6.038 0 9.341-5.003 9.341-9.334 0-.14 0-.282-.006-.422A6.685 6.685 0 0 0 16 3.542a6.658 6.658 0 0 1-1.889.518 3.301 3.301 0 0 0 1.447-1.817 6.533 6.533 0 0 1-2.087.793A3.286 3.286 0 0 0 7.875 6.03a9.325 9.325 0 0 1-6.767-3.429 3.289 3.289 0 0 0 1.018 4.382A3.323 3.323 0 0 1 .64 6.575v.045a3.288 3.288 0 0 0 2.632 3.218 3.203 3.203 0 0 1-.865.115 3.23 3.23 0 0 1-.614-.057 3.283 3.283 0 0 0 3.067 2.277A6.588 6.588 0 0 1 .78 13.58a6.32 6.32 0 0 1-.78-.045A9.344 9.344 0 0 0 5.026 15z"
-				></path></svg
-			>
-		</a>
-		<a href="#" target="_blank">
-			<span class="sr-only">Go to Homely Fusion's GitHub repo</span>
-			<svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32" astro-icon="social/github"
-				><path
-					fill="currentColor"
-					d="M8 0C3.58 0 0 3.58 0 8c0 3.54 2.29 6.53 5.47 7.59.4.07.55-.17.55-.38 0-.19-.01-.82-.01-1.49-2.01.37-2.53-.49-2.69-.94-.09-.23-.48-.94-.82-1.13-.28-.15-.68-.52-.01-.53.63-.01 1.08.58 1.23.82.72 1.21 1.87.87 2.33.66.07-.52.28-.87.51-1.07-1.78-.2-3.64-.89-3.64-3.95 0-.87.31-1.59.82-2.15-.08-.2-.36-1.02.08-2.12 0 0 .67-.21 2.2.82.64-.18 1.32-.27 2-.27.68 0 1.36.09 2 .27 1.53-1.04 2.2-.82 2.2-.82.44 1.1.16 1.92.08 2.12.51.56.82 1.27.82 2.15 0 3.07-1.87 3.75-3.65 3.95.29.25.54.73.54 1.48 0 1.07-.01 1.93-.01 2.2 0 .21.15.46.55.38A8.012 8.012 0 0 0 16 8c0-4.42-3.58-8-8-8z"
-				></path></svg
-			>
-		</a>
+			<nav class="footer-col" aria-label="Company">
+				<h2>Company</h2>
+				<ul>
+					{
+						company.map((link) => (
+							<li>
+								<a
+									href={link.href}
+									aria-current={normalize(link.href) === current ? "page" : undefined}
+								>
+									{link.label}
+								</a>
+							</li>
+						))
+					}
+				</ul>
+			</nav>
+
+			<nav class="footer-col" aria-label="Legal">
+				<h2>Legal</h2>
+				<ul>
+					{
+						legal.map((link) => (
+							<li>
+								<a
+									href={link.href}
+									aria-current={normalize(link.href) === current ? "page" : undefined}
+								>
+									{link.label}
+								</a>
+							</li>
+						))
+					}
+				</ul>
+			</nav>
+		</div>
+
+		<p class="affiliate-note">
+			Homely Fusion is a participant in the Amazon Services LLC Associates Program. As an Amazon
+			Associate, we earn from qualifying purchases. <a href="/disclosure/">Learn more</a>.
+		</p>
+
+		<div class="footer-bottom">
+			<span>&copy; {today.getFullYear()} {SITE_TITLE}. All rights reserved.</span>
+		</div>
 	</div>
-
-	<p class="affiliate-note">
-		Homely Fusion is a participant in the Amazon Services LLC Associates Program. As an Amazon
-		Associate, we earn from qualifying purchases. <a href="/disclosure/">Learn more</a>.
-	</p>
 </footer>
 <style>
+	/* The footer is always deep green (both light and dark site themes), so it uses
+	   fixed light colours instead of the theme variables. */
 	footer {
-		padding: 2em 1em 6em 1em;
-		background: linear-gradient(var(--gray-gradient)) no-repeat;
-		color: rgb(var(--gray));
-		text-align: center;
+		margin-top: 3rem;
+		padding: 3.2rem 1.25rem 1.6rem;
+		background:
+			radial-gradient(ellipse 50% 90% at 100% 0%, rgba(217, 164, 65, 0.12), transparent 65%),
+			linear-gradient(160deg, #1b3532 0%, #21403b 60%, #29493f 100%);
+		border-top: 4px solid var(--brass);
+		color: #c4d1c9;
+		text-align: left;
+		font-size: 0.95rem;
 	}
-	.related-nav {
-		margin: 0 auto 1.6em;
-		padding-bottom: 1.6em;
-		max-width: 46em;
-		border-bottom: 1px solid rgb(var(--gray-light));
+	.footer-inner {
+		max-width: 1100px;
+		margin: 0 auto;
 	}
-	.related-nav h2 {
-		font-size: 1rem;
-		color: rgb(var(--gray));
-		font-weight: 600;
-		margin: 0 0 1rem;
-		border: none;
-		padding: 0;
+	.footer-top {
+		display: grid;
+		grid-template-columns: minmax(0, 1.4fr) minmax(0, 1.3fr) minmax(0, 0.7fr) minmax(0, 0.7fr);
+		gap: 2.5rem;
+		padding-bottom: 2.2rem;
+		border-bottom: 1px solid rgba(255, 255, 255, 0.12);
 	}
-	.related-links {
-		display: flex;
-		flex-wrap: wrap;
-		justify-content: center;
-		gap: 0.7rem;
-		list-style: none;
-		padding: 0;
-		margin: 0;
-	}
-	.related-links a {
+	.brand {
 		display: inline-flex;
 		align-items: center;
-		gap: 0.4rem;
-		background: rgb(var(--gray-light));
-		color: rgb(var(--black));
+		gap: 0.65rem;
 		text-decoration: none;
-		padding: 0.5rem 1rem;
-		border-radius: 999px;
-		font-size: 0.9rem;
-		transition: 0.15s ease;
+		color: #fbf3e2;
 	}
-	.related-links a:hover {
-		background: var(--accent);
-		color: white;
+	.brand:hover {
+		color: #fbf3e2;
+	}
+	.brand-mark {
+		display: grid;
+		place-items: center;
+		width: 36px;
+		height: 36px;
+		border-radius: 11px;
+		background: rgba(255, 255, 255, 0.08);
+		color: #fbf3e2;
+		box-shadow: inset 0 0 0 1.5px rgba(217, 164, 65, 0.7);
+	}
+	.brand-name {
+		font-family: var(--font-display);
+		font-size: 1.35rem;
+		line-height: 1;
+	}
+	.tagline {
+		margin: 1rem 0 0;
+		max-width: 34ch;
+		line-height: 1.6;
+		color: #a9bab0;
+	}
+	.footer-col h2 {
+		margin: 0 0 1rem;
+		font-family: var(--font-body);
+		font-size: 0.78rem;
+		font-weight: 700;
+		letter-spacing: 0.14em;
+		text-transform: uppercase;
+		color: var(--brass);
+	}
+	.footer-col ul {
+		list-style: none;
+		margin: 0;
+		padding: 0;
+	}
+	.footer-col li {
+		margin: 0 0 0.55rem;
+		line-height: 1.4;
+	}
+	.footer-col a {
+		color: #d6e0d9;
+		text-decoration: none;
+		transition: color 0.15s ease, padding-left 0.15s ease;
+	}
+	.footer-col a:hover,
+	.footer-col a[aria-current="page"] {
+		color: #fff;
+		padding-left: 4px;
+	}
+	.footer-col a[aria-current="page"] {
+		color: var(--brass);
 	}
 	.social-links {
 		display: flex;
-		justify-content: center;
-		gap: 1em;
-		margin-top: 1em;
+		gap: 0.7rem;
+		margin-top: 1.2rem;
 	}
 	.social-links a {
+		display: grid;
+		place-items: center;
+		width: 40px;
+		height: 40px;
+		border-radius: 50%;
+		border: 1px solid rgba(255, 255, 255, 0.2);
+		color: #e7efe9;
 		text-decoration: none;
-		color: rgb(var(--gray));
+		transition: background 0.2s ease, color 0.2s ease, border-color 0.2s ease;
 	}
 	.social-links a:hover {
-		color: rgb(var(--gray-dark));
+		background: var(--brass);
+		border-color: var(--brass);
+		color: #1b1b1b;
 	}
 	.affiliate-note {
-		max-width: 46em;
-		margin: 1.5em auto 0;
-		font-size: 0.78em;
-		line-height: 1.5;
-		opacity: 0.85;
+		margin: 1.6rem 0 0;
+		max-width: 70ch;
+		font-size: 0.8rem;
+		line-height: 1.6;
+		color: #93a79c;
 	}
 	.affiliate-note a {
-		color: rgb(var(--gray-dark));
+		color: #d6e0d9;
 		text-decoration: underline;
+		text-underline-offset: 2px;
+	}
+	.affiliate-note a:hover {
+		color: #fff;
+	}
+	.footer-bottom {
+		margin-top: 1.2rem;
+		font-size: 0.82rem;
+		color: #93a79c;
+	}
+
+	@media (max-width: 900px) {
+		.footer-top {
+			grid-template-columns: 1fr 1fr;
+		}
+		.footer-brand,
+		.footer-topics {
+			grid-column: 1 / -1;
+		}
+	}
+	@media (max-width: 480px) {
+		footer {
+			padding-top: 2.4rem;
+		}
+		.footer-top {
+			grid-template-columns: 1fr 1fr;
+			gap: 2rem 1.2rem;
+		}
 	}
 </style>

@@ -73,7 +73,8 @@ const breadcrumbJsonLd = {
 	],
 };
 ---
- 
+
+<!doctype html>
 <html lang="en">
 	<head>
 		<BaseHead title={title} description={description} noindex={noindex} />
@@ -81,150 +82,526 @@ const breadcrumbJsonLd = {
 		<script type="application/ld+json" set:html={JSON.stringify(breadcrumbJsonLd)} />
 		<style>
 			main {
-				width: calc(100% - 2em);
+				width: 100%;
 				max-width: 100%;
 				margin: 0;
+				padding: 1.2em 1em 3em;
+			}
+			.post {
+				width: 760px;
+				max-width: 100%;
+				margin: 0 auto;
+				color: rgb(var(--gray-dark));
+			}
+
+			/* ---------- Post header ---------- */
+			.post-header {
+				margin-bottom: 1.8rem;
+				text-align: center;
+			}
+			.breadcrumb {
+				display: flex;
+				flex-wrap: wrap;
+				justify-content: center;
+				gap: 0.4rem;
+				margin: 0 0 1.2rem;
+				padding: 0;
+				list-style: none;
+				font-size: 0.82rem;
+				color: rgb(var(--gray));
+			}
+			.breadcrumb li {
+				margin: 0;
+			}
+			.breadcrumb li + li::before {
+				content: "/";
+				margin-right: 0.4rem;
+				opacity: 0.5;
+			}
+			.breadcrumb a {
+				color: rgb(var(--gray));
+				text-decoration: none;
+			}
+			.breadcrumb a:hover {
+				color: var(--link);
+			}
+			.breadcrumb [aria-current] {
+				display: inline-block;
+				max-width: 28ch;
+				overflow: hidden;
+				text-overflow: ellipsis;
+				white-space: nowrap;
+				vertical-align: bottom;
+			}
+			.cat-pill {
+				display: inline-block;
+				margin-bottom: 1rem;
+				padding: 0.3rem 0.95rem;
+				border-radius: 999px;
+				background: var(--accent-soft);
+				border: 1px solid rgba(var(--brass-rgb), 0.55);
+				color: var(--link);
+				font-size: 0.74rem;
+				font-weight: 700;
+				letter-spacing: 0.12em;
+				text-transform: uppercase;
+				text-decoration: none;
+				transition: background 0.2s ease, color 0.2s ease;
+			}
+			.cat-pill:hover {
+				background: var(--accent);
+				color: #fff;
+			}
+			.post-header h1 {
+				margin: 0 0 1.2rem;
+				font-size: clamp(1.9rem, 4.6vw, 2.8rem);
+				line-height: 1.15;
+			}
+			.meta {
+				display: flex;
+				flex-wrap: wrap;
+				align-items: center;
+				justify-content: center;
+				gap: 0.5rem 1rem;
+				font-size: 0.9rem;
+				color: rgb(var(--gray));
+			}
+			.meta-author {
+				display: inline-flex;
+				align-items: center;
+				gap: 0.55rem;
+				font-weight: 600;
+				color: rgb(var(--black));
+			}
+			.meta-author img {
+				width: 34px;
+				height: 34px;
+				border-radius: 50%;
+				object-fit: cover;
+				box-shadow: 0 0 0 2px var(--brass);
+			}
+			.meta-item + .meta-item::before,
+			.meta-author + .meta-item::before {
+				content: "";
+				display: inline-block;
+				width: 4px;
+				height: 4px;
+				margin-right: 1rem;
+				border-radius: 50%;
+				background: var(--brass);
+				vertical-align: middle;
+			}
+			.last-updated-on {
+				margin-top: 0.4rem;
+				font-size: 0.84rem;
+				font-style: italic;
+				color: rgb(var(--gray));
+			}
+			.hero-image {
+				margin: 0 0 2.2rem;
 			}
 			.hero-image img {
 				display: block;
 				margin: 0 auto;
-				border-radius: 12px;
+				width: auto;
+				max-width: 100%;
+				max-height: 520px;
+				border-radius: var(--radius-lg);
 				box-shadow: var(--box-shadow);
 			}
+
+			/* ---------- Article typography ---------- */
 			.prose {
-				width: 720px;
-				max-width: calc(100% - 2em);
-				margin: auto;
-				padding: 1em;
-				color: rgb(var(--gray-dark));
+				font-size: 1.0625rem;
+				line-height: 1.85;
 			}
-			.title {
-				margin-bottom: 1em;
-				padding: 1em 0 0;
-				text-align: center;
-				line-height: 1;
+			.prose :global(p) {
+				margin: 0 0 1.35em;
 			}
-			.title h1 {
-				margin: 0 0 0.5em 0;
+			.prose > :global(p:first-of-type) {
+				font-size: 1.15em;
+				line-height: 1.75;
+				color: rgb(var(--black));
 			}
-			.date {
+			.prose :global(h2) {
+				margin: 2.4em 0 0.7em;
+				padding-bottom: 0.35em;
+				border-bottom: 2px solid rgba(var(--brass-rgb), 0.55);
+				font-size: clamp(1.45rem, 3vw, 1.85rem);
+				line-height: 1.25;
+			}
+			.prose :global(h3) {
+				margin: 2em 0 0.5em;
+				font-size: 1.3rem;
+				line-height: 1.3;
+			}
+			.prose :global(h4) {
+				margin: 1.6em 0 0.4em;
+				font-size: 1.1rem;
+			}
+			.prose :global(h2 a),
+			.prose :global(h3 a) {
+				color: inherit;
+				text-decoration: none;
+				box-shadow: none;
+			}
+			.prose :global(h2 a:hover),
+			.prose :global(h3 a:hover) {
+				color: var(--link);
+				box-shadow: none;
+			}
+			.prose :global(a) {
+				color: var(--link);
+				text-decoration: underline;
+				text-decoration-color: rgba(var(--brass-rgb), 0.9);
+				text-decoration-thickness: 2px;
+				text-underline-offset: 3px;
+			}
+			.prose :global(a:hover) {
+				color: var(--link-hover);
+				text-decoration-color: var(--link-hover);
+			}
+			.prose :global(p a) {
+				box-shadow: none;
+			}
+			.prose :global(p a:hover) {
+				box-shadow: none;
+				color: var(--link-hover);
+			}
+			.prose :global(a:has(> img)) {
+				text-decoration: none;
+			}
+			.prose :global(ul),
+			.prose :global(ol) {
+				margin: 0 0 1.5em;
+				padding-left: 1.4em;
+			}
+			.prose :global(li) {
 				margin-bottom: 0.5em;
-				color: rgb(var(--gray));
 			}
-			.last-updated-on {
-				font-style: italic;
+			.prose :global(li::marker) {
+				color: var(--brass);
+				font-weight: 700;
 			}
+			.prose :global(img) {
+				display: block;
+				margin: 1.6em auto;
+				border-radius: var(--radius);
+			}
+			.prose :global(a > img) {
+				transition: transform 0.25s ease, box-shadow 0.25s ease;
+			}
+			.prose :global(a:hover > img) {
+				transform: translateY(-2px);
+				box-shadow: var(--box-shadow);
+			}
+			.prose :global(blockquote) {
+				margin: 2em 0;
+				padding: 1.1em 1.4em;
+				border-left: 5px solid var(--brass);
+				border-radius: 0 var(--radius) var(--radius) 0;
+				background: rgb(var(--gray-light));
+				font-size: 1.1em;
+			}
+			.prose :global(blockquote p:last-child) {
+				margin-bottom: 0;
+			}
+			.prose :global(table) {
+				display: block;
+				overflow-x: auto;
+				margin: 1.8em 0;
+				border-radius: var(--radius);
+				border: 1px solid var(--line);
+				font-size: 0.95rem;
+			}
+			.prose :global(th),
+			.prose :global(td) {
+				padding: 0.7em 1em;
+				border-bottom: 1px solid var(--line);
+				text-align: left;
+			}
+			.prose :global(th) {
+				background: var(--accent-soft);
+				font-weight: 700;
+				color: rgb(var(--black));
+			}
+			.prose :global(hr) {
+				margin: 2.4em auto;
+			}
+
+			/* ---------- Author box ---------- */
 			.author-box {
 				display: flex;
 				align-items: center;
-				gap: 1em;
-				margin: 1.5em 0;
-				padding: 1em;
-				border: 1px solid rgb(var(--gray-light));
-				border-radius: 12px;
+				gap: 1.1rem;
+				margin: 2.4rem 0 1.6rem;
+				padding: 1.3rem 1.5rem;
+				border: 1px solid var(--line);
+				border-left: 5px solid var(--brass);
+				border-radius: var(--radius);
+				background: var(--surface);
+				box-shadow: var(--shadow-sm);
 			}
 			.author-box img {
-				width: 48px;
-				height: 48px;
+				flex: none;
+				width: 68px;
+				height: 68px;
 				border-radius: 50%;
+				object-fit: cover;
+				box-shadow: 0 0 0 3px var(--brass);
+			}
+			.author-box .label {
+				margin: 0;
+				font-size: 0.72rem;
+				font-weight: 700;
+				letter-spacing: 0.14em;
+				text-transform: uppercase;
+				color: rgb(var(--gray));
 			}
 			.author-box .name {
-				font-weight: bold;
-				margin: 0;
+				margin: 0.1rem 0 0.3rem;
+				font-family: var(--font-display);
+				font-size: 1.2rem;
+				color: rgb(var(--black));
 			}
 			.author-box .bio {
 				margin: 0;
-				font-size: 0.9em;
+				font-size: 0.92rem;
+				line-height: 1.55;
 				color: rgb(var(--gray));
 			}
+
+			/* ---------- Filed under ---------- */
 			.categories {
-				margin: 1em 0;
+				display: flex;
+				flex-wrap: wrap;
+				align-items: center;
+				gap: 0.5rem;
+				margin: 1.4rem 0;
+			}
+			.categories .label {
+				font-size: 0.78rem;
+				font-weight: 700;
+				letter-spacing: 0.12em;
+				text-transform: uppercase;
+				color: rgb(var(--gray));
+				margin-right: 0.2rem;
 			}
 			.categories a {
 				display: inline-block;
-				margin-right: 0.5em;
-				padding: 0.2em 0.6em;
-				border-radius: 6px;
+				padding: 0.3em 0.9em;
+				border-radius: 999px;
 				background: rgb(var(--gray-light));
+				border: 1px solid var(--line);
+				color: rgb(var(--black));
 				text-decoration: none;
-				font-size: 0.85em;
+				font-size: 0.85rem;
+				font-weight: 500;
+				transition: background 0.2s ease, color 0.2s ease, border-color 0.2s ease;
+			}
+			.categories a:hover {
+				background: var(--accent);
+				border-color: var(--accent);
+				color: #fff;
+			}
+
+			/* ---------- Related posts ---------- */
+			.related-posts {
+				margin: 3rem 0 0;
+				padding-top: 2rem;
+				border-top: 1px solid var(--line);
+			}
+			.related-posts h2 {
+				margin: 0 0 1.2rem;
+				font-size: 1.5rem;
+			}
+			.related-grid {
+				display: grid;
+				grid-template-columns: repeat(auto-fit, minmax(210px, 1fr));
+				gap: 1.2rem;
+				margin: 0;
+				padding: 0;
+				list-style: none;
+			}
+			.related-grid li {
+				margin: 0;
+			}
+			.related-card {
+				display: flex;
+				flex-direction: column;
+				height: 100%;
+				overflow: hidden;
+				border-radius: var(--radius);
+				background: var(--surface);
+				border: 1px solid var(--line);
+				box-shadow: var(--shadow-sm);
+				text-decoration: none;
+				color: rgb(var(--black));
+				transition: transform 0.25s ease, box-shadow 0.25s ease, border-color 0.25s ease;
+			}
+			.related-card:hover {
+				transform: translateY(-4px);
+				box-shadow: var(--box-shadow);
+				border-color: rgba(var(--brass-rgb), 0.7);
+				color: rgb(var(--black));
+			}
+			.related-media {
+				aspect-ratio: 4 / 3;
+				overflow: hidden;
+				background: linear-gradient(135deg, var(--accent-soft), rgb(var(--gray-light)));
+			}
+			.related-media img {
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				display: block;
+				margin: 0;
+				border-radius: 0;
+			}
+			.related-title {
+				margin: 0;
+				padding: 0.9rem 1rem 1rem;
+				font-family: var(--font-display);
+				font-size: 1rem;
+				line-height: 1.3;
+				display: -webkit-box;
+				-webkit-line-clamp: 3;
+				-webkit-box-orient: vertical;
+				overflow: hidden;
+				transition: color 0.2s ease;
+			}
+			.related-card:hover .related-title {
+				color: var(--link);
+			}
+
+			@media (max-width: 600px) {
+				.prose {
+					font-size: 1rem;
+					line-height: 1.8;
+				}
+				.author-box {
+					flex-direction: column;
+					text-align: center;
+					padding: 1.3rem 1.1rem;
+				}
+				.hero-image img {
+					border-radius: var(--radius);
+				}
 			}
 		</style>
 	</head>
- 
+
 	<body>
 		<Header />
 		<main>
-			<article>
-				<div class="prose">
-					<div class="title">
-						<h1>{title}</h1>
-						<div class="date">
-							<FormattedDate date={pubDate} />
-							{readingTime && <span> ~ {readingTime} min read</span>}
-							{
-								updatedDate && (
-									<div class="last-updated-on">
-										Last updated on <FormattedDate date={updatedDate} />
-									</div>
-								)
-							}
-						</div>
-						<hr />
-					</div>
- 
-					{
-						heroImage && (
-							<div class="hero-image">
-								<img src={heroImage} alt="" loading="lazy" width="1020" height="510" />
-							</div>
-						)
-					}
- 
-					<slot />
- 
-					<hr />
- 
-					{
-						authorEntry && (
-							<div class="author-box">
-								{authorEntry.data.avatar && (
-									<img src={authorEntry.data.avatar} alt={authorEntry.data.name} />
-								)}
-								<div>
-									<p class="name">By {authorEntry.data.name}</p>
-									<p class="bio">{authorEntry.data.bio}</p>
-								</div>
-							</div>
-						)
-					}
- 
-					{
-						categories && categories.length > 0 && (
-							<div class="categories">
-								{categories.map((category) => (
-									<a href={`/categories/${slugify(category)}/`}>
-										{category}
-									</a>
-								))}
-							</div>
-						)
-					}
-					
-					{related.length > 0 && (
-					  <section class="related-posts">
-						<h2>Related Posts</h2>
-						<ul>
-						  {related.map((r) => (
-							<li>
-							  <a href={`/${r.id}/`}>{r.data.title}</a>
-							</li>
-						  ))}
-						</ul>
-					  </section>
-					)}
+			<article class="post">
+				<header class="post-header">
+					<ul class="breadcrumb">
+						<li><a href="/">Home</a></li>
+						{
+							firstCategory && (
+								<li>
+									<a href={`/categories/${slugify(firstCategory)}/`}>{firstCategory}</a>
+								</li>
+							)
+						}
+						<li aria-current="page">{title}</li>
+					</ul>
 
+					{
+						firstCategory && (
+							<a class="cat-pill" href={`/categories/${slugify(firstCategory)}/`}>
+								{firstCategory}
+							</a>
+						)
+					}
+
+					<h1>{title}</h1>
+
+					<div class="meta">
+						{
+							authorEntry && (
+								<span class="meta-author">
+									{authorEntry.data.avatar && (
+										<img src={authorEntry.data.avatar} alt="" width="34" height="34" />
+									)}
+									{authorEntry.data.name}
+								</span>
+							)
+						}
+						<span class="meta-item"><FormattedDate date={pubDate} /></span>
+						{readingTime && <span class="meta-item">{readingTime} min read</span>}
+					</div>
+					{
+						updatedDate && (
+							<div class="last-updated-on">
+								Last updated on <FormattedDate date={updatedDate} />
+							</div>
+						)
+					}
+				</header>
+
+				{
+					heroImage && (
+						<div class="hero-image">
+							<img src={heroImage} alt={title} width="1020" height="510" loading="eager" />
+						</div>
+					)
+				}
+
+				<div class="prose">
+					<slot />
 				</div>
+
+				<hr />
+
+				{
+					authorEntry && (
+						<div class="author-box">
+							{authorEntry.data.avatar && (
+								<img src={authorEntry.data.avatar} alt={authorEntry.data.name} width="68" height="68" />
+							)}
+							<div>
+								<p class="label">Written by</p>
+								<p class="name">{authorEntry.data.name}</p>
+								<p class="bio">{authorEntry.data.bio}</p>
+							</div>
+						</div>
+					)
+				}
+
+				{
+					categories && categories.length > 0 && (
+						<div class="categories">
+							<span class="label">Filed under</span>
+							{categories.map((category) => (
+								<a href={`/categories/${slugify(category)}/`}>{category}</a>
+							))}
+						</div>
+					)
+				}
+
+				{
+					related.length > 0 && (
+						<section class="related-posts">
+							<h2>You might also like</h2>
+							<ul class="related-grid">
+								{related.map((r) => (
+									<li>
+										<a class="related-card" href={`/${r.id}/`}>
+											{r.data.heroImage && (
+												<div class="related-media">
+													<img src={r.data.heroImage} alt="" width="400" height="300" loading="lazy" />
+												</div>
+											)}
+											<h3 class="related-title">{r.data.title}</h3>
+										</a>
+									</li>
+								))}
+							</ul>
+						</section>
+					)
+				}
 			</article>
 		</main>
 		<Footer />

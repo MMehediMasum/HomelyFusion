@@ -54,6 +54,7 @@ const siteJsonLd = {
 <meta charset="utf-8" />
 <script type="application/ld+json" set:html={JSON.stringify(siteJsonLd)} />
 <meta name="viewport" content="width=device-width,initial-scale=1" />
+<meta name="theme-color" content="#2f6b5a" />
 <link rel="icon" type="image/svg+xml" href="/favicon.svg" />
 <link rel="icon" href="/favicon.ico" />
 <link rel="sitemap" href="/sitemap-index.xml" />
@@ -71,7 +72,8 @@ const siteJsonLd = {
 	document.documentElement.setAttribute('data-theme', savedTheme);
 </script>
 
-<Font cssVariable="--font-atkinson" preload />
+<Font cssVariable="--font-young-serif" preload />
+<Font cssVariable="--font-dm-sans" preload />
 
 <!-- Canonical URL -->
 <link rel="canonical" href={canonicalURL} />
@@ -104,4 +106,4 @@ const siteJsonLd = {
 			gtag('config', gaId);
 		</script>
 	</>
-)}
+)}
