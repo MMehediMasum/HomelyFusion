@@ -2,18 +2,21 @@
 import BaseHead from '../components/BaseHead.astro';
 import Header from '../components/Header.astro';
 import Footer from '../components/Footer.astro';
+import { SITE_TITLE } from '../consts';
 
 interface Props {
 	title: string;
 	description: string;
 	icon?: string;
+	/** Wider content column (used by the About page). */
+	wide?: boolean;
 }
 
-const { title, description, icon = '🐾' } = Astro.props;
+const { title, description, icon = '🏡', wide = false } = Astro.props;
 
 const relatedPages = [
 	{ href: '/', label: 'Home', icon: '🏠' },
-	{ href: '/about/', label: 'About Us', icon: '🐾' },
+	{ href: '/about/', label: 'About Us', icon: '🏡' },
 	{ href: '/contact/', label: 'Contact', icon: '📬' },
 	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
 	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
@@ -25,11 +28,15 @@ const relatedPages = [
 <html lang="en">
 	<head>
 		<BaseHead title={title} description={description} />
+		<slot name="head" />
 		<style>
 			main {
 				width: min(720px, 90vw);
 				margin: 0 auto;
 				padding: 2.5rem 0 4rem;
+			}
+			main.wide {
+				width: min(1040px, 92vw);
 			}
 			.page-icon {
 				width: 56px;
@@ -207,14 +214,14 @@ const relatedPages = [
 	</head>
 	<body>
 		<Header />
-		<main>
+		<main class:list={[{ wide }]}>
 			<div class="page-icon">{icon}</div>
 			<h1 class="page-title">{title}</h1>
 			<div class="static-page">
 				<slot />
 			</div>
 			<nav class="related-nav" aria-label="More pages">
-				<h2>More on PawsomeFlock</h2>
+				<h2>More on {SITE_TITLE}</h2>
 				<ul class="related-links">
 					{
 						relatedPages.map((p) => (

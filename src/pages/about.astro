@@ -1,44 +1,470 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
+import { slugify } from '../utils/slug';
 
-// TODO: about-us.md was empty on the WordPress export. This page is a short draft built only from
-// what the Privacy Policy and Terms say about the site. Replace or expand it with your real story.
+// Last time this page's content was reviewed (shown at the bottom of the page).
+const lastReviewed = 'October 8, 2026';
+const CONTACT_EMAIL = 'gilbertjpappas@gmail.com';
+
+// Same icons + colours as the home page topic cards, so the site feels consistent.
+const svg = (inner: string) =>
+	`<svg viewBox="0 0 24 24" fill="none" stroke="#fff" stroke-width="1.6" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true">${inner}</svg>`;
+
+const topics = [
+	{ name: 'Sofas, Seating & Living Room Furniture', desc: 'Sofas, chairs and layouts that make a living room work.', c1: '#7b5b41', c2: '#d1ae82', icon: svg('<path d="M4 11V8a3 3 0 0 1 3-3h10a3 3 0 0 1 3 3v3"/><path d="M2 13a2 2 0 0 1 4 0v2h12v-2a2 2 0 0 1 4 0v5H2z"/><path d="M5 18v2M19 18v2"/>') },
+	{ name: 'Bedroom & Bathroom Decor', desc: 'Calm bedrooms and refreshed bathrooms, styled with intention.', c1: '#566485', c2: '#b3c1de', icon: svg('<path d="M2 18V6M2 14h20v4M22 14v-2a3 3 0 0 0-3-3h-8v5"/><circle cx="6.5" cy="11" r="2"/>') },
+	{ name: 'Dining, Kitchen & Home Office', desc: 'Tables, kitchens and workspaces that look good and work hard.', c1: '#7a5226', c2: '#e0a65c', icon: svg('<path d="M4 3v7a2 2 0 0 0 2 2v9M8 3v7a2 2 0 0 1-2 2M6 3v9M17 3c-2 1.5-3 4-3 7h3v11"/>') },
+	{ name: 'Lighting & Smart Home', desc: 'Layered lighting and smart-home touches for every room.', c1: '#a87a1e', c2: '#f4d479', icon: svg('<path d="M8 3h8l3 9H5z"/><path d="M12 12v8M8 21h8"/>') },
+	{ name: 'Wall Decor, Mirrors & Frames', desc: 'Art, mirrors and frames, and how to hang and group them.', c1: '#6b4256', c2: '#cf93a8', icon: svg('<rect x="4" y="3" width="16" height="18" rx="2"/><rect x="8" y="7" width="8" height="10" rx="1"/>') },
+	{ name: 'Rugs, Flooring & Window Treatments', desc: 'Rugs, floors and curtains that anchor a room.', c1: '#35564f', c2: '#93b9ab', icon: svg('<rect x="3" y="6" width="18" height="12" rx="1"/><path d="M7 10h10v4H7z"/><path d="M3 4v2M8 4v2M13 4v2M18 4v2M3 18v2M8 18v2M13 18v2M18 18v2"/>') },
+	{ name: 'Home Accessories, Textiles & Plants', desc: 'Pillows, throws, accents and plants that add personality.', c1: '#47653d', c2: '#a3c78f', icon: svg('<path d="M12 21v-9"/><path d="M12 12c0-4 3-7 7-7 0 4-3 7-7 7z"/><path d="M12 15c0-3-2-5-6-5 0 3 2 5 6 5z"/><path d="M8 21h8"/>') },
+	{ name: 'Seasonal, Holiday & Outdoor Decor', desc: 'Seasonal and outdoor refreshes without starting over.', c1: '#7a2c3a', c2: '#dc7686', icon: svg('<path d="M12 2v20M4 6l16 12M20 6L4 18"/><path d="M9.5 3.5L12 6l2.5-2.5M9.5 20.5L12 18l2.5 2.5"/>') },
+	{ name: 'Storage, Cleaning & DIY Projects', desc: 'Storage ideas, cleaning routines and weekend DIY.', c1: '#4a5560', c2: '#a9b6c2', icon: svg('<path d="M3 7l9-4 9 4v10l-9 4-9-4z"/><path d="M3 7l9 4 9-4M12 11v10"/>') },
+];
+
+// Structured data for the author (helps search engines tie the page to a real, credentialed person)
+const personSchema = {
+	'@context': 'https://schema.org',
+	'@type': 'Person',
+	name: 'Gilbert Pappas',
+	alternateName: 'Gilbert J. Pappas',
+	jobTitle: 'Interior Stylist & Home Decor Consultant',
+	description:
+		'Interior stylist and home decor consultant with 14 years of experience in residential interior styling, a former visual merchandiser and home stager, certified in Interior Decorating.',
+	image: 'https://homelyfusion.com/gilbert-pappas.jpg',
+	email: `mailto:${CONTACT_EMAIL}`,
+	url: 'https://homelyfusion.com/about/',
+	nationality: 'United States',
+	knowsLanguage: 'en',
+	address: {
+		'@type': 'PostalAddress',
+		streetAddress: '88 Rutledge Ave',
+		addressLocality: 'Charleston',
+		addressRegion: 'SC',
+		postalCode: '29401',
+		addressCountry: 'US',
+	},
+	worksFor: { '@type': 'Organization', name: 'Homely Fusion', url: 'https://homelyfusion.com/' },
+	knowsAbout: [
+		'Interior styling',
+		'Budget-friendly room refreshes',
+		'Small-space design',
+		'Seasonal decor',
+		'Thrift and secondhand styling',
+		'Home staging',
+		'Color theory',
+	],
+	hasCredential: {
+		'@type': 'EducationalOccupationalCredential',
+		name: 'Interior Decorating certification (accredited online design program)',
+	},
+};
 ---
 
 <StaticPage
 	title="About Us"
-	description="Learn about HomelyFusion, a home decor platform covering bathroom decor, lighting, minimalist living, and seasonal inspiration."
+	description="Meet Gilbert Pappas, a Charleston interior stylist with 14 years of experience, and learn how Homely Fusion helps renters and homeowners get a designer look on a real budget."
 	icon="🏡"
+	wide
 >
-	<p>
-		<strong>HomelyFusion</strong> is a content-based platform that provides design inspiration, product
-		recommendations, DIY tips, and shopping resources across a variety of home decor categories. Our goal is to
-		help you create a home that feels uniquely yours—cozy, stylish, sustainable, and inspiring.
-	</p>
+	<Fragment slot="head">
+		<link rel="preconnect" href="https://fonts.googleapis.com" />
+		<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+		<link href="https://fonts.googleapis.com/css2?family=Young+Serif&display=swap" rel="stylesheet" />
+	</Fragment>
 
-	<h2>What you'll find here</h2>
-	<p>Our guides and recommendations are organized around a few core topics:</p>
-	<ul class="icon-grid">
-		<li><span class="emoji">🛁</span><span><strong>Bathroom decor</strong> – Ideas and products for refreshing bathroom aesthetics.</span></li>
-		<li><span class="emoji">💡</span><span><strong>Lighting &amp; ambiance</strong> – Lighting design that sets the right mood in every room.</span></li>
-		<li><span class="emoji">🪴</span><span><strong>Minimalist living</strong> – Simple, intentional ways to decorate and organize your space.</span></li>
-		<li><span class="emoji">🍂</span><span><strong>Seasonal decor</strong> – Inspiration for updating your home through the year.</span></li>
-		<li><span class="emoji">🌿</span><span><strong>Eco-friendly design</strong> – Design principles and brands that favor sustainability.</span></li>
-	</ul>
+	<script type="application/ld+json" is:inline set:html={JSON.stringify(personSchema)} />
 
-	<h2>How we support the site</h2>
-	<div class="note-box">
-		<span class="note-icon">💵</span>
-		<span>
-			HomelyFusion is a for-profit website. We may earn income through affiliate links, sponsored content,
-			display advertising, and product partnerships. We do not manufacture or sell products ourselves. Read the
-			full details on our <a href="/disclosure/">Disclosure page</a>.
-		</span>
+	<div class="hf">
+		<!-- ===================== HERO ===================== -->
+		<header class="hf-hero">
+			<div class="hf-hero-text">
+				<p class="hf-eyebrow">Meet the stylist behind Homely Fusion</p>
+				<p class="hf-title">Design that feels like&nbsp;you.</p>
+				<p class="hf-sub">
+					Homely Fusion helps renters and homeowners get a designer look on a real budget, one room at a time,
+					using the pieces you already own plus a handful of smart additions.
+				</p>
+				<div class="hf-btns">
+					<a class="hf-btn hf-btn-main" href="#topics">🛋️ Explore the topics</a>
+					<a class="hf-btn hf-btn-alt" href="#who">👋 Meet Gilbert</a>
+				</div>
+			</div>
+
+			<div class="hf-portrait">
+				<div class="hf-arch">
+					<img src="/gilbert-pappas.jpg" alt="Gilbert Pappas, Interior Stylist & Home Decor Consultant" width="500" height="500" loading="eager" />
+				</div>
+				<p class="hf-pname">Gilbert Pappas</p>
+				<p class="hf-prole">Interior Stylist &amp; Home Decor Consultant</p>
+				<ul class="hf-pchips">
+					<li>📍 Charleston, SC</li>
+					<li>🎓 Certified in Interior Decorating</li>
+				</ul>
+			</div>
+		</header>
+
+		<!-- ===================== STATS ===================== -->
+		<ul class="hf-stats">
+			<li style="--c1:#35564f;--c2:#93b9ab"><span class="n">14</span><span class="l">years in residential interior styling</span></li>
+			<li style="--c1:#7b5b41;--c2:#d1ae82"><span class="n">200+</span><span class="l">client rooms styled</span></li>
+			<li style="--c1:#a87a1e;--c2:#f4d479"><span class="n">9</span><span class="l">home &amp; decor topics covered</span></li>
+			<li style="--c1:#7a2c3a;--c2:#dc7686"><span class="n">2</span><span class="l">audiences: renters &amp; homeowners</span></li>
+		</ul>
+
+		<p class="hf-lead">
+			<strong>Homely Fusion</strong> is a home and home décor site: design inspiration, product recommendations, DIY
+			tips and shopping resources for creating a home that feels uniquely yours. It is guided by one person with
+			14 years of residential styling behind him, and one simple idea:
+			<em>great design is about intention, not a big budget.</em>
+		</p>
+
+		<nav class="hf-jump" aria-label="On this page">
+			<a href="#who" style="--c1:#35564f">👋 Who I am</a>
+			<a href="#story" style="--c1:#7b5b41">📖 My story</a>
+			<a href="#expertise" style="--c1:#566485">🧠 What I know</a>
+			<a href="#gap" style="--c1:#7a2c3a">🔍 The gap</a>
+			<a href="#approach" style="--c1:#a87a1e">🛠️ My approach</a>
+			<a href="#topics" style="--c1:#47653d">🗂️ What's here</a>
+			<a href="#contact" style="--c1:#6b4256">💌 Say hello</a>
+		</nav>
+
+		<!-- ===================== 1. WHO ===================== -->
+		<section class="hf-card" id="who" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="hf-head"><span class="hf-num">1</span><h2>Who I am</h2><span class="hf-ico">👋</span></div>
+			<p>
+				Hi, I'm <strong>Gilbert Pappas</strong>, an interior stylist and home decor consultant based in
+				Charleston, South Carolina. I'm certified in Interior Decorating, and I write and review the guides on
+				Homely Fusion.
+			</p>
+			<p>
+				Away from client work, you'll find me thrifting at flea markets, hunting for antiques, admiring
+				Charleston's historic architecture, geeking out over color theory, or cooking Greek food for whoever
+				wanders into the kitchen. Those little obsessions shape how I decorate: I like rooms with history,
+				warmth and a point of view.
+			</p>
+			<div class="hf-tags">
+				<span>🏺 Thrifting &amp; flea markets</span><span>🪑 Antiques</span><span>🏛️ Charleston architecture</span><span>🎨 Color theory</span><span>🍋 Greek cooking</span>
+			</div>
+		</section>
+
+		<!-- ===================== 2. STORY ===================== -->
+		<section class="hf-card" id="story" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="hf-head"><span class="hf-num">2</span><h2>How I got into this work</h2><span class="hf-ico">📖</span></div>
+			<p>
+				I started out as a <strong>visual merchandiser for a national home goods retailer</strong>. That job taught
+				me how professional stores use layout, color and lighting to make a space feel intentional, and that the
+				same tricks work just as well in an ordinary living room.
+			</p>
+			<p>
+				From there I moved into <strong>residential styling and home staging</strong>, preparing homes for local
+				Charleston realtors and refreshing rooms for private clients. That's <strong>14 years</strong> and more than
+				<strong>200 client rooms</strong> ago.
+			</p>
+			<div class="hf-timeline">
+				<div><b>🛍️ Visual merchandiser</b><span>Learned how layout, color and lighting create intention.</span></div>
+				<div><b>🏡 Home stager</b><span>Prepared homes for local realtors in Charleston.</span></div>
+				<div><b>🛋️ Residential stylist</b><span>14 years and 200+ client rooms styled.</span></div>
+				<div><b>🎓 Certified decorator</b><span>Interior Decorating certification from an accredited online design program.</span></div>
+			</div>
+			<p>
+				The biggest lesson? <strong>Most homes don't need more stuff. They need better decisions about what's
+				already there.</strong> Everything I publish comes back to that.
+			</p>
+		</section>
+
+		<!-- ===================== 3. EXPERTISE ===================== -->
+		<section class="hf-card" id="expertise" style="--c1:#566485;--c2:#b3c1de">
+			<div class="hf-head"><span class="hf-num">3</span><h2>What I know (and what I don't)</h2><span class="hf-ico">🧠</span></div>
+			<p>"I know a lot about decorating" doesn't tell you much, so here is exactly where my hands-on experience is:</p>
+			<div class="hf-split">
+				<div class="hf-box good">
+					<h3>✅ Where I'm strongest</h3>
+					<ul>
+						<li>💰 Budget-friendly interior styling and room refreshes</li>
+						<li>📐 Small-space design and layouts</li>
+						<li>🍂 Seasonal decor refreshes</li>
+						<li>🏺 Thrift and secondhand styling, without the room looking thrifted</li>
+						<li>🎨 Color, lighting and staging basics</li>
+					</ul>
+				</div>
+				<div class="hf-box limit">
+					<h3>⚠️ My honest limits</h3>
+					<ul>
+						<li>🏗️ I'm a stylist and decorator, not an architect or contractor</li>
+						<li>⚡ For wiring, plumbing or structural work, hire a licensed pro</li>
+						<li>🏷️ Prices and availability change, so check before you buy</li>
+						<li>💬 Taste is personal. I'll show principles; you decide what feels like you</li>
+					</ul>
+				</div>
+			</div>
+			<p>
+				My knowledge comes from 14 years of hands-on styling, a retail merchandising background, formal
+				certification, and a lot of rooms that taught me what works in real homes, not just in photos.
+			</p>
+		</section>
+
+		<!-- ===================== 4. GAP ===================== -->
+		<section class="hf-card" id="gap" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="hf-head"><span class="hf-num">4</span><h2>The gap I kept seeing</h2><span class="hf-ico">🔍</span></div>
+			<p>Home decor content is everywhere, yet the same four gaps keep showing up:</p>
+			<ul class="hf-gaps">
+				<li><span>💸</span><div><b>Designer looks, designer prices</b><br />Beautiful photos that never explain how to get the look on a real budget.</div></li>
+				<li><span>🛒</span><div><b>"Start by buying everything new"</b><br />Advice that begins with a shopping cart instead of the room you already have.</div></li>
+				<li><span>🔑</span><div><b>Ideas that ignore renters</b><br />Tips that assume you can repaint, rewire or knock down a wall.</div></li>
+				<li><span>🧺</span><div><b>Secondhand without a plan</b><br />Little guidance on mixing thrifted finds into a room that still looks cohesive.</div></li>
+			</ul>
+			<p>
+				Renters and homeowners who want a designer look on a real budget deserve guidance built for them, and
+				that's the reader I write for.
+			</p>
+		</section>
+
+		<!-- ===================== 5. APPROACH ===================== -->
+		<section class="hf-card" id="approach" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="hf-head"><span class="hf-num">5</span><h2>How I'm closing that gap</h2><span class="hf-ico">🛠️</span></div>
+			<blockquote class="hf-quote">
+				My promise: show that great design is about <em>intention</em>, not a big budget.
+			</blockquote>
+			<div class="hf-pillars">
+				<div style="--c1:#35564f;--c2:#93b9ab"><span>🧩</span><b>Start with what you own</b><p>Every room refresh is built around pieces you already own, plus a handful of smart additions.</p></div>
+				<div style="--c1:#a87a1e;--c2:#f4d479"><span>🎯</span><b>Intention over budget</b><p>Layout, color and lighting decisions come before shopping, so every purchase earns its place.</p></div>
+				<div style="--c1:#566485;--c2:#b3c1de"><span>🧪</span><b>Tested &amp; plainly explained</b><p>I try it first, explain it simply, and never recommend anything that hasn't earned it.</p></div>
+				<div style="--c1:#7a2c3a;--c2:#dc7686"><span>🤝</span><b>Warm &amp; encouraging</b><p>No design snobbery. My goal is to build your style confidence, not to judge your sofa.</p></div>
+			</div>
+		</section>
+
+		<!-- ===================== 6. WHAT'S HERE ===================== -->
+		<section class="hf-card" id="topics" style="--c1:#47653d;--c2:#a3c78f">
+			<div class="hf-head"><span class="hf-num">6</span><h2>What you'll find on Homely Fusion</h2><span class="hf-ico">🗂️</span></div>
+			<p>
+				This site is for <strong>renters and homeowners</strong> who want a designer look on a real budget.
+				You'll find room-refresh guides, buying guides, styling ideas, DIY projects and seasonal inspiration,
+				organized into nine topics so you can jump straight to the room or project you're working on:
+			</p>
+			<ul class="hf-topics">
+				{
+					topics.map((t) => (
+						<li style={`--c1:${t.c1};--c2:${t.c2}`}>
+							<a href={`/topic/${slugify(t.name)}/`}>
+								<span class="ti" set:html={t.icon} />
+								<b>{t.name}</b>
+								<small>{t.desc}</small>
+							</a>
+						</li>
+					))
+				}
+			</ul>
+			<p>New articles are added regularly, and older ones are revisited as products and trends change.</p>
+
+			<h3 class="hf-sub-h">💵 How we support the site</h3>
+			<div class="hf-note">
+				<span class="hf-note-ico">💵</span>
+				<span>
+					Homely Fusion is a for-profit website. We may earn income through affiliate links, sponsored content,
+					display advertising, and product partnerships. We do not manufacture or sell products ourselves. Read
+					the full details on our <a href="/disclosure/">Disclosure page</a>.
+				</span>
+			</div>
+
+			<h3 class="hf-sub-h">✍️ Our editorial standards</h3>
+			<ul class="hf-standards">
+				<li style="--c1:#566485;--c2:#b3c1de"><span>🔎</span><b>Researched</b><small>Recommendations rest on research, experience and editorial judgment.</small></li>
+				<li style="--c1:#35564f;--c2:#93b9ab"><span>🔄</span><b>Kept current</b><small>Guides are revisited as products, prices and trends change.</small></li>
+				<li style="--c1:#a87a1e;--c2:#f4d479"><span>🏷️</span><b>Clearly labeled</b><small>Affiliate links and sponsored content are disclosed, never hidden.</small></li>
+				<li style="--c1:#7a2c3a;--c2:#dc7686"><span>✋</span><b>Corrections welcome</b><small>Spot a mistake? Tell us and we'll fix it.</small></li>
+			</ul>
+			<div class="hf-links">
+				<a href="/disclosure/">💰 Disclosure</a>
+				<a href="/privacy-policy/">🔒 Privacy Policy</a>
+				<a href="/terms/">📜 Terms</a>
+				<a href="/contact/">📬 Contact</a>
+			</div>
+			<p class="hf-reviewed">🗓️ This page was last reviewed on {lastReviewed}.</p>
+		</section>
+
+		<!-- ===================== 7. CTA ===================== -->
+		<section class="hf-cta" id="contact">
+			<div class="hf-head light"><span class="hf-num">7</span><h2>Let's make your home feel like you</h2><span class="hf-ico">💌</span></div>
+			<p>
+				Decorating should feel like a conversation, not a lecture. If you're staring at a blank wall, a tired
+				sofa or a tiny living room, you're in the right place, and I'd love to hear what you're working on.
+			</p>
+			<div class="hf-btns center">
+				<a class="hf-btn hf-btn-main" href="/#topics">🛋️ Explore the topics</a>
+				<a class="hf-btn hf-btn-alt" href="/contact/">💬 Ask a question</a>
+				<a class="hf-btn hf-btn-alt" href={`mailto:${CONTACT_EMAIL}`}>✉️ Email me</a>
+			</div>
+			<p class="hf-contact">
+				📧 <a href={`mailto:${CONTACT_EMAIL}`}>{CONTACT_EMAIL}</a> &nbsp;·&nbsp; 📍 Charleston, South Carolina &nbsp;·&nbsp; 🗣️ English
+			</p>
+			<p class="hf-sign">Design that feels like you. — Gilbert</p>
+		</section>
 	</div>
-
-	<h2>Get in touch</h2>
-	<p>
-		Have a question, a suggestion, or some feedback? We'd love to hear from you. Visit our
-		<a href="/contact/">Contact page</a> to reach us.
-	</p>
 </StaticPage>
+
+<style>
+	/* ---------- theme tokens (adapt to the site's light/dark switch) ---------- */
+	.hf {
+		--card: #ffffff;
+		--ink: #2a2f36;
+		--muted: #5b6470;
+		--line: #e8e1d3;
+		--cream: #fbf6ea;
+		--brass: #d9a441;
+		--display: 'Young Serif', 'Georgia', 'Times New Roman', serif;
+		color: var(--ink);
+		line-height: 1.7;
+		font-size: 1rem;
+	}
+	:global(:root[data-theme='dark']) .hf{
+		--card: #161a23;
+		--ink: #e6e9ef;
+		--muted: #a3adbb;
+		--line: #2a3140;
+		--cream: #11151c;
+	}
+	.hf, .hf * { box-sizing: border-box; }
+
+	/* ---------- hero (same deep green + brass as the home page) ---------- */
+	.hf .hf-hero {
+		position: relative; overflow: hidden; display: grid; grid-template-columns: minmax(0, 1.25fr) minmax(0, 0.75fr);
+		gap: 2.5rem; align-items: center; margin: 0.5rem 0 1.4rem; padding: 2.6rem 2.4rem; border-radius: 26px; color: #f6efe0;
+		background:
+			radial-gradient(ellipse 50% 70% at 88% 40%, rgba(255, 207, 120, 0.22), transparent 65%),
+			radial-gradient(ellipse 60% 60% at 0% 100%, rgba(120, 170, 150, 0.18), transparent 65%),
+			linear-gradient(160deg, #1b3532 0%, #21403b 60%, #29493f 100%);
+		box-shadow: 0 16px 36px rgba(27, 53, 50, 0.3);
+	}
+	.hf .hf-eyebrow{ margin: 0 0 0.5rem; font-size: 0.8rem; letter-spacing: 0.14em; text-transform: uppercase; color: var(--brass); font-weight: 700; }
+	.hf .hf-title{ margin: 0; font-family: var(--display); font-size: clamp(2.1rem, 5vw, 3.3rem); line-height: 1.1; color: #fbf3e2; }
+	.hf .hf-sub{ margin: 0.9rem 0 1.3rem; max-width: 34em; color: #e9dfc9; font-size: 1.05rem; }
+	.hf .hf-portrait{ text-align: center; }
+	.hf .hf-arch{
+		width: min(230px, 62%); aspect-ratio: 4 / 5; margin: 0 auto 0.9rem; overflow: hidden;
+		border-radius: 999px 999px 22px 22px; border: 4px solid var(--brass); box-shadow: 0 12px 28px rgba(0, 0, 0, 0.35);
+		background: #2c4a44;
+	}
+	.hf .hf-arch img{ width: 100%; height: 100%; object-fit: cover; object-position: center 20%; display: block; margin: 0; border-radius: 0; }
+	.hf .hf-pname{ margin: 0; font-family: var(--display); font-size: 1.35rem; color: #fbf3e2; }
+	.hf .hf-prole{ margin: 0.1rem 0 0.7rem; font-size: 0.9rem; color: #e9dfc9; }
+	.hf .hf-pchips{ display: flex; flex-wrap: wrap; gap: 0.4rem; justify-content: center; list-style: none; padding: 0; margin: 0; }
+	.hf .hf-pchips li{ margin: 0; padding: 0.25rem 0.7rem; font-size: 0.78rem; font-weight: 700; border-radius: 999px; color: #fbf3e2; background: rgba(255, 255, 255, 0.12); border: 1px solid rgba(255, 255, 255, 0.3); }
+
+	/* ---------- buttons (unique class names + forced contrast) ---------- */
+	.hf .hf-btns { display: flex; flex-wrap: wrap; gap: 0.7rem; }
+	.hf .hf-btns.center{ justify-content: center; margin: 1.1rem 0; }
+	.hf .hf-btn { display: inline-block; padding: 0.7rem 1.3rem; font-weight: 700; text-decoration: none; border-radius: 999px; transition: transform 0.15s ease, box-shadow 0.15s ease; }
+	.hf .hf-btn-main { background: #d9a441 !important; color: #1b2a26 !important; border: 2px solid #d9a441; box-shadow: 0 4px 12px rgba(0, 0, 0, 0.25); }
+	.hf .hf-btn-alt { background: rgba(0, 0, 0, 0.25) !important; color: #fbf3e2 !important; border: 2px solid rgba(251, 243, 226, 0.85); }
+	.hf .hf-btn:hover { transform: translateY(-2px); box-shadow: 0 8px 18px rgba(0, 0, 0, 0.3); }
+	.hf .hf-btn-main:hover { background: #f1bd5c !important; color: #14201d !important; }
+	.hf .hf-btn-alt:hover { background: rgba(0, 0, 0, 0.42) !important; color: #fff !important; }
+
+	/* ---------- stats ---------- */
+	.hf .hf-stats { list-style: none; padding: 0; margin: 0 0 1.3rem; display: grid; grid-template-columns: repeat(4, 1fr); gap: 0.85rem; }
+	.hf .hf-stats li{ margin: 0; padding: 1rem 0.7rem; text-align: center; border-radius: 16px; background: var(--card); border: 1px solid var(--line); border-bottom: 5px solid var(--c1); box-shadow: 0 4px 14px rgba(0, 0, 0, 0.06); }
+	.hf .hf-stats .n{ display: block; font-family: var(--display); font-size: 2.1rem; line-height: 1.1; color: var(--c1); }
+	:global(:root[data-theme='dark']) .hf .hf-stats .n{ color: var(--c2); }
+	.hf .hf-stats .l{ display: block; margin-top: 0.25rem; font-size: 0.8rem; line-height: 1.35; color: var(--muted); }
+
+	/* ---------- lead + jump nav ---------- */
+	.hf .hf-lead { margin: 0 0 1rem !important; padding: 1.1rem 1.3rem; font-size: 1.05rem; border-radius: 16px; color: var(--ink); background: color-mix(in srgb, #d9a441 16%, var(--card)); border-left: 6px solid #d9a441; }
+	.hf .hf-jump{ display: flex; flex-wrap: wrap; gap: 0.5rem; margin: 0 0 1.5rem; }
+	.hf .hf-jump a { text-decoration: none; font-size: 0.85rem; font-weight: 700; padding: 0.35rem 0.85rem; border-radius: 999px; color: var(--ink); background: var(--card); border: 1.5px solid var(--c1); transition: all 0.15s ease; }
+	.hf .hf-jump a:hover { background: var(--c1); color: #fff; transform: translateY(-1px); }
+
+	/* ---------- cards ---------- */
+	.hf .hf-card {
+		--ac: var(--c1);
+		scroll-margin-top: 1.5rem; margin: 0 0 1.4rem; padding: 1.5rem 1.7rem; border-radius: 20px; background: var(--card);
+		border: 1px solid var(--line); border-top: 6px solid var(--c1); box-shadow: 0 6px 20px rgba(0, 0, 0, 0.06);
+	}
+	:global(:root[data-theme='dark']) .hf .hf-card{ --ac: var(--c2); border-top-color: var(--c2); }
+	.hf .hf-card p { margin: 0 0 0.95rem; color: var(--ink); }
+	.hf .hf-card p:last-child { margin-bottom: 0; }
+	.hf .hf-card a { color: var(--ac); font-weight: 700; }
+	.hf .hf-head { display: flex; align-items: center; gap: 0.8rem; margin-bottom: 0.9rem; }
+	.hf .hf-head h2 { margin: 0; padding: 0; border: 0; flex: 1; font-family: var(--display); font-weight: 400; font-size: 1.5rem; line-height: 1.25; color: var(--ink); }
+	.hf .hf-num{ flex: 0 0 auto; width: 2.2rem; height: 2.2rem; display: grid; place-items: center; border-radius: 50%; font-weight: 800; color: #fff; background: var(--c1); }
+	:global(:root[data-theme='dark']) .hf .hf-num{ color: #14201d; background: var(--c2); }
+	.hf .hf-ico{ flex: 0 0 auto; width: 2.9rem; height: 2.9rem; display: grid; place-items: center; font-size: 1.6rem; border-radius: 14px; background: color-mix(in srgb, var(--c2) 35%, var(--card)); }
+
+	.hf .hf-tags{ display: flex; flex-wrap: wrap; gap: 0.5rem; margin-top: 0.3rem; }
+	.hf .hf-tags span{ padding: 0.3rem 0.8rem; font-size: 0.85rem; font-weight: 700; border-radius: 999px; background: color-mix(in srgb, var(--c2) 35%, var(--card)); color: var(--ink); }
+
+	.hf .hf-timeline{ display: grid; grid-template-columns: repeat(2, 1fr); gap: 0.75rem; margin: 1rem 0; }
+	.hf .hf-timeline div{ padding: 0.85rem 1rem; border-radius: 14px; border-left: 5px solid var(--c1); background: color-mix(in srgb, var(--c2) 22%, var(--card)); }
+	.hf .hf-timeline b{ display: block; color: var(--ink); }
+	.hf .hf-timeline span{ font-size: 0.9rem; color: var(--muted); }
+
+	.hf .hf-split{ display: grid; grid-template-columns: repeat(2, 1fr); gap: 1rem; margin: 1rem 0; }
+	.hf .hf-box{ padding: 1rem 1.1rem; border-radius: 16px; }
+	.hf .hf-box h3 { margin: 0 0 0.5rem; font-size: 1.05rem; color: var(--ink); }
+	.hf .hf-box ul{ margin: 0; padding: 0; list-style: none; }
+	.hf .hf-box li{ margin: 0 0 0.4rem; font-size: 0.95rem; color: var(--ink); }
+	.hf .hf-box.good{ background: color-mix(in srgb, #4caf6a 16%, var(--card)); border: 1px solid color-mix(in srgb, #4caf6a 45%, var(--card)); }
+	.hf .hf-box.limit{ background: color-mix(in srgb, #e0a030 18%, var(--card)); border: 1px solid color-mix(in srgb, #e0a030 50%, var(--card)); }
+
+	.hf .hf-gaps{ list-style: none; padding: 0; margin: 0.5rem 0 1rem; display: grid; gap: 0.7rem; }
+	.hf .hf-gaps li{ display: flex; gap: 0.85rem; align-items: flex-start; margin: 0; padding: 0.85rem 1rem; border-radius: 14px; font-size: 0.95rem; color: var(--ink); background: color-mix(in srgb, var(--c2) 24%, var(--card)); }
+	.hf .hf-gaps li > span{ font-size: 1.6rem; line-height: 1; }
+
+	.hf .hf-quote{ margin: 0.4rem 0 1.1rem; padding: 1.1rem 1.3rem; border-radius: 16px; font-family: var(--display); font-size: 1.25rem; line-height: 1.4; color: var(--ink); background: color-mix(in srgb, var(--c2) 30%, var(--card)); border-left: 6px solid var(--c1); }
+	.hf .hf-pillars{ display: grid; grid-template-columns: repeat(2, 1fr); gap: 0.85rem; }
+	.hf .hf-pillars > div{ padding: 1rem 1.1rem; border-radius: 16px; border: 2px solid var(--c1); background: var(--card); }
+	.hf .hf-pillars span{ font-size: 1.8rem; }
+	.hf .hf-pillars b{ display: block; margin-top: 0.2rem; color: var(--ink); }
+	.hf .hf-pillars p { margin: 0.25rem 0 0; font-size: 0.93rem; color: var(--muted); }
+
+	/* topics */
+	.hf .hf-topics { list-style: none; padding: 0; margin: 0.8rem 0 1.1rem; display: grid; grid-template-columns: repeat(3, 1fr); gap: 0.85rem; }
+	.hf .hf-topics li{ margin: 0; }
+	.hf .hf-topics a { display: block; height: 100%; padding: 1rem; border-radius: 16px; text-decoration: none; color: #fff; background: linear-gradient(150deg, var(--c1), color-mix(in srgb, var(--c1) 55%, var(--c2))); box-shadow: 0 6px 16px rgba(0, 0, 0, 0.16); transition: transform 0.15s ease, box-shadow 0.15s ease; }
+	.hf .hf-topics a:hover { transform: translateY(-3px); box-shadow: 0 12px 24px rgba(0, 0, 0, 0.25); }
+	.hf .hf-topics .ti{ display: grid; place-items: center; width: 2.6rem; height: 2.6rem; margin-bottom: 0.5rem; border-radius: 12px; background: rgba(255, 255, 255, 0.2); }
+	.hf .hf-topics .ti :global(svg){ width: 1.6rem; height: 1.6rem; }
+	.hf .hf-topics b{ display: block; font-size: 1rem; line-height: 1.25; color: #fff; }
+	.hf .hf-topics small{ display: block; margin-top: 0.3rem; font-size: 0.8rem; line-height: 1.4; color: rgba(255, 255, 255, 0.9); }
+
+	.hf .hf-sub-h { margin: 1.3rem 0 0.5rem; font-size: 1.1rem; color: var(--ink); }
+	.hf .hf-note{ display: flex; gap: 0.9rem; margin: 0.4rem 0 0.6rem; padding: 1rem 1.15rem; border-radius: 14px; font-size: 0.95rem; color: var(--ink); background: color-mix(in srgb, #4caf6a 14%, var(--card)); border: 1px solid color-mix(in srgb, #4caf6a 45%, var(--card)); }
+	.hf .hf-note-ico{ font-size: 1.7rem; line-height: 1.2; }
+	.hf .hf-standards{ list-style: none; padding: 0; margin: 0.5rem 0 1rem; display: grid; grid-template-columns: repeat(4, 1fr); gap: 0.7rem; }
+	.hf .hf-standards li{ margin: 0; padding: 0.85rem; border-radius: 14px; background: var(--card); border: 2px solid var(--c1); }
+	.hf .hf-standards li span{ display: block; font-size: 1.5rem; }
+	.hf .hf-standards li b{ display: block; color: var(--ink); }
+	.hf .hf-standards li small{ display: block; margin-top: 0.15rem; font-size: 0.8rem; line-height: 1.4; color: var(--muted); }
+	.hf .hf-links{ display: flex; flex-wrap: wrap; gap: 0.5rem; margin: 0 0 0.8rem; }
+	.hf .hf-links a { text-decoration: none; padding: 0.4rem 0.9rem; font-size: 0.85rem; font-weight: 700; border-radius: 999px; color: var(--ink); background: color-mix(in srgb, var(--c2) 30%, var(--card)); border: 1.5px solid var(--c1); }
+	.hf .hf-links a:hover { background: var(--c1); color: #fff; }
+	.hf .hf-card p.hf-reviewed { font-size: 0.85rem; color: var(--muted); }
+
+	/* CTA */
+	.hf .hf-cta { scroll-margin-top: 1.5rem; padding: 1.9rem 1.7rem; border-radius: 24px; text-align: center; color: #f6efe0; background: radial-gradient(ellipse 60% 80% at 90% 10%, rgba(255, 207, 120, 0.25), transparent 65%), linear-gradient(150deg, #1b3532 0%, #29493f 100%); box-shadow: 0 14px 32px rgba(27, 53, 50, 0.3); }
+	.hf .hf-cta p { margin: 0 0 1rem; color: #f6efe0; }
+	.hf .hf-head.light { justify-content: center; }
+	.hf .hf-head.light h2 { flex: 0 1 auto; color: #fbf3e2; }
+	.hf .hf-head.light .hf-num { background: #d9a441; color: #1b2a26; }
+	.hf .hf-head.light .hf-ico { background: rgba(255, 255, 255, 0.16); }
+	.hf .hf-cta p.hf-contact { font-size: 0.92rem; }
+	.hf .hf-cta .hf-contact a { color: #f1bd5c !important; font-weight: 700; text-decoration: underline; }
+	.hf .hf-cta p.hf-sign { margin: 0.6rem 0 0; font-family: var(--display); font-size: 1.25rem; color: #fbf3e2; }
+
+	/* ---------- responsive ---------- */
+	@media (max-width: 820px) {
+		.hf .hf-hero{ grid-template-columns: 1fr; text-align: center; padding: 2rem 1.3rem; }
+		.hf .hf-sub{ margin-left: auto; margin-right: auto; }
+		.hf .hf-btns{ justify-content: center; }
+		.hf .hf-stats{ grid-template-columns: repeat(2, 1fr); }
+		.hf .hf-timeline, .hf .hf-split, .hf .hf-pillars{ grid-template-columns: 1fr; }
+		.hf .hf-topics{ grid-template-columns: repeat(2, 1fr); }
+		.hf .hf-standards{ grid-template-columns: repeat(2, 1fr); }
+	}
+	@media (max-width: 520px) {
+		.hf .hf-card { padding: 1.2rem 1.1rem; }
+		.hf .hf-topics, .hf .hf-standards{ grid-template-columns: 1fr; }
+		.hf .hf-head h2 { font-size: 1.25rem; }
+		.hf .hf-ico{ display: none; }
+	}
+</style>
