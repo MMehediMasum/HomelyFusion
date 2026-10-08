@@ -1,25 +1,18 @@
 ---
-import { getCollection } from "astro:content";
-import { slugify } from "../utils/slug";
-import { SITE_TITLE } from "../consts";
+import { SITE_TITLE } from '../consts';
 
 const today = new Date();
 
-const normalize = (path: string) => path.replace(/\/+$/, "") || "/";
-const current = normalize(Astro.url.pathname);
+const normalize = (path: string) => path.replace(/\/+$/, '') || '/';
 
-const posts = await getCollection("blog");
-const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))].sort();
-
-const company = [
-	{ href: "/about/", label: "About Us" },
-	{ href: "/contact/", label: "Contact" },
-];
-const legal = [
-	{ href: "/privacy-policy/", label: "Privacy Policy" },
-	{ href: "/disclosure/", label: "Disclosure" },
-	{ href: "/terms/", label: "Terms" },
-];
+// Shown as "More on Homely Fusion" pills. The page you're currently on is left out.
+const footerLinks = [
+	{ href: '/about/', label: 'About Us', icon: '🏡' },
+	{ href: '/contact/', label: 'Contact', icon: '📬' },
+	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
+	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
+	{ href: '/terms/', label: 'Terms', icon: '📜' },
+].filter((link) => normalize(link.href) !== normalize(Astro.url.pathname));
 ---
 
 <footer>
@@ -57,55 +50,14 @@ const legal = [
 				</div>
 			</div>
 
-			{
-				topics.length > 0 && (
-					<nav class="footer-col footer-topics" aria-label="Topics">
-						<h2>Explore Topics</h2>
-						<ul>
-							{topics.map((topic) => (
-								<li>
-									<a
-										href={`/topic/${slugify(topic)}/`}
-										aria-current={current === `/topic/${slugify(topic)}` ? "page" : undefined}
-									>
-										{topic}
-									</a>
-								</li>
-							))}
-						</ul>
-					</nav>
-				)
-			}
-
-			<nav class="footer-col" aria-label="Company">
-				<h2>Company</h2>
-				<ul>
+			<nav class="related-nav" aria-label="More pages">
+				<h2>More on {SITE_TITLE}</h2>
+				<ul class="related-links">
 					{
-						company.map((link) => (
+						footerLinks.map((link) => (
 							<li>
-								<a
-									href={link.href}
-									aria-current={normalize(link.href) === current ? "page" : undefined}
-								>
-									{link.label}
-								</a>
-							</li>
-						))
-					}
-				</ul>
-			</nav>
-
-			<nav class="footer-col" aria-label="Legal">
-				<h2>Legal</h2>
-				<ul>
-					{
-						legal.map((link) => (
-							<li>
-								<a
-									href={link.href}
-									aria-current={normalize(link.href) === current ? "page" : undefined}
-								>
-									{link.label}
+								<a href={link.href}>
+									<span aria-hidden="true">{link.icon}</span> {link.label}
 								</a>
 							</li>
 						))
@@ -129,7 +81,7 @@ const legal = [
 	   fixed light colours instead of the theme variables. */
 	footer {
 		margin-top: 3rem;
-		padding: 3.2rem 1.25rem 1.6rem;
+		padding: 3rem 1.25rem 1.6rem;
 		background:
 			radial-gradient(ellipse 50% 90% at 100% 0%, rgba(217, 164, 65, 0.12), transparent 65%),
 			linear-gradient(160deg, #1b3532 0%, #21403b 60%, #29493f 100%);
@@ -144,8 +96,9 @@ const legal = [
 	}
 	.footer-top {
 		display: grid;
-		grid-template-columns: minmax(0, 1.4fr) minmax(0, 1.3fr) minmax(0, 0.7fr) minmax(0, 0.7fr);
+		grid-template-columns: minmax(0, 1fr) minmax(0, 1.1fr);
 		gap: 2.5rem;
+		align-items: start;
 		padding-bottom: 2.2rem;
 		border-bottom: 1px solid rgba(255, 255, 255, 0.12);
 	}
@@ -176,40 +129,9 @@ const legal = [
 	}
 	.tagline {
 		margin: 1rem 0 0;
-		max-width: 34ch;
+		max-width: 38ch;
 		line-height: 1.6;
 		color: #a9bab0;
-	}
-	.footer-col h2 {
-		margin: 0 0 1rem;
-		font-family: var(--font-body);
-		font-size: 0.78rem;
-		font-weight: 700;
-		letter-spacing: 0.14em;
-		text-transform: uppercase;
-		color: var(--brass);
-	}
-	.footer-col ul {
-		list-style: none;
-		margin: 0;
-		padding: 0;
-	}
-	.footer-col li {
-		margin: 0 0 0.55rem;
-		line-height: 1.4;
-	}
-	.footer-col a {
-		color: #d6e0d9;
-		text-decoration: none;
-		transition: color 0.15s ease, padding-left 0.15s ease;
-	}
-	.footer-col a:hover,
-	.footer-col a[aria-current="page"] {
-		color: #fff;
-		padding-left: 4px;
-	}
-	.footer-col a[aria-current="page"] {
-		color: var(--brass);
 	}
 	.social-links {
 		display: flex;
@@ -232,6 +154,48 @@ const legal = [
 		border-color: var(--brass);
 		color: #1b1b1b;
 	}
+
+	/* ---------- "More on Homely Fusion" pills ---------- */
+	.related-nav h2 {
+		margin: 0 0 1rem;
+		font-family: var(--font-body);
+		font-size: 0.78rem;
+		font-weight: 700;
+		letter-spacing: 0.14em;
+		text-transform: uppercase;
+		color: var(--brass);
+	}
+	.related-links {
+		display: flex;
+		flex-wrap: wrap;
+		gap: 0.7rem;
+		list-style: none;
+		padding: 0;
+		margin: 0;
+	}
+	.related-links li {
+		margin: 0;
+	}
+	.related-links a {
+		display: inline-flex;
+		align-items: center;
+		gap: 0.45rem;
+		background: rgba(255, 255, 255, 0.08);
+		border: 1px solid rgba(255, 255, 255, 0.16);
+		color: #f1f5f2;
+		text-decoration: none;
+		padding: 0.55rem 1.1rem;
+		border-radius: 999px;
+		font-size: 0.92rem;
+		font-weight: 500;
+		transition: background 0.2s ease, color 0.2s ease, border-color 0.2s ease, transform 0.2s ease;
+	}
+	.related-links a:hover {
+		background: var(--brass);
+		border-color: var(--brass);
+		color: #1b1b1b;
+		transform: translateY(-2px);
+	}
 	.affiliate-note {
 		margin: 1.6rem 0 0;
 		max-width: 70ch;
@@ -253,22 +217,15 @@ const legal = [
 		color: #93a79c;
 	}
 
-	@media (max-width: 900px) {
+	@media (max-width: 760px) {
 		.footer-top {
-			grid-template-columns: 1fr 1fr;
-		}
-		.footer-brand,
-		.footer-topics {
-			grid-column: 1 / -1;
+			grid-template-columns: 1fr;
+			gap: 2rem;
 		}
 	}
 	@media (max-width: 480px) {
 		footer {
 			padding-top: 2.4rem;
-		}
-		.footer-top {
-			grid-template-columns: 1fr 1fr;
-			gap: 2rem 1.2rem;
 		}
 	}
 </style>
