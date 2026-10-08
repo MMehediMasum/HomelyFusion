@@ -133,25 +133,6 @@ const breadcrumbJsonLd = {
 				white-space: nowrap;
 				vertical-align: bottom;
 			}
-			.cat-pill {
-				display: inline-block;
-				margin-bottom: 1rem;
-				padding: 0.3rem 0.95rem;
-				border-radius: 999px;
-				background: var(--accent-soft);
-				border: 1px solid rgba(var(--brass-rgb), 0.55);
-				color: var(--link);
-				font-size: 0.74rem;
-				font-weight: 700;
-				letter-spacing: 0.12em;
-				text-transform: uppercase;
-				text-decoration: none;
-				transition: background 0.2s ease, color 0.2s ease;
-			}
-			.cat-pill:hover {
-				background: var(--accent);
-				color: #fff;
-			}
 			.post-header h1 {
 				margin: 0 0 1.2rem;
 				font-size: clamp(1.9rem, 4.6vw, 2.8rem);
@@ -498,23 +479,9 @@ const breadcrumbJsonLd = {
 				<header class="post-header">
 					<ul class="breadcrumb">
 						<li><a href="/">Home</a></li>
-						{
-							firstCategory && (
-								<li>
-									<a href={`/categories/${slugify(firstCategory)}/`}>{firstCategory}</a>
-								</li>
-							)
-						}
 						<li aria-current="page">{title}</li>
 					</ul>
 
-					{
-						firstCategory && (
-							<a class="cat-pill" href={`/categories/${slugify(firstCategory)}/`}>
-								{firstCategory}
-							</a>
-						)
-					}
 
 					<h1>{title}</h1>
 
