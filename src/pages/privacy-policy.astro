@@ -1,227 +1,262 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'October 5, 2026';
+const lastUpdated = 'October 8, 2026';
+const CONTACT_EMAIL = 'gilbertjpappas@gmail.com';
+
+const sections = [
+	{ id: 'who', label: '🏡 Who we are', c1: '#35564f' },
+	{ id: 'collect', label: '📥 What we collect', c1: '#7b5b41' },
+	{ id: 'use', label: '🎯 How we use it', c1: '#566485' },
+	{ id: 'legal', label: '⚖️ Legal basis', c1: '#7a2c3a' },
+	{ id: 'share', label: '🤝 Who we share with', c1: '#a87a1e' },
+	{ id: 'cookies', label: '🍪 Cookies', c1: '#47653d' },
+	{ id: 'affiliate', label: '💰 Affiliate links & ads', c1: '#6b4256' },
+	{ id: 'retention', label: '🗄️ Retention', c1: '#4a5560' },
+	{ id: 'security', label: '🔐 Security', c1: '#35564f' },
+	{ id: 'rights', label: '✋ Your rights', c1: '#7b5b41' },
+	{ id: 'children', label: '🧒 Children', c1: '#566485' },
+	{ id: 'changes', label: '🔄 Changes', c1: '#7a2c3a' },
+	{ id: 'contact', label: '📬 Contact', c1: '#a87a1e' },
+];
 ---
 
 <StaticPage
 	title="Privacy Policy"
-	description="How HomelyFusion collects, uses, shares, and protects your information when you visit our site."
+	description="How Homely Fusion collects, uses, shares and protects your information, including cookies, analytics, affiliate links and your privacy rights under GDPR and CCPA."
 	icon="🔒"
+	eyebrow="Your privacy matters"
+	lede="What we collect, why we collect it, who sees it and how you stay in control. Written to be read, not just clicked past."
+	c1="#35564f"
+	c2="#93b9ab"
+	chips={[`🗓️ Last updated: ${lastUpdated}`, '🚫 We never sell your data', '🍪 You control cookies']}
 >
-	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
+	<div class="sp">
+		<ul class="sp-glance">
+			<li><span class="gi">🚫</span><b>No selling your data</b><small>We don't sell, rent or trade your personal information.</small></li>
+			<li><span class="gi">📊</span><b>Anonymous analytics</b><small>We look at traffic trends to improve our guides.</small></li>
+			<li><span class="gi">🍪</span><b>Cookie choices</b><small>Manage non-essential cookies through our consent banner or your browser.</small></li>
+			<li><span class="gi">✋</span><b>Your rights</b><small>Ask to access, correct or delete your data any time.</small></li>
+		</ul>
 
-	<p>
-		At <strong>HomelyFusion</strong>, your privacy is very important to us. This Privacy Policy outlines the
-		types of personal information we collect and how it is used, stored, and protected. Our goal is to be as
-		transparent and clear as possible about how we manage your data while providing valuable content and services
-		related to bathroom decor, lighting &amp; ambiance, minimalist living, and seasonal home inspiration.
-	</p>
-	<p>
-		By using our website <a href="https://homelyfusion.com">https://homelyfusion.com</a> (the "Site"), you agree
-		to the practices described in this Privacy Policy.
-	</p>
+		<p class="sp-lead">
+			By using <a href="https://homelyfusion.com">homelyfusion.com</a> (the "Site"), you agree to the practices described
+			here. We want to be as clear as possible about how we handle your data while we share home decor ideas, buying
+			guides and styling advice.
+		</p>
 
-	<h2>1. Who we are</h2>
-	<p>
-		HomelyFusion is a content-based platform that provides design inspiration, product recommendations, DIY
-		tips, and shopping resources across a variety of home decor categories. We are a
-		<strong>for-profit website</strong>, which may generate income through affiliate links, sponsored content,
-		display advertising, and product partnerships.
-	</p>
-	<p>
-		We are committed to protecting your personal information and complying with all applicable data protection
-		laws, including the <strong>General Data Protection Regulation (GDPR)</strong> and the
-		<strong>California Consumer Privacy Act (CCPA)</strong> where applicable.
-	</p>
+		<nav class="sp-jump" aria-label="On this page">
+			{sections.map((s) => <a href={`#${s.id}`} style={`--c1:${s.c1}`}>{s.label}</a>)}
+		</nav>
 
-	<h2>2. What information we collect</h2>
-	<p>
-		We collect both <strong>personal</strong> and <strong>non-personal</strong> information from visitors to our
-		website. This includes:
-	</p>
+		<!-- ===================== 1 ===================== -->
+		<section class="sp-card" id="who" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">1</span><h2>Who we are</h2><span class="sp-ico">🏡</span></div>
+			<p>
+				Homely Fusion is a home and home decor website run by interior stylist <strong>Gilbert Pappas</strong> in
+				Charleston, South Carolina. We publish design inspiration, product recommendations, DIY tips and shopping
+				guides across topics like sofas and seating, bedroom and bathroom decor, lighting, rugs, wall decor, storage
+				and seasonal decor.
+			</p>
+			<p>
+				We are a <strong>for-profit website</strong>. We may earn income from affiliate links, sponsored content, display
+				advertising and product partnerships (see our <a href="/disclosure/">Disclosure</a>). We aim to follow the data
+				protection laws that apply to us, including the <strong>GDPR</strong> and the
+				<strong>California Consumer Privacy Act (CCPA)</strong> where relevant.
+			</p>
+		</section>
 
-	<h3>a) Information you provide to us</h3>
-	<ul>
-		<li><strong>Name</strong> (if submitted via contact forms or email)</li>
-		<li><strong>Email address</strong></li>
-		<li><strong>Messages or inquiries</strong> sent through our contact form</li>
-		<li><strong>Comments</strong> on blog posts</li>
-		<li><strong>Subscription details</strong> (e.g., joining our newsletter)</li>
-	</ul>
+		<!-- ===================== 2 ===================== -->
+		<section class="sp-card" id="collect" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="sp-head"><span class="sp-num">2</span><h2>What information we collect</h2><span class="sp-ico">📥</span></div>
+			<h3>a) Information you give us</h3>
+			<ul class="sp-list cols">
+				<li><span>✉️</span><span>Your <strong>email address</strong> and <strong>name</strong>, if you email us</span></li>
+				<li><span>💬</span><span>The <strong>messages and questions</strong> you send</span></li>
+				<li><span>📎</span><span>Any <strong>photos or details</strong> you choose to share about your room</span></li>
+			</ul>
+			<div class="sp-note info">
+				<span>ℹ️</span>
+				<p>
+					We don't currently run user accounts, comments or a newsletter. If we add any of these, we'll update this
+					page first.
+				</p>
+			</div>
+			<h3>b) Information collected automatically</h3>
+			<ul class="sp-chips">
+				<li>🌐 IP address</li>
+				<li>🧭 Browser &amp; version</li>
+				<li>📱 Device type</li>
+				<li>📄 Pages visited</li>
+				<li>⏱️ Time on page</li>
+				<li>🔗 Referring URL</li>
+				<li>🖱️ Clicks</li>
+			</ul>
+			<p>
+				We use <strong>Google Analytics</strong> and similar tools to understand how visitors use the Site, which helps
+				us see which guides are useful and how to improve your experience.
+			</p>
+		</section>
 
-	<h3>b) Information automatically collected</h3>
-	<ul>
-		<li><strong>IP address</strong></li>
-		<li><strong>Browser type and version</strong></li>
-		<li><strong>Pages you visit on our site</strong></li>
-		<li><strong>Time spent on each page</strong></li>
-		<li><strong>Device type (mobile, desktop, tablet)</strong></li>
-		<li><strong>Referring URL (where you came from)</strong></li>
-		<li><strong>Clickstream data</strong></li>
-		<li><strong>Cookies and usage data</strong> (see Section 6)</li>
-	</ul>
-	<p>
-		We use tools like <strong>Google Analytics</strong>, <strong>Search Console</strong>, and third-party
-		advertising platforms to collect anonymous data about how visitors use the site. This helps us understand what
-		content is valuable and how to improve your experience.
-	</p>
+		<!-- ===================== 3 ===================== -->
+		<section class="sp-card" id="use" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">3</span><h2>How we use your information</h2><span class="sp-ico">🎯</span></div>
+			<ul class="sp-list cols">
+				<li><span>💬</span><span>Reply to your questions and requests</span></li>
+				<li><span>📈</span><span>Improve our content and Site performance</span></li>
+				<li><span>📊</span><span>Analyze traffic trends and visitor behavior</span></li>
+				<li><span>📣</span><span>Show relevant advertising, where ads are used</span></li>
+				<li><span>🛡️</span><span>Prevent fraud, spam and abuse</span></li>
+				<li><span>📜</span><span>Meet our legal obligations</span></li>
+			</ul>
+			<p><strong>We do not sell, rent or trade the personal information you send us.</strong></p>
+		</section>
 
-	<h2>3. How we use your information</h2>
-	<p>The information we collect is used for the following purposes:</p>
-	<ul>
-		<li><strong>To personalize your experience</strong></li>
-		<li><strong>To respond to your inquiries or support requests</strong></li>
-		<li><strong>To improve our content and site performance</strong></li>
-		<li><strong>To send newsletters or promotional emails</strong> (only if you opt-in)</li>
-		<li><strong>To analyze traffic trends and user behavior</strong></li>
-		<li><strong>To prevent fraudulent activity or abuse</strong></li>
-		<li><strong>To display relevant advertising</strong></li>
-		<li><strong>To comply with legal obligations</strong></li>
-	</ul>
-	<p>We do not sell, rent, or trade your personal data to third parties for commercial gain.</p>
+		<!-- ===================== 4 ===================== -->
+		<section class="sp-card" id="legal" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="sp-head"><span class="sp-num">4</span><h2>Legal basis (for visitors in the EEA and UK)</h2><span class="sp-ico">⚖️</span></div>
+			<p>If you're in the European Economic Area or the UK, we process your personal data only where:</p>
+			<ul class="sp-list">
+				<li><span>✅</span><span><strong>You've given consent</strong>, for example through our cookie banner. You can withdraw it at any time.</span></li>
+				<li><span>📄</span><span><strong>It's needed to respond</strong> to a request you've made.</span></li>
+				<li><span>⚖️</span><span><strong>It's required by law.</strong></span></li>
+				<li><span>🛠️</span><span><strong>It serves our legitimate interests</strong>, such as improving the Site, answering inquiries and preventing fraud.</span></li>
+			</ul>
+		</section>
 
-	<h2>4. Legal basis for processing (for European visitors)</h2>
-	<p>
-		If you are located in the European Economic Area (EEA), our legal basis for collecting and using your
-		personal data will depend on the personal data concerned and the specific context in which we collect it.
-	</p>
-	<p>We will process your personal data only where:</p>
-	<ul>
-		<li><strong>You have given consent</strong></li>
-		<li><strong>Processing is necessary for performance of a contract</strong></li>
-		<li><strong>It is required for compliance with legal obligations</strong></li>
-		<li><strong>It is necessary for our legitimate interests</strong> (such as improving the website, responding to inquiries, preventing fraud)</li>
-	</ul>
-	<p>You have the right to withdraw your consent at any time.</p>
+		<!-- ===================== 5 ===================== -->
+		<section class="sp-card" id="share" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="sp-head"><span class="sp-num">5</span><h2>Who we share information with</h2><span class="sp-ico">🤝</span></div>
+			<p>We share information only with partners that help run and support the Site:</p>
+			<ul class="sp-tiles">
+				<li><span>☁️</span><b>Hosting &amp; delivery</b><small>Our website host and content delivery network (Cloudflare).</small></li>
+				<li><span>📊</span><b>Analytics</b><small>Google Analytics, to understand site usage.</small></li>
+				<li><span>🍪</span><b>Cookie consent</b><small>A consent-management tool (CookieYes), to record your cookie choices.</small></li>
+				<li><span>💰</span><b>Ads &amp; affiliates</b><small>Ad networks and affiliate programs such as Amazon Associates.</small></li>
+			</ul>
+			<p>
+				We may also disclose information if the law requires it, for example in response to a valid legal process. We
+				don't sell or lease your personal data to third-party marketers.
+			</p>
+		</section>
 
-	<h2>5. Who we share your information with</h2>
-	<p>
-		We may share your personal information with the following third parties, solely to support the functioning
-		and monetization of HomelyFusion:
-	</p>
+		<!-- ===================== 6 ===================== -->
+		<section class="sp-card" id="cookies" style="--c1:#47653d;--c2:#a3c78f">
+			<div class="sp-head"><span class="sp-num">6</span><h2>Cookies and tracking technologies</h2><span class="sp-ico">🍪</span></div>
+			<p>
+				Cookies are small text files stored on your device that help websites remember preferences and understand how
+				they're used. Like most sites, we use them to keep Homely Fusion working and to improve it.
+			</p>
+			<ul class="sp-tiles">
+				<li style="--c1:#35564f;--c2:#93b9ab"><span>🔧</span><b>Essential</b><small>Needed for basic site functions.</small></li>
+				<li style="--c1:#566485;--c2:#b3c1de"><span>📈</span><b>Performance</b><small>Help us see how the Site is used.</small></li>
+				<li style="--c1:#a87a1e;--c2:#f4d479"><span>🌙</span><b>Functionality</b><small>Remember choices like dark mode.</small></li>
+				<li style="--c1:#7a2c3a;--c2:#dc7686"><span>📣</span><b>Advertising &amp; affiliate</b><small>Used by ad networks and affiliate partners, such as Amazon.</small></li>
+			</ul>
+			<div class="sp-note warn">
+				<span>🎛️</span>
+				<p>
+					<strong>You're in control.</strong> Use the cookie banner on our Site to choose which non-essential cookies
+					to allow, and change your mind later. You can also block or delete cookies in your browser settings, though
+					parts of the Site may not work as well.
+				</p>
+			</div>
+		</section>
 
-	<h3>a) Service providers</h3>
-	<ul>
-		<li>Email marketing platforms (e.g., Mailchimp, ConvertKit)</li>
-		<li>Website hosting providers</li>
-		<li>Analytics platforms (Google Analytics, Plausible, etc.)</li>
-	</ul>
+		<!-- ===================== 7 ===================== -->
+		<section class="sp-card" id="affiliate" style="--c1:#6b4256;--c2:#cf93a8">
+			<div class="sp-head"><span class="sp-num">7</span><h2>Affiliate links and advertisements</h2><span class="sp-ico">💰</span></div>
+			<p>
+				Some links on Homely Fusion are <strong>affiliate links</strong>: if you click through and buy, we may earn a
+				commission at no extra cost to you. Programs we may take part in include Amazon Associates, CJ Affiliate,
+				ShareASale, PartnerStack, Impact and other home-related networks. When you click an affiliate link, the
+				retailer or network may place a cookie to credit the referral.
+			</p>
+			<p>
+				We may also display <strong>third-party ads</strong>, which can use cookies to show ads based on your interests.
+				Full details are on our <a href="/disclosure/">Disclosure page</a>.
+			</p>
+		</section>
 
-	<h3>b) Advertising &amp; affiliate partners</h3>
-	<ul>
-		<li>Google AdSense or Mediavine (for display advertising)</li>
-		<li>Affiliate programs (e.g., Amazon Associates, ShareASale)</li>
-		<li>Sponsored partners (clearly labeled in our content)</li>
-	</ul>
+		<!-- ===================== 8 ===================== -->
+		<section class="sp-card" id="retention" style="--c1:#4a5560;--c2:#a9b6c2">
+			<div class="sp-head"><span class="sp-num">8</span><h2>How long we keep your data</h2><span class="sp-ico">🗄️</span></div>
+			<p>We keep personal information only as long as needed for the purposes above:</p>
+			<ul class="sp-list">
+				<li><span>✉️</span><span><strong>Emails you send us:</strong> as long as needed to help you, then deleted or archived securely.</span></li>
+				<li><span>📊</span><span><strong>Analytics data:</strong> kept according to the analytics provider's retention settings (for example, up to 26 months in Google Analytics).</span></li>
+			</ul>
+		</section>
 
-	<h3>c) Legal compliance</h3>
-	<p>
-		We may disclose your data if required to do so by law or in response to valid legal processes, such as
-		subpoenas or court orders.
-	</p>
-	<p><strong>We do not sell or lease your data</strong> to third-party marketers.</p>
+		<!-- ===================== 9 ===================== -->
+		<section class="sp-card" id="security" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">9</span><h2>How we protect your data</h2><span class="sp-ico">🔐</span></div>
+			<ul class="sp-list cols">
+				<li><span>🔒</span><span>HTTPS encryption across the Site</span></li>
+				<li><span>🔄</span><span>Regular software updates</span></li>
+				<li><span>🙋</span><span>Limited access to your messages</span></li>
+				<li><span>🏢</span><span>Reputable, secure third-party platforms</span></li>
+			</ul>
+			<p>
+				No website or internet transmission is 100% secure, so we can't guarantee absolute security. We do take
+				reasonable steps to protect what you share with us.
+			</p>
+		</section>
 
-	<h2>6. Cookies and tracking technologies</h2>
-	<p>
-		Like many websites, HomelyFusion uses <strong>cookies and similar technologies</strong> to enhance your
-		experience and collect data about your visit.
-	</p>
+		<!-- ===================== 10 ===================== -->
+		<section class="sp-card" id="rights" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="sp-head"><span class="sp-num">10</span><h2>Your privacy rights</h2><span class="sp-ico">✋</span></div>
+			<p>Depending on where you live (including under the GDPR and the CCPA), you may have the right to:</p>
+			<ul class="sp-list cols">
+				<li><span>👁️</span><span><strong>Access</strong> the personal data we hold about you</span></li>
+				<li><span>✏️</span><span><strong>Correct</strong> information that's wrong</span></li>
+				<li><span>🗑️</span><span><strong>Delete</strong> your personal data</span></li>
+				<li><span>📦</span><span><strong>Receive a copy</strong> of your data</span></li>
+				<li><span>⏸️</span><span><strong>Object to or limit</strong> certain processing</span></li>
+				<li><span>↩️</span><span><strong>Withdraw consent</strong> at any time</span></li>
+			</ul>
+			<p>
+				California residents also have the right to know what personal information is collected and to opt out of its
+				"sale" or "sharing". We don't sell the personal information you send us, and you can manage advertising
+				cookies through our cookie banner. We won't treat you differently for exercising your rights.
+			</p>
+			<p>
+				To make a request, email <a href={`mailto:${CONTACT_EMAIL}`}>{CONTACT_EMAIL}</a>. We may need to confirm your
+				identity first. If you're in the EEA or UK, you can also complain to your local data protection authority.
+			</p>
+		</section>
 
-	<h3>What are cookies?</h3>
-	<p>
-		Cookies are small text files stored on your device to help websites remember your preferences, activity, and
-		browsing behavior.
-	</p>
+		<!-- ===================== 11 ===================== -->
+		<section class="sp-card" id="children" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">11</span><h2>Children's privacy</h2><span class="sp-ico">🧒</span></div>
+			<p>
+				Homely Fusion is meant for a general adult audience and is not directed at children under 13. We don't
+				knowingly collect personal information from children. If you believe a child has sent us information, please
+				contact us and we'll delete it.
+			</p>
+		</section>
 
-	<h3>Types of cookies we use</h3>
-	<ul>
-		<li><strong>Essential Cookies</strong>: Necessary for basic site functionality</li>
-		<li><strong>Performance Cookies</strong>: Help us analyze site performance</li>
-		<li><strong>Functionality Cookies</strong>: Remember preferences (like dark mode)</li>
-		<li><strong>Advertising Cookies</strong>: Deliver personalized ads</li>
-	</ul>
+		<!-- ===================== 12 ===================== -->
+		<section class="sp-card" id="changes" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="sp-head"><span class="sp-num">12</span><h2>Changes to this policy</h2><span class="sp-ico">🔄</span></div>
+			<p>
+				We may update this Privacy Policy as the Site or the law changes. The "Last updated" date at the top of the
+				page shows when it last changed. Continuing to use the Site after an update means you accept the revised
+				policy.
+			</p>
+		</section>
 
-	<h3>Third-party cookies</h3>
-	<ul>
-		<li>Google Analytics</li>
-		<li>Facebook Pixel (if enabled)</li>
-		<li>Google AdSense or other ad networks</li>
-		<li>Affiliate tracking cookies (e.g., Amazon)</li>
-	</ul>
-	<p>
-		You can control cookies through your browser settings. Most browsers allow you to block or delete cookies.
-		However, disabling cookies may impact your experience on our site.
-	</p>
-
-	<h2>7. Email and newsletter communication</h2>
-	<p>When you subscribe to our newsletter, we collect your name and email address. We use this information to:</p>
-	<ul>
-		<li>Send you blog updates, product recommendations, and seasonal decor tips</li>
-		<li>Share exclusive discounts or affiliate promotions</li>
-		<li>Notify you about new features, guides, or giveaways</li>
-	</ul>
-	<p>
-		All emails include an <strong>unsubscribe link</strong>, and you may opt out of future communications at any
-		time.
-	</p>
-	<p>
-		We use reputable third-party services (e.g., Mailchimp, ConvertKit) to manage subscriptions and track email
-		performance.
-	</p>
-
-	<h2>8. Affiliate links and advertisements</h2>
-	<p>
-		As disclosed on our <a href="/disclosure/">Disclosure page</a>, some links on our website are
-		<strong>affiliate links</strong>, which means we may earn a commission if you click through and make a
-		purchase.
-	</p>
-	<p>
-		These links <strong>do not impact your price or shopping experience</strong>. Affiliate programs we
-		participate in include:
-	</p>
-	<ul>
-		<li>Amazon Associates</li>
-		<li>CJ Affiliate</li>
-		<li>ShareASale</li>
-		<li>PartnerStack</li>
-		<li>Impact</li>
-		<li>Other home-related affiliate networks</li>
-	</ul>
-	<p>
-		We also display <strong>third-party advertisements</strong>, which may use cookies and tracking to serve
-		relevant ads based on your interests.
-	</p>
-	<p>
-		We strive to partner only with advertisers that align with our values in home decor, minimalism, and
-		eco-conscious living.
-	</p>
-
-	<h2>9. Data retention</h2>
-	<p>
-		We retain your personal information only for as long as necessary to fulfill the purposes outlined in this
-		Privacy Policy. For example:
-	</p>
-	<ul>
-		<li>Email subscribers: until you unsubscribe</li>
-		<li>Comments: indefinitely unless you request removal</li>
-		<li>Analytics data: retained per the platform's standard policy (e.g., 26 months for Google Analytics)</li>
-	</ul>
-	<p>We periodically audit and delete outdated data to maintain data minimization standards.</p>
-
-	<h2>10. How we protect your data</h2>
-	<p>
-		HomelyFusion implements <strong>reasonable technical and organizational measures</strong> to protect your data
-		from unauthorized access, disclosure, loss, or destruction. These include:
-	</p>
-	<ul>
-		<li>SSL encryption (HTTPS)</li>
-		<li>Regular software updates</li>
-		<li>Limiting access to authorized personnel</li>
-		<li>Using secure third-party platforms</li>
-	</ul>
-	<p>
-		However, no website or internet transmission is 100% secure. While we strive to protect your information, we
-		cannot guarantee absolute security.
-	</p>
+		<!-- ===================== CTA / 13 ===================== -->
+		<section class="sp-cta" id="contact">
+			<h2>📬 Privacy questions?</h2>
+			<p>
+				Email <a href={`mailto:${CONTACT_EMAIL}`}>{CONTACT_EMAIL}</a><br />
+				Homely Fusion · 88 Rutledge Ave, Charleston, SC 29401, United States
+			</p>
+			<div class="sp-btns">
+				<a class="sp-btn sp-btn-main" href={`mailto:${CONTACT_EMAIL}?subject=Privacy%20request`}>✉️ Email us</a>
+				<a class="sp-btn sp-btn-alt" href="/disclosure/">💰 Read our Disclosure</a>
+			</div>
+		</section>
+	</div>
 </StaticPage>

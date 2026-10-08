@@ -2,7 +2,6 @@
 import BaseHead from '../components/BaseHead.astro';
 import Header from '../components/Header.astro';
 import Footer from '../components/Footer.astro';
-import { SITE_TITLE } from '../consts';
 
 interface Props {
 	title: string;
@@ -10,18 +9,32 @@ interface Props {
 	icon?: string;
 	/** Wider content column (used by the About page). */
 	wide?: boolean;
+	/**
+	 * Designed "hero" mode. When `lede` is passed, the plain icon + title block is replaced by a
+	 * coloured hero banner (eyebrow, title, intro, meta chips). Used by Contact, Privacy, Disclosure, Terms.
+	 */
+	lede?: string;
+	eyebrow?: string;
+	/** Hero gradient colours (dark, light). */
+	c1?: string;
+	c2?: string;
+	/** Small chips under the intro, e.g. ['🗓️ Last updated: October 5, 2026']. */
+	chips?: string[];
 }
 
-const { title, description, icon = '🏡', wide = false } = Astro.props;
+const {
+	title,
+	description,
+	icon = '🏡',
+	wide = false,
+	lede,
+	eyebrow,
+	c1 = '#35564f',
+	c2 = '#93b9ab',
+	chips = [],
+} = Astro.props;
 
-const relatedPages = [
-	{ href: '/', label: 'Home', icon: '🏠' },
-	{ href: '/about/', label: 'About Us', icon: '🏡' },
-	{ href: '/contact/', label: 'Contact', icon: '📬' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
-	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
-	{ href: '/terms/', label: 'Terms', icon: '📜' },
-].filter((p) => p.label !== title);
+const hero = Boolean(lede);
 ---
 
 <!doctype html>
@@ -37,6 +50,9 @@ const relatedPages = [
 			}
 			main.wide {
 				width: min(1040px, 92vw);
+			}
+			main.hero-page {
+				width: min(900px, 92vw);
 			}
 			.page-icon {
 				width: 56px;
@@ -172,68 +188,557 @@ const relatedPages = [
 				}
 			}
 
-			/* ---------- Interlinking footer nav ---------- */
-			.related-nav {
-				margin-top: 3.5rem;
-				padding-top: 2rem;
-				border-top: 1px solid rgb(var(--gray-light));
+			/* =====================================================================
+			   Designed static pages (Contact / Privacy / Disclosure / Terms)
+			   Shared building blocks, all prefixed `sp-` so they never clash with About's `hf-`.
+			   Each block reads its colours from --c1 (dark) / --c2 (light) set inline.
+			   ===================================================================== */
+			.hero-banner {
+				position: relative;
+				overflow: hidden;
+				margin: 0 0 1.4rem;
+				padding: 2.4rem 2.2rem 2rem;
+				border-radius: 26px;
+				color: #fbf3e2;
+				background:
+					radial-gradient(circle at 92% 12%, rgba(255, 255, 255, 0.22) 0, rgba(255, 255, 255, 0) 38%),
+					radial-gradient(circle at 6% 110%, rgba(0, 0, 0, 0.28) 0, rgba(0, 0, 0, 0) 55%),
+					linear-gradient(150deg, var(--c1), color-mix(in srgb, var(--c1) 70%, #0f1a17));
+				box-shadow: 0 16px 36px rgba(0, 0, 0, 0.22);
 			}
-			.related-nav h2 {
-				font-size: 1rem;
-				color: rgb(var(--gray));
-				font-weight: 600;
+			.hero-banner::after {
+				content: '';
+				position: absolute;
+				right: -40px;
+				bottom: -60px;
+				width: 220px;
+				height: 220px;
+				border-radius: 50%;
+				border: 26px solid rgba(255, 255, 255, 0.08);
+				pointer-events: none;
+			}
+			.hero-badge {
+				width: 68px;
+				height: 68px;
+				display: grid;
+				place-items: center;
+				font-size: 2.1rem;
 				margin-bottom: 1rem;
-				border: none;
-				padding: 0;
+				border-radius: 20px;
+				background: rgba(255, 255, 255, 0.18);
+				border: 1px solid rgba(255, 255, 255, 0.35);
 			}
-			.related-links {
+			.hero-eyebrow {
+				margin: 0 0 0.4rem;
+				font-size: 0.78rem;
+				letter-spacing: 0.14em;
+				text-transform: uppercase;
+				font-weight: 700;
+				color: var(--c2);
+			}
+			.hero-banner .hero-title {
+				margin: 0;
+				font-size: clamp(2rem, 5vw, 3rem);
+				line-height: 1.1;
+				color: #fff;
+			}
+			.hero-lede {
+				margin: 0.9rem 0 0;
+				max-width: 38em;
+				font-size: 1.05rem;
+				line-height: 1.6;
+				color: rgba(251, 243, 226, 0.95);
+			}
+			.hero-chips {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.5rem;
+				list-style: none;
+				padding: 0;
+				margin: 1.2rem 0 0;
+			}
+			.hero-chips li {
+				margin: 0;
+				padding: 0.28rem 0.8rem;
+				font-size: 0.8rem;
+				font-weight: 700;
+				border-radius: 999px;
+				color: #fff;
+				background: rgba(255, 255, 255, 0.14);
+				border: 1px solid rgba(255, 255, 255, 0.32);
+			}
+
+			/* ---- tokens for the content blocks (adapt to the light/dark switch) ---- */
+			.static-page :global(.sp) {
+				--card: #ffffff;
+				--ink: #2a2f36;
+				--muted: #5b6470;
+				--line: #e8e1d3;
+				--gold: #d9a441;
+				color: var(--ink);
+				font-size: 1rem;
+				line-height: 1.7;
+			}
+			:root[data-theme='dark'] .static-page :global(.sp) {
+				--card: #161a23;
+				--ink: #e6e9ef;
+				--muted: #a3adbb;
+				--line: #2a3140;
+			}
+			.static-page :global(.sp),
+			.static-page :global(.sp *) {
+				box-sizing: border-box;
+			}
+
+			/* at-a-glance tiles */
+			.static-page :global(.sp-glance) {
+				list-style: none;
+				padding: 0;
+				margin: 0 0 1.3rem;
+				display: grid;
+				grid-template-columns: repeat(auto-fit, minmax(190px, 1fr));
+				gap: 0.85rem;
+			}
+			.static-page :global(.sp-glance li) {
+				margin: 0;
+				padding: 1rem 1rem 1.05rem;
+				border-radius: 16px;
+				background: var(--card);
+				border: 1px solid var(--line);
+				border-bottom: 5px solid var(--c1);
+				box-shadow: 0 4px 14px rgba(0, 0, 0, 0.06);
+			}
+			.static-page :global(.sp-glance .gi) {
+				display: grid;
+				place-items: center;
+				width: 2.6rem;
+				height: 2.6rem;
+				margin-bottom: 0.5rem;
+				font-size: 1.4rem;
+				border-radius: 12px;
+				background: color-mix(in srgb, var(--c2) 38%, var(--card));
+			}
+			.static-page :global(.sp-glance b) {
+				display: block;
+				color: var(--ink);
+				line-height: 1.3;
+			}
+			.static-page :global(.sp-glance small) {
+				display: block;
+				margin-top: 0.2rem;
+				font-size: 0.85rem;
+				line-height: 1.45;
+				color: var(--muted);
+			}
+
+			/* intro paragraph */
+			.static-page :global(p.sp-lead) {
+				margin: 0 0 1rem;
+				padding: 1.05rem 1.3rem;
+				font-size: 1.03rem;
+				border-radius: 16px;
+				color: var(--ink);
+				background: color-mix(in srgb, var(--gold) 16%, var(--card));
+				border-left: 6px solid var(--gold);
+			}
+
+			/* jump nav */
+			.static-page :global(.sp-jump) {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.45rem;
+				margin: 0 0 1.5rem;
+			}
+			.static-page :global(.sp-jump a) {
+				text-decoration: none;
+				font-size: 0.82rem;
+				font-weight: 700;
+				padding: 0.3rem 0.8rem;
+				border-radius: 999px;
+				color: var(--ink);
+				background: var(--card);
+				border: 1.5px solid var(--c1);
+				transition: all 0.15s ease;
+			}
+			.static-page :global(.sp-jump a:hover) {
+				background: var(--c1);
+				color: #fff;
+				transform: translateY(-1px);
+			}
+
+			/* section cards */
+			.static-page :global(.sp-card) {
+				--ac: var(--c1);
+				scroll-margin-top: 1.5rem;
+				margin: 0 0 1.3rem;
+				padding: 1.4rem 1.6rem;
+				border-radius: 20px;
+				background: var(--card);
+				border: 1px solid var(--line);
+				border-top: 6px solid var(--c1);
+				box-shadow: 0 6px 20px rgba(0, 0, 0, 0.06);
+			}
+			:root[data-theme='dark'] .static-page :global(.sp-card) {
+				--ac: var(--c2);
+				border-top-color: var(--c2);
+			}
+			.static-page :global(.sp-card p) {
+				margin: 0 0 0.9rem;
+				color: var(--ink);
+			}
+			.static-page :global(.sp-card p:last-child) {
+				margin-bottom: 0;
+			}
+			.static-page :global(.sp-card a) {
+				color: var(--ac);
+				font-weight: 700;
+			}
+			.static-page :global(.sp-card strong) {
+				color: var(--ink);
+			}
+			.static-page :global(.sp-head) {
+				display: flex;
+				align-items: center;
+				gap: 0.8rem;
+				margin-bottom: 0.9rem;
+			}
+			.static-page :global(.sp-head h2) {
+				margin: 0;
+				padding: 0;
+				border: 0;
+				flex: 1;
+				font-size: 1.3rem;
+				line-height: 1.25;
+				color: var(--ink);
+			}
+			.static-page :global(.sp-num) {
+				flex: 0 0 auto;
+				width: 2.1rem;
+				height: 2.1rem;
+				display: grid;
+				place-items: center;
+				border-radius: 50%;
+				font-size: 0.95rem;
+				font-weight: 800;
+				color: #fff;
+				background: var(--c1);
+			}
+			:root[data-theme='dark'] .static-page :global(.sp-num) {
+				color: #14201d;
+				background: var(--c2);
+			}
+			.static-page :global(.sp-ico) {
+				flex: 0 0 auto;
+				width: 2.7rem;
+				height: 2.7rem;
+				display: grid;
+				place-items: center;
+				font-size: 1.5rem;
+				border-radius: 14px;
+				background: color-mix(in srgb, var(--c2) 35%, var(--card));
+			}
+			.static-page :global(.sp-card h3) {
+				margin: 1.2rem 0 0.5rem;
+				font-size: 1.02rem;
+				color: var(--ink);
+			}
+
+			/* emoji bullet list */
+			.static-page :global(.sp-list) {
+				list-style: none;
+				padding: 0;
+				margin: 0.3rem 0 1rem;
+				display: grid;
+				gap: 0.5rem;
+			}
+			.static-page :global(.sp-list li) {
+				display: flex;
+				gap: 0.7rem;
+				align-items: flex-start;
+				margin: 0;
+				padding: 0.6rem 0.9rem;
+				font-size: 0.95rem;
+				line-height: 1.5;
+				border-radius: 12px;
+				color: var(--ink);
+				background: color-mix(in srgb, var(--c2) 22%, var(--card));
+			}
+			.static-page :global(.sp-list li > span:first-child) {
+				flex: none;
+				font-size: 1.2rem;
+				line-height: 1.3;
+			}
+			.static-page :global(.sp-list.cols) {
+				grid-template-columns: repeat(auto-fit, minmax(230px, 1fr));
+			}
+
+			/* chips */
+			.static-page :global(.sp-chips) {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.5rem;
+				list-style: none;
+				padding: 0;
+				margin: 0.3rem 0 1rem;
+			}
+			.static-page :global(.sp-chips li) {
+				margin: 0;
+				padding: 0.3rem 0.8rem;
+				font-size: 0.85rem;
+				font-weight: 700;
+				border-radius: 999px;
+				color: var(--ink);
+				background: color-mix(in srgb, var(--c2) 35%, var(--card));
+			}
+
+			/* callouts */
+			.static-page :global(.sp-note) {
+				display: flex;
+				gap: 0.9rem;
+				margin: 0.4rem 0 1rem;
+				padding: 1rem 1.15rem;
+				border-radius: 14px;
+				font-size: 0.95rem;
+				color: var(--ink);
+				background: color-mix(in srgb, #4caf6a 14%, var(--card));
+				border: 1px solid color-mix(in srgb, #4caf6a 45%, var(--card));
+			}
+			.static-page :global(.sp-note.warn) {
+				background: color-mix(in srgb, #e0a030 18%, var(--card));
+				border-color: color-mix(in srgb, #e0a030 50%, var(--card));
+			}
+			.static-page :global(.sp-note.info) {
+				background: color-mix(in srgb, #5b86c9 14%, var(--card));
+				border-color: color-mix(in srgb, #5b86c9 45%, var(--card));
+			}
+			.static-page :global(.sp-note > span:first-child) {
+				flex: none;
+				font-size: 1.6rem;
+				line-height: 1.2;
+			}
+			.static-page :global(.sp-note p) {
+				margin: 0 !important;
+			}
+
+			/* two-column do / don't */
+			.static-page :global(.sp-split) {
+				display: grid;
+				grid-template-columns: repeat(2, 1fr);
+				gap: 1rem;
+				margin: 0.6rem 0 1rem;
+			}
+			.static-page :global(.sp-box) {
+				padding: 1rem 1.1rem;
+				border-radius: 16px;
+			}
+			.static-page :global(.sp-box h3) {
+				margin: 0 0 0.5rem !important;
+			}
+			.static-page :global(.sp-box ul) {
+				margin: 0;
+				padding: 0;
+				list-style: none;
+			}
+			.static-page :global(.sp-box li) {
+				margin: 0 0 0.4rem;
+				font-size: 0.93rem;
+				line-height: 1.5;
+				color: var(--ink);
+			}
+			.static-page :global(.sp-box.good) {
+				background: color-mix(in srgb, #4caf6a 16%, var(--card));
+				border: 1px solid color-mix(in srgb, #4caf6a 45%, var(--card));
+			}
+			.static-page :global(.sp-box.limit) {
+				background: color-mix(in srgb, #e0a030 18%, var(--card));
+				border: 1px solid color-mix(in srgb, #e0a030 50%, var(--card));
+			}
+
+			/* tiles (e.g. affiliate programs, cookie types) */
+			.static-page :global(.sp-tiles) {
+				list-style: none;
+				padding: 0;
+				margin: 0.4rem 0 1rem;
+				display: grid;
+				grid-template-columns: repeat(auto-fit, minmax(200px, 1fr));
+				gap: 0.7rem;
+			}
+			.static-page :global(.sp-tiles li) {
+				margin: 0;
+				padding: 0.85rem 0.95rem;
+				border-radius: 14px;
+				background: var(--card);
+				border: 2px solid var(--c1);
+			}
+			:root[data-theme='dark'] .static-page :global(.sp-tiles li) {
+				border-color: var(--c2);
+			}
+			.static-page :global(.sp-tiles li > span) {
+				display: block;
+				font-size: 1.5rem;
+			}
+			.static-page :global(.sp-tiles b) {
+				display: block;
+				color: var(--ink);
+				line-height: 1.3;
+			}
+			.static-page :global(.sp-tiles small) {
+				display: block;
+				margin-top: 0.15rem;
+				font-size: 0.82rem;
+				line-height: 1.45;
+				color: var(--muted);
+			}
+
+			/* FAQ */
+			.static-page :global(.sp-faq) {
+				margin: 0 0 0.6rem;
+				border-radius: 14px;
+				border: 1px solid var(--line);
+				background: color-mix(in srgb, var(--c2) 14%, var(--card));
+				overflow: hidden;
+			}
+			.static-page :global(.sp-faq summary) {
+				cursor: pointer;
+				padding: 0.8rem 1rem;
+				font-weight: 700;
+				color: var(--ink);
+				list-style: none;
+			}
+			.static-page :global(.sp-faq summary::-webkit-details-marker) {
+				display: none;
+			}
+			.static-page :global(.sp-faq summary::before) {
+				content: '＋';
+				display: inline-block;
+				width: 1.4em;
+				color: var(--ac);
+			}
+			.static-page :global(.sp-faq[open] summary::before) {
+				content: '－';
+			}
+			.static-page :global(.sp-faq > div) {
+				padding: 0 1rem 0.9rem 2.4rem;
+				font-size: 0.95rem;
+			}
+
+			/* buttons + closing CTA */
+			.static-page :global(.sp-btns) {
 				display: flex;
 				flex-wrap: wrap;
 				gap: 0.7rem;
-				list-style: none;
-				padding: 0;
-				margin: 0;
+				margin: 0.4rem 0 0.2rem;
 			}
-			.related-links a {
-				display: inline-flex;
-				align-items: center;
-				gap: 0.4rem;
-				background: rgb(var(--gray-light));
-				color: rgb(var(--black));
+			.static-page :global(a.sp-btn) {
+				display: inline-block;
+				padding: 0.7rem 1.3rem;
+				font-weight: 700;
 				text-decoration: none;
-				padding: 0.5rem 1rem;
 				border-radius: 999px;
-				font-size: 0.9rem;
-				transition: 0.15s ease;
+				box-shadow: none;
+				transition: transform 0.15s ease, box-shadow 0.15s ease;
 			}
-			.related-links a:hover {
-				background: var(--accent);
-				color: white;
+			.static-page :global(a.sp-btn-main) {
+				background: #d9a441 !important;
+				color: #1b2a26 !important;
+				border: 2px solid #d9a441;
+				box-shadow: 0 4px 12px rgba(0, 0, 0, 0.25);
+			}
+			.static-page :global(a.sp-btn-alt) {
+				background: rgba(0, 0, 0, 0.25) !important;
+				color: #fbf3e2 !important;
+				border: 2px solid rgba(251, 243, 226, 0.85);
+			}
+			.static-page :global(a.sp-btn:hover) {
+				transform: translateY(-2px);
+				box-shadow: 0 8px 18px rgba(0, 0, 0, 0.3);
+			}
+			.static-page :global(.sp-cta) {
+				margin: 1.6rem 0 0;
+				padding: 1.8rem 1.6rem;
+				border-radius: 24px;
+				text-align: center;
+				color: #f6efe0;
+				background:
+					radial-gradient(ellipse 60% 80% at 90% 10%, rgba(255, 207, 120, 0.25), transparent 65%),
+					linear-gradient(150deg, #1b3532 0%, #29493f 100%);
+				box-shadow: 0 14px 32px rgba(27, 53, 50, 0.3);
+			}
+			.static-page :global(.sp-cta h2) {
+				margin: 0 0 0.5rem;
+				padding: 0;
+				border: 0;
+				font-size: 1.45rem;
+				color: #fbf3e2;
+			}
+			.static-page :global(.sp-cta p) {
+				margin: 0 0 1rem;
+				color: #f6efe0;
+			}
+			.static-page :global(.sp-cta .sp-btns) {
+				justify-content: center;
+			}
+			.static-page :global(.sp-cta a:not(.sp-btn)) {
+				color: #f1bd5c;
+				font-weight: 700;
+			}
+			.static-page :global(.sp-cta p.sp-sign) {
+				margin: 1rem 0 0;
+				font-size: 1.1rem;
+				font-style: italic;
+				color: #fbf3e2;
+			}
+
+			@media (max-width: 640px) {
+				.hero-banner {
+					padding: 1.7rem 1.3rem 1.5rem;
+					border-radius: 20px;
+				}
+				.static-page :global(.sp-card) {
+					padding: 1.15rem 1.05rem;
+				}
+				.static-page :global(.sp-split) {
+					grid-template-columns: 1fr;
+				}
+				.static-page :global(.sp-head h2) {
+					font-size: 1.15rem;
+				}
+				.static-page :global(.sp-ico) {
+					display: none;
+				}
 			}
 		</style>
 	</head>
 	<body>
 		<Header />
-		<main class:list={[{ wide }]}>
-			<div class="page-icon">{icon}</div>
-			<h1 class="page-title">{title}</h1>
+		<main class:list={[{ wide, 'hero-page': hero }]} style={hero ? `--c1:${c1};--c2:${c2}` : undefined}>
+			{
+				hero ? (
+					<header class="hero-banner">
+						<div class="hero-badge" aria-hidden="true">
+							{icon}
+						</div>
+						{eyebrow && <p class="hero-eyebrow">{eyebrow}</p>}
+						<h1 class="hero-title">{title}</h1>
+						<p class="hero-lede">{lede}</p>
+						{chips.length > 0 && (
+							<ul class="hero-chips">
+								{chips.map((chip) => (
+									<li>{chip}</li>
+								))}
+							</ul>
+						)}
+					</header>
+				) : (
+					<>
+						<div class="page-icon">{icon}</div>
+						<h1 class="page-title">{title}</h1>
+					</>
+				)
+			}
 			<div class="static-page">
 				<slot />
 			</div>
-			<nav class="related-nav" aria-label="More pages">
-				<h2>More on {SITE_TITLE}</h2>
-				<ul class="related-links">
-					{
-						relatedPages.map((p) => (
-							<li>
-								<a href={p.href}>
-									<span>{p.icon}</span> {p.label}
-								</a>
-							</li>
-						))
-					}
-				</ul>
-			</nav>
 		</main>
 		<Footer />
 	</body>

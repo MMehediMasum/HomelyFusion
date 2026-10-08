@@ -1,223 +1,299 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'October 5, 2026';
+const lastUpdated = 'October 8, 2026';
+
+const sections = [
+	{ id: 'use', label: '🧭 Use of the site', c1: '#35564f' },
+	{ id: 'eligibility', label: '🎂 Eligibility', c1: '#7b5b41' },
+	{ id: 'ip', label: '©️ Intellectual property', c1: '#566485' },
+	{ id: 'user-content', label: '💬 Your contributions', c1: '#7a2c3a' },
+	{ id: 'affiliate', label: '💰 Affiliate links', c1: '#a87a1e' },
+	{ id: 'reviews', label: '⭐ Reviews', c1: '#47653d' },
+	{ id: 'external', label: '🌐 External links', c1: '#6b4256' },
+	{ id: 'community', label: '🤝 Community rules', c1: '#4a5560' },
+	{ id: 'warranty', label: '⚠️ Disclaimer', c1: '#35564f' },
+	{ id: 'liability', label: '⚖️ Liability', c1: '#7b5b41' },
+	{ id: 'privacy', label: '🔒 Privacy', c1: '#566485' },
+	{ id: 'indemnity', label: '🛡️ Indemnification', c1: '#7a2c3a' },
+	{ id: 'termination', label: '🚪 Termination', c1: '#a87a1e' },
+	{ id: 'changes', label: '🔄 Changes', c1: '#47653d' },
+	{ id: 'law', label: '🏛️ Governing law', c1: '#6b4256' },
+	{ id: 'entire', label: '📑 Entire agreement', c1: '#4a5560' },
+];
 ---
 
 <StaticPage
 	title="Terms & Conditions"
-	description="The terms and conditions governing your access to and use of the HomelyFusion website."
+	description="The terms and conditions for using Homely Fusion: acceptable use, content ownership, affiliate links, disclaimers and governing law."
 	icon="📜"
+	eyebrow="The ground rules"
+	lede="A few simple rules for using Homely Fusion, written as plainly as legal terms allow. Reading them takes a few minutes, and they protect both you and us."
+	c1="#566485"
+	c2="#b3c1de"
+	chips={[`🗓️ Last updated: ${lastUpdated}`, '📖 16 short sections', '🏛️ South Carolina law']}
 >
-	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
+	<div class="sp">
+		<ul class="sp-glance">
+			<li><span class="gi">🛋️</span><b>Free to read</b><small>Use the site for personal, non-commercial purposes.</small></li>
+			<li><span class="gi">©️</span><b>Content is protected</b><small>Share with credit and a link. Don't copy it wholesale.</small></li>
+			<li><span class="gi">ℹ️</span><b>Info, not guarantees</b><small>Ideas and advice are informational, not professional guarantees.</small></li>
+			<li><span class="gi">🏛️</span><b>South Carolina law</b><small>Disputes are governed by the laws of South Carolina, USA.</small></li>
+		</ul>
 
-	<p>
-		These Terms and Conditions ("Terms") govern your access to and use of the HomelyFusion website located at
-		<a href="https://homelyfusion.com">https://homelyfusion.com</a> (the "Site"), including all content,
-		features, functionality, and services offered by HomelyFusion ("we", "us", or "our").
-	</p>
-	<p>
-		By accessing or using this Site, you accept and agree to be bound by these Terms, our
-		<a href="/privacy-policy/">Privacy Policy</a>, and our <a href="/disclosure/">Disclosure</a>. If you do not
-		agree with any part of these Terms, please do not use our website.
-	</p>
+		<p class="sp-lead">
+			These Terms and Conditions ("Terms") govern your use of <a href="https://homelyfusion.com">homelyfusion.com</a>
+			(the "Site"), including all content, features and services offered by Homely Fusion ("we", "us" or "our"). By using
+			the Site you agree to these Terms, our <a href="/privacy-policy/">Privacy Policy</a> and our
+			<a href="/disclosure/">Disclosure</a>. If you don't agree, please don't use the Site.
+		</p>
 
-	<h2>1. Use of the website</h2>
-	<p>
-		HomelyFusion provides information, inspiration, and recommendations related to home decor, minimalist living,
-		lighting design, bathroom aesthetics, seasonal decor, and eco-friendly design principles. Your use of the Site
-		must comply with all applicable laws and must not infringe or restrict others' rights or use of the Site.
-	</p>
-	<h3>You agree:</h3>
-	<ul>
-		<li>To use the Site for personal, non-commercial purposes only.</li>
-		<li>Not to duplicate, modify, sell, or exploit any content from the Site for commercial purposes without written permission.</li>
-		<li>Not to engage in any activity that interferes with the normal functioning or security of the website.</li>
-	</ul>
+		<nav class="sp-jump" aria-label="On this page">
+			{sections.map((s) => <a href={`#${s.id}`} style={`--c1:${s.c1}`}>{s.label}</a>)}
+		</nav>
 
-	<h2>2. Eligibility</h2>
-	<p>
-		By using HomelyFusion, you confirm that you are at least <strong>18 years of age</strong> or accessing the
-		website under the supervision of a parent or guardian. If you are under the legal age of majority, you must
-		use the Site only under the guidance of a legal guardian who accepts these Terms.
-	</p>
+		<!-- ===================== 1 ===================== -->
+		<section class="sp-card" id="use" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">1</span><h2>Use of the website</h2><span class="sp-ico">🧭</span></div>
+			<p>
+				Homely Fusion provides home decor information, inspiration and recommendations, covering furniture and seating,
+				bedroom and bathroom decor, dining and kitchen spaces, lighting, wall decor, rugs and flooring, textiles,
+				seasonal decor, storage and DIY projects. Your use of the Site must follow the law and must not restrict
+				anyone else's use of it.
+			</p>
+			<div class="sp-split">
+				<div class="sp-box good">
+					<h3>✅ You agree to</h3>
+					<ul>
+						<li>🏠 Use the Site for personal, non-commercial purposes</li>
+						<li>📖 Respect other readers and the Site's security</li>
+					</ul>
+				</div>
+				<div class="sp-box limit">
+					<h3>🚫 You agree not to</h3>
+					<ul>
+						<li>📋 Copy, sell or exploit our content commercially without written permission</li>
+						<li>🔧 Interfere with the Site's normal operation or security</li>
+					</ul>
+				</div>
+			</div>
+		</section>
 
-	<h2>3. Intellectual property rights</h2>
-	<p>
-		All content published on HomelyFusion—including but not limited to blog posts, images, designs, logos,
-		branding, graphics, downloadable content, and videos—is the
-		<strong>exclusive intellectual property of HomelyFusion</strong> or its licensed partners unless otherwise
-		stated.
-	</p>
-	<h3>You may not:</h3>
-	<ul>
-		<li>Copy, reproduce, distribute, or republish any content without written consent.</li>
-		<li>Modify or reverse-engineer any code or design elements on the Site.</li>
-		<li>Use our content or brand assets in a manner that suggests endorsement or affiliation without permission.</li>
-	</ul>
-	<p>
-		You may, however, share our content on social media platforms with proper credit and link back to the
-		original post, provided it does not misrepresent our content or violate our guidelines.
-	</p>
+		<!-- ===================== 2 ===================== -->
+		<section class="sp-card" id="eligibility" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="sp-head"><span class="sp-num">2</span><h2>Eligibility</h2><span class="sp-ico">🎂</span></div>
+			<p>
+				You must be at least <strong>18 years old</strong>, or use the Site under the supervision of a parent or guardian
+				who accepts these Terms on your behalf.
+			</p>
+		</section>
 
-	<h2>4. User content &amp; contributions</h2>
-	<p>
-		HomelyFusion may invite you to comment on blog posts, submit reviews, upload photos, or share ideas ("User
-		Content"). By doing so, you grant HomelyFusion a
-		<strong>non-exclusive, royalty-free, perpetual, and worldwide license</strong> to use, display, distribute,
-		and reproduce your User Content on our website or promotional channels.
-	</p>
-	<p>You are solely responsible for any content you submit and agree that:</p>
-	<ul>
-		<li>Your content is accurate, lawful, and not misleading.</li>
-		<li>Your content does not violate the rights of any third party (including copyright, trademark, or privacy rights).</li>
-		<li>You will not post spam, offensive material, or impersonate another person or entity.</li>
-	</ul>
-	<p>We reserve the right to edit, moderate, or remove user content that we find inappropriate or against our community values.</p>
+		<!-- ===================== 3 ===================== -->
+		<section class="sp-card" id="ip" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">3</span><h2>Intellectual property</h2><span class="sp-ico">©️</span></div>
+			<p>
+				Everything we publish, including articles, images, designs, logos, graphics and videos, is the
+				<strong>property of Homely Fusion</strong> or its licensors unless stated otherwise. Product names and images
+				belonging to other brands remain theirs.
+			</p>
+			<p><strong>Please don't:</strong></p>
+			<ul class="sp-list">
+				<li><span>📋</span><span>Copy, reproduce, distribute or republish our content without written consent</span></li>
+				<li><span>🔧</span><span>Modify or reverse-engineer the Site's code or design</span></li>
+				<li><span>🏷️</span><span>Use our name or branding to suggest endorsement or affiliation</span></li>
+			</ul>
+			<div class="sp-note">
+				<span>📣</span>
+				<p>
+					<strong>Sharing is welcome.</strong> You may share our content on social media with proper credit and a link
+					back to the original post, as long as you don't misrepresent it.
+				</p>
+			</div>
+		</section>
 
-	<h2>5. Affiliate disclosure &amp; monetization</h2>
-	<p>
-		HomelyFusion participates in <strong>affiliate marketing programs</strong>. Some links on our website are
-		affiliate links, meaning we may earn a commission if you purchase a product or service through these
-		links—<strong>at no extra cost to you</strong>.
-	</p>
-	<p>
-		Our recommendations are based on genuine research, experience, or editorial discretion. See our
-		<a href="/disclosure/">Disclosure</a> for full transparency on how we earn income and handle sponsored
-		content.
-	</p>
+		<!-- ===================== 4 ===================== -->
+		<section class="sp-card" id="user-content" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="sp-head"><span class="sp-num">4</span><h2>Your contributions</h2><span class="sp-ico">💬</span></div>
+			<p>
+				If you send us photos, reviews, questions or ideas ("User Content") and we're able to feature them, you grant
+				Homely Fusion a <strong>non-exclusive, royalty-free, worldwide license</strong> to use, display and reproduce
+				that content on the Site and our promotional channels. We'll only feature your content with your permission.
+			</p>
+			<p>You're responsible for what you send and confirm that it:</p>
+			<ul class="sp-list cols">
+				<li><span>✅</span><span>Is accurate, lawful and not misleading</span></li>
+				<li><span>©️</span><span>Doesn't infringe anyone's copyright, trademark or privacy</span></li>
+				<li><span>🚫</span><span>Isn't spam or offensive, and doesn't impersonate anyone</span></li>
+			</ul>
+		</section>
 
-	<h2>6. Product reviews and recommendations</h2>
-	<p>
-		We offer reviews and recommendations on home decor items, minimalist accessories, lighting, and eco-friendly
-		decor brands. These opinions are our own and may be influenced by personal use, research, or affiliate
-		relationships.
-	</p>
-	<p>
-		We do not manufacture or sell any physical products directly through HomelyFusion. All purchases made via
-		third-party links are governed by the terms and return policies of the respective sellers.
-	</p>
-	<p><strong>We are not responsible for</strong>:</p>
-	<ul>
-		<li>Defective or misrepresented third-party products</li>
-		<li>Shipping delays or issues</li>
-		<li>Payment processing errors on external sites</li>
-		<li>Return or refund issues with other merchants</li>
-	</ul>
-	<p>Please read the merchant's policies before making a purchase.</p>
+		<!-- ===================== 5 ===================== -->
+		<section class="sp-card" id="affiliate" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="sp-head"><span class="sp-num">5</span><h2>Affiliate disclosure &amp; monetization</h2><span class="sp-ico">💰</span></div>
+			<p>
+				Homely Fusion takes part in <strong>affiliate marketing programs</strong>. Some links are affiliate links, which
+				means we may earn a commission if you buy through them, <strong>at no extra cost to you</strong>. Our
+				recommendations rest on research, experience and editorial judgment. Our <a href="/disclosure/">Disclosure</a>
+				explains how we earn income and handle sponsored content.
+			</p>
+		</section>
 
-	<h2>7. External links and third-party websites</h2>
-	<p>
-		HomelyFusion may contain links to third-party websites for your convenience, including affiliate partners,
-		blogs, or retailers.
-	</p>
-	<p>
-		We do not control or endorse the content, services, or privacy practices of third-party sites and are
-		<strong>not liable for any damages or losses</strong> incurred by visiting these sites. We recommend that you
-		review the third-party site's terms and privacy policies before engaging with them.
-	</p>
+		<!-- ===================== 6 ===================== -->
+		<section class="sp-card" id="reviews" style="--c1:#47653d;--c2:#a3c78f">
+			<div class="sp-head"><span class="sp-num">6</span><h2>Product reviews and recommendations</h2><span class="sp-ico">⭐</span></div>
+			<p>
+				Our reviews and recommendations reflect our own opinions, which may be influenced by personal use, research or
+				affiliate relationships. We don't manufacture or sell products. Purchases made through third-party links are
+				governed by the seller's terms and return policies.
+			</p>
+			<p><strong>We're not responsible for:</strong></p>
+			<ul class="sp-list cols">
+				<li><span>📦</span><span>Defective or misrepresented third-party products</span></li>
+				<li><span>🚚</span><span>Shipping delays or problems</span></li>
+				<li><span>💳</span><span>Payment errors on external sites</span></li>
+				<li><span>↩️</span><span>Returns or refunds handled by other merchants</span></li>
+			</ul>
+			<p>Please read a merchant's policies before you buy.</p>
+		</section>
 
-	<h2>8. Comments &amp; community guidelines</h2>
-	<p>
-		We value a respectful and inclusive community. You are welcome to comment on blog posts and engage in
-		discussions, provided that your communication adheres to our community standards.
-	</p>
-	<h3>You agree not to:</h3>
-	<ul>
-		<li>Post anything unlawful, defamatory, threatening, harassing, or otherwise offensive.</li>
-		<li>Share false information, impersonate others, or post promotional/spam content.</li>
-		<li>Disrupt or interfere with the experience of other users.</li>
-	</ul>
-	<p>We reserve the right to moderate, delete, or block comments and users who violate these rules without notice.</p>
+		<!-- ===================== 7 ===================== -->
+		<section class="sp-card" id="external" style="--c1:#6b4256;--c2:#cf93a8">
+			<div class="sp-head"><span class="sp-num">7</span><h2>External links and third-party sites</h2><span class="sp-ico">🌐</span></div>
+			<p>
+				The Site may link to third-party websites for your convenience, such as retailers, brands and other blogs. We
+				don't control or endorse their content, services or privacy practices, and we're
+				<strong>not liable for any loss or damage</strong> from visiting them. Please review their terms and privacy
+				policies first.
+			</p>
+		</section>
 
-	<h2>9. Disclaimer of warranties</h2>
-	<div class="note-box warm">
-		<span class="note-icon">ℹ️</span>
-		<span>
-			All content on HomelyFusion is provided for <strong>informational and educational purposes only</strong>.
-			While we make every effort to ensure the accuracy and usefulness of our content, we make
-			<strong>no guarantees, representations, or warranties</strong> of any kind, expressed or implied, about:
-		</span>
+		<!-- ===================== 8 ===================== -->
+		<section class="sp-card" id="community" style="--c1:#4a5560;--c2:#a9b6c2">
+			<div class="sp-head"><span class="sp-num">8</span><h2>Community guidelines</h2><span class="sp-ico">🤝</span></div>
+			<p>
+				We want Homely Fusion to be a respectful, welcoming place. Whenever you interact with us or other readers
+				through the Site, you agree not to:
+			</p>
+			<ul class="sp-list">
+				<li><span>🚫</span><span>Post anything unlawful, defamatory, threatening, harassing or otherwise offensive</span></li>
+				<li><span>🎭</span><span>Share false information or impersonate others</span></li>
+				<li><span>📢</span><span>Send spam or unsolicited promotions</span></li>
+			</ul>
+			<p>We may moderate, remove or block content and users who break these rules, without notice.</p>
+		</section>
+
+		<!-- ===================== 9 ===================== -->
+		<section class="sp-card" id="warranty" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">9</span><h2>Disclaimer of warranties</h2><span class="sp-ico">⚠️</span></div>
+			<div class="sp-note warn">
+				<span>ℹ️</span>
+				<p>
+					All content is for <strong>informational and educational purposes only</strong>. We work hard to be accurate
+					and useful, but we make <strong>no guarantees or warranties</strong>, express or implied.
+				</p>
+			</div>
+			<p>That includes the:</p>
+			<ul class="sp-list">
+				<li><span>📚</span><span>Completeness or reliability of the information</span></li>
+				<li><span>🎯</span><span>Results you get from our recommendations</span></li>
+				<li><span>🛋️</span><span>Suitability of products or methods for your own home and needs</span></li>
+			</ul>
+			<p>
+				Decorating and DIY involve personal judgment and real-world risks. We're stylists and writers, not architects
+				or contractors. For wiring, plumbing or structural work, hire a licensed professional. You use the Site
+				<strong>at your own risk</strong>.
+			</p>
+		</section>
+
+		<!-- ===================== 10 ===================== -->
+		<section class="sp-card" id="liability" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="sp-head"><span class="sp-num">10</span><h2>Limitation of liability</h2><span class="sp-ico">⚖️</span></div>
+			<p>
+				To the fullest extent the law allows, Homely Fusion and its team won't be liable for any direct, indirect,
+				incidental or consequential damages arising from:
+			</p>
+			<ul class="sp-chips">
+				<li>🔌 Using (or being unable to use) the Site</li>
+				<li>✏️ Errors or omissions in content</li>
+				<li>🛒 Purchases through third-party links</li>
+				<li>🦠 Harmful components transmitted via the Site</li>
+				<li>👥 User content or third-party services</li>
+			</ul>
+			<p>Your sole remedy if you're unhappy with the Site is to stop using it.</p>
+		</section>
+
+		<!-- ===================== 11 ===================== -->
+		<section class="sp-card" id="privacy" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">11</span><h2>Privacy</h2><span class="sp-ico">🔒</span></div>
+			<p>
+				By using Homely Fusion you consent to the collection and use of your information as described in our
+				<a href="/privacy-policy/">Privacy Policy</a>, including the use of cookies and analytics tools. Please read it
+				to see how we handle and protect your data.
+			</p>
+		</section>
+
+		<!-- ===================== 12 ===================== -->
+		<section class="sp-card" id="indemnity" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="sp-head"><span class="sp-num">12</span><h2>Indemnification</h2><span class="sp-ico">🛡️</span></div>
+			<p>
+				You agree to defend and hold harmless Homely Fusion, its owner, affiliates, contributors and employees from any
+				claims, damages, losses or costs resulting from:
+			</p>
+			<ul class="sp-chips">
+				<li>⚠️ Your use or misuse of the Site</li>
+				<li>📜 Violating these Terms</li>
+				<li>©️ Infringing others' rights</li>
+				<li>⚔️ Disputes between you and a third party</li>
+			</ul>
+		</section>
+
+		<!-- ===================== 13 ===================== -->
+		<section class="sp-card" id="termination" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="sp-head"><span class="sp-num">13</span><h2>Termination</h2><span class="sp-ico">🚪</span></div>
+			<p>
+				We may suspend or end your access to the Site at any time, for any reason, without notice or liability. For
+				example, for violating these Terms, misusing the Site or its content, or security and technical issues. Once
+				access ends, your right to use the Site stops immediately.
+			</p>
+		</section>
+
+		<!-- ===================== 14 ===================== -->
+		<section class="sp-card" id="changes" style="--c1:#47653d;--c2:#a3c78f">
+			<div class="sp-head"><span class="sp-num">14</span><h2>Modifications and updates</h2><span class="sp-ico">🔄</span></div>
+			<p>
+				We may revise these Terms at any time. The "Last updated" date at the top shows the latest version. Please check
+				back now and then. Continuing to use the Site after changes are posted means you accept the updated Terms.
+			</p>
+		</section>
+
+		<!-- ===================== 15 ===================== -->
+		<section class="sp-card" id="law" style="--c1:#6b4256;--c2:#cf93a8">
+			<div class="sp-head"><span class="sp-num">15</span><h2>Governing law</h2><span class="sp-ico">🏛️</span></div>
+			<p>
+				These Terms are governed by the laws of the <strong>State of South Carolina, United States</strong>, without
+				regard to conflict-of-law principles. Any dispute arising from them is subject to the exclusive jurisdiction of
+				the courts located in <strong>Charleston, South Carolina</strong>.
+			</p>
+		</section>
+
+		<!-- ===================== 16 ===================== -->
+		<section class="sp-card" id="entire" style="--c1:#4a5560;--c2:#a9b6c2">
+			<div class="sp-head"><span class="sp-num">16</span><h2>Entire agreement</h2><span class="sp-ico">📑</span></div>
+			<p>
+				These Terms, together with our <a href="/privacy-policy/">Privacy Policy</a> and
+				<a href="/disclosure/">Disclosure</a>, are the <strong>entire agreement</strong> between you and Homely Fusion
+				about your use of the Site. If any part is found unenforceable, the rest stays in full effect.
+			</p>
+		</section>
+
+		<!-- ===================== CTA ===================== -->
+		<section class="sp-cta">
+			<h2>💬 Questions about these Terms?</h2>
+			<p>We're happy to explain anything that isn't clear.</p>
+			<div class="sp-btns">
+				<a class="sp-btn sp-btn-main" href="/contact/">📬 Contact us</a>
+				<a class="sp-btn sp-btn-alt" href="/privacy-policy/">🔒 Privacy Policy</a>
+			</div>
+		</section>
 	</div>
-	<ul>
-		<li>The completeness or reliability of the information</li>
-		<li>Results from using our recommendations</li>
-		<li>The suitability of products or methods discussed for your personal needs</li>
-	</ul>
-	<p>
-		You use this website <strong>at your own risk</strong>. Any reliance you place on our content is strictly
-		your own decision.
-	</p>
-
-	<h2>10. Limitation of liability</h2>
-	<p>
-		To the fullest extent permitted by law, HomelyFusion and its team members will not be held liable for any
-		direct, indirect, incidental, or consequential damages arising from:
-	</p>
-	<ul>
-		<li>Use or inability to use the Site</li>
-		<li>Errors or omissions in content</li>
-		<li>Product purchases made through third-party links</li>
-		<li>Any viruses or harmful components transmitted through the Site</li>
-		<li>User-generated content or third-party services</li>
-	</ul>
-	<p>Your sole remedy for dissatisfaction with the Site is to stop using the Site.</p>
-
-	<h2>11. Privacy policy</h2>
-	<p>
-		By using HomelyFusion, you consent to the collection and use of your personal data as described in our
-		<a href="/privacy-policy/">Privacy Policy</a>. We use cookies and analytics tools to improve your experience,
-		personalize content, and analyze website traffic.
-	</p>
-	<p>Please read our full Privacy Policy to understand how we manage, store, and protect your data.</p>
-
-	<h2>12. Indemnification</h2>
-	<p>
-		You agree to indemnify, defend, and hold harmless HomelyFusion, its owners, affiliates, contributors, and
-		employees from any claims, liabilities, damages, losses, or costs resulting from:
-	</p>
-	<ul>
-		<li>Your use or misuse of the website</li>
-		<li>Violation of these Terms</li>
-		<li>Infringement of intellectual property or third-party rights</li>
-		<li>Any dispute between you and a third party</li>
-	</ul>
-
-	<h2>13. Termination</h2>
-	<p>
-		HomelyFusion reserves the right to suspend or terminate your access to the Site at any time, for any reason,
-		without prior notice or liability. This includes, but is not limited to:
-	</p>
-	<ul>
-		<li>Violation of these Terms</li>
-		<li>Unauthorized use of the Site or its content</li>
-		<li>Security breaches or technical issues</li>
-	</ul>
-	<p>Upon termination, your rights to use the Site and its services will immediately cease.</p>
-
-	<h2>14. Modifications and updates</h2>
-	<p>
-		We may revise, update, or replace these Terms at any time without notice. It is your responsibility to review
-		this page periodically to stay informed of any changes. Continued use of the Site after changes are posted
-		constitutes acceptance of the updated Terms. The date at the top of this page shows when these Terms were
-		last updated.
-	</p>
-
-	<h2>15. Governing law</h2>
-	<p>
-		These Terms shall be governed by and construed in accordance with the laws of
-		<strong>[Your Country or State]</strong>, without regard to conflict of law principles.
-	</p>
-	<p>
-		Any dispute arising under or relating to these Terms shall be subject to the exclusive jurisdiction of the
-		courts located in <strong>[City, Country]</strong>.
-	</p>
-
-	<h2>16. Entire agreement</h2>
-	<p>
-		These Terms, along with our <a href="/privacy-policy/">Privacy Policy</a> and
-		<a href="/disclosure/">Disclosure</a>, constitute the <strong>entire agreement</strong> between you and
-		HomelyFusion regarding your use of the Site. If any part of these Terms is found to be unlawful or
-		unenforceable, the remaining sections will remain in full force and effect.
-	</p>
 </StaticPage>

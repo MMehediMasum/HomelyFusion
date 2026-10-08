@@ -1,103 +1,164 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'October 5, 2026';
-
-// TODO: disclosure.md was empty on the WordPress export. This page is drafted only from what your
-// Privacy Policy and Terms already say (affiliate networks, ads, sponsored content, reviews).
-// Review it and adjust to match how you actually operate.
+const lastUpdated = 'October 8, 2026';
 ---
 
 <StaticPage
 	title="Disclosure"
-	description="HomelyFusion's affiliate, advertising, and sponsored content disclosure, including our Amazon Associates disclosure."
+	description="How Homely Fusion earns income: our Amazon Associates disclosure, affiliate links, ads and sponsored content, and how we keep our recommendations honest."
 	icon="💰"
+	eyebrow="Full transparency"
+	lede="Homely Fusion is a for-profit website. Here is, in plain English, how it earns money, and why that never changes the price you pay or the honesty of what we recommend."
+	c1="#a87a1e"
+	c2="#f4d479"
+	chips={[`🗓️ Last updated: ${lastUpdated}`, '💵 Free for readers', '🏷️ Always labeled']}
 >
-	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
+	<div class="sp">
+		<ul class="sp-glance">
+			<li><span class="gi">🆓</span><b>No extra cost to you</b><small>Affiliate links never change the price you pay.</small></li>
+			<li><span class="gi">🏷️</span><b>Clearly labeled</b><small>Sponsored content is marked, never disguised.</small></li>
+			<li><span class="gi">🔎</span><b>Honest opinions</b><small>Recommendations come from research and experience.</small></li>
+			<li><span class="gi">🚫</span><b>We don't sell products</b><small>All purchases happen on the retailer's site.</small></li>
+		</ul>
 
-	<p>
-		HomelyFusion is a for-profit website. This page explains how we earn income so you can make informed
-		decisions when you read our content and use our links.
-	</p>
+		<nav class="sp-jump" aria-label="On this page">
+			<a href="#amazon" style="--c1:#a87a1e">💵 Amazon</a>
+			<a href="#affiliates" style="--c1:#35564f">🔗 Affiliates</a>
+			<a href="#sponsored" style="--c1:#7a2c3a">🤝 Sponsored</a>
+			<a href="#ads" style="--c1:#566485">📣 Ads</a>
+			<a href="#reviews" style="--c1:#7b5b41">⭐ Reviews</a>
+			<a href="#links" style="--c1:#47653d">🌐 External links</a>
+			<a href="#info" style="--c1:#6b4256">ℹ️ Informational only</a>
+		</nav>
 
-	<h2>Amazon Associates disclosure</h2>
-	<p>
-		HomelyFusion is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program
-		designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.com and
-		affiliated sites.
-	</p>
-	<div class="note-box">
-		<span class="note-icon">💵</span>
-		<span>
-			<strong>As an Amazon Associate, we earn from qualifying purchases.</strong> This means that if you click a
-			link to Amazon from this Site and make a purchase, we may receive a small commission—at no additional cost
-			to you.
-		</span>
+		<!-- ===================== 1. AMAZON ===================== -->
+		<section class="sp-card" id="amazon" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="sp-head"><span class="sp-num">1</span><h2>Amazon Associates disclosure</h2><span class="sp-ico">💵</span></div>
+			<p>
+				Homely Fusion is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program
+				designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.com and
+				affiliated sites.
+			</p>
+			<div class="sp-note">
+				<span>💵</span>
+				<p>
+					<strong>As an Amazon Associate, we earn from qualifying purchases.</strong> If you click a link to Amazon from
+					this site and buy something, we may receive a small commission, at no additional cost to you.
+				</p>
+			</div>
+		</section>
+
+		<!-- ===================== 2. OTHER AFFILIATES ===================== -->
+		<section class="sp-card" id="affiliates" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">2</span><h2>Other affiliate relationships</h2><span class="sp-ico">🔗</span></div>
+			<p>
+				Some links on Homely Fusion are affiliate links. If you buy a product or service through them, we may earn a
+				commission, <strong>at no extra cost to you</strong>. Besides Amazon, we may take part in programs such as:
+			</p>
+			<ul class="sp-chips">
+				<li>🛒 CJ Affiliate</li>
+				<li>🛒 ShareASale</li>
+				<li>🤝 PartnerStack</li>
+				<li>🔗 Impact</li>
+				<li>🏠 Other home-related affiliate networks</li>
+			</ul>
+			<p>
+				Our recommendations are based on research, hands-on experience and editorial judgment. Affiliate links don't
+				change your price or your shopping experience, and a product doesn't earn a place in a guide just because it
+				pays a commission.
+			</p>
+		</section>
+
+		<!-- ===================== 3. SPONSORED ===================== -->
+		<section class="sp-card" id="sponsored" style="--c1:#7a2c3a;--c2:#dc7686">
+			<div class="sp-head"><span class="sp-num">3</span><h2>Sponsored content</h2><span class="sp-ico">🤝</span></div>
+			<p>
+				We may publish sponsored content or work with product partners. When we do, it is clearly labeled, so you
+				always know when a brand has been involved.
+			</p>
+		</section>
+
+		<!-- ===================== 4. ADS ===================== -->
+		<section class="sp-card" id="ads" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">4</span><h2>Advertising</h2><span class="sp-ico">📣</span></div>
+			<p>
+				We may display third-party advertisements, which can come from networks such as Google AdSense or Mediavine.
+				These networks may use cookies and similar technologies to show ads based on your interests. We aim to work
+				only with advertisers that fit a home and decor audience. To learn more about cookies and your choices, see our
+				<a href="/privacy-policy/#cookies">Privacy Policy</a>.
+			</p>
+		</section>
+
+		<!-- ===================== 5. REVIEWS ===================== -->
+		<section class="sp-card" id="reviews" style="--c1:#7b5b41;--c2:#d1ae82">
+			<div class="sp-head"><span class="sp-num">5</span><h2>Reviews and recommendations</h2><span class="sp-ico">⭐</span></div>
+			<p>
+				We write buying guides and recommendations across sofas and seating, bedroom and bathroom decor, lighting, rugs,
+				wall decor, storage and more. The opinions are ours, shaped by Gilbert's 14 years of residential styling,
+				research and, where possible, hands-on use. They may be influenced by affiliate relationships, which is exactly
+				why we tell you about them here.
+			</p>
+			<div class="sp-split">
+				<div class="sp-box good">
+					<h3>✅ What we promise</h3>
+					<ul>
+						<li>🔎 Honest, researched opinions</li>
+						<li>🏷️ Affiliate and sponsored links disclosed</li>
+						<li>🔄 Guides updated as products change</li>
+					</ul>
+				</div>
+				<div class="sp-box limit">
+					<h3>⚠️ What to keep in mind</h3>
+					<ul>
+						<li>💲 Prices and availability change, so check before you buy</li>
+						<li>🛋️ Taste is personal: what works for one room may not suit yours</li>
+					</ul>
+				</div>
+			</div>
+		</section>
+
+		<!-- ===================== 6. WE DON'T SELL ===================== -->
+		<section class="sp-card" id="sell" style="--c1:#4a5560;--c2:#a9b6c2">
+			<div class="sp-head"><span class="sp-num">6</span><h2>We don't sell products</h2><span class="sp-ico">🚫</span></div>
+			<p>
+				Homely Fusion does not manufacture or sell any physical products. Every purchase you make through a
+				third-party link is governed by that seller's terms and return policy, so please read them before you buy.
+			</p>
+		</section>
+
+		<!-- ===================== 7. EXTERNAL LINKS ===================== -->
+		<section class="sp-card" id="links" style="--c1:#47653d;--c2:#a3c78f">
+			<div class="sp-head"><span class="sp-num">7</span><h2>External links</h2><span class="sp-ico">🌐</span></div>
+			<p>
+				Our content may link to third-party websites, including retailers, brands and other blogs. We don't control or
+				endorse their content, services or privacy practices. Our <a href="/terms/">Terms &amp; Conditions</a> explain
+				more.
+			</p>
+		</section>
+
+		<!-- ===================== 8. INFO ONLY ===================== -->
+		<section class="sp-card" id="info" style="--c1:#6b4256;--c2:#cf93a8">
+			<div class="sp-head"><span class="sp-num">8</span><h2>Informational purposes only</h2><span class="sp-ico">ℹ️</span></div>
+			<div class="sp-note warn">
+				<span>ℹ️</span>
+				<p>
+					Everything on Homely Fusion is provided for <strong>informational and educational purposes only</strong>. We
+					do our best to be accurate, but we can't guarantee the completeness of the information or the results of
+					following our recommendations. For electrical, plumbing or structural work, please hire a licensed
+					professional.
+				</p>
+			</div>
+		</section>
+
+		<!-- ===================== CTA ===================== -->
+		<section class="sp-cta">
+			<h2>💬 Questions about this disclosure?</h2>
+			<p>If anything here isn't clear, just ask. We're happy to explain how a link or recommendation works.</p>
+			<div class="sp-btns">
+				<a class="sp-btn sp-btn-main" href="/contact/">📬 Contact us</a>
+				<a class="sp-btn sp-btn-alt" href="/about/">🏡 About Homely Fusion</a>
+			</div>
+		</section>
 	</div>
-
-	<h2>Other affiliate relationships</h2>
-	<p>
-		Some links on our website are affiliate links, meaning we may earn a commission if you purchase a product or
-		service through them—<strong>at no extra cost to you</strong>. In addition to Amazon, the affiliate programs
-		we participate in include:
-	</p>
-	<ul>
-		<li>CJ Affiliate</li>
-		<li>ShareASale</li>
-		<li>PartnerStack</li>
-		<li>Impact</li>
-		<li>Other home-related affiliate networks</li>
-	</ul>
-	<p>
-		Our recommendations are based on genuine research, experience, or editorial discretion. These links do not
-		change your price or your shopping experience.
-	</p>
-
-	<h2>Sponsored content</h2>
-	<p>
-		We may publish sponsored content or work with product partners. Sponsored partners are clearly labeled in our
-		content.
-	</p>
-
-	<h2>Advertising disclosure</h2>
-	<p>
-		We display third-party advertisements, which may come from networks such as Google AdSense or Mediavine.
-		These ads may use cookies and tracking to serve relevant ads based on your interests. We strive to partner
-		only with advertisers that align with our values in home decor, minimalism, and eco-conscious living. For more
-		on cookies, see our <a href="/privacy-policy/">Privacy Policy</a>.
-	</p>
-
-	<h2>Product reviews and recommendations</h2>
-	<p>
-		We offer reviews and recommendations on home decor items, minimalist accessories, lighting, and eco-friendly
-		decor brands. These opinions are our own and may be influenced by personal use, research, or affiliate
-		relationships.
-	</p>
-
-	<h2>We don't sell products</h2>
-	<p>
-		HomelyFusion does not manufacture or sell any physical products directly. All purchases made through
-		third-party links are governed by the terms and return policies of the respective sellers. Please read the
-		merchant's policies before making a purchase.
-	</p>
-
-	<h2>External links</h2>
-	<p>
-		Our content may link to third-party websites, including affiliate partners, blogs, and retailers. We do not
-		control or endorse their content, services, or privacy practices. See our
-		<a href="/terms/">Terms &amp; Conditions</a> for details.
-	</p>
-
-	<h2>Informational purposes only</h2>
-	<div class="note-box warm">
-		<span class="note-icon">ℹ️</span>
-		<span>
-			All content on HomelyFusion is provided for <strong>informational and educational purposes only</strong>.
-			We make no guarantees about the completeness of the information or the results of using our
-			recommendations.
-		</span>
-	</div>
-
-	<h2>Questions</h2>
-	<p>If you have questions about this disclosure, please reach out through our <a href="/contact/">Contact page</a>.</p>
 </StaticPage>

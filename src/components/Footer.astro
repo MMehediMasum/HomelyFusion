@@ -1,29 +1,36 @@
 ---
+import { SITE_TITLE } from '../consts';
+
 const today = new Date();
 
-const footerLinks = [
-	{ href: '/about/', label: 'About' },
-	{ href: '/contact/', label: 'Contact' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy' },
-	{ href: '/disclosure/', label: 'Disclosure' },
-	{ href: '/terms/', label: 'Terms' },
-];
----
+const normalize = (path: string) => path.replace(/\/+$/, '') || '/';
 
+// Shown as "More on Homely Fusion" pills. The page you're currently on is left out.
+const footerLinks = [
+	{ href: '/about/', label: 'About Us', icon: '🏡' },
+	{ href: '/contact/', label: 'Contact', icon: '📬' },
+	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
+	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
+	{ href: '/terms/', label: 'Terms', icon: '📜' },
+].filter((link) => normalize(link.href) !== normalize(Astro.url.pathname));
+---
 <footer>
-	<nav class="footer-menu" aria-label="Footer">
-		<ul>
+	<nav class="related-nav" aria-label="More pages">
+		<h2>More on {SITE_TITLE}</h2>
+		<ul class="related-links">
 			{
 				footerLinks.map((link) => (
 					<li>
-						<a href={link.href}>{link.label}</a>
+						<a href={link.href}>
+							<span aria-hidden="true">{link.icon}</span> {link.label}
+						</a>
 					</li>
 				))
 			}
 		</ul>
 	</nav>
 
-	&copy; {today.getFullYear()} Homely Fusion. All rights reserved.
+	&copy; {today.getFullYear()} {SITE_TITLE}. All rights reserved.
 	<div class="social-links">
 	    <a
             href="https://www.facebook.com/GilbertPappas/" target="_blank" rel="nofollow noopener noreferrer">
@@ -67,24 +74,44 @@ const footerLinks = [
 		color: rgb(var(--gray));
 		text-align: center;
 	}
-	.footer-menu ul {
+	.related-nav {
+		margin: 0 auto 1.6em;
+		padding-bottom: 1.6em;
+		max-width: 46em;
+		border-bottom: 1px solid rgb(var(--gray-light));
+	}
+	.related-nav h2 {
+		font-size: 1rem;
+		color: rgb(var(--gray));
+		font-weight: 600;
+		margin: 0 0 1rem;
+		border: none;
+		padding: 0;
+	}
+	.related-links {
 		display: flex;
 		flex-wrap: wrap;
 		justify-content: center;
-		gap: 0.4em 1.4em;
+		gap: 0.7rem;
 		list-style: none;
-		margin: 0 0 1em;
 		padding: 0;
+		margin: 0;
 	}
-	.footer-menu a {
-		color: rgb(var(--gray-dark));
+	.related-links a {
+		display: inline-flex;
+		align-items: center;
+		gap: 0.4rem;
+		background: rgb(var(--gray-light));
+		color: rgb(var(--black));
 		text-decoration: none;
-		font-size: 0.9em;
-		font-weight: 600;
+		padding: 0.5rem 1rem;
+		border-radius: 999px;
+		font-size: 0.9rem;
+		transition: 0.15s ease;
 	}
-	.footer-menu a:hover {
-		color: var(--accent);
-		text-decoration: underline;
+	.related-links a:hover {
+		background: var(--accent);
+		color: white;
 	}
 	.social-links {
 		display: flex;

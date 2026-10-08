@@ -1,23 +1,136 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
+
+const CONTACT_EMAIL = 'gilbertjpappas@gmail.com';
+const subject = encodeURIComponent('Hello from a Homely Fusion reader');
 ---
 
 <StaticPage
 	title="Contact Us"
-	description="Get in touch with the HomelyFusion team with questions about our decor recommendations, design guidance, or feedback."
+	description="Questions about a decor guide, a styling idea or a correction? Get in touch with Gilbert Pappas, the interior stylist behind Homely Fusion, in Charleston, South Carolina."
 	icon="📬"
+	eyebrow="Let's talk decor"
+	lede="Staring at a blank wall, a tired sofa or a tiny living room? Questions, feedback and corrections are always welcome. Every message is read by Gilbert himself, the interior stylist behind Homely Fusion."
+	c1="#6b4256"
+	c2="#cf93a8"
+	chips={['✉️ Reply by email', '📍 Charleston, South Carolina', '🗣️ English']}
 >
-	<p>
-		At <strong>HomelyFusion</strong>, we're passionate about helping you create a home that feels uniquely
-		yours—cozy, stylish, sustainable, and inspiring. Whether you have a question about one of our decor
-		recommendations, need design guidance, want to provide feedback, or are experiencing an issue, we're here to
-		help.
-	</p>
-	<p>We value your input and look forward to hearing from you.</p>
+	<div class="sp">
+		<ul class="sp-glance">
+			<li>
+				<span class="gi">✉️</span><b>Email is best</b><small>One address, no forms or tickets. Just write.</small>
+			</li>
+			<li>
+				<span class="gi">👤</span><b>A real person</b><small>Gilbert Pappas reads and answers every message.</small>
+			</li>
+			<li>
+				<span class="gi">⏱️</span><b>Usually a few days</b><small>Replies are typically sent within a few business days.</small>
+			</li>
+			<li>
+				<span class="gi">🇺🇸</span><b>Based in Charleston</b><small>Eastern Time, so expect a reply during U.S. working hours.</small>
+			</li>
+		</ul>
 
-	<h2>Email</h2>
-	<p>
-		The fastest way to reach us is by email:
-		<a href="mailto:YOUR-EMAIL@example.com">YOUR-EMAIL@example.com</a>
-	</p>
+		<!-- ===================== EMAIL ===================== -->
+		<section class="sp-card" id="email" style="--c1:#6b4256;--c2:#cf93a8">
+			<div class="sp-head"><span class="sp-num">1</span><h2>The fastest way to reach me</h2><span class="sp-ico">✉️</span></div>
+			<p>
+				Send an email to <a href={`mailto:${CONTACT_EMAIL}`}>{CONTACT_EMAIL}</a>. The more you tell me, the more useful my
+				reply will be.
+			</p>
+			<div class="sp-btns">
+				<a class="sp-btn sp-btn-main" href={`mailto:${CONTACT_EMAIL}?subject=${subject}`}>✉️ Email Gilbert</a>
+			</div>
+			<p style="margin-top:1rem">
+				<strong>A good message includes:</strong>
+			</p>
+			<ul class="sp-list cols">
+				<li><span>🛋️</span><span>The room or project you're working on</span></li>
+				<li><span>📐</span><span>Rough size and layout, if it matters</span></li>
+				<li><span>💰</span><span>Your budget, and what you already own</span></li>
+				<li><span>🔑</span><span>Whether you rent or own (it changes the advice)</span></li>
+			</ul>
+		</section>
+
+		<!-- ===================== WHAT TO WRITE ABOUT ===================== -->
+		<section class="sp-card" id="topics" style="--c1:#35564f;--c2:#93b9ab">
+			<div class="sp-head"><span class="sp-num">2</span><h2>What you can write to me about</h2><span class="sp-ico">💬</span></div>
+			<ul class="sp-tiles">
+				<li style="--c1:#7b5b41;--c2:#d1ae82"><span>🛋️</span><b>Decor questions</b><small>Layouts, colors, styling a room with what you own.</small></li>
+				<li style="--c1:#a87a1e;--c2:#f4d479"><span>✋</span><b>Corrections</b><small>Spotted a mistake or an outdated tip? I'll fix it.</small></li>
+				<li style="--c1:#566485;--c2:#b3c1de"><span>💡</span><b>Topic requests</b><small>Tell me which room or project to cover next.</small></li>
+				<li style="--c1:#7a2c3a;--c2:#dc7686"><span>🤝</span><b>Collaborations</b><small>Brand and sponsorship inquiries. Sponsored content is always labeled.</small></li>
+				<li style="--c1:#4a5560;--c2:#a9b6c2"><span>🔒</span><b>Privacy requests</b><small>Access or deletion requests. See the Privacy Policy.</small></li>
+				<li style="--c1:#47653d;--c2:#a3c78f"><span>🛠️</span><b>Site problems</b><small>Broken link, page not loading? Let me know.</small></li>
+			</ul>
+		</section>
+
+		<!-- ===================== HONEST LIMITS ===================== -->
+		<section class="sp-card" id="limits" style="--c1:#a87a1e;--c2:#f4d479">
+			<div class="sp-head"><span class="sp-num">3</span><h2>What I can and can't help with</h2><span class="sp-ico">🧭</span></div>
+			<div class="sp-split">
+				<div class="sp-box good">
+					<h3>✅ Happy to help</h3>
+					<ul>
+						<li>💰 Budget-friendly room refreshes</li>
+						<li>📐 Small-space layouts</li>
+						<li>🏺 Mixing thrifted and secondhand finds</li>
+						<li>🍂 Seasonal decor ideas</li>
+					</ul>
+				</div>
+				<div class="sp-box limit">
+					<h3>⚠️ Outside my lane</h3>
+					<ul>
+						<li>🏗️ Structural, wiring or plumbing work: please hire a licensed pro</li>
+						<li>📦 Orders and returns: Homely Fusion doesn't sell products, so contact the retailer</li>
+						<li>🏷️ Exact prices and stock: they change, so check the store</li>
+					</ul>
+				</div>
+			</div>
+		</section>
+
+		<!-- ===================== FAQ ===================== -->
+		<section class="sp-card" id="faq" style="--c1:#566485;--c2:#b3c1de">
+			<div class="sp-head"><span class="sp-num">4</span><h2>Quick answers</h2><span class="sp-ico">❓</span></div>
+			<details class="sp-faq">
+				<summary>Do you offer one-on-one design consulting?</summary>
+				<div>
+					Gilbert is a professional home decor consultant, so feel free to ask. Tell me about your space and what
+					you need in an email, and I'll let you know what's possible.
+				</div>
+			</details>
+			<details class="sp-faq">
+				<summary>Can you recommend a specific product for my room?</summary>
+				<div>
+					Often, yes. Include your budget and room details. Keep in mind that some product links on the site are
+					affiliate links, explained on our <a href="/disclosure/">Disclosure page</a>.
+				</div>
+			</details>
+			<details class="sp-faq">
+				<summary>I found something outdated or wrong. What should I do?</summary>
+				<div>Send me the page link and what needs fixing. Corrections are always welcome, and I update guides when products and prices change.</div>
+			</details>
+			<details class="sp-faq">
+				<summary>I'd like to work with Homely Fusion as a brand.</summary>
+				<div>
+					Email me with a short description of your product and what you have in mind. Any sponsored content is
+					clearly labeled, and recommendations stay honest.
+				</div>
+			</details>
+		</section>
+
+		<!-- ===================== ADDRESS / CTA ===================== -->
+		<section class="sp-cta">
+			<h2>📮 Where I'm based</h2>
+			<p>
+				88 Rutledge Ave, Charleston, SC 29401, United States<br />
+				📧 <a href={`mailto:${CONTACT_EMAIL}`}>{CONTACT_EMAIL}</a>
+			</p>
+			<div class="sp-btns">
+				<a class="sp-btn sp-btn-main" href={`mailto:${CONTACT_EMAIL}?subject=${subject}`}>✉️ Say hello</a>
+				<a class="sp-btn sp-btn-alt" href="/about/">👋 About Gilbert</a>
+			</div>
+			<p class="sp-sign">Design that feels like you. — Gilbert</p>
+		</section>
+	</div>
 </StaticPage>
