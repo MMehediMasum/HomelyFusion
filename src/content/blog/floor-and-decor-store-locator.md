@@ -20,10 +20,10 @@ Whether you need supplies for a new project or want to browse designs, this tool
 
 
 
-## <a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Product Elevations Acacia Wood Chain Link Decor</a>
+## <a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Product Elevations Acacia Wood Chain Link Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Product Elevations Acacia Wood Chain Link Decor-Modern Home Decor for Farmhouse, Book Shelves, and Racks-Rustic Coffee Table Decor (Brown)" src="https://m.media-amazon.com/images/I/41L+dCQQ8CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Product Elevations Acacia Wood Chain Link Decor-Modern Home Decor for Farmhouse, Book Shelves, and Racks-Rustic Coffee Table Decor (Brown)" src="https://m.media-amazon.com/images/I/41L+dCQQ8CL._SL500_.jpg"/></a>
 
 
 The **Product Elevations Acacia Wood Chain Link Decor** is ideal for individuals looking to enhance their living spaces with a touch of rustic charm. Perfect for homeowners who appreciate **modern farmhouse aesthetics** or anyone wanting to add unique accents to **book shelves, racks, or coffee tables**, this decor piece combines style with functionality in a compact design.
@@ -46,7 +46,7 @@ Crafted from premium **Acacia wood**, this chain link decor piece offers both ae
 
 Beyond its visual charm, the decor serves as a versatile element in home styling. It can be paired with books, plants, or other decorative items to create a layered and inviting look. The natural wood material not only ensures longevity but also adds an organic touch that enhances the overall ambiance of your living space, making it a smart choice for anyone looking to blend function with rustic elegance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BGXFZ8N7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

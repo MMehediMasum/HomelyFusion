@@ -20,10 +20,10 @@ For a touch of elegance, consider the Monaghan Vintage Sofa with its plush cushi
 
 
 
-## <a href="https://www.amazon.com/dp/B0CHLM83K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLM83K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLM83K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/41HdPtUh6BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLM83K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/41HdPtUh6BL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Cashton Casual Sofa** in **Blue** is perfect for individuals or families looking to enhance their **living room** with a stylish yet comfortable seating option. Ideal for those who value both aesthetics and functionality, this sofa suits anyone wanting a **durable** and **elegant centerpiece** that complements a variety of interior designs.
@@ -46,10 +46,10 @@ The **Cashton Casual Sofa** features a well-thought-out design that combines sty
 
 Beyond comfort, the sofa's rich **blue color** introduces a fresh and inviting ambiance to your **living room**. Its versatile style fits seamlessly into both modern and traditional interiors, providing a focal point that enhances the overall décor. With a balanced weight, it remains stable without being overly cumbersome, making it a practical addition to any home.
 
-## <a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table</a>
+## <a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table, Antique Cream" src="https://m.media-amazon.com/images/I/31pNa0l+XQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table, Antique Cream" src="https://m.media-amazon.com/images/I/31pNa0l+XQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table** in **Antique Cream** is ideal for homeowners and interior enthusiasts who appreciate a blend of rustic charm and modern functionality. This piece is perfect for those looking to enhance their living room or hallway with a stylish yet practical table that complements farmhouse, cottage, or shabby chic decor styles. If you want a versatile table that offers both aesthetic appeal and useful storage space, this sofa table is an excellent choice.
@@ -72,10 +72,10 @@ The **Signature Design by Ashley Bolanburg Farmhouse Sofa Table** features a bea
 
 Constructed by **Ashley Furniture Industries**, this sofa table boasts durable materials and quality craftsmanship that ensure long-lasting use. The sturdy weight of the table adds to its stability, making it a reliable piece of furniture in any home setting. Its farmhouse aesthetic combined with functional design offers users a perfect blend of style and utility, enhancing both the ambiance and organization of your living spaces.
 
-## <a href="https://www.amazon.com/dp/B0DCNXJRTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Monaghan Vintage Sofa</a>
+## <a href="https://www.amazon.com/dp/B0DCNXJRTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Monaghan Vintage Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCNXJRTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Monaghan Vintage Sofa with Accent Pillows, Reversible Cushions and Rolled Arms, Beige" src="https://m.media-amazon.com/images/I/31ZUolzYdqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCNXJRTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Monaghan Vintage Sofa with Accent Pillows, Reversible Cushions and Rolled Arms, Beige" src="https://m.media-amazon.com/images/I/31ZUolzYdqL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Monaghan Vintage Sofa** with **Accent Pillows**, **Reversible Cushions**, and **Rolled Arms** in **Beige** is perfect for those seeking a blend of classic style and modern comfort. Ideal customers include homeowners looking to enhance their living room with a timeless piece that offers both aesthetic appeal and functional seating. It suits individuals who appreciate durable furniture with versatile design elements that complement various interior decors.
@@ -99,10 +99,10 @@ The **Monaghan Vintage Sofa** stands out with its thoughtful design that combine
 
 Crafted by the reputable **Signature Design by Ashley**, this sofa is built with quality materials ensuring durability and resilience. The neutral **beige color** serves as a versatile backdrop, easily blending with various interior themes from rustic to contemporary. Its spacious size is perfect for families or anyone who enjoys entertaining guests, providing ample seating without compromising on style or comfort.
 
-## <a href="https://www.amazon.com/dp/B0D6GY1H48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D6GY1H48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6GY1H48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Sofa with 4 Toss Pillows, Light Brown" src="https://m.media-amazon.com/images/I/317dfKXlOaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6GY1H48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Sofa with 4 Toss Pillows, Light Brown" src="https://m.media-amazon.com/images/I/317dfKXlOaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Stonemeade Casual Sofa** in **Light Brown** is ideal for individuals or families looking to enhance their living space with a comfortable and stylish seating option. Perfect for those who appreciate casual elegance and need a versatile sofa that blends well with various décor styles, this sofa is suited for both everyday use and entertaining guests. Its size and design make it particularly appealing to homeowners seeking a durable yet inviting centerpiece for their living room.
@@ -125,10 +125,10 @@ The **Signature Design by Ashley Stonemeade Casual Sofa** boasts a well-crafted 
 
 With dimensions of **39 inches in height, 92 inches in width, and 41 inches in length**, this sofa offers generous seating space while maintaining a casual and approachable look. The sturdy build by **Ashley Furniture Industries** ensures that this piece will withstand daily use, making it a practical and stylish investment for anyone looking to upgrade their living room setup.
 
-## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
+## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows** in **Light Gray** is ideal for individuals or families seeking a stylish yet comfortable seating solution that complements modern home décor. Perfect for those who value both aesthetics and functionality, this sofa suits living rooms that require a versatile centerpiece with a neutral tone. Buyers looking for durable furniture with a contemporary design will find this sofa an excellent choice.
@@ -151,10 +151,10 @@ The **Altari Modern Sofa** stands out with its sleek alloy color and well-though
 
 Beyond aesthetics, the inclusion of two accent pillows adds a layer of coziness and visual appeal, allowing users to customize their seating experience. The neutral **light gray** upholstery not only blends effortlessly with various décor themes but also creates a calming ambiance. This sofa is an excellent investment for anyone wanting a modern, comfortable, and durable furniture piece that elevates their home's interior.
 
-## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand** is ideal for individuals or families seeking a stylish yet highly functional seating solution for their living space. Those who value comfort, modern design, and convenience will find this power reclining sofa especially appealing. It is perfect for anyone wanting to enhance their home with a durable and adjustable piece of furniture that caters to relaxation and ergonomic support.
@@ -177,10 +177,10 @@ The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa** featu
 
 Constructed with high-quality **DuraPella upholstery**, this sofa is not only soft to the touch but also highly durable and resistant to everyday wear and tear. The neutral **sand beige color** ensures that it seamlessly fits into any decor theme, from modern minimalist to classic cozy settings. Its generous dimensions provide ample seating space, making it an excellent choice for families or those who enjoy lounging with friends.
 
-## <a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Simplejoy Contemporary Sofa</a>
+## <a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Simplejoy Contemporary Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley SimpleJoy Contemporary Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/31lKQhYa+YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley SimpleJoy Contemporary Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/31lKQhYa+YL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley SimpleJoy Contemporary Sofa** in **Blue** is ideal for individuals seeking a stylish yet comfortable centerpiece for their **living room**. Perfect for homeowners or renters who appreciate modern design with functionality, this sofa suits those who want to enhance their living space with a vibrant and cozy seating option. It is especially suitable for small to medium-sized rooms given its compact dimensions.
@@ -203,10 +203,10 @@ The **SimpleJoy Contemporary Sofa** combines sleek design with practical comfort
 
 Beyond aesthetics, this sofa provides excellent comfort with plush cushions that support relaxation after a long day. Its lightweight frame allows for easy repositioning, helping users refresh their living space layout whenever desired. Overall, the **Signature Design by Ashley SimpleJoy Sofa** is a stylish, practical choice for anyone looking to enhance their living room ambiance with a blend of comfort and contemporary appeal.
 
-## <a href="https://www.amazon.com/dp/B0CXV4XH53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Colleton Classic Leather Match Sofa With Nailheads</a>
+## <a href="https://www.amazon.com/dp/B0CXV4XH53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Colleton Classic Leather Match Sofa With Nailheads</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXV4XH53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Colleton Classic Leather Match Sofa with Nailheads, Dark Brown" src="https://m.media-amazon.com/images/I/31KQ58bVO9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXV4XH53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Colleton Classic Leather Match Sofa with Nailheads, Dark Brown" src="https://m.media-amazon.com/images/I/31KQ58bVO9L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Colleton Classic Leather Match Sofa with Nailheads** in **Dark Brown** is ideal for individuals seeking a stylish yet durable seating option that complements both traditional and modern interiors. This sofa is perfect for homeowners who appreciate classic design elements combined with practical comfort, making it suitable for living rooms, offices, or reception areas.
@@ -229,10 +229,10 @@ Crafted by **Signature Design by Ashley**, this sofa combines aesthetic appeal w
 
 Beyond its visual appeal, the sofa’s generous size offers comfort and versatility, accommodating family gatherings or casual lounging. The **dark brown color** is not only timeless but also practical, as it tends to hide minor stains and wear. This makes the sofa a great investment for those looking for both style and durability in their living space.
 
-## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Lonoke Contemporary Sofa** in **Beige** is ideal for homeowners looking to enhance their **living room** with a blend of **modern style** and **comfort**. This sofa suits those who appreciate a neutral color palette that easily complements various interior décors. If you want a durable piece from a trusted brand that offers both functionality and aesthetic appeal, this sofa is a great choice.
@@ -255,10 +255,10 @@ The **Signature Design by Ashley Lonoke Contemporary Sofa** features a sleek and
 
 Crafted by **Ashley Furniture Industries**, this sofa emphasizes both durability and comfort. The supportive cushions ensure that users can relax for extended periods without discomfort, while the sturdy frame offers long-lasting stability. This combination of style, comfort, and quality makes the sofa a valuable addition to contemporary homes seeking functional yet attractive furniture.
 
-## <a href="https://www.amazon.com/dp/B0CHL5JSYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Loveseat</a>
+## <a href="https://www.amazon.com/dp/B0CHL5JSYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Loveseat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHL5JSYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Loveseat for Living Room, Blue" src="https://m.media-amazon.com/images/I/41MXxoM+sjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHL5JSYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Loveseat for Living Room, Blue" src="https://m.media-amazon.com/images/I/41MXxoM+sjL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Cashton Casual Loveseat** in **Blue** is perfect for individuals seeking a stylish yet comfortable seating option for their living room. Ideal for small to medium-sized spaces, this loveseat caters to those who want to enhance their home décor without compromising on comfort or quality.

@@ -23,10 +23,10 @@ Another option is the FloorPops x Chris Loves Julia Bonneville Oxblood Peel and 
 
 
 
-## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sorbus Wood Grain Floor Tiles Foam Mat Eva Interlocking Mats</a>
+## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sorbus Wood Grain Floor Tiles Foam Mat Eva Interlocking Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
 
 
 The **Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat** is ideal for homeowners and renters looking to add a comfortable, stylish, and practical flooring solution to their **home playroom, basement, apartment, or dance area**. It is also perfect for parents who want a safe and cushioned surface for their **babies and children**, as well as vendors seeking an attractive and portable flooring option for **trade shows**.
@@ -50,10 +50,10 @@ The **Sorbus Wood Grain Floor Tiles** feature high-quality EVA foam construction
 
 With a thickness of **3/8-inch**, these foam mats provide excellent shock absorption, making them ideal for exercise, play, or dance activities. The cushioned surface helps reduce impact on joints and prevents slips, ensuring safety for users of all ages. Additionally, the included border pieces help create a seamless and polished edge, enhancing the overall look and preventing tiles from shifting during use.
 
-## <a href="https://www.amazon.com/dp/B0DN2YHCSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Floorpops X Chris Loves Julia Bonneville Oxblood Peel And Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B0DN2YHCSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Floorpops X Chris Loves Julia Bonneville Oxblood Peel And Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN2YHCSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FloorPops x Chris Loves Julia Bonneville Oxblood Peel and Stick Floor Tiles, FP6333" src="https://m.media-amazon.com/images/I/31-jaZO-+3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN2YHCSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FloorPops x Chris Loves Julia Bonneville Oxblood Peel and Stick Floor Tiles, FP6333" src="https://m.media-amazon.com/images/I/31-jaZO-+3L._SL500_.jpg"/></a>
 
 
 The **FloorPops x Chris Loves Julia Bonneville Oxblood Peel and Stick Floor Tiles, FP6333** are ideal for homeowners and renters looking for an easy and stylish way to upgrade their flooring without a permanent commitment. These **peel and stick floor tiles** are perfect for DIY enthusiasts and anyone seeking a quick renovation solution that combines durability with aesthetic appeal. If you want to add a splash of bold **red color** to your space while enjoying hassle-free installation, these tiles are an excellent choice.
@@ -76,10 +76,10 @@ These **FloorPops peel and stick floor tiles** boast an easy installation proces
 
 Beyond their visual appeal, these tiles offer practical benefits such as quick removal and replacement, ideal for those who like to refresh their decor regularly or renters who cannot commit to permanent flooring changes. The peel and stick adhesive ensures a secure fit on most clean, flat surfaces without the mess of glue or grout, streamlining the entire renovation experience. Overall, the **FloorPops x Chris Loves Julia Bonneville Oxblood Peel and Stick Floor Tiles** deliver a blend of convenience, style, and affordability for users seeking a simple way to transform their floors.
 
-## <a href="https://www.amazon.com/dp/B01C911R54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vinyl Peel And Stick Floor Tile</a>
+## <a href="https://www.amazon.com/dp/B01C911R54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vinyl Peel And Stick Floor Tile</a>
 
 
-<a href="https://www.amazon.com/dp/B01C911R54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vinyl Peel and Stick Floor Tile, Self-Adhesive Wood Plank, 10-Pack (15 Square Feet) - 6 Inch Width, 36 Inch Length, 1.2mm - Walnut - Easy DIY Nexus Planks for Any Room by Achim Home Decor" src="https://m.media-amazon.com/images/I/31iEBVA6J-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01C911R54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vinyl Peel and Stick Floor Tile, Self-Adhesive Wood Plank, 10-Pack (15 Square Feet) - 6 Inch Width, 36 Inch Length, 1.2mm - Walnut - Easy DIY Nexus Planks for Any Room by Achim Home Decor" src="https://m.media-amazon.com/images/I/31iEBVA6J-L._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and DIY enthusiasts looking to upgrade their floors quickly and affordably, the **Vinyl Peel and Stick Floor Tile** in **Walnut** finish by **Achim Home Decor** is perfect for anyone wanting a stylish, easy-to-install flooring solution that doesn’t require professional help.

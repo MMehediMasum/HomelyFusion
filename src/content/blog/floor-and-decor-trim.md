@@ -23,10 +23,10 @@ Many trims are easy to install with peel-and-stick backing or screw nails. Water
 
 
 
-## <a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Soengsau 39" Flexible Peel And Stick Quarter Round Molding Trim</a>
+## <a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Soengsau 39" Flexible Peel And Stick Quarter Round Molding Trim</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Soengsau 39" and="" base,="" corner"="" countertops,="" edge="" flexible="" floors="" for="" molding="" moulding="" peel="" quarter="" round="" rubber="" self-adhesive="" shower="" src="https://m.media-amazon.com/images/I/41k03A4hsmL._SL500_.jpg" stick="" trim,="" wall=""/></a>
+<a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Soengsau 39" and="" base,="" corner"="" countertops,="" edge="" flexible="" floors="" for="" molding="" moulding="" peel="" quarter="" round="" rubber="" self-adhesive="" shower="" src="https://m.media-amazon.com/images/I/41k03A4hsmL._SL500_.jpg" stick="" trim,="" wall=""/></a>
 
 
 The **Soengsau 39" Flexible Peel and Stick Quarter Round Molding Trim** is ideal for homeowners, DIY enthusiasts, and professionals looking to easily enhance the finish of their **countertops**, **shower bases**, **floors**, and **wall edge corners**. If you want a quick, mess-free solution to protect and beautify edges without complicated installation, this self-adhesive molding trim is perfect for you.
@@ -49,12 +49,12 @@ The **Soengsau 39" Flexible Peel and Stick Quarter Round Molding Trim** is craft
 
 Additionally, this molding trim acts as a protective barrier, preventing water damage and dirt accumulation in vulnerable edge areas. Its durable rubber composition ensures long-lasting performance even in high-moisture environments like shower bases or countertops. The versatility of this molding trim means it can be used in various home improvement projects, enhancing both aesthetics and functionality with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DWMFYW8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B071DVHWZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Instatrim The Original Flexible Trim</a>
+## <a href="https://www.amazon.com/dp/B071DVHWZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Instatrim The Original Flexible Trim</a>
 
 
-<a href="https://www.amazon.com/dp/B071DVHWZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" adhesive="" alt="InstaTrim The Original Flexible Trim - 2-Pack of 10ft Grey 1/2" bathtubs,="" caulk="" caulking="" counters,="" floors="" for="" in="" including="" made="" many="" sinks,="" src="https://m.media-amazon.com/images/I/41kPRcVXR+L._SL500_.jpg" tape="" tile,="" trim="" usa"="" uses="" wide="" with=""/></a>
+<a href="https://www.amazon.com/dp/B071DVHWZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" adhesive="" alt="InstaTrim The Original Flexible Trim - 2-Pack of 10ft Grey 1/2" bathtubs,="" caulk="" caulking="" counters,="" floors="" for="" in="" including="" made="" many="" sinks,="" src="https://m.media-amazon.com/images/I/41kPRcVXR+L._SL500_.jpg" tape="" tile,="" trim="" usa"="" uses="" wide="" with=""/></a>
 
 
 The **InstaTrim The Original Flexible Trim** is ideal for homeowners, DIY enthusiasts, and professionals seeking a reliable and versatile solution for sealing and finishing around bathtubs, sinks, counters, tiles, and floors. If you want a neat, waterproof, and durable trim that is easy to apply and maintain, this product is a perfect choice.
@@ -78,12 +78,12 @@ The **InstaTrim Flexible Trim** features a slim, 1/2" wide design with a height 
 
 Made by **CornerFlex** in the USA, this caulk tape combines durability and functionality, resisting water, mildew, and daily wear and tear. It is perfect for areas exposed to moisture such as bathrooms and kitchens, preventing water damage and mold growth. Whether you’re refreshing old caulking or completing a new project, the **InstaTrim Original Flexible Trim** offers a convenient and aesthetically pleasing solution that saves time and effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B071DVHWZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B071DVHWZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09988SD2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kiarog Silicone Shower Threshold Water Strip Dam</a>
+## <a href="https://www.amazon.com/dp/B09988SD2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kiarog Silicone Shower Threshold Water Strip Dam</a>
 
 
-<a href="https://www.amazon.com/dp/B09988SD2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KiaRog 78 Inch Silicone Shower Threshold Water Strip Dam, Waterproof Barrier Splash Guard, Seal for Kitchen Sink, Bathroom, Shower,Public or Business Places (White), 78’’ L x 0.79 W 0.5’’ H" src="https://m.media-amazon.com/images/I/21w4RX14h8S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09988SD2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KiaRog 78 Inch Silicone Shower Threshold Water Strip Dam, Waterproof Barrier Splash Guard, Seal for Kitchen Sink, Bathroom, Shower,Public or Business Places (White), 78’’ L x 0.79 W 0.5’’ H" src="https://m.media-amazon.com/images/I/21w4RX14h8S._SL500_.jpg"/></a>
 
 
 The **KiaRog 78 Inch Silicone Shower Threshold Water Strip Dam** is perfect for homeowners, renters, and business owners who want to prevent water leakage in their **kitchen sinks, bathrooms, showers,** or **public spaces**. If you are seeking an effective and durable waterproof barrier that keeps floors dry and safe, this product is an ideal choice. It is especially suitable for those who prioritize easy installation and long-lasting protection against water splashes.
@@ -105,12 +105,12 @@ The **KiaRog Silicone Shower Threshold Water Strip Dam** features a height of **
 
 Additionally, the waterproof seal guard is designed for effortless maintenance and longevity. Its smooth surface resists mold and mildew buildup, contributing to a cleaner and healthier environment in your bathroom or kitchen. This product is also ideal for high-traffic public or business places, where water containment is crucial to maintain safety and cleanliness. Installing this water strip dam enhances the overall functionality of your wet areas, providing peace of mind and reducing costly water damage repairs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09988SD2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09988SD2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floor Transition Strip</a>
+## <a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floor Transition Strip</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="[New Upgrade] Floor Transition Strip, Self Adhesive Rubber Rug Gripper Tape Carpet Edge Trim Strip, Wood Tile Laminate Transition Cover Doorway Gap for Threshold Height Less Than 6mm (Gray, 10ft)" src="https://m.media-amazon.com/images/I/41ump0IFOzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="[New Upgrade] Floor Transition Strip, Self Adhesive Rubber Rug Gripper Tape Carpet Edge Trim Strip, Wood Tile Laminate Transition Cover Doorway Gap for Threshold Height Less Than 6mm (Gray, 10ft)" src="https://m.media-amazon.com/images/I/41ump0IFOzL._SL500_.jpg"/></a>
 
 
 The **[New Upgrade] Floor Transition Strip** is ideal for homeowners and DIY enthusiasts looking to seamlessly connect different types of flooring such as wood, tile, or laminate. If you need a durable, easy-to-install solution to cover gaps and create a smooth transition in doorways or between rooms with a threshold height less than 6mm, this self-adhesive rubber rug gripper tape is a perfect choice. It’s especially suitable for those who want a clean, professional finish without the hassle of complex installation.
@@ -133,12 +133,12 @@ The **Floatlive Floor Transition Strip** stands out due to its high-quality rubb
 
 With precise dimensions tailored for common doorway thresholds, the transition strip offers both functionality and aesthetic appeal. It not only hides unsightly gaps but also protects flooring edges from wear and damage over time. By choosing this product, users benefit from a combination of durability, ease of use, and improved safety, making it a practical addition to any home improvement project.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DYXBDWSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001005O6E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products Satin Brass Aluminum Fluted Carpet Trim</a>
+## <a href="https://www.amazon.com/dp/B001005O6E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products Satin Brass Aluminum Fluted Carpet Trim</a>
 
 
-<a href="https://www.amazon.com/dp/B001005O6E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 79244 2 in. X 36 in. Satin Brass Aluminum Fluted Carpet Trim w/Screw Nails" src="https://m.media-amazon.com/images/I/41Du2cZtmmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001005O6E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 79244 2 in. X 36 in. Satin Brass Aluminum Fluted Carpet Trim w/Screw Nails" src="https://m.media-amazon.com/images/I/41Du2cZtmmL._SL500_.jpg"/></a>
 
 
 The **M-D Building Products 79244 2 in. X 36 in. Satin Brass Aluminum Fluted Carpet Trim w/Screw Nails** is ideal for homeowners, contractors, and DIY enthusiasts looking to add a polished and durable finish to carpet edges. If you want to protect your carpet borders while enhancing your interior aesthetics, this product offers a reliable solution. It's especially suited for those who appreciate both functionality and a decorative touch in their flooring transitions.
@@ -160,12 +160,12 @@ This carpet trim from **M-D Building Products** features a robust **aluminum con
 
 Installation is straightforward thanks to the included screw nails, which help secure the trim firmly in place. The product's dimensions—2 inches wide and 36 inches long—make it versatile for most carpet edges, allowing users to create seamless transitions between flooring materials. Overall, this trim offers both practical protection and an upscale appearance, making it a smart choice for anyone looking to preserve their carpet investment while enhancing their home's interior design.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001005O6E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001005O6E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D7H54D6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Besezx Wood Grain Tape</a>
+## <a href="https://www.amazon.com/dp/B0D7H54D6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Besezx Wood Grain Tape</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7H54D6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img adhesive="" alt="Besezx Wood Grain Tape, 2.4" and="" chairs,="" diy,baseboards,="" doors,="" floors="" for="" furniture="" grain="" patch="" renovation.（gray）"="" repair="" self="" src="https://m.media-amazon.com/images/I/513GZb9FzGL._SL500_.jpg" tables,="" windows,="" wood="" x15',=""/></a>
+<a href="https://www.amazon.com/dp/B0D7H54D6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img adhesive="" alt="Besezx Wood Grain Tape, 2.4" and="" chairs,="" diy,baseboards,="" doors,="" floors="" for="" furniture="" grain="" patch="" renovation.（gray）"="" repair="" self="" src="https://m.media-amazon.com/images/I/513GZb9FzGL._SL500_.jpg" tables,="" windows,="" wood="" x15',=""/></a>
 
 
 The **Besezx Wood Grain Tape** is ideal for homeowners, DIY enthusiasts, and furniture restorers looking to easily repair and enhance the appearance of their wooden surfaces. If you want a quick, mess-free solution to fix scratches, cracks, or worn-out areas on **tables, chairs, baseboards, doors, windows, floors,** or other **wooden furniture**, this self-adhesive tape is designed for you. It is especially suitable for those who prefer a neat and professional-looking finish without the hassle of traditional wood repair methods.
@@ -189,12 +189,12 @@ The **Besezx Wood Grain Tape** features a high-quality self-adhesive backing tha
 
 Its versatility is a standout benefit, allowing you to use it across a wide range of wooden surfaces—from **tables and chairs** to **baseboards, doors, and floors**. The generous length of 15 feet means you have enough material for multiple projects or larger repairs, while the 2.4-inch width offers good coverage without being too bulky. The neutral **gray color** blends well with many wood tones, providing a subtle yet effective restoration solution for your home or workspace.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D7H54D6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D7H54D6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000NDZ234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products 49010 Satin Nickel Aluminum Flat Profile Threshold</a>
+## <a href="https://www.amazon.com/dp/B000NDZ234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products 49010 Satin Nickel Aluminum Flat Profile Threshold</a>
 
 
-<a href="https://www.amazon.com/dp/B000NDZ234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 49010 1-3/4 in. x 1/8 in. x 36 in. Satin Nickel Aluminum Flat Profile Threshold for Interior Doorways" src="https://m.media-amazon.com/images/I/21dPkTyE+lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000NDZ234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 49010 1-3/4 in. x 1/8 in. x 36 in. Satin Nickel Aluminum Flat Profile Threshold for Interior Doorways" src="https://m.media-amazon.com/images/I/21dPkTyE+lL._SL500_.jpg"/></a>
 
 
 The **M-D Building Products 49010 Satin Nickel Aluminum Flat Profile Threshold** is ideal for homeowners and contractors looking to enhance interior doorways with a durable and aesthetically pleasing solution. This product is perfect for those who need a reliable threshold that provides a seamless transition between rooms while complementing modern interior design. If you prioritize both functionality and style in your home improvement projects, this threshold is an excellent choice.
@@ -216,12 +216,12 @@ The **M-D Building Products 49010 Threshold** boasts a flat profile design that 
 
 Installation is straightforward thanks to its lightweight nature and standard dimensions, allowing for quick and efficient fitting without professional help. This threshold effectively covers the gap beneath interior doors, improving insulation and reducing drafts, which can contribute to energy savings. Overall, it combines functionality with style, making it a valuable addition to any interior doorway upgrade.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000NDZ234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000NDZ234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Flexible Carpet Edge Trim</a>
+## <a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Flexible Carpet Edge Trim</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Flexible Carpet Edge Trim – Self-Adhesive Waterproof Cuttable Safety Edging for Thick Rugs &amp; Mats, Peel &amp; Stick Floor Transition Strip, (Fit High-Traffic Area Carpets Up to 15mm Thick,Deep Grey-3.3Ft)" src="https://m.media-amazon.com/images/I/51GrGlokdkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Flexible Carpet Edge Trim – Self-Adhesive Waterproof Cuttable Safety Edging for Thick Rugs &amp; Mats, Peel &amp; Stick Floor Transition Strip, (Fit High-Traffic Area Carpets Up to 15mm Thick,Deep Grey-3.3Ft)" src="https://m.media-amazon.com/images/I/51GrGlokdkL._SL500_.jpg"/></a>
 
 
 The **Flexible Carpet Edge Trim – Self-Adhesive Waterproof Cuttable Safety Edging** is ideal for homeowners and facility managers looking to secure and protect thick rugs and mats in **high-traffic areas**. If you want an easy-to-install, durable solution to prevent tripping hazards and extend the life of your carpets, this product is designed for you. It works best with carpets up to **15mm thick** and is perfect for both residential and commercial spaces seeking a neat, professional finish.
@@ -243,12 +243,12 @@ This **carpet edge trim** is designed to provide a smooth transition between car
 
 Additionally, the waterproof feature protects carpet edges from moisture, which can cause fraying or mold growth over time. The trim's **durable material** withstands heavy foot traffic, making it an excellent choice for busy households or commercial spaces. With its sleek deep grey color, it maintains a discreet appearance while enhancing the safety and longevity of your carpets.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F9DJDW4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000CSIJ5I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products 78022 Silver Aluminum Stair Edging</a>
+## <a href="https://www.amazon.com/dp/B000CSIJ5I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M-d Building Products 78022 Silver Aluminum Stair Edging</a>
 
 
-<a href="https://www.amazon.com/dp/B000CSIJ5I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 78022 1-1/8 in. X 1-1/8 in. X 36 in. Silver Aluminum Stair Edging w/Screw Nails" src="https://m.media-amazon.com/images/I/41-sBp1EXxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CSIJ5I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M-D Building Products 78022 1-1/8 in. X 1-1/8 in. X 36 in. Silver Aluminum Stair Edging w/Screw Nails" src="https://m.media-amazon.com/images/I/41-sBp1EXxL._SL500_.jpg"/></a>
 
 
 The **M-D Building Products 78022 1-1/8 in. X 1-1/8 in. X 36 in. Silver Aluminum Stair Edging w/Screw Nails** is ideal for homeowners, contractors, and DIY enthusiasts looking to enhance the safety and aesthetics of their staircases. If you want a durable, easy-to-install solution to protect your stairs from wear and tear while adding a sleek, modern look, this stair edging is the perfect choice.
@@ -270,12 +270,12 @@ The **M-D Building Products 78022 stair edging** features a sturdy aluminum cons
 
 Measuring 1-1/8 inches in height and width with a 36-inch length, this stair edging fits most standard stairs and provides a subtle yet effective protective barrier. Its lightweight design makes it easy to handle during installation, reducing effort and time. Overall, this product combines functionality with style, making it a smart investment for anyone looking to prolong the life and safety of their stairs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000CSIJ5I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000CSIJ5I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000NHLR6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Devil 0170 Tub &amp; Floor Caulk Strip</a>
+## <a href="https://www.amazon.com/dp/B000NHLR6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Devil 0170 Tub &amp; Floor Caulk Strip</a>
 
 
-<a href="https://www.amazon.com/dp/B000NHLR6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5',="" alt="Red Devil 0170 Tub &amp; Floor Caulk Strip (Wide), White 1-1/4" src="https://m.media-amazon.com/images/I/51egN2LuhhL._SL500_.jpg" white"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B000NHLR6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5',="" alt="Red Devil 0170 Tub &amp; Floor Caulk Strip (Wide), White 1-1/4" src="https://m.media-amazon.com/images/I/51egN2LuhhL._SL500_.jpg" white"="" x=""/></a>
 
 
 The **Red Devil 0170 Tub & Floor Caulk Strip (Wide)** in **White** is ideal for homeowners, DIY enthusiasts, and professional contractors looking for a reliable and easy-to-install solution to seal gaps around tubs and floors. If you want to prevent water damage and mold growth in wet areas, this caulk strip offers a convenient alternative to traditional caulking methods.
@@ -298,7 +298,7 @@ The **Red Devil 0170 Tub & Floor Caulk Strip** features a convenient size with a
 
 Additionally, the caulk strip's **white** color offers a clean and seamless look that complements most bathroom decors. The lightweight design, at just **0.25 pounds**, makes handling and placement easy, even for DIY users. By effectively blocking moisture infiltration, this strip helps maintain the structural integrity of your bathroom surfaces and reduces the risk of mold and mildew, promoting a healthier living environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000NHLR6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000NHLR6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

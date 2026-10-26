@@ -20,10 +20,10 @@ For extra convenience, many items come with electrical outlets and USB ports. Th
 
 
 
-## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand** is ideal for individuals or families seeking a combination of comfort, style, and advanced reclining technology in their living room furniture. If you value adjustable features for personalized relaxation and want a durable, elegant sofa that complements a modern or neutral interior, this sofa is an excellent choice. It is perfect for those who spend considerable time lounging, watching TV, or entertaining guests and desire a high-quality, easy-to-use reclining mechanism.
@@ -46,10 +46,10 @@ The **Next-Gen DuraPella Power Reclining Sofa** stands out with its advanced pow
 
 Additionally, the sofa's neutral **sand color** and modern design allow it to blend seamlessly with different decor styles, from minimalist to traditional. The trusted craftsmanship from **Signature Design by Ashley** guarantees a product built to last, while the power features add a touch of luxury and convenience. Whether you're unwinding after a long day or hosting friends, this sofa delivers an exceptional seating experience tailored to your needs.
 
-## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports** is ideal for individuals seeking a stylish yet functional piece of furniture to complement their living space. Perfect for homeowners or renters who appreciate **farmhouse-inspired design** and need convenient access to power sources for charging devices, this end table blends aesthetic appeal with modern utility. If you want a compact table that offers both storage and tech-friendly features, this item is a great choice.
@@ -71,10 +71,10 @@ The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table** is d
 
 Crafted by **Ashley Furniture Industries**, this end table boasts a durable build with a solid weight of **42 pounds**, ensuring it remains stable during everyday use. The **whitewash color** and antique cream and brown finish deliver a warm, inviting look that enhances farmhouse or rustic interiors. This piece not only serves as a functional charging station but also adds an elegant touch to your living area, making it a smart investment for anyone looking to blend style with practicality.
 
-## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
+## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 3 Drawer Nightstand** in **Chipped White** is ideal for individuals seeking a blend of classic charm and modern functionality in their bedroom furniture. Perfect for those who appreciate a **French country aesthetic** and need convenient access to electrical outlets and USB ports for charging devices overnight. This nightstand suits homeowners aiming to enhance bedroom organization while maintaining a stylish and practical bedside setup.
@@ -97,10 +97,10 @@ The **Signature Design by Ashley Realyn Nightstand** stands out with its combina
 
 Beyond aesthetics, this nightstand is designed with everyday functionality in mind. The inclusion of **electrical outlets and USB ports** built into the structure allows for easy charging of smartphones, tablets, or other devices, eliminating the need for extra adapters or extension cords. This feature is especially beneficial for tech-savvy users who want to keep their devices powered overnight while maintaining a clean and organized nightstand surface. Overall, this piece successfully merges style and utility for an enhanced bedroom experience.
 
-## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
+## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser** in **Chipped White** is ideal for individuals seeking a stylish yet functional storage solution that complements a rustic or French country decor. Perfect for homeowners who appreciate classic design with a modern twist, this dresser suits those needing ample storage space without compromising on aesthetic appeal. If you desire a piece that combines elegance and practicality, this dresser is a great choice.
@@ -123,10 +123,10 @@ The **Signature Design by Ashley Realyn French Country Dresser** offers a perfec
 
 Crafted by **Ashley Furniture**, this dresser boasts sturdy materials and expert construction. The substantial size provides ample storage without sacrificing style, making it a practical choice for those who need both space and sophistication. Whether you are storing clothes, linens, or other essentials, the durable drawers slide smoothly, ensuring ease of use. Overall, this dresser is an excellent investment for anyone looking to combine timeless design with everyday functionality.
 
-## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
+## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Semi-Circle Console Table** is ideal for homeowners and interior enthusiasts looking to add a charming yet functional piece to their living space. Perfect for those who appreciate a blend of rustic elegance and practical design, this console table suits entryways, hallways, or living rooms where a touch of French country style is desired. If you want a versatile table that offers both aesthetic appeal and storage utility, this piece is an excellent choice.
@@ -149,10 +149,10 @@ Crafted by the reputable **Signature Design by Ashley** brand, this console tabl
 
 Beyond its visual appeal, the table’s sturdy build ensures durability and stability, ideal for everyday use. Its lightweight design makes it easy to relocate, accommodating changing layouts or seasonal decor updates. This console table combines style and functionality, making it a valuable addition to homes seeking elegant storage solutions and a classic countryside vibe.
 
-## <a href="https://www.amazon.com/dp/B07KGMWB9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Bookcase With Drawer</a>
+## <a href="https://www.amazon.com/dp/B07KGMWB9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Bookcase With Drawer</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMWB9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 75" bookcase="" chipped="" drawer,="" src="https://m.media-amazon.com/images/I/41q5Rv0oSmL._SL500_.jpg" white"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B07KGMWB9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 75" bookcase="" chipped="" drawer,="" src="https://m.media-amazon.com/images/I/41q5Rv0oSmL._SL500_.jpg" white"="" with=""/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 75" Bookcase with Drawer** is ideal for individuals seeking a stylish yet functional storage solution that complements a rustic or farmhouse interior. Perfect for homeowners, renters, or anyone looking to add charm and organization to living rooms, home offices, or bedrooms, this bookcase blends classic design with practical features.
@@ -175,10 +175,10 @@ The **Realyn Bookcase** features a sturdy frame measuring 75 inches in height, 4
 
 Designed by **Signature Design by Ashley**, this bookcase boasts quality craftsmanship and attention to detail. The durable materials ensure stability and longevity, making it a reliable furniture piece for everyday use. Whether used as a statement piece in a living room or as a functional storage unit in a home office, the Realyn Bookcase offers both aesthetic appeal and practical benefits, helping users create a neat and stylish environment effortlessly.
 
-## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Chair Side End Table** with outlets and USB ports in **Cream** is ideal for individuals seeking a blend of classic style and modern functionality. Perfect for homeowners who appreciate **French country decor** and need convenient charging options near their seating areas, this piece is suited for those who want a stylish yet practical addition to their living room, bedroom, or office space.
@@ -201,10 +201,10 @@ This **French Country Chair Side End Table** stands out with its charming **anti
 
 A key feature is the built-in **outlets and USB ports**, which address modern connectivity needs. This thoughtful addition allows users to charge smartphones, tablets, and other devices conveniently without cluttering the room with extension cords. It enhances functionality while maintaining the table’s aesthetic appeal, making it a smart choice for tech-savvy users who don’t want to compromise on style. Overall, this end table combines traditional design with contemporary utility, delivering both beauty and convenience to any home setting.
 
-## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
+## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers** in **Chipped White** is ideal for individuals seeking a blend of rustic charm and functional storage. Perfect for those who appreciate **French country style** décor, this chest suits homeowners wanting to add a vintage yet elegant touch to their bedroom, living room, or hallway. If you need a sturdy and spacious storage solution with a classic aesthetic, this piece is an excellent choice.
@@ -226,10 +226,10 @@ The **Realyn 5 Drawer Chest of Drawers** offers a charming **French country desi
 
 Beyond aesthetics, the chest's solid construction by **Ashley Furniture** guarantees long-lasting durability. Its dimensions make it versatile for various rooms, fitting well even in tighter spaces without compromising storage capacity. This piece combines style and function, offering customers a reliable and attractive storage solution for everyday use.
 
-## <a href="https://www.amazon.com/dp/B072VLKC4P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Yandel Faux Leather Electric Power Lift Recliner</a>
+## <a href="https://www.amazon.com/dp/B072VLKC4P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Yandel Faux Leather Electric Power Lift Recliner</a>
 
 
-<a href="https://www.amazon.com/dp/B072VLKC4P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Yandel Faux Leather Electric Power Lift Recliner for Elderly, Brown" src="https://m.media-amazon.com/images/I/41h+DT0CSAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072VLKC4P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Yandel Faux Leather Electric Power Lift Recliner for Elderly, Brown" src="https://m.media-amazon.com/images/I/41h+DT0CSAL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Yandel Faux Leather Electric Power Lift Recliner** is ideal for the **elderly** or individuals with limited mobility who seek comfort and ease in standing up or sitting down. This **brown** recliner combines style and functionality, making it perfect for anyone wanting a reliable, supportive chair that enhances relaxation and independence at home.
@@ -251,10 +251,10 @@ The **Signature Design by Ashley Yandel Recliner** features an electric power li
 
 With its thoughtfully designed dimensions, this recliner fits comfortably in various room sizes without overwhelming the space. The robust construction supports users securely, while the smooth reclining feature allows for customizable comfort. The warm **brown** tone enhances any living area, making this recliner a practical and stylish addition to any home.
 
-## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
+## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Altari Modern Sofa** with 2 Accent Pillows in **Light Gray** is an excellent choice for individuals seeking a blend of contemporary style and comfort. Ideal for modern homeowners, young professionals, or anyone looking to upgrade their living space with a stylish yet functional seating option. This sofa caters to those who appreciate quality craftsmanship and a neutral color palette that complements various interior designs.

@@ -23,10 +23,10 @@ From adjustable brightness and flexible goosenecks to lamps with USB charging po
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a stylish and multifunctional lighting solution for their **bedroom** or **living room**. This lamp is perfect for those who value convenience, modern design, and energy efficiency, especially users who need an easy-to-use lamp with charging capabilities for their devices right by their bedside or desk.
@@ -48,12 +48,12 @@ The **Fenmzee Bedside Table Lamp** stands out with its **3 way dimmable touch fe
 
 Designed with a **wood base** and a **round flaxen fabric shade**, this lamp offers a warm, inviting glow that enhances any room’s atmosphere. The inclusion of an **LED bulb** not only reduces energy consumption but also ensures a longer lifespan compared to traditional bulbs, making it an economical and eco-friendly choice. Overall, the Fenmzee lamp combines modern convenience with classic design, making it an excellent addition to any contemporary home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Airlonv Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Airlonv Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Airlonv LED Desk Lamp for Office Home, Eye-Caring Desk Light with Stepless Dimming Adjustable Flexible Gooseneck, 10W USB Adapter Desk Lamp with Clamp for Reading, Study, Workbench (Black)" src="https://m.media-amazon.com/images/I/415a2-2URFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Airlonv LED Desk Lamp for Office Home, Eye-Caring Desk Light with Stepless Dimming Adjustable Flexible Gooseneck, 10W USB Adapter Desk Lamp with Clamp for Reading, Study, Workbench (Black)" src="https://m.media-amazon.com/images/I/415a2-2URFL._SL500_.jpg"/></a>
 
 
 The **Airlonv LED Desk Lamp** is ideal for professionals, students, and anyone who spends extended hours at their desk needing reliable, eye-friendly lighting. Whether you're working from home, studying late into the night, or completing detailed tasks on your workbench, this lamp offers adjustable brightness and flexible positioning to suit your unique lighting needs.
@@ -77,12 +77,12 @@ The **Airlonv LED Desk Lamp** features a 35-inch height and a slim profile, maki
 
 Powered by a 10W USB adapter, this lamp offers energy-efficient lighting while maintaining brightness and clarity. Its clamp mounting system is perfect for those with limited desk space, providing a sturdy hold without the need for bulky lamp bases. The lightweight construction combined with a sleek black finish makes the Airlonv lamp a stylish and practical addition to any workspace, promoting comfort and efficiency for users who prioritize eye care and adaptable lighting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp with USB Ports** is ideal for individuals seeking a versatile and modern lighting solution for their **home office**, study area, or bedside. Perfect for students, professionals, and night readers, this lamp offers customizable lighting options and convenient charging capabilities, making it an essential tool for enhancing productivity and comfort in various settings.
@@ -106,12 +106,12 @@ This **LED Desk Lamp** from **Dott Arts** stands out for its multifunctionality,
 
 Additionally, the integrated **USB ports** provide a convenient way to keep smartphones, tablets, or other devices powered without cluttering the desk with extra chargers. The lamp’s slim profile and **compact dimensions** ensure it fits comfortably on any desk or bedside table without occupying much space. The inclusion of a **small night light** feature adds versatility, making it ideal for nighttime use without disturbing sleep. Overall, this lamp is designed to blend functionality and style, catering to the needs of modern users.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Addtam Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Addtam Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2LGK82V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Addtam LED Desk Lamp, Power Strip with 3 Outlets 4 USB Charging Ports(2 USBC), 4 Modes 5 Level Brightness Touch Lamp, Small Desk Lamp for Home Office College Dorm Room Essentials" src="https://m.media-amazon.com/images/I/41UpQ-qygDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2LGK82V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Addtam LED Desk Lamp, Power Strip with 3 Outlets 4 USB Charging Ports(2 USBC), 4 Modes 5 Level Brightness Touch Lamp, Small Desk Lamp for Home Office College Dorm Room Essentials" src="https://m.media-amazon.com/images/I/41UpQ-qygDL._SL500_.jpg"/></a>
 
 
 The **Addtam LED Desk Lamp** is perfect for individuals who need a versatile and compact lighting solution combined with convenient charging options. Ideal for **home offices**, **college dorm rooms**, or any workspace where space is limited but functionality is a priority, this lamp serves those who value both efficient lighting and power accessibility in one device.
@@ -132,12 +132,12 @@ The **Addtam LED Desk Lamp** excels in combining practical lighting with essenti
 
 Beyond lighting, the integrated **power strip** and multiple **USB ports** provide a centralized charging hub that reduces clutter from multiple adapters. The inclusion of **USB-C ports** supports faster charging for modern devices, making it an excellent choice for tech-savvy users. Its compact size and sleek black design make it a stylish and functional addition to any small workspace or living area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bohon Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bohon Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
 
 
 The **BOHON LED Desk Lamp with USB Charging Port** is ideal for individuals who require a versatile and efficient lighting solution for their workspace or bedside. Whether you're a student, professional, or avid reader, this lamp caters to those who value adjustable lighting, convenience, and a modern design to enhance productivity and comfort.
@@ -162,12 +162,12 @@ The **BOHON LED Desk Lamp** stands out with its **3 color modes and dimmable set
 
 Additionally, the lamp's **USB charging port** adds a layer of convenience by enabling users to charge their devices directly from the lamp, reducing desk clutter and increasing efficiency. With a sleek **matt black** finish and a compact footprint of approximately 18.9 inches in height, it blends seamlessly into both modern office and bedside settings. The inclusion of an **AC adapter** makes setup straightforward, ensuring that users can start benefiting from this versatile task lamp immediately.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B078W61H9P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lepower Metal Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B078W61H9P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lepower Metal Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B078W61H9P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LEPOWER Metal Desk Lamp, Eye-Caring Table Lamp, Study Lamps with Flexible Goose Neck for Bedroom, Home Office (Matte Black)" src="https://m.media-amazon.com/images/I/31aebwb3nqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078W61H9P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LEPOWER Metal Desk Lamp, Eye-Caring Table Lamp, Study Lamps with Flexible Goose Neck for Bedroom, Home Office (Matte Black)" src="https://m.media-amazon.com/images/I/31aebwb3nqL._SL500_.jpg"/></a>
 
 
 The **LEPOWER Metal Desk Lamp** is ideal for individuals seeking a reliable and stylish lighting solution for their **bedroom** or **home office**. Whether you're a student, a professional working late hours, or someone who enjoys reading or crafting, this **eye-caring table lamp** offers the perfect blend of functionality and comfort to reduce eye strain during extended use.
@@ -190,12 +190,12 @@ The **LEPOWER Metal Desk Lamp** features a sturdy metal build combined with a fl
 
 Designed with eye comfort in mind, this lamp uses an **eye-caring LED light** that minimizes glare and reduces eye strain, making it perfect for long hours of reading, studying, or working. Its lightweight nature also allows for easy portability between rooms, giving users flexibility in how they use their lighting. Overall, the **LEPOWER Metal Desk Lamp** is a practical and stylish solution for anyone in need of reliable, adjustable, and comfortable lighting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B078W61H9P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B078W61H9P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
 
 
 The **Lepro LED Desk Lamp** is ideal for individuals seeking a versatile and efficient lighting solution for their **home office**, crafting, reading, or detailed work like sewing and nail art. This lamp suits anyone who values customizable lighting with multiple brightness levels and color modes to reduce eye strain and enhance productivity. Whether you are a student, professional, or hobbyist, this lamp provides tailored illumination for focused tasks.
@@ -218,12 +218,12 @@ The **Lepro LED Desk Lamp** features an impressive range of lighting options wit
 
 Its **metal desk light** construction not only offers a modern and professional look but also ensures long-lasting durability. The lamp’s compact size and lightweight design make it easy to position on any desktop without occupying much space, while the dimmable feature grants users smooth control over the light intensity. Overall, this lamp enhances focus and comfort, making it an excellent addition to any home office or hobby area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Bedside Table Lamp With Usb</a>
+## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Bedside Table Lamp With Usb</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
 
 
 The **Touch Bedside Table Lamp with USB** by **Dicoool** is ideal for individuals seeking a versatile and stylish lighting solution for their **bedroom nightstand**, **desk**, or small living spaces like **dorm rooms** and **nurseries**. If you need a lamp that combines modern touch controls, adjustable brightness, and convenient USB charging, this lamp is designed to meet your needs. Its compact size and elegant **cream and wooden** finish also make it perfect for those who value both functionality and aesthetic appeal in their home or office lighting.
@@ -246,12 +246,12 @@ The **Dicoool Touch Bedside Table Lamp** features a user-friendly touch control 
 
 Crafted with a sleek **cream and wooden finish**, this lamp is designed to add a warm, natural aesthetic to any room. Its compact size and lightweight build make it ideal for small areas like dorm rooms or nurseries, where space is limited. Whether you're setting up a cozy reading nook or a functional workspace, this lamp offers a stylish yet practical lighting solution that balances design with everyday utility.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Voncerus Led Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Voncerus Led Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Voncerus LED Desk Lamp with Clamp, Eye-Caring Clip on Lights for Home Office, 3 Modes 10 Brightness, Long Flexible Gooseneck, Metal, Swing Arm Architect Task Table Lamps with USB Adapter, Black" src="https://m.media-amazon.com/images/I/41TFbo2zPQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Voncerus LED Desk Lamp with Clamp, Eye-Caring Clip on Lights for Home Office, 3 Modes 10 Brightness, Long Flexible Gooseneck, Metal, Swing Arm Architect Task Table Lamps with USB Adapter, Black" src="https://m.media-amazon.com/images/I/41TFbo2zPQL._SL500_.jpg"/></a>
 
 
 The **Voncerus LED Desk Lamp with Clamp** is ideal for students, professionals, and creatives who require focused, adjustable lighting for their workspace. If you spend extended hours reading, writing, or working on detailed tasks at your desk, this lamp offers the perfect combination of functionality and eye-care features to reduce strain and improve productivity.
@@ -273,12 +273,12 @@ The **Voncerus LED Desk Lamp** features three lighting modes and ten levels of b
 
 Additionally, the lamp’s long, flexible gooseneck combined with a swing arm provides excellent versatility in directing light. This means you can illuminate your keyboard, sketchpad, or documents without disturbing others or straining your eyes. The sturdy metal build ensures stability and durability, making it a reliable lighting solution for any home office or study environment. With the included USB adapter, powering the lamp is hassle-free, whether plugged into a laptop, power bank, or wall charger.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0868HY623?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">White Crown Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0868HY623?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">White Crown Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0868HY623?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="White crown LED Desk Lamp Dimmable Table Lamp Reading Lamp with USB Charging Port, 5 Lighting Modes, Sensitive Control, 30/60 Minutes Timer (White, First-Generation)" src="https://m.media-amazon.com/images/I/214wF3dv8FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0868HY623?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="White crown LED Desk Lamp Dimmable Table Lamp Reading Lamp with USB Charging Port, 5 Lighting Modes, Sensitive Control, 30/60 Minutes Timer (White, First-Generation)" src="https://m.media-amazon.com/images/I/214wF3dv8FL._SL500_.jpg"/></a>
 
 
 The **White crown LED Desk Lamp Dimmable Table Lamp** is ideal for individuals seeking a versatile and modern lighting solution for their workspace or reading nook. Whether you are a student, a professional working from home, or someone who enjoys late-night reading, this lamp caters perfectly to those who value customizable lighting and convenient features. Its compact design and multiple functionalities make it a great choice for anyone looking to enhance their desk setup.
@@ -301,7 +301,7 @@ The **White crown LED Desk Lamp** boasts a sleek silver design that complements 
 
 Beyond lighting, the built-in **USB charging port** adds a layer of convenience by allowing users to charge smartphones or other devices directly from the lamp. Additionally, the programmable **30/60 minutes timer** helps conserve energy by automatically turning off the lamp after a set duration, making it perfect for those who like to read before sleep. Overall, this lamp combines style, functionality, and convenience, making it a valuable addition to any desk.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0868HY623?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0868HY623?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

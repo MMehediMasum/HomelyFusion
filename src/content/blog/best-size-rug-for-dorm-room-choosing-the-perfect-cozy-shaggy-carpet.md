@@ -23,10 +23,10 @@ Runner rugs work well along narrow areas, while small to medium-sized rugs suit 
 
 
 
-## <a href="https://www.amazon.com/dp/B0F9YZZ36N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F9YZZ36N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9YZZ36N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shardha Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Grey, Small)" src="https://m.media-amazon.com/images/I/41NetOLmN3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9YZZ36N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shardha Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Grey, Small)" src="https://m.media-amazon.com/images/I/41NetOLmN3L._SL500_.jpg"/></a>
 
 
 The **Shardha Home Furnishing Fluffy Runner Rugs** are ideal for individuals looking to add a touch of comfort and style to their living spaces. Perfect for homeowners, dorm residents, or parents decorating a nursery or kids' playroom, this **super soft shaggy carpet** provides a cozy and visually appealing floor covering. If you want a plush, fuzzy rug that enhances both aesthetics and comfort, especially in bedrooms or living rooms, this item is a great choice.
@@ -49,10 +49,10 @@ The **Shardha Home Furnishing Fluffy Runner Rug** stands out with its plush, fuz
 
 Crafted with attention to detail, this shaggy carpet is lightweight and easy to handle, which makes repositioning or cleaning hassle-free. Its compact size suits smaller rooms or areas where you want to add a touch of softness without sacrificing space. Overall, this rug delivers both aesthetic appeal and functional benefits, making it a smart addition for anyone looking to elevate their home environment with a cozy, stylish floor mat.
 
-## <a href="https://www.amazon.com/dp/B0CPCRPJGL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srivi Dark Grey Shaggy Rug</a>
+## <a href="https://www.amazon.com/dp/B0CPCRPJGL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srivi Dark Grey Shaggy Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPCRPJGL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRIVI | (Pack of 1 Dark Grey Shaggy Rugs for Bedroom Living Room,Mats for Home Decor, Size: 40x60 CMS Floor Furry Rugs for Children Dorm Rug" src="https://m.media-amazon.com/images/I/613hwWMuhWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPCRPJGL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRIVI | (Pack of 1 Dark Grey Shaggy Rugs for Bedroom Living Room,Mats for Home Decor, Size: 40x60 CMS Floor Furry Rugs for Children Dorm Rug" src="https://m.media-amazon.com/images/I/613hwWMuhWL._SL500_.jpg"/></a>
 
 
 The **SRIVI Dark Grey Shaggy Rug** is an ideal choice for homeowners looking to enhance the comfort and aesthetic of their **bedroom**, **living room**, or **dormitory**. This rug is perfect for individuals who appreciate soft, plush textures underfoot and want to add a cozy, stylish accent to their space. Families with children or pet owners will also find this furry rug a practical addition for creating a warm and inviting environment.
@@ -74,10 +74,10 @@ The **SRIVI shaggy rug** features a dense and furry pile that adds a layer of so
 
 Measuring approximately 40x60 centimeters, the rug fits comfortably in small to medium-sized areas such as beside the bed or in front of seating arrangements. The high-quality materials used by **MVS Trading Company** ensure durability and easy maintenance, making it suitable for households with children or pets where frequent cleaning might be necessary. Overall, this furry rug combines aesthetics with functionality to elevate your home decor effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0CPCS5J2J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srivi Grey Shaggy Rugs For Bedroom Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CPCS5J2J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srivi Grey Shaggy Rugs For Bedroom Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPCS5J2J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRIVI | Grey Shaggy Rugs for Bedroom Living Room, Fuzzy Area Rug for Kids Baby Nursery, Modern Indoor Plush Mats for Home Decor, Size: 40x60 CMS Floor Furry Rugs for Children Dorm Rug" src="https://m.media-amazon.com/images/I/51Dh+jIeDrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPCS5J2J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRIVI | Grey Shaggy Rugs for Bedroom Living Room, Fuzzy Area Rug for Kids Baby Nursery, Modern Indoor Plush Mats for Home Decor, Size: 40x60 CMS Floor Furry Rugs for Children Dorm Rug" src="https://m.media-amazon.com/images/I/51Dh+jIeDrL._SL500_.jpg"/></a>
 
 
 The **SRIVI Grey Shaggy Rug** is an excellent choice for individuals looking to add a touch of warmth and comfort to their **bedroom**, **living room**, or **kids' nursery**. Ideal for parents seeking a soft and safe play area for their children or anyone wanting to enhance their home décor with a **modern plush mat**, this rug caters to those who prioritize both style and comfort in their indoor spaces.
@@ -99,10 +99,10 @@ The **SRIVI Grey Shaggy Rug** features a plush, furry surface that enhances the 
 
 Manufactured by **MVS Trading Company**, this rug promises quality and durability. The compact dimensions make it an ideal choice for **nurseries, children's rooms, and dormitories**, providing a safe, soft area that cushions falls and adds a layer of insulation against cold floors. Additionally, its easy maintenance ensures that it remains a practical and stylish home accessory for years to come.
 
-## <a href="https://www.amazon.com/dp/B0FB46ZR7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0FB46ZR7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB46ZR7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARDHA Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Beige, Large)" src="https://m.media-amazon.com/images/I/71ZuHYiYI2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB46ZR7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARDHA Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Beige, Large)" src="https://m.media-amazon.com/images/I/71ZuHYiYI2L._SL500_.jpg"/></a>
 
 
 The **SHARDHA Home Furnishing Fluffy Runner Rugs** are perfect for individuals looking to add a touch of comfort and style to their living spaces. Ideal customers include homeowners, renters, and parents seeking a soft, cozy rug for bedrooms, living rooms, dorms, or kids' playrooms. Those who prioritize plush textures and aesthetic appeal in their home décor will find this rug especially beneficial.
@@ -124,10 +124,10 @@ The **SHARDHA Home Furnishing Fluffy Runner Rug** features a high-quality, plush
 
 In addition to comfort and style, this rug is designed with practicality in mind. Its durable construction can withstand daily wear, especially in high-traffic areas like living rooms or playrooms. The lightweight nature, weighing just over 4 pounds, makes it easy to move and position as needed. Whether used in a baby nursery or a college dorm, this rug adds warmth and softness, creating a welcoming environment for relaxation and play.
 
-## <a href="https://www.amazon.com/dp/B0F8R7DFVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Malta Home Furnishing Soft Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F8R7DFVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Malta Home Furnishing Soft Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8R7DFVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALTA HOME FURNISHING Soft Runner Rugs for Bedroom Hallways, Fluffy Shag Throw Area Rug Non Slip for Bedside Dorm, Long Shaggy Furry Carpet for Nursery Living Room (Beige, Small)" src="https://m.media-amazon.com/images/I/61sLVXjyfcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8R7DFVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALTA HOME FURNISHING Soft Runner Rugs for Bedroom Hallways, Fluffy Shag Throw Area Rug Non Slip for Bedside Dorm, Long Shaggy Furry Carpet for Nursery Living Room (Beige, Small)" src="https://m.media-amazon.com/images/I/61sLVXjyfcL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a cozy and stylish addition to their living spaces, the **MALTA HOME FURNISHING Soft Runner Rugs** are perfect for those who want to enhance the comfort and aesthetic of bedrooms, hallways, nurseries, or dorm rooms. This **fluffy shag throw area rug** is especially suited for anyone looking to add a soft, warm surface that is also practical and safe with its **non-slip** feature.
@@ -150,10 +150,10 @@ The **MALTA HOME FURNISHING Soft Runner Rug** stands out with its plush, shaggy 
 
 Crafted by **Malta Home Furnishing**, this rug balances functionality with aesthetics, being lightweight yet durable. Its compact size is ideal for smaller rooms or hallways where a full-sized rug would be impractical. Additionally, the soft shag pile creates a warm and inviting atmosphere, perfect for nursery rooms or dormitories where comfort and style are both priorities.
 
-## <a href="https://www.amazon.com/dp/B0FM45MXZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ayame Fluffy Runner Rugs For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0FM45MXZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ayame Fluffy Runner Rugs For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0FM45MXZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AYAME Fluffy Runner Rugs for Bedroom Size: 2x4 Feet, Shag Soft Bedside Rug with Non-Slip Bottom, Fuzzy Plush Carpet for Room, Hallway Rug for Dorm Indoor Home Decor, Color: Grey" src="https://m.media-amazon.com/images/I/51BzKppip4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FM45MXZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AYAME Fluffy Runner Rugs for Bedroom Size: 2x4 Feet, Shag Soft Bedside Rug with Non-Slip Bottom, Fuzzy Plush Carpet for Room, Hallway Rug for Dorm Indoor Home Decor, Color: Grey" src="https://m.media-amazon.com/images/I/51BzKppip4L._SL500_.jpg"/></a>
 
 
 The **AYAME Fluffy Runner Rug** is ideal for individuals looking to add a touch of comfort and style to their living spaces, especially those who want a soft and cozy rug for their **bedroom**, **dorm**, or hallway. If you value both aesthetics and functionality in your home decor, and desire a rug that stays firmly in place while providing plush softness underfoot, this rug is a perfect choice.
@@ -175,10 +175,10 @@ The **AYAME Fluffy Runner Rug** boasts a luxurious shag surface that provides a 
 
 Featuring a **non-slip bottom**, this rug prioritizes safety by securing itself firmly to the floor, reducing the risk of slips and falls. This makes it especially suitable for dorm rooms or homes with children and elderly individuals. Additionally, the neutral **grey color** provides a modern and sophisticated look that blends seamlessly with a variety of decor styles, enhancing the overall ambiance of your indoor environment.
 
-## <a href="https://www.amazon.com/dp/B0F9Z3R8GN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F9Z3R8GN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shardha Home Furnishing Fluffy Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9Z3R8GN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shardha Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Grey, Small)" src="https://m.media-amazon.com/images/I/41NetOLmN3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9Z3R8GN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shardha Home Furnishing Fluffy Runner Rugs, Super Soft Shaggy Carpet Fuzzy Long Fur Rug for Bedroom Living Room Dorm, Plush Kids Playroom Baby Girls Nursery Decor Mats (Grey, Small)" src="https://m.media-amazon.com/images/I/41NetOLmN3L._SL500_.jpg"/></a>
 
 
 The **Shardha Home Furnishing Fluffy Runner Rugs** are perfect for individuals seeking a cozy and stylish addition to their living spaces. Ideal for homeowners, renters, or dorm residents who want to enhance the comfort and aesthetic of their **bedrooms, living rooms, kids’ playrooms, or nurseries**, this rug offers a soft and plush texture that appeals especially to families with children or anyone who values warmth and softness underfoot.
@@ -200,10 +200,10 @@ The **Shardha Home Furnishing Fluffy Runner Rug** features a super soft shaggy t
 
 Lightweight and easy to move, this rug is perfect for dorm rooms or apartments where portability and flexibility are important. Its size is well-suited for smaller spaces like bedrooms and playrooms, giving children a soft area to play or rest. Overall, this rug combines both style and practicality, making it a valuable addition to homes seeking softness and coziness without sacrificing aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0BRVXFVJN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muezza Carpets Rug</a>
+## <a href="https://www.amazon.com/dp/B0BRVXFVJN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muezza Carpets Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRVXFVJN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUEZZA CARPETS_Rug for Bedroom Living Room Dorm Kids Room Indoor Home Decorative, Non-Slip Plush Furry Fur Area Rugs Comfy Nursery Accent Floor Living Room Carpet [Size 4x6 feet]." src="https://m.media-amazon.com/images/I/51Kcs39TedS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRVXFVJN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUEZZA CARPETS_Rug for Bedroom Living Room Dorm Kids Room Indoor Home Decorative, Non-Slip Plush Furry Fur Area Rugs Comfy Nursery Accent Floor Living Room Carpet [Size 4x6 feet]." src="https://m.media-amazon.com/images/I/51Kcs39TedS._SL500_.jpg"/></a>
 
 
 The **MUEZZA CARPETS\_Rug for Bedroom Living Room Dorm Kids Room Indoor Home Decorative** is ideal for individuals seeking a stylish yet comfortable flooring option. Perfect for homeowners, dorm residents, or parents looking to add a cozy and safe area to their living spaces, this rug caters to those who value both aesthetics and functionality in their home decor. If you want to enhance your room's ambiance with a plush, non-slip, and easy-to-maintain carpet, this product is an excellent choice.
@@ -225,10 +225,10 @@ The **MUEZZA CARPETS** rug combines a luxurious plush texture with practical fea
 
 Designed with versatility in mind, this **4x6 feet rug** is perfect for multiple settings—from bedrooms and living rooms to nurseries and dorm rooms. Its easy maintenance and durability make it a smart investment for busy households or shared living spaces. With the **MUEZZA CARPETS\_Rug**, users enjoy a blend of comfort, safety, and style that enhances their home's overall environment.
 
-## <a href="https://www.amazon.com/dp/B0CVNB14W8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ekeffy Modern Micro Fiber Rug/carpet</a>
+## <a href="https://www.amazon.com/dp/B0CVNB14W8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ekeffy Modern Micro Fiber Rug/carpet</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVNB14W8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EKEFFY Modern Micro Fiber Rug/Carpet for Hall, Bedroom, Kichen, Kids Room, Baby Room Etc.Color-Ivory and Beige Size 1.5x3 feet" src="https://m.media-amazon.com/images/I/51sb0F2SUQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVNB14W8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EKEFFY Modern Micro Fiber Rug/Carpet for Hall, Bedroom, Kichen, Kids Room, Baby Room Etc.Color-Ivory and Beige Size 1.5x3 feet" src="https://m.media-amazon.com/images/I/51sb0F2SUQL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners looking to enhance the comfort and aesthetics of their living spaces, the **EKEFFY Modern Micro Fiber Rug/Carpet** is perfect for those who appreciate both style and functionality. This rug is especially suitable for use in the **hall, bedroom, kitchen, kids room, and baby room**, providing a soft and cozy surface that complements various interior designs.
@@ -251,10 +251,10 @@ The **EKEFFY Modern Micro Fiber Rug** boasts a plush texture that adds warmth an
 
 Additionally, the lightweight construction and manageable size of **1.5x3 feet** allow for flexible placement options around the home. Whether used as an accent piece in the kitchen or as a cozy addition to a hallway, this rug combines practicality with style. Easy to clean and maintain, it offers a functional solution for busy households seeking to elevate their home décor effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0BMQRCZSL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Roar Carpet Handwoven 3d Carved Super Soft Shaggy Rug</a>
+## <a href="https://www.amazon.com/dp/B0BMQRCZSL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Roar Carpet Handwoven 3d Carved Super Soft Shaggy Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMQRCZSL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Roar Carpet_Handwoven 3D Carved Super Soft Shaggy Collection Microfiber &amp; Polyester Silk Touch Rugs Living Room Dorm Kids Room, Non-Slip Area Rugs Comfy Nursery Accent Carpet, Size (4x6,feet)" src="https://m.media-amazon.com/images/I/61-kgf-eV0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMQRCZSL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Roar Carpet_Handwoven 3D Carved Super Soft Shaggy Collection Microfiber &amp; Polyester Silk Touch Rugs Living Room Dorm Kids Room, Non-Slip Area Rugs Comfy Nursery Accent Carpet, Size (4x6,feet)" src="https://m.media-amazon.com/images/I/61-kgf-eV0L._SL500_.jpg"/></a>
 
 
 The **Roar Carpet\_Handwoven 3D Carved Super Soft Shaggy Rug** is ideal for homeowners or renters looking to add a cozy and stylish touch to their living spaces. Perfect for use in the **living room, dorm, kids room, or nursery**, this rug suits anyone who values comfort, softness, and a non-slip design to ensure safety. Those seeking a durable yet plush area rug that combines aesthetic appeal with practical features will find this rug an excellent choice.

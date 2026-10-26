@@ -23,10 +23,10 @@ Lighting also plays a key role; battery-operated LED wall sconces or picture lig
 
 
 
-## <a href="https://www.amazon.com/dp/B09TDLXJVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zolapi 2-piece Octagon Wall-mounted Mirrors</a>
+## <a href="https://www.amazon.com/dp/B09TDLXJVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zolapi 2-piece Octagon Wall-mounted Mirrors</a>
 
 
-<a href="https://www.amazon.com/dp/B09TDLXJVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZOLAPI 2-Piece Octagon Wall-Mounted Mirrors,Vintage Farmhouse Mirror for Wall Decor,Caramel Color Decorative Accent Mirror for Foyer, Bathroom, Bedroom. (12”x12”)" src="https://m.media-amazon.com/images/I/511xC1udBXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TDLXJVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZOLAPI 2-Piece Octagon Wall-Mounted Mirrors,Vintage Farmhouse Mirror for Wall Decor,Caramel Color Decorative Accent Mirror for Foyer, Bathroom, Bedroom. (12”x12”)" src="https://m.media-amazon.com/images/I/511xC1udBXL._SL500_.jpg"/></a>
 
 
 The **ZOLAPI 2-Piece Octagon Wall-Mounted Mirrors** in **Caramel Color** are ideal for individuals looking to enhance their living spaces with a touch of **vintage farmhouse style**. Perfect for homeowners or renters who want to add decorative accents to their **foyer, bathroom, or bedroom**, these mirrors cater to those who appreciate unique wall decor that blends functionality with aesthetic appeal. If you seek compact yet stylish mirrors that can complement various interior themes, this set is a great choice.
@@ -48,10 +48,10 @@ The **ZOLAPI 2-Piece Octagon Wall-Mounted Mirrors** feature a distinct octagonal
 
 Crafted by **ZOLAPI**, these mirrors are lightweight yet durable, weighing just 3.4 pounds each, making installation straightforward. The two-piece set offers flexibility in placement, whether grouped together for a cohesive look or separated to brighten multiple areas. Their compact size is especially beneficial for smaller foyers, bathrooms, or bedrooms, where space is limited but decorative accents are desired. Overall, these mirrors bring charm, practicality, and a vintage touch to any living environment.
 
-## <a href="https://www.amazon.com/dp/B0D3TZ4MNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pieces Metal Vase Flowers Wall Arts</a>
+## <a href="https://www.amazon.com/dp/B0D3TZ4MNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pieces Metal Vase Flowers Wall Arts</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3TZ4MNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pieces Metal Vase Flowers Wall Arts - Rustic Farmhouse Style Décor Metal Wall Art Black Minimalist Flower Natural Themed Wall Decors for Home Bedroom Dining Room Housewarming (Brown-Blue, Vase-C)" src="https://m.media-amazon.com/images/I/41PD7OyKMvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3TZ4MNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pieces Metal Vase Flowers Wall Arts - Rustic Farmhouse Style Décor Metal Wall Art Black Minimalist Flower Natural Themed Wall Decors for Home Bedroom Dining Room Housewarming (Brown-Blue, Vase-C)" src="https://m.media-amazon.com/images/I/41PD7OyKMvL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to enhance their living spaces with a touch of **rustic farmhouse style décor**, the **3 Pieces Metal Vase Flowers Wall Arts** by **Pigort** are perfect for homeowners and interior enthusiasts who appreciate **minimalist, natural-themed wall accents**. This set is especially suitable for individuals wanting to add an artistic yet subtle charm to their **home, bedroom, or dining room**.
@@ -73,10 +73,10 @@ The **3 Pieces Metal Vase Flowers Wall Arts** boast a beautifully crafted design
 
 With dimensions tailored for flexibility in placement, these wall arts can easily fit above a dining table, bedroom wall, or hallway, making them versatile décor options. The set of three allows for unique and personalized arrangements, providing an opportunity to express individual style while maintaining a cohesive look. Overall, they offer a perfect blend of artistic expression and practical design for home decoration enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B08SC1M4FX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picfarce Pink Metal Flower Wall Art Decor</a>
+## <a href="https://www.amazon.com/dp/B08SC1M4FX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picfarce Pink Metal Flower Wall Art Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B08SC1M4FX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picfarce Pink Metal Flower Wall Art Decor, 11“ Rustic Modern Floral Sculpture, Distressed Hanging Home Decoration Accent Artworks for Indoor Bedroom Living Room Office Outdoor Garden Patio" src="https://m.media-amazon.com/images/I/41DDDpU9IsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SC1M4FX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picfarce Pink Metal Flower Wall Art Decor, 11“ Rustic Modern Floral Sculpture, Distressed Hanging Home Decoration Accent Artworks for Indoor Bedroom Living Room Office Outdoor Garden Patio" src="https://m.media-amazon.com/images/I/41DDDpU9IsL._SL500_.jpg"/></a>
 
 
 The **Picfarce Pink Metal Flower Wall Art Decor** is ideal for individuals looking to add a touch of rustic charm and modern elegance to their living spaces. Perfect for homeowners, interior decorators, or anyone who appreciates unique **floral sculptures**, this piece fits seamlessly into indoor and outdoor environments such as bedrooms, living rooms, offices, gardens, or patios.
@@ -98,10 +98,10 @@ The **Picfarce Pink Metal Flower Wall Art Decor** features a thoughtfully crafte
 
 Constructed by the reputable **Picfarce** brand, this floral sculpture offers both durability and style. The metal material withstands various environmental conditions, making it suitable for outdoor display in gardens or patios. Additionally, the vibrant pink color provides a refreshing pop of color, energizing the ambiance and highlighting personal style in home or office decor.
 
-## <a href="https://www.amazon.com/dp/B0F8QZPXZV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3d Floral Green Wall Art (set Of 3)</a>
+## <a href="https://www.amazon.com/dp/B0F8QZPXZV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3d Floral Green Wall Art (set Of 3)</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8QZPXZV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3D Floral Green Wall Art (Set of 3) Lightweight, Wooden Ready-to-Hang Boho Framed Wall Art for Bathroom, Master Bedroom, Living Room or Office - Premium Sage Green Farmhouse Decor - Gift-Boxed" src="https://m.media-amazon.com/images/I/41nNuYwhURL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8QZPXZV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3D Floral Green Wall Art (Set of 3) Lightweight, Wooden Ready-to-Hang Boho Framed Wall Art for Bathroom, Master Bedroom, Living Room or Office - Premium Sage Green Farmhouse Decor - Gift-Boxed" src="https://m.media-amazon.com/images/I/41nNuYwhURL._SL500_.jpg"/></a>
 
 
 The **3D Floral Green Wall Art (Set of 3)** by **Tide and Tales** is perfect for individuals looking to add a touch of **boho farmhouse decor** to their living spaces. Ideal customers include homeowners, renters, or office decorators who want **lightweight, ready-to-hang wooden wall art** that complements bathrooms, master bedrooms, living rooms, or workspaces with a calm and natural aesthetic. This set appeals to those who appreciate subtle yet elegant floral designs in soothing **sage green** tones.
@@ -123,10 +123,10 @@ The **3D Floral Green Wall Art** set features a delicate and intricate floral de
 
 Additionally, the set of three pieces provides flexibility in display options, allowing users to create unique arrangements that suit their personal taste and room layout. Whether placed in a bathroom to introduce a serene atmosphere, or in a living room or office to add a sophisticated accent, this wall art set combines style and function. The **gift-boxed packaging** also makes it a thoughtful and ready-to-gift item for housewarmings, birthdays, or holidays.
 
-## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks Picture Light</a>
+## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
 
 
 The **Arixinks 3PACK Picture Light Battery Operated with Remote** is perfect for art enthusiasts, gallery owners, and homeowners looking to elegantly illuminate their **paintings**, **photos**, or **decorative displays**. If you want a versatile and easy-to-install lighting solution that enhances the visual appeal of your artwork without complicated wiring, this product is an ideal choice.
@@ -150,10 +150,10 @@ The **Arixinks Picture Light** is designed with user convenience and flexibility
 
 With **3 lighting colors** and dimmable settings, this picture light can adapt to different moods and artwork styles, ensuring each piece is showcased in its best light. The compact dimensions and elegant black finish ensure it complements any interior without drawing attention away from the art. Overall, this lighting solution is a practical and stylish choice for anyone looking to accentuate their visual displays effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0DT4FFBSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocato Battery Operated Wall Sconce</a>
+## <a href="https://www.amazon.com/dp/B0DT4FFBSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocato Battery Operated Wall Sconce</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT4FFBSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OCATO Battery Operated Wall Sconce: Wireless Wall Sconces Set of Two Magnetic Lamp Rechargeable Lights Dimmable with 16 RGB Colors Fabric Linen Shade with Remote Walls Decor for Bedroom Living Room" src="https://m.media-amazon.com/images/I/41phH7twJ0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT4FFBSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OCATO Battery Operated Wall Sconce: Wireless Wall Sconces Set of Two Magnetic Lamp Rechargeable Lights Dimmable with 16 RGB Colors Fabric Linen Shade with Remote Walls Decor for Bedroom Living Room" src="https://m.media-amazon.com/images/I/41phH7twJ0L._SL500_.jpg"/></a>
 
 
 The **OCATO Battery Operated Wall Sconce** is ideal for individuals seeking versatile and stylish lighting solutions without the hassle of wiring. Perfect for renters, homeowners, or anyone looking to enhance their **bedroom** or **living room** ambiance with easy-to-install, wireless lighting. Those who appreciate customizable lighting with modern convenience will find this set especially appealing.
@@ -178,10 +178,10 @@ The **OCATO Battery Operated Wall Sconce** stands out with its wireless design, 
 
 Designed with aesthetics and functionality in mind, the sconces feature a subtle **fabric linen shade** in **off-white** that blends well with most interior styles, adding a soft, elegant glow to any room. The included **remote control** enhances user experience by allowing easy adjustments from across the room. Compact in size with dimensions of 9.0 inches in height, 5.0 inches in width, and 6.0 inches in length, these sconces fit seamlessly into any space, making them a practical and stylish addition to your home décor.
 
-## <a href="https://www.amazon.com/dp/B0DR2LQTD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ametheus Led Wall Mounted Lights</a>
+## <a href="https://www.amazon.com/dp/B0DR2LQTD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ametheus Led Wall Mounted Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0DR2LQTD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMETHEUS LED Wall Mounted Lights, Rechargeable Wall Sconces Lamp, 3 Color Temps &amp; Remote and Touch, 360°Rotation Dimmable Cordless Wall Light for Study Bedroom Reading Bedside(Black, 2 Pack)" src="https://m.media-amazon.com/images/I/41pm+Ui9FjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DR2LQTD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMETHEUS LED Wall Mounted Lights, Rechargeable Wall Sconces Lamp, 3 Color Temps &amp; Remote and Touch, 360°Rotation Dimmable Cordless Wall Light for Study Bedroom Reading Bedside(Black, 2 Pack)" src="https://m.media-amazon.com/images/I/41pm+Ui9FjL._SL500_.jpg"/></a>
 
 
 The **AMETHEUS LED Wall Mounted Lights** are perfect for individuals seeking versatile and stylish lighting solutions for their **study rooms, bedrooms, or bedside areas**. Ideal for students, readers, or anyone who values adjustable and rechargeable lighting without the hassle of cords, these lights offer convenience and modern design for a variety of living spaces.
@@ -203,10 +203,10 @@ The **AMETHEUS LED Wall Mounted Lights** feature a sleek and compact design with
 
 Equipped with three adjustable **color temperature modes**, these lights cater to different lighting preferences—whether you need bright white light for studying, warm light for relaxing, or a neutral tone for everyday use. The combination of **remote control** and **touch-sensitive operation** offers convenient control options. Additionally, the 360° rotational feature ensures that you can direct the light exactly where it's needed, enhancing functionality for reading or working without straining your eyes.
 
-## <a href="https://www.amazon.com/dp/B0BWW4SP5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wocred 16inch 2 Pcs Square Wall Mirror</a>
+## <a href="https://www.amazon.com/dp/B0BWW4SP5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wocred 16inch 2 Pcs Square Wall Mirror</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWW4SP5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wocred 16inch 2 PCS Square Wall Mirror,Gorgeous Rustic Farmhouse Accent Mirror, Caramel Color Entry Mirror for Bathroom Renovation,Bedrooms,Living Rooms and More." src="https://m.media-amazon.com/images/I/61jpNMLQu1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWW4SP5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wocred 16inch 2 PCS Square Wall Mirror,Gorgeous Rustic Farmhouse Accent Mirror, Caramel Color Entry Mirror for Bathroom Renovation,Bedrooms,Living Rooms and More." src="https://m.media-amazon.com/images/I/61jpNMLQu1L._SL500_.jpg"/></a>
 
 
 The **Wocred 16inch 2 PCS Square Wall Mirror** is ideal for individuals looking to enhance their home décor with a touch of rustic farmhouse charm. Perfect for homeowners or renters who want to renovate their **bathrooms, bedrooms, or living rooms**, this mirror set offers both style and functionality. Those seeking a versatile and elegant accent piece that complements a variety of interior styles will find this product especially appealing.
@@ -228,10 +228,10 @@ The **Wocred 16inch 2 PCS Square Wall Mirror** stands out with its charming rust
 
 Beyond looks, these mirrors offer practical benefits such as reflecting natural light to brighten rooms and creating a sense of openness. Their lightweight design simplifies hanging, while the dual-pack allows users to decorate multiple areas or create a stylish mirror arrangement. Overall, the Wocred mirrors blend aesthetic appeal with everyday utility, making them a smart choice for those updating their home interiors.
 
-## <a href="https://www.amazon.com/dp/B0CXF8MWZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Snuglife Wood Mountain Wall Art</a>
+## <a href="https://www.amazon.com/dp/B0CXF8MWZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Snuglife Wood Mountain Wall Art</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXF8MWZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SnugLife 2 Pcs Wood Mountain Wall Art - Modern Wooden Panel Mountain Wall Decor, Decorative Forest Nature Abstract Line Minimalist Wall Art for Living Room Bedroom Farmhouse - Large 23.5”x23.5”" src="https://m.media-amazon.com/images/I/51NUNDxNGML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXF8MWZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SnugLife 2 Pcs Wood Mountain Wall Art - Modern Wooden Panel Mountain Wall Decor, Decorative Forest Nature Abstract Line Minimalist Wall Art for Living Room Bedroom Farmhouse - Large 23.5”x23.5”" src="https://m.media-amazon.com/images/I/51NUNDxNGML._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate **modern minimalist decor** and want to bring a touch of nature indoors, the **SnugLife 2 Pcs Wood Mountain Wall Art** is perfect for homeowners, renters, or anyone looking to enhance their **living room, bedroom, or farmhouse** with elegant, nature-inspired accents. If you enjoy **abstract and artistic interpretations of forest and mountain landscapes**, this decorative wooden panel is designed to complement your style.
@@ -254,10 +254,10 @@ The **SnugLife Wood Mountain Wall Art** features a striking **modern wooden pane
 
 Beyond aesthetics, the sturdy **oak construction** promises longevity while maintaining a lightweight profile for easy installation. The natural wood grain adds texture and warmth, creating an inviting ambiance in any room. This piece not only elevates your wall décor but also brings a sense of the outdoors inside, perfect for those who value both style and nature-inspired elements in their home.
 
-## <a href="https://www.amazon.com/dp/B0F9TQ81BN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battery Operated Wall Sconce Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0F9TQ81BN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battery Operated Wall Sconce Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9TQ81BN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battery Operated Wall Sconce Set of 2, Gold Rechargeable Wireless Wall Lights with Remote - Dimmable RGB LED Bulbs, 13 Color Options, Cordless Wall Lamps for Bedroom, Living Room, Hallway Decor" src="https://m.media-amazon.com/images/I/41BzCQAoR6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9TQ81BN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battery Operated Wall Sconce Set of 2, Gold Rechargeable Wireless Wall Lights with Remote - Dimmable RGB LED Bulbs, 13 Color Options, Cordless Wall Lamps for Bedroom, Living Room, Hallway Decor" src="https://m.media-amazon.com/images/I/41BzCQAoR6L._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters seeking stylish and versatile lighting solutions, the **Battery Operated Wall Sconce Set of 2** by **XIEYOR** is perfect for those who want to enhance their **bedroom**, **living room**, or **hallway decor** without the hassle of wiring. This set appeals especially to individuals looking for **cordless**, **rechargeable**, and easily adjustable lighting options that offer both functionality and aesthetic appeal.

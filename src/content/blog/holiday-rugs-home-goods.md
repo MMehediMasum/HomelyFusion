@@ -23,10 +23,10 @@ Some rugs even feature lights for an extra festive glow. Seasonal doormats offer
 
 
 
-## <a href="https://www.amazon.com/dp/B0DGPLL8V5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Area Rugs 4x6</a>
+## <a href="https://www.amazon.com/dp/B0DGPLL8V5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Area Rugs 4x6</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGPLL8V5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Area Rugs 4x6 Machine Washable High Traffic Xmas Door Mat Non-Slip Floor Carpet for Living Room Dining Room Bedroom Entryway &amp; Hallway, Red Checkered" src="https://m.media-amazon.com/images/I/51yvI4dZsQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGPLL8V5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Area Rugs 4x6 Machine Washable High Traffic Xmas Door Mat Non-Slip Floor Carpet for Living Room Dining Room Bedroom Entryway &amp; Hallway, Red Checkered" src="https://m.media-amazon.com/images/I/51yvI4dZsQL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners looking to add a festive touch to their space while maintaining functionality, the **Christmas Area Rugs 4x6 Machine Washable High Traffic Xmas Door Mat** is perfect for those who want a durable and stylish floor covering. This rug is especially suited for families with busy entryways or those who frequently entertain during the holiday season, offering both aesthetic appeal and practicality.
@@ -48,10 +48,10 @@ The **Christmas Area Rugs 4x6** combines a cheerful red checkered pattern with p
 
 Designed with safety in mind, the rug's **non-slip floor carpet** backing provides stability on a variety of surfaces, reducing the risk of slips and falls. This feature makes it ideal for high traffic zones such as entryways and hallways, where durability and safety are paramount. Overall, this festive rug offers an excellent blend of style and function for anyone seeking to brighten their home for the holidays.
 
-## <a href="https://www.amazon.com/dp/B0D31GY7Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drydiet Holiday Kitchen Rugs Set</a>
+## <a href="https://www.amazon.com/dp/B0D31GY7Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drydiet Holiday Kitchen Rugs Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D31GY7Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drydiet 8 Pcs Holiday Kitchen Rugs Set for Sunflower Patriotic Halloween Fall Kitchen Mats Decorative Home Decor for Floor,16.9 x 29.9 and 16.9 x 47.2" src="https://m.media-amazon.com/images/I/51iHopSKpxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D31GY7Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drydiet 8 Pcs Holiday Kitchen Rugs Set for Sunflower Patriotic Halloween Fall Kitchen Mats Decorative Home Decor for Floor,16.9 x 29.9 and 16.9 x 47.2" src="https://m.media-amazon.com/images/I/51iHopSKpxL._SL500_.jpg"/></a>
 
 
 The **Drydiet 8 Pcs Holiday Kitchen Rugs Set** is ideal for homeowners who want to add a festive touch to their kitchen floors throughout the year. This set is perfect for those who enjoy decorating for various seasons and holidays, such as **Sunflower, Patriotic, Halloween, and Fall**, while also valuing both style and comfort in their home decor.
@@ -73,10 +73,10 @@ The **Drydiet Holiday Kitchen Rugs Set** offers a combination of aesthetic appea
 
 Crafted from durable materials, these rugs are designed to withstand daily wear and tear while maintaining their bright colors and festive patterns. The easy maintenance ensures that users can keep their kitchen looking fresh and inviting throughout every holiday season. Overall, this set is a practical and decorative solution for anyone looking to infuse their kitchen with seasonal charm and comfort.
 
-## <a href="https://www.amazon.com/dp/B0CFWV4ZRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Christmas Rug</a>
+## <a href="https://www.amazon.com/dp/B0CFWV4ZRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Christmas Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFWV4ZRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Christmas Rug 3x5 Machine Washable Area Rugs Checkered Rugs for Entryway, Holiday Decorative Soft Non-Slip Rubber Backing Low Pile Indoor Floor Throw Carpet for Winter Bathroom, Red/Green" src="https://m.media-amazon.com/images/I/51e6f2gD5qL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFWV4ZRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Christmas Rug 3x5 Machine Washable Area Rugs Checkered Rugs for Entryway, Holiday Decorative Soft Non-Slip Rubber Backing Low Pile Indoor Floor Throw Carpet for Winter Bathroom, Red/Green" src="https://m.media-amazon.com/images/I/51e6f2gD5qL._SL500_.jpg"/></a>
 
 
 The **Lahome Christmas Rug 3x5** is perfect for anyone looking to add a festive touch to their **entryway**, **bathroom**, or any indoor space during the holiday season. Ideal for homeowners and renters who want a stylish yet practical **holiday decorative rug**, this **checkered rug** suits those who value both aesthetics and functionality in seasonal decor.
@@ -98,10 +98,10 @@ The **Lahome Christmas Rug** features a vibrant **red and green checkered design
 
 Beyond aesthetics, the rug offers practical benefits such as a **non-slip rubber backing** that keeps it securely in place, reducing the risk of slips and falls. Additionally, the machine washable feature allows users to keep the rug fresh and clean with minimal effort. Lightweight and easy to handle, this rug can be moved or stored conveniently after the holiday season, making it a smart investment for seasonal home decor.
 
-## <a href="https://www.amazon.com/dp/B0DKJMBST9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Grinch Big Face Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0DKJMBST9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Grinch Big Face Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKJMBST9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 20"="" alt="The Grinch Big Face Green 31.5" rug"="" src="https://m.media-amazon.com/images/I/41R3GRU0ELL._SL500_.jpg" washable="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DKJMBST9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 20"="" alt="The Grinch Big Face Green 31.5" rug"="" src="https://m.media-amazon.com/images/I/41R3GRU0ELL._SL500_.jpg" washable="" x=""/></a>
 
 
 The **Grinch Big Face Green 31.5" X 20" Washable Rug** is perfect for fans of the classic holiday character who want to add a playful and festive touch to their home decor. Ideal for families with children, holiday enthusiasts, or anyone looking to brighten up their living space with a cheerful and easy-to-clean rug, this product combines fun design with practicality.
@@ -124,10 +124,10 @@ This **washable rug** stands out with its eye-catching depiction of the Grinch's
 
 Crafted by **Bioworld**, a brand known for quality merchandise, this rug balances fun aesthetics with functional design. Its durability ensures it can withstand everyday foot traffic, especially in homes with children or pets. Whether placed in a kid’s playroom or an entryway to greet guests with holiday cheer, the rug’s playful design and ease of maintenance make it a practical and festive decor choice.
 
-## <a href="https://www.amazon.com/dp/B0DZCQXL76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tinideya 12 Pcs Seasonal Doormats</a>
+## <a href="https://www.amazon.com/dp/B0DZCQXL76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tinideya 12 Pcs Seasonal Doormats</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZCQXL76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tinideya 12 Pcs Seasonal Doormats 10 x 22 Inches Seasonal Interchangeable Entrance Welcome Mats Decorative Non Slip Backing Mats for Front Door Indoor Decor(Classic Style)" src="https://m.media-amazon.com/images/I/51TiTb9aBNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZCQXL76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tinideya 12 Pcs Seasonal Doormats 10 x 22 Inches Seasonal Interchangeable Entrance Welcome Mats Decorative Non Slip Backing Mats for Front Door Indoor Decor(Classic Style)" src="https://m.media-amazon.com/images/I/51TiTb9aBNL._SL500_.jpg"/></a>
 
 
 The **Tinideya 12 Pcs Seasonal Doormats 10 x 22 Inches** are perfect for homeowners or renters who enjoy seasonal decorating and want to add a welcoming touch to their entryway. Ideal for those who appreciate versatility and style, these interchangeable mats offer a fresh look throughout the year, making them suitable for anyone looking to enhance their **front door indoor decor** with ease.
@@ -150,10 +150,10 @@ The **Tinideya Seasonal Doormats** feature a thoughtful design that allows users
 
 Beyond aesthetics, these doormats are manufactured by **Tinideya** with quality materials that ensure durability and ease of maintenance. The classic style complements a wide range of home decor themes, and the set includes 12 different mats, giving you an extensive selection to match various seasons and holidays. Overall, this product offers both practical benefits and decorative appeal, making it a smart choice for anyone looking to brighten their home's entrance with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B09MTQ5FPP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Larfoek Light Up Fried Cat Rug</a>
+## <a href="https://www.amazon.com/dp/B09MTQ5FPP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Larfoek Light Up Fried Cat Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09MTQ5FPP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LARFOEK Light Up Fried Cat Rug, Christmas Vacation Decorations Vacation Village Gifts Funny Christmas Decoration Rug with Light Always On or Flashing Halloween Decor (Warm Light)" src="https://m.media-amazon.com/images/I/51e0X6996oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MTQ5FPP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LARFOEK Light Up Fried Cat Rug, Christmas Vacation Decorations Vacation Village Gifts Funny Christmas Decoration Rug with Light Always On or Flashing Halloween Decor (Warm Light)" src="https://m.media-amazon.com/images/I/51e0X6996oL._SL500_.jpg"/></a>
 
 
 The **LARFOEK Light Up Fried Cat Rug** is perfect for individuals looking to add a touch of whimsy and festive cheer to their home decor, especially during the holiday seasons. Ideal customers include those who enjoy unique and playful decorations, fans of Christmas vacation themes, and anyone seeking a versatile rug that doubles as a glowing accent piece for both **Christmas** and **Halloween** celebrations. This item is great for homeowners, holiday decorators, and gift buyers searching for a fun and eye-catching decoration.
@@ -176,10 +176,10 @@ The **LARFOEK Light Up Fried Cat Rug** stands out with its delightful illuminate
 
 Crafted by the reputable **LARFOEK brand**, this rug offers a blend of functionality and fun, serving as both a practical floor covering and a standout decoration. Its playful fried cat design injects humor and charm into holiday décor, making it an excellent gift choice for those who appreciate quirky and festive accents. Despite its thinness, it functions primarily as a decorative piece, enhancing the visual appeal of holiday villages or themed rooms while providing a warm, cheerful light source that complements other seasonal decorations.
 
-## <a href="https://www.amazon.com/dp/B0CG892P7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wondrg Christmas Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CG892P7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wondrg Christmas Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CG892P7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WondRg Christmas Area Rug 5x7 Red Snowflake Holiday Decorative Living Room Bedroom Throw Rug Washable Non Slip Soft Low Pile Carpet for Kitchen Entryway Dining Room Bathroom Home Decor" src="https://m.media-amazon.com/images/I/611XHzOmqpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CG892P7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WondRg Christmas Area Rug 5x7 Red Snowflake Holiday Decorative Living Room Bedroom Throw Rug Washable Non Slip Soft Low Pile Carpet for Kitchen Entryway Dining Room Bathroom Home Decor" src="https://m.media-amazon.com/images/I/611XHzOmqpL._SL500_.jpg"/></a>
 
 
 The **WondRg Christmas Area Rug 5x7** in vibrant **Red Snowflake** design is ideal for homeowners and holiday enthusiasts looking to add a festive touch to their living spaces. Perfect for those who want to enhance the warmth and charm of their **living room**, **bedroom**, or **entryway** during the holiday season, this rug blends functionality with seasonal decor. If you seek a combination of style, comfort, and practicality, this holiday decorative rug is an excellent choice.
@@ -201,10 +201,10 @@ The **WondRg Christmas Area Rug** features a vibrant **red color** adorned with 
 
 Beyond aesthetics, this rug is crafted with a **non-slip backing** to enhance safety on hardwood or tile floors, reducing the risk of accidents. The **washable** fabric means you can keep it looking fresh year after year, making it a practical investment for holiday decor. Its soft texture underfoot also provides comfort during long family gatherings, blending festive cheer with everyday usability.
 
-## <a href="https://www.amazon.com/dp/B0BFDH7835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Red And White Plaid Rug</a>
+## <a href="https://www.amazon.com/dp/B0BFDH7835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Red And White Plaid Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFDH7835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Red and White Plaid Rug - 28 x 43 Inches Outdoor Front Door Decor Mat Cotton Washable Hand-Woven Rug Christmas New Year Holiday Porch Entryway Layered Doormat" src="https://m.media-amazon.com/images/I/51RIhN7DOrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFDH7835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Red and White Plaid Rug - 28 x 43 Inches Outdoor Front Door Decor Mat Cotton Washable Hand-Woven Rug Christmas New Year Holiday Porch Entryway Layered Doormat" src="https://m.media-amazon.com/images/I/51RIhN7DOrL._SL500_.jpg"/></a>
 
 
 Ideal for individuals looking to add a festive touch to their outdoor spaces, the **Christmas Red and White Plaid Rug** is perfect for homeowners who want a stylish yet functional doormat during the holiday season. This **28 x 43 inches** **outdoor front door decor mat** caters to those who appreciate hand-crafted, washable, and durable holiday decorations that enhance the porch or entryway ambiance.
@@ -226,10 +226,10 @@ The **Christmas Red and White Plaid Rug** by **Homydecor** is crafted with atten
 
 With dimensions tailored to fit most front door areas, this layered doormat serves as both a decorative and practical element for holiday entryways. The lightweight construction simplifies handling, while the classic plaid pattern brings a warm, seasonal charm that complements a variety of outdoor holiday decorations. Overall, it provides a balance of style, comfort, and convenience for those seeking a festive welcome mat.
 
-## <a href="https://www.amazon.com/dp/B0DJ984BJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Area Rug 6x9 Red</a>
+## <a href="https://www.amazon.com/dp/B0DJ984BJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Area Rug 6x9 Red</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ984BJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Area Rug 6x9 Red, Snowflake Washable Rugs for Bedroom Non Slip Kitchen Rug, Soft Christmas Tree Indoor Carpet for Kids Room Dining Room Entryway (6'x9', Xmas Red)" src="https://m.media-amazon.com/images/I/61AH+ubmoJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ984BJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Area Rug 6x9 Red, Snowflake Washable Rugs for Bedroom Non Slip Kitchen Rug, Soft Christmas Tree Indoor Carpet for Kids Room Dining Room Entryway (6'x9', Xmas Red)" src="https://m.media-amazon.com/images/I/61AH+ubmoJL._SL500_.jpg"/></a>
 
 
 The **Christmas Area Rug 6x9 Red** is perfect for those looking to add a festive touch to their home during the holiday season. Ideal for families, especially those with children, or anyone wanting to brighten up their **bedroom**, **kitchen**, **dining room**, or **entryway** with a soft, non-slip, and washable rug that features charming **snowflake** and **Christmas tree** designs. If you want a durable and vibrant rug that enhances your holiday décor while being practical, this item is an excellent choice.
@@ -252,10 +252,10 @@ The **Aoyaomi Christmas Area Rug** combines festive aesthetics with practical fe
 
 Crafted by **Aoyaomi**, this rug brings together quality and holiday spirit with its **Xmas Red** color and intricate **snowflake** and **Christmas tree** motifs. Whether placed in a **kitchen**, **entryway**, or **kids’ room**, it adds a warm and inviting atmosphere. The rug’s lightweight 12.13-pound weight makes it easy to move or store once the holiday season ends, making it a practical and festive investment for holiday décor enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DGSY88GH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bchiijds Merry Christmas Kitchen Rugs Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DGSY88GH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bchiijds Merry Christmas Kitchen Rugs Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGSY88GH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bchiijds Merry Christmas Kitchen Rugs Set of 2, Holiday Tree Mat, Green Home Decor Doormat, Christmas Mats for Floor" src="https://m.media-amazon.com/images/I/51QvnXJnJLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGSY88GH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bchiijds Merry Christmas Kitchen Rugs Set of 2, Holiday Tree Mat, Green Home Decor Doormat, Christmas Mats for Floor" src="https://m.media-amazon.com/images/I/51QvnXJnJLL._SL500_.jpg"/></a>
 
 
 The **Bchiijds Merry Christmas Kitchen Rugs Set of 2** is perfect for homeowners and holiday enthusiasts looking to add a festive touch to their kitchen or entryway. Ideal for those who want to enhance their **home decor** with cheerful, seasonal accents, this set is especially suited for families and individuals who enjoy celebrating the holiday spirit with decorative and functional items.

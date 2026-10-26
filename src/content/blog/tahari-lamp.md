@@ -23,10 +23,10 @@ Their sizes vary to fit nightstands, desks, or end tables. Easy to use and maint
 
 
 
-## <a href="https://www.amazon.com/dp/B0CGWY5DLQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kivditzo Natural Alabaster Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CGWY5DLQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kivditzo Natural Alabaster Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGWY5DLQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KIVDITZO Natural Alabaster Table Lamps Set of 2, Lamps for Living Room Bedroom, Bedside Lamps with Night Light, Nightstand Lamp with USB A+C Ports, Modern Table Lamp with Linen Shade, (Bulbs Included)" src="https://m.media-amazon.com/images/I/419rNZIENoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGWY5DLQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KIVDITZO Natural Alabaster Table Lamps Set of 2, Lamps for Living Room Bedroom, Bedside Lamps with Night Light, Nightstand Lamp with USB A+C Ports, Modern Table Lamp with Linen Shade, (Bulbs Included)" src="https://m.media-amazon.com/images/I/419rNZIENoL._SL500_.jpg"/></a>
 
 
 The **KIVDITZO Natural Alabaster Table Lamps Set of 2** is ideal for individuals looking to enhance their **living room** or **bedroom** ambiance with a touch of modern elegance. If you want a stylish yet functional lighting solution that also offers convenient USB charging options, this set is perfect for you. It's especially suited for those who appreciate natural materials like **alabaster** and desire a warm, soft glow for nighttime reading or relaxation.
@@ -48,10 +48,10 @@ These **KIVDITZO table lamps** feature natural alabaster bases that create a uni
 
 Another standout feature is the integration of **USB A and C ports**, a practical addition that allows users to charge smartphones, tablets, or other electronic devices conveniently without needing extra adapters or outlets. This combination of aesthetic appeal and practical functionality makes the lamps a perfect fit for modern homes where style and utility go hand in hand.
 
-## <a href="https://www.amazon.com/dp/B07GY3WZT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6201a Elizabeth 27.5" Alabaster Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07GY3WZT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6201a Elizabeth 27.5" Alabaster Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07GY3WZT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alabaster="" alt="JONATHAN Y JYL6201A Elizabeth 27.5" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" contemporary="" desk="" for="" gold="" included,="" lamp="" leaf"="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31IhiOvL0oL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07GY3WZT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alabaster="" alt="JONATHAN Y JYL6201A Elizabeth 27.5" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" contemporary="" desk="" for="" gold="" included,="" lamp="" leaf"="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31IhiOvL0oL._SL500_.jpg" table="" white=""/></a>
 
 
 The **JONATHAN Y JYL6201A Elizabeth 27.5" Alabaster LED Table Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom**, **living room**, or **office**. Perfect for those who appreciate a blend of **coastal contemporary design** and practicality, this lamp suits college students, professionals, and home decorators who want to elevate their space with elegant lighting.
@@ -73,10 +73,10 @@ The **JONATHAN Y JYL6201A Elizabeth Table Lamp** features a striking **alabaster
 
 Beyond aesthetics, this lamp delivers soft and inviting illumination that enhances ambiance without overwhelming brightness. Its compact footprint allows it to fit seamlessly on nightstands, desks, or bookcases, making it an excellent choice for creating cozy, well-lit environments in bedrooms, offices, or living spaces. The combination of style, functionality, and energy efficiency makes this lamp a valuable lighting accessory for a variety of users.
 
-## <a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Alabaster Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Alabaster Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Alabaster Table Lamp,Living Room Lamps Set of 2,Nightstand Lamp with Night Light,Lamps for Living Room With Linen Fabric Shade,Bedside Lamp with Usb A+C Ports for Bedroom,Hotel(Bulb Included)" src="https://m.media-amazon.com/images/I/415wOVci0NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Alabaster Table Lamp,Living Room Lamps Set of 2,Nightstand Lamp with Night Light,Lamps for Living Room With Linen Fabric Shade,Bedside Lamp with Usb A+C Ports for Bedroom,Hotel(Bulb Included)" src="https://m.media-amazon.com/images/I/415wOVci0NL._SL500_.jpg"/></a>
 
 
 The **Natural Alabaster Table Lamp** is ideal for individuals seeking a blend of elegance and functionality in their living or bedroom spaces. Perfect for homeowners, interior designers, or hotel managers who want to enhance ambiance with a sophisticated lighting solution, this lamp set offers both aesthetic appeal and practical features, making it suitable for those who appreciate stylish decor combined with modern conveniences.
@@ -99,10 +99,10 @@ The **Natural Alabaster Table Lamp** stands out with its unique material, offeri
 
 Beyond its aesthetic appeal, this lamp set is designed with modern functionality in mind. The integrated **USB A+C ports** allow users to conveniently charge smartphones, tablets, or other devices directly from the lamp, reducing clutter from additional chargers and cables. Its size and design make it versatile for use on nightstands, desks, or living room side tables, adding both style and practicality to any space.
 
-## <a href="https://www.amazon.com/dp/B0CMR7B8RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Henn&amp;hart 26" Tall Ceramic Table Lamp With Fabric Shade</a>
+## <a href="https://www.amazon.com/dp/B0CMR7B8RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Henn&amp;hart 26" Tall Ceramic Table Lamp With Fabric Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMR7B8RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Henn&amp;Hart 26" bedroom,="" ceramic="" dining"="" entertainment="" fabric="" flat="" for="" home,="" in="" kitchen,="" lamp="" living="" office,="" room,="" shade="" src="https://m.media-amazon.com/images/I/31nSibd-1VL._SL500_.jpg" table="" tall="" white,="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CMR7B8RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Henn&amp;Hart 26" bedroom,="" ceramic="" dining"="" entertainment="" fabric="" flat="" for="" home,="" in="" kitchen,="" lamp="" living="" office,="" room,="" shade="" src="https://m.media-amazon.com/images/I/31nSibd-1VL._SL500_.jpg" table="" tall="" white,="" with=""/></a>
 
 
 The **Henn&Hart 26" Tall Ceramic Table Lamp** with a **Fabric Shade** in **Flat White** is an excellent choice for individuals looking to enhance their **home** or **office** lighting with style and functionality. This lamp is ideal for those who appreciate a blend of modern design and practicality, making it suitable for spaces like the **living room**, **bedroom**, **entertainment room**, **kitchen**, or **dining** area. If you want a versatile lighting solution that complements various décor styles while providing ample illumination, this lamp is designed for you.
@@ -124,10 +124,10 @@ The **Henn&Hart Ceramic Table Lamp** stands out with its clean and contemporary 
 
 Beyond aesthetics, this lamp offers practical benefits such as durability and stability thanks to its well-balanced weight of **9.83 pounds**. The ceramic body is easy to clean and maintains its fresh look over time, while the neutral **flat white** color allows it to blend effortlessly with various color schemes and décor styles. Whether placed on a side table, desk, or kitchen counter, this lamp provides functional lighting with a touch of elegance.
 
-## <a href="https://www.amazon.com/dp/B0DDPRNTNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Seealle Modern Ceramic Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B0DDPRNTNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Seealle Modern Ceramic Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDPRNTNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Seealle Modern Ceramic Table Lamps for Night Stands - Bedside Lamps Set of 2 for Nightstand, 19.4" bedroom="" cute="" desk="" dresser="" end="" for="" grey="" guest="" lamp="" living="" office="" rocker="" room="" src="https://m.media-amazon.com/images/I/31qtjeHxTEL._SL500_.jpg" swtich"="" table=""/></a>
+<a href="https://www.amazon.com/dp/B0DDPRNTNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Seealle Modern Ceramic Table Lamps for Night Stands - Bedside Lamps Set of 2 for Nightstand, 19.4" bedroom="" cute="" desk="" dresser="" end="" for="" grey="" guest="" lamp="" living="" office="" rocker="" room="" src="https://m.media-amazon.com/images/I/31qtjeHxTEL._SL500_.jpg" swtich"="" table=""/></a>
 
 
 The **Seealle Modern Ceramic Table Lamps** are ideal for individuals seeking a stylish yet functional lighting solution for their **bedside tables**, **living rooms**, or **offices**. These lamps cater to those who appreciate a blend of modern design and practicality, making them perfect for homeowners or renters wanting to enhance their **room ambiance** with a contemporary touch.
@@ -149,10 +149,10 @@ The **Seealle Modern Ceramic Table Lamps** combine a sleek, minimalist design wi
 
 Each lamp comes equipped with a user-friendly **rocker switch**, allowing effortless control without fumbling in the dark. The set of two lamps provides symmetry for paired nightstands or versatile lighting options across multiple rooms. Overall, these lamps offer a practical yet elegant lighting solution that enhances both functionality and style in your living space.
 
-## <a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 27.5'' Tall Table Lamps For Living Room Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 27.5'' Tall Table Lamps For Living Room Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 27.5'' Tall Table Lamps for Living Room Set of 2, Ceramic Bedroom Lamps for Night Stands, Modern Bedside Lamps for Bedroom Living Room, Nightstand Lamps for End Table, Hallway, Gold and White" src="https://m.media-amazon.com/images/I/415X5cE+5UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 27.5'' Tall Table Lamps for Living Room Set of 2, Ceramic Bedroom Lamps for Night Stands, Modern Bedside Lamps for Bedroom Living Room, Nightstand Lamps for End Table, Hallway, Gold and White" src="https://m.media-amazon.com/images/I/415X5cE+5UL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and interior design enthusiasts looking to enhance their living spaces with stylish yet functional lighting, the **PoKat 27.5'' Tall Table Lamps** set is perfect for those who want to add a touch of modern elegance to bedrooms, living rooms, or hallways. These lamps are especially suitable for individuals seeking a blend of aesthetic appeal and practical bedside illumination.
@@ -175,10 +175,10 @@ The **PoKat 27.5'' Tall Table Lamps** feature a sophisticated ceramic body finis
 
 Beyond their visual appeal, these lamps offer practical benefits such as easy placement on nightstands or end tables due to their manageable weight and dimensions. Their soft, warm light helps create a cozy atmosphere, ideal for relaxing evenings or bedtime reading. Additionally, the set of two allows for balanced lighting solutions, enhancing symmetry and style in your living or bedroom setup.
 
-## <a href="https://www.amazon.com/dp/B0D6C1B5GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Nourison Home 23" Olive Green Ceramic Pot Table Lamp </a>
+## <a href="https://www.amazon.com/dp/B0D6C1B5GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Nourison Home 23" Olive Green Ceramic Pot Table Lamp </a>
 
 
-<a href="https://www.amazon.com/dp/B0D6C1B5GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" ceramic="" dining="" drum="" for="" green="" lamp="" living="" office,="" olive="" pot="" room,="" shade"="" src="https://m.media-amazon.com/images/I/41aiOmRwo-L._SL500_.jpg" table="" tapered="" white="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D6C1B5GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" ceramic="" dining="" drum="" for="" green="" lamp="" living="" office,="" olive="" pot="" room,="" shade"="" src="https://m.media-amazon.com/images/I/41aiOmRwo-L._SL500_.jpg" table="" tapered="" white="" with=""/></a>
 
 
 The **Nourison Home 23" Olive Green Ceramic Pot Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, **dining area**, or **office**. Perfect for those who appreciate a blend of vintage charm and contemporary design, this lamp suits anyone wanting to add a pop of color and warmth to their interior decor.
@@ -200,10 +200,10 @@ The **Nourison Home 23" Olive Green Ceramic Pot Table Lamp** features a beautifu
 
 Beyond its aesthetic appeal, this lamp offers practical benefits. Its compact dimensions (**14 inches width and length**) make it easy to place in various settings without taking up excessive space. The lamp’s design complements a range of interior styles, from classic to contemporary, making it a versatile addition to your home or workspace. Additionally, being a product of the trusted **Nourison** brand, it promises durability and quality that users can rely on for long-term use.
 
-## <a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Control Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Control Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Control Table Lamps Set of 2, Modern Ceramic Bedside Lamp with 2 USB Ports 1 AC Outlet, 3-Way Dimmable White Nightstand Lamp with Fabric Shade for Living Room, Bedroom (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/4112ggp+AgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Control Table Lamps Set of 2, Modern Ceramic Bedside Lamp with 2 USB Ports 1 AC Outlet, 3-Way Dimmable White Nightstand Lamp with Fabric Shade for Living Room, Bedroom (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/4112ggp+AgL._SL500_.jpg"/></a>
 
 
 The **Touch Control Table Lamps Set of 2** is ideal for individuals seeking a modern, functional lighting solution for their **bedroom** or **living room**. Perfect for those who value convenience and style, these lamps cater especially to tech-savvy users who appreciate integrated charging options alongside ambient lighting. If you want a bedside lamp that combines elegance with practical features like USB ports and an AC outlet, this set is an excellent choice.
@@ -225,10 +225,10 @@ These **modern ceramic bedside lamps** stand out with their elegant design and p
 
 Measuring 25.5 inches in height and crafted by **PARTPHONER**, these lamps are designed to be both a stylish and functional addition to any room. The **fabric shade** softens the light, creating a cozy atmosphere ideal for reading or relaxing. Additionally, the **energy-efficient LED bulbs** included with the set ensure bright, long-lasting light with minimal power consumption, making these lamps a smart investment for everyday use.
 
-## <a href="https://www.amazon.com/dp/B07XLDWRMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl2079a Goddard 16" Crystal Ball/metal Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07XLDWRMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl2079a Goddard 16" Crystal Ball/metal Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07XLDWRMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL2079A Goddard 16" ball="" bedroom="" bedside="" bookcase="" bulb="" clear"="" college="" crystal="" desk="" for="" glam="" included,="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31UyRwrZiML._SL500_.jpg" table="" transitional=""/></a>
+<a href="https://www.amazon.com/dp/B07XLDWRMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL2079A Goddard 16" ball="" bedroom="" bedside="" bookcase="" bulb="" clear"="" college="" crystal="" desk="" for="" glam="" included,="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31UyRwrZiML._SL500_.jpg" table="" transitional=""/></a>
 
 
 The **JONATHAN Y JYL2079A Goddard 16" Crystal Ball/Metal LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, **office**, or **college dorm**. This lamp is perfect for those who appreciate a blend of **glam** and **transitional design** elements and want to enhance their space with a sophisticated accent piece that also provides reliable illumination.
@@ -250,10 +250,10 @@ The **JONATHAN Y JYL2079A Goddard Table Lamp** features a striking **16-inch cry
 
 This lamp's **transitional style** bridges classic and contemporary design, allowing it to blend seamlessly with various décor themes. The clear crystal element enhances light diffusion, creating a warm and inviting ambiance. Additionally, its size and weight make it stable on surfaces like nightstands or desks, reducing the risk of accidental tipping. Overall, this lamp combines beauty and functionality to elevate your living or working space.
 
-## <a href="https://www.amazon.com/dp/B0D8TLHKDR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boutiquerugs Salgareda Boho Ceramic And Jute Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D8TLHKDR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boutiquerugs Salgareda Boho Ceramic And Jute Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8TLHKDR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BoutiqueRugs Salgareda Boho Ceramic and Jute Bedside Table Lamp for Bedroom Nightstand - End Side Lighting for Living Room - Shade Rattan - White, Beige - 15" h"="" src="https://m.media-amazon.com/images/I/41dLwXFcS0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8TLHKDR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BoutiqueRugs Salgareda Boho Ceramic and Jute Bedside Table Lamp for Bedroom Nightstand - End Side Lighting for Living Room - Shade Rattan - White, Beige - 15" h"="" src="https://m.media-amazon.com/images/I/41dLwXFcS0L._SL500_.jpg"/></a>
 
 
 The **BoutiqueRugs Salgareda Boho Ceramic and Jute Bedside Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom nightstand** or **living room end side**. Perfect for those who appreciate a blend of modern and bohemian aesthetics, this lamp caters to homeowners and renters wanting to enhance their space with soft, ambient lighting and a touch of natural texture.

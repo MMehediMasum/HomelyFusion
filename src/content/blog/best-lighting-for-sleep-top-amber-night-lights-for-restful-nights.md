@@ -22,10 +22,10 @@ Devices such as the Kipcush White Noise Sound Machine combine soft lighting with
 
 
 
-## <a href="https://www.amazon.com/dp/B07R2FJ6XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amber Night Light Plug In</a>
+## <a href="https://www.amazon.com/dp/B07R2FJ6XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amber Night Light Plug In</a>
 
 
-<a href="https://www.amazon.com/dp/B07R2FJ6XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amber Night Light Plug in, Dusk to Dawn Sensor, Blue Light Blocking, Automatic Nightlight, Energy Efficient, 2 Pack Night Lights Plug into Wall, for Bathroom, Bedroom, Kitchen, Hallway, Stairway" src="https://m.media-amazon.com/images/I/518+SgCAFDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07R2FJ6XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amber Night Light Plug in, Dusk to Dawn Sensor, Blue Light Blocking, Automatic Nightlight, Energy Efficient, 2 Pack Night Lights Plug into Wall, for Bathroom, Bedroom, Kitchen, Hallway, Stairway" src="https://m.media-amazon.com/images/I/518+SgCAFDL._SL500_.jpg"/></a>
 
 
 The **Amber Night Light Plug in** with **Dusk to Dawn Sensor** is ideal for individuals seeking a gentle, energy-efficient lighting solution for nighttime use. Perfect for families with children, elderly users who require safe navigation at night, or anyone wanting to avoid harsh blue light that disrupts sleep patterns. This night light suits bedrooms, bathrooms, kitchens, hallways, and stairways where soft illumination is essential.
@@ -47,10 +47,10 @@ The **Amber Night Light Plug in** by myCozyLite features a built-in **dusk to da
 
 In addition to its sleep-friendly lighting, this night light is highly **energy efficient**, consuming minimal power while offering consistent illumination. It is perfect for areas where you need low-level lighting for safety and convenience, such as bathrooms and hallways. The pack of two allows for multiple installations around the home, enhancing nighttime visibility without the need for bright overhead lights.
 
-## <a href="https://www.amazon.com/dp/B0C1VCWHMF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">L Lohas Led Night Light</a>
+## <a href="https://www.amazon.com/dp/B0C1VCWHMF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">L Lohas Led Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1VCWHMF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="L LOHAS LED Night Light, Amber Nightlight, Dimmable Night Light, Light Sensor, Yellow Nightlight, 0-100LM, Sleep Light for Kids, Soft &amp; Warm Light for Bedroom, Bathroom, 2 Pack" src="https://m.media-amazon.com/images/I/41KI3hfVPuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1VCWHMF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="L LOHAS LED Night Light, Amber Nightlight, Dimmable Night Light, Light Sensor, Yellow Nightlight, 0-100LM, Sleep Light for Kids, Soft &amp; Warm Light for Bedroom, Bathroom, 2 Pack" src="https://m.media-amazon.com/images/I/41KI3hfVPuL._SL500_.jpg"/></a>
 
 
 The **L LOHAS LED Night Light** is ideal for parents looking to provide their children with a gentle, non-intrusive light source during bedtime. This **amber nightlight** offers a soothing glow that helps kids feel secure without disrupting their natural sleep cycle. Additionally, it suits anyone in need of a soft, dimmable night light for bedrooms, bathrooms, or hallways, especially where a warm and calming ambiance is preferred.
@@ -73,10 +73,10 @@ The **L LOHAS LED Night Light** features an intelligent **light sensor** that au
 
 Designed by **GK Lighting**, this night light combines functionality with a sleek, compact form factor that fits easily into most outlets without blocking neighboring sockets. Its warm glow is perfect for children’s bedrooms, hallways, or bathrooms, creating a relaxing atmosphere that promotes restful sleep and reduces nighttime anxiety. The included 2-pack ensures that multiple areas of the home can benefit from this gentle, energy-efficient lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0C29B22V3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ge Sleeplite Night Lights</a>
+## <a href="https://www.amazon.com/dp/B0C29B22V3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ge Sleeplite Night Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0C29B22V3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GE Sleeplite Night Lights Plug Into Wall, Dusk to Dawn Sensor, Ambient Lighting, Sleep Aid, Bathroom Décor, LED Lights for Bedroom, Apartment Essentials, Smart Home ,76135, Amber, 2 Pack" src="https://m.media-amazon.com/images/I/41ihROB29lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C29B22V3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GE Sleeplite Night Lights Plug Into Wall, Dusk to Dawn Sensor, Ambient Lighting, Sleep Aid, Bathroom Décor, LED Lights for Bedroom, Apartment Essentials, Smart Home ,76135, Amber, 2 Pack" src="https://m.media-amazon.com/images/I/41ihROB29lL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a gentle, energy-efficient lighting solution, the **GE Sleeplite Night Lights** are perfect for bedrooms, bathrooms, and apartments. Those who want a smart, automated ambient light that helps improve sleep quality and enhances home décor will find this product highly beneficial.
@@ -101,10 +101,10 @@ The **GE Sleeplite Night Lights** feature an intelligent **dusk to dawn sensor**
 
 Made by **Jasco Products Company, LLC**, these night lights combine functionality with style. The energy-efficient LEDs reduce power consumption while providing sufficient ambient lighting for nighttime navigation. By plugging directly into the wall, these lights eliminate the need for bulky lamps or cords, enhancing the aesthetic of your bedroom or living area while contributing to a smart home environment.
 
-## <a href="https://www.amazon.com/dp/B09PY4HZYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kipcush White Noise Sound Machine</a>
+## <a href="https://www.amazon.com/dp/B09PY4HZYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kipcush White Noise Sound Machine</a>
 
 
-<a href="https://www.amazon.com/dp/B09PY4HZYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kipcush White Noise Sound Machine with Nursery Lamp, Mood Lighting, 7 Colour Night Light, 30 Soothing Sounds for Baby/Adult. Timer, Plug in, Memory Function, Touch Control" src="https://m.media-amazon.com/images/I/41ErGK9S9EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PY4HZYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kipcush White Noise Sound Machine with Nursery Lamp, Mood Lighting, 7 Colour Night Light, 30 Soothing Sounds for Baby/Adult. Timer, Plug in, Memory Function, Touch Control" src="https://m.media-amazon.com/images/I/41ErGK9S9EL._SL500_.jpg"/></a>
 
 
 The **Kipcush White Noise Sound Machine with Nursery Lamp** is ideal for parents looking to create a calming sleep environment for their baby, as well as adults who want to improve their sleep quality or reduce distractions. This versatile device is perfect for nurseries, bedrooms, or any space where soothing sounds and gentle lighting are desired.
@@ -129,10 +129,10 @@ The **Kipcush White Noise Sound Machine** combines functionality with soothing a
 
 Designed with ease of use in mind, the device features intuitive **touch controls** and a handy **memory function** that recalls your last settings, so you don’t have to reset it every night. The **timer** allows you to set it to run only as long as needed, conserving energy and ensuring a peaceful bedtime routine. Its compact size and lightweight design make it easy to move between rooms or take along when traveling.
 
-## <a href="https://www.amazon.com/dp/B0CCSBMQZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">L Lohas Led Night Lights Plug Into Wall 2-pack</a>
+## <a href="https://www.amazon.com/dp/B0CCSBMQZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">L Lohas Led Night Lights Plug Into Wall 2-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCSBMQZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="L LOHAS LED Night Lights Plug into Wall 2-Pack, 0.3W Plug in Night Light, Dusk to Dawn, 2000K Amber Light, Sleep Aid Nightlight Auto-On/Off, for Adults Kids Room, Bedroom, Bathroom, Hallway, Non-Dim" src="https://m.media-amazon.com/images/I/41JhLuk+2jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCSBMQZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="L LOHAS LED Night Lights Plug into Wall 2-Pack, 0.3W Plug in Night Light, Dusk to Dawn, 2000K Amber Light, Sleep Aid Nightlight Auto-On/Off, for Adults Kids Room, Bedroom, Bathroom, Hallway, Non-Dim" src="https://m.media-amazon.com/images/I/41JhLuk+2jL._SL500_.jpg"/></a>
 
 
 The **L LOHAS LED Night Lights Plug into Wall 2-Pack** is ideal for anyone seeking a gentle, energy-efficient lighting solution for nighttime environments. Whether you are a parent wanting a soothing light in your child's bedroom, an adult looking for a sleep aid, or someone needing safe illumination in hallways, bathrooms, or bedrooms, these **amber night lights** provide a perfect balance of comfort and functionality.
@@ -155,10 +155,10 @@ The **L LOHAS LED Night Lights** are thoughtfully designed to combine convenienc
 
 With its compact size and unobtrusive design, this night light easily blends into any room without drawing attention. Its low power consumption of only **0.3W** helps reduce electricity costs while providing safe navigation in dark spaces such as bedrooms, bathrooms, and hallways. The non-dimming feature ensures a steady light output, preventing eye strain and creating a calming atmosphere ideal for nighttime routines.
 
-## <a href="https://www.amazon.com/dp/B0CY2GP3QN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Growalleter Ocean Wave Projector Light</a>
+## <a href="https://www.amazon.com/dp/B0CY2GP3QN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Growalleter Ocean Wave Projector Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY2GP3QN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Growalleter Ocean Wave Projector Light, 16-Color Luminorthe Cube Lamp &amp; App Remote, 3D Holographic Water Ripple Romantic Ambient Lighting for Child's Room, Meditation Relaxation, Night Light" src="https://m.media-amazon.com/images/I/51Zr69v5wjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY2GP3QN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Growalleter Ocean Wave Projector Light, 16-Color Luminorthe Cube Lamp &amp; App Remote, 3D Holographic Water Ripple Romantic Ambient Lighting for Child's Room, Meditation Relaxation, Night Light" src="https://m.media-amazon.com/images/I/51Zr69v5wjL._SL500_.jpg"/></a>
 
 
 The **Growalleter Ocean Wave Projector Light** is perfect for anyone looking to create a calming and visually captivating atmosphere in their space. Ideal customers include parents seeking a soothing night light for their child’s room, meditation enthusiasts wanting ambient lighting to enhance relaxation, and anyone who enjoys unique decorative lighting for their home or office. This device combines aesthetic appeal with functional benefits, making it an excellent choice for various uses.
@@ -181,10 +181,10 @@ The **Growalleter Ocean Wave Projector Light** stands out with its ability to pr
 
 Designed with both aesthetics and functionality in mind, this projector light is compact and lightweight, making it easy to place in any room. The calming ocean wave effect is especially beneficial for children’s rooms, helping to soothe and relax young minds at bedtime. Additionally, the ambient lighting can greatly enhance meditation or relaxation sessions, providing a tranquil backdrop that aids in reducing stress and promoting mindfulness.
 
-## <a href="https://www.amazon.com/dp/B08QVG9759?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hatch Rest Baby Sound Machine</a>
+## <a href="https://www.amazon.com/dp/B08QVG9759?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hatch Rest Baby Sound Machine</a>
 
 
-<a href="https://www.amazon.com/dp/B08QVG9759?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hatch Rest Baby Sound Machine, Night Light | 2nd Gen | Registry Essential, Sleep Trainer, Routine Builder, Time-to-Rise Alarm Clock, White Noise Soother, Nursery Stories, Toddler Kids Bedroom (Wi-Fi)" src="https://m.media-amazon.com/images/I/31KJLbgZk2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08QVG9759?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hatch Rest Baby Sound Machine, Night Light | 2nd Gen | Registry Essential, Sleep Trainer, Routine Builder, Time-to-Rise Alarm Clock, White Noise Soother, Nursery Stories, Toddler Kids Bedroom (Wi-Fi)" src="https://m.media-amazon.com/images/I/31KJLbgZk2L._SL500_.jpg"/></a>
 
 
 The **Hatch Rest Baby Sound Machine, Night Light | 2nd Gen** is ideal for parents and caregivers seeking a versatile and tech-savvy solution to improve their toddler's sleep routine. This product is perfect for those who want a combination of a sound machine, night light, and sleep trainer all in one device, especially useful for creating a calming nursery environment and establishing consistent bedtime habits.
@@ -206,10 +206,10 @@ The **Hatch Rest Baby Sound Machine** boasts a sleek and compact design that fit
 
 With its innovative **time-to-rise alarm clock** and **routine builder**, the Hatch Rest helps toddlers understand sleep and wake times, fostering independence and consistent routines. The Wi-Fi capability enables parents to control and customize settings remotely via a smartphone app, offering convenience and flexibility. Overall, this product supports healthy sleep habits while providing peace of mind for parents, making it a valuable addition to any child's bedroom.
 
-## <a href="https://www.amazon.com/dp/B07VPWR8VM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ge Sleeplite Led Night Light</a>
+## <a href="https://www.amazon.com/dp/B07VPWR8VM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ge Sleeplite Led Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07VPWR8VM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GE SleepLite LED Night Light, 2 Pack, Dusk-to-Dawn Sensor, Sleep Light, Dim Light, Warm Amber, Compact, Ideal for Bedroom, Nursery, Bathroom, Hallway, 45247, 2 Count" src="https://m.media-amazon.com/images/I/41DPIQVMZ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VPWR8VM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GE SleepLite LED Night Light, 2 Pack, Dusk-to-Dawn Sensor, Sleep Light, Dim Light, Warm Amber, Compact, Ideal for Bedroom, Nursery, Bathroom, Hallway, 45247, 2 Count" src="https://m.media-amazon.com/images/I/41DPIQVMZ1L._SL500_.jpg"/></a>
 
 
 The **GE SleepLite LED Night Light** is perfect for individuals seeking a reliable and energy-efficient night light solution. Ideal for parents looking to provide a gentle glow in the nursery, homeowners wanting subtle illumination in hallways or bathrooms, and anyone desiring a compact, easy-to-use night light with automatic functionality. This 2 pack offers convenience and value for those who need multiple lights around their home.
@@ -231,10 +231,10 @@ The **GE SleepLite LED Night Light** incorporates a smart **dusk-to-dawn sensor*
 
 Made by **Jasco Products Company, LLC**, this night light is built with durable LED technology that consumes minimal power while providing consistent illumination. This combination of features offers peace of mind for parents and homeowners alike, providing safe, low-level lighting that enhances nighttime visibility without disturbing your rest. The 2 pack bundle adds extra value, allowing you to outfit multiple rooms with ease and style.
 
-## <a href="https://www.amazon.com/dp/B078NH96RT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maz-tek Plug-in Led Night Light</a>
+## <a href="https://www.amazon.com/dp/B078NH96RT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maz-tek Plug-in Led Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B078NH96RT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAZ-TEK Plug-in Led Night Light with Auto Dusk to Dawn Sensor,Adjustable Brightness Warm White Lights for Hallway,Bedroom, Kids Room, Kitchen, Stairway, 2 Pack" src="https://m.media-amazon.com/images/I/41v28xexN+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078NH96RT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAZ-TEK Plug-in Led Night Light with Auto Dusk to Dawn Sensor,Adjustable Brightness Warm White Lights for Hallway,Bedroom, Kids Room, Kitchen, Stairway, 2 Pack" src="https://m.media-amazon.com/images/I/41v28xexN+L._SL500_.jpg"/></a>
 
 
 The **MAZ-TEK Plug-in Led Night Light** with Auto Dusk to Dawn Sensor is ideal for homeowners looking to enhance nighttime visibility in areas like hallways, bedrooms, kids’ rooms, kitchens, and stairways. This product is perfect for families with children, elderly individuals, or anyone who prefers a soft, warm light that automatically adjusts to ambient lighting conditions for safety and convenience.
@@ -256,10 +256,10 @@ The **MAZ-TEK Plug-in Led Night Light** is equipped with an intelligent **auto d
 
 Designed with a **warm white LED**, this night light creates a soothing glow that reduces harsh shadows and glare, promoting a relaxing atmosphere especially beneficial for children's rooms and hallways. Its compact size and lightweight nature make installation quick and unobtrusive, fitting seamlessly into any outlet without blocking adjacent sockets. The inclusion of two night lights in the pack ensures adequate coverage for multiple areas, enhancing nighttime safety throughout the home.
 
-## <a href="https://www.amazon.com/dp/B0DKMT2KPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Humiieye Northern Light Projector</a>
+## <a href="https://www.amazon.com/dp/B0DKMT2KPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Humiieye Northern Light Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKMT2KPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUMIIEYE Northern Light Projector, Battery Operated Aurora Night Light, 16 Colors Galaxy Lamp Ocean Wave Ceiling Projector Mood Ambient Lighting for Bedroom Party Adults Kids Room Toddler Girl Gift" src="https://m.media-amazon.com/images/I/41-99OQIG6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKMT2KPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUMIIEYE Northern Light Projector, Battery Operated Aurora Night Light, 16 Colors Galaxy Lamp Ocean Wave Ceiling Projector Mood Ambient Lighting for Bedroom Party Adults Kids Room Toddler Girl Gift" src="https://m.media-amazon.com/images/I/41-99OQIG6L._SL500_.jpg"/></a>
 
 
 The **HUMIIEYE Northern Light Projector** is perfect for individuals seeking a captivating and soothing lighting experience in their personal spaces. Ideal for **bedrooms, party settings, and kids’ rooms**, this versatile **battery-operated aurora night light** appeals to both adults and children who appreciate ambient and mood lighting. If you want to transform your room with mesmerizing **galaxy and ocean wave projections**, this device is an excellent choice.

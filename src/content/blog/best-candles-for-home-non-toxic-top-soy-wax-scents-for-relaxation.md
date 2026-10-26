@@ -22,10 +22,10 @@ Soy candles are popular for their clean burn and eco-friendly nature. Some candl
 
 
 
-## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance** is perfect for individuals seeking a calming and refreshing ambiance in their living spaces. Ideal for those who appreciate subtle yet invigorating scents, this candle suits anyone looking to enhance relaxation, mindfulness, or decorative appeal in their home or office environment. If you enjoy long-lasting fragrances with a natural, elegant touch, this candle is an excellent choice.
@@ -47,10 +47,10 @@ The **Chesapeake Bay Balance + Harmony Scented Candle** features a carefully cra
 
 Designed with both aesthetics and functionality in mind, the candle’s **off-white color** and sleek dimensions allow it to complement various interior styles, adding a warm decorative element wherever it is placed. Additionally, the substantial **50 hours burn time** provides lasting enjoyment, making it ideal for creating a consistent atmosphere during relaxation, meditation, or social gatherings. Overall, this candle delivers both sensory pleasure and practical benefits, making it a valuable addition to your home ambiance collection.
 
-## <a href="https://www.amazon.com/dp/B0DDC5SDYN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arcasa Organic Lavender Candles</a>
+## <a href="https://www.amazon.com/dp/B0DDC5SDYN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arcasa Organic Lavender Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDC5SDYN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ARCASA Organic Lavender Candles - Non Toxic Soy Candles for Home, Stress Relief &amp; Meditation (7oz)" src="https://m.media-amazon.com/images/I/517IcjDPFYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDC5SDYN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ARCASA Organic Lavender Candles - Non Toxic Soy Candles for Home, Stress Relief &amp; Meditation (7oz)" src="https://m.media-amazon.com/images/I/517IcjDPFYL._SL500_.jpg"/></a>
 
 
 The **ARCASA Organic Lavender Candles** are perfect for individuals seeking a natural and calming ambiance in their living spaces. Ideal for those who prioritize eco-friendly products, stress relief, and mindfulness practices like meditation, these **non-toxic soy candles** provide a safe and soothing alternative to traditional candles. If you want to enhance your home environment with gentle lavender aroma and sustainable craftsmanship, this candle is an excellent choice.
@@ -73,10 +73,10 @@ The **ARCASA Organic Lavender Candles** stand out due to their commitment to usi
 
 Additionally, the candle’s **compact and stylish amber glass container** complements various home decors while providing a safe and stable base for burning. The design enhances the warm glow, contributing to a calming environment. Users also appreciate the brand's dedication to quality and sustainability, ensuring they are purchasing a product that supports both their well-being and environmental consciousness.
 
-## <a href="https://www.amazon.com/dp/B01G3SP5ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nika's Home Vanilla Bean Soy Candle</a>
+## <a href="https://www.amazon.com/dp/B01G3SP5ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nika's Home Vanilla Bean Soy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01G3SP5ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nika's Home Vanilla Bean Soy Candle - 12oz Mason Jar - Non-Toxic - Hand Poured in The USA, Long Burning 50-60 Hours Highly Scented All Natural, Clean Burning" src="https://m.media-amazon.com/images/I/31xXSRe8QlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01G3SP5ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nika's Home Vanilla Bean Soy Candle - 12oz Mason Jar - Non-Toxic - Hand Poured in The USA, Long Burning 50-60 Hours Highly Scented All Natural, Clean Burning" src="https://m.media-amazon.com/images/I/31xXSRe8QlL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate a cozy, aromatic ambiance in their living space, the **Nika's Home Vanilla Bean Soy Candle** is perfect for individuals seeking a clean-burning, long-lasting candle made from all-natural ingredients. Whether you're looking to enhance relaxation during a quiet evening or add a fragrant touch to your home décor, this hand-poured candle suits eco-conscious buyers who value quality and safety.
@@ -98,10 +98,10 @@ The **Nika's Home Vanilla Bean Soy Candle** features a carefully crafted blend o
 
 With a burn time of approximately **50-60 hours**, this candle offers long-lasting scent release, creating a comforting environment that helps reduce stress and enhance mood. The hand-poured quality reflects attention to detail and superior craftsmanship, making it a thoughtful gift for loved ones or a personal indulgence. Overall, this candle blends functionality and style to meet the needs of candle enthusiasts who prioritize natural ingredients and a clean burning experience.
 
-## <a href="https://www.amazon.com/dp/B0DP74YCXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aoovoo Scented Candles</a>
+## <a href="https://www.amazon.com/dp/B0DP74YCXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aoovoo Scented Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP74YCXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOOVOO Scented Candles - 4PC Candle Set, 36 oz Soy Candles, Soy Candle for Home Scented, Lavender/Vanilla/Eucalyptus/Sage" src="https://m.media-amazon.com/images/I/51k19KIPT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP74YCXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOOVOO Scented Candles - 4PC Candle Set, 36 oz Soy Candles, Soy Candle for Home Scented, Lavender/Vanilla/Eucalyptus/Sage" src="https://m.media-amazon.com/images/I/51k19KIPT0L._SL500_.jpg"/></a>
 
 
 The **AOOVOO Scented Candles - 4PC Candle Set** is perfect for individuals who appreciate a calming and fragrant atmosphere in their living spaces. Ideal for those who enjoy aromatherapy, home decoration, or simply want to create a relaxing environment, this set offers a variety of soothing scents like **Lavender**, **Vanilla**, **Eucalyptus**, and **Sage**. Whether you are looking to unwind after a long day or enhance your home’s ambiance, this candle set is a great choice.
@@ -124,10 +124,10 @@ The **AOOVOO Scented Candles set** is crafted from high-quality **soy wax**, whi
 
 Each candle’s scent is carefully balanced to provide a subtle yet noticeable fragrance that enhances relaxation and comfort. The inclusion of natural ingredients also makes these candles a thoughtful gift option for friends and family who appreciate eco-friendly and aromatherapeutic products. Overall, the AOOVOO candle set combines aesthetic appeal, quality craftsmanship, and functional benefits, making it a valuable choice for anyone looking to elevate their home atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0CP7QMZF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aoovoo Coconut Vanilla Candles</a>
+## <a href="https://www.amazon.com/dp/B0CP7QMZF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aoovoo Coconut Vanilla Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP7QMZF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOOVOO Coconut Vanilla Candles - 9 oz Scented Candles, Aromatherapy Candle, Soy Candle for Home Scented" src="https://m.media-amazon.com/images/I/41HuQ4eDmnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP7QMZF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOOVOO Coconut Vanilla Candles - 9 oz Scented Candles, Aromatherapy Candle, Soy Candle for Home Scented" src="https://m.media-amazon.com/images/I/41HuQ4eDmnL._SL500_.jpg"/></a>
 
 
 The **AOOVOO Coconut Vanilla Candles** are perfect for individuals seeking a soothing and natural aroma to enhance their living space. Ideal for those who appreciate **aromatherapy** and prefer eco-friendly products, these **soy candles** offer a clean burn and a delightful scent, making them suitable for home use, relaxation, or meditation. If you want to create a warm, inviting atmosphere with a touch of luxury, this candle is an excellent choice.
@@ -149,10 +149,10 @@ The **AOOVOO Coconut Vanilla Candles** feature a thoughtfully crafted blend of *
 
 Beyond its pleasing fragrance, the candle's **gold container** adds an aesthetic touch, making it a perfect decorative item. Its **aromatherapy benefits** assist in creating a relaxing ambiance, ideal for unwinding after a long day or enhancing mindfulness practices. Overall, the AOOVOO candle balances style, sustainability, and sensory enjoyment, catering to those who value quality and wellness in their home fragrance choices.
 
-## <a href="https://www.amazon.com/dp/B0DNS8VSR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sage &amp; Citrus Candle</a>
+## <a href="https://www.amazon.com/dp/B0DNS8VSR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sage &amp; Citrus Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNS8VSR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sage &amp; Citrus Candle | Scented Candle for Home, Aromatherapy Candles - Soy Candles for Home Scented, Gift for Women Men, Home Fragrance Decoration -7oz" src="https://m.media-amazon.com/images/I/41ZCS-OkejL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNS8VSR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sage &amp; Citrus Candle | Scented Candle for Home, Aromatherapy Candles - Soy Candles for Home Scented, Gift for Women Men, Home Fragrance Decoration -7oz" src="https://m.media-amazon.com/images/I/41ZCS-OkejL._SL500_.jpg"/></a>
 
 
 The **Sage & Citrus Candle** by **Auelife** is an ideal choice for individuals seeking a calming and refreshing ambiance in their living spaces. Perfect for those who appreciate **aromatherapy** and desire a natural, clean-burning option, this **soy candle** caters to both men and women looking to enhance their home environment or find a thoughtful gift. Its elegant **black jar** design also makes it a stylish addition to any room.
@@ -174,10 +174,10 @@ The **Sage & Citrus Candle** features a perfectly balanced blend of herbal sage 
 
 Beyond aesthetics, the candle’s aroma offers notable benefits: the sage promotes a sense of calm and mental clarity, while the citrus notes invigorate the senses, making it ideal for relaxation or focus during work or meditation. Its moderate size and weight of just under 1 pound make it easy to transport or gift, enhancing its appeal as a home fragrance decoration or a thoughtful present for loved ones.
 
-## <a href="https://www.amazon.com/dp/B0CTGT4DRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense Candles Lemon Vanilla Scented</a>
+## <a href="https://www.amazon.com/dp/B0CTGT4DRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense Candles Lemon Vanilla Scented</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTGT4DRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE Candles Lemon Vanilla Scented, 19.4oz 110 Hours Long Lasting for Home 2 Wick Natural Soy Wax Non Toxic Candles in Glass Jar, Stress Relief Gifts for Women and Men" src="https://m.media-amazon.com/images/I/41Z25+0TN2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTGT4DRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE Candles Lemon Vanilla Scented, 19.4oz 110 Hours Long Lasting for Home 2 Wick Natural Soy Wax Non Toxic Candles in Glass Jar, Stress Relief Gifts for Women and Men" src="https://m.media-amazon.com/images/I/41Z25+0TN2L._SL500_.jpg"/></a>
 
 
 The **M&SENSE Candles Lemon Vanilla Scented** are perfect for individuals seeking a long-lasting, natural, and non-toxic candle to enhance their home ambiance. Ideal for those who appreciate soothing scents and stress relief, these candles make excellent gifts for both women and men who value quality aromatherapy and elegant home décor.
@@ -200,10 +200,10 @@ The **M&SENSE Candles Lemon Vanilla Scented** feature a thoughtfully designed 2 
 
 Housed in a sleek and sturdy **glass jar**, this candle adds a touch of sophistication to any room while providing practical protection for the wax. The sizeable 19.4oz weight ensures you enjoy extended aromatic benefits without frequent replacements, making it both a convenient and economical choice. Whether used as a stress relief aid or an elegant home accessory, the **M&SENSE Candles Lemon Vanilla Scented** deliver a premium experience tailored for those who prioritize both wellness and style in their living spaces.
 
-## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lulu Candles</a>
+## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lulu Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
 
 
 The **Lulu Candles | Jasmine, Oud & Sandalwood | Luxury Scented Soy Jar Candle** is ideal for individuals who appreciate a sophisticated and long-lasting fragrance experience in their living or workspace. Perfect for those seeking a blend of exotic and calming scents, this candle suits anyone looking to enhance their ambiance with a touch of luxury and elegance, especially fans of natural soy candles made with care and craftsmanship.
@@ -226,10 +226,10 @@ The **Lulu Candles Jasmine, Oud & Sandalwood** candle stands out with its expert
 
 Its **hand-poured craftsmanship** highlights the brand’s commitment to quality, resulting in a reliable and visually appealing product. The sleek **black jar** adds a modern and sophisticated touch to any room, making it an excellent décor piece even when unlit. Additionally, the candle’s longevity means users get excellent value, enjoying its luxurious aroma for many hours without the need for frequent replacements.
 
-## <a href="https://www.amazon.com/dp/B0F88HB3F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Putart Palo Santo Highly Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0F88HB3F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Putart Palo Santo Highly Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0F88HB3F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Putart Palo Santo Highly Scented Candle for Home, 9oz Natural Soy Aromatherapy Non Toxic Candles with Essential Oil, Home Fragrance Stress Relief &amp; Meditation Jar Candles Gifts for Women &amp; Men, White" src="https://m.media-amazon.com/images/I/41T9wxdU8uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F88HB3F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Putart Palo Santo Highly Scented Candle for Home, 9oz Natural Soy Aromatherapy Non Toxic Candles with Essential Oil, Home Fragrance Stress Relief &amp; Meditation Jar Candles Gifts for Women &amp; Men, White" src="https://m.media-amazon.com/images/I/41T9wxdU8uL._SL500_.jpg"/></a>
 
 
 The **Putart Palo Santo Highly Scented Candle** is ideal for individuals seeking a natural and calming home fragrance experience. Perfect for those who value **aromatherapy**, stress relief, and meditation, this candle suits both beginners and experienced users looking to enhance their living spaces with a soothing, non-toxic ambiance. It's especially recommended for anyone who prefers eco-friendly products made from **natural soy wax** and infused with authentic **essential oils**.
@@ -252,10 +252,10 @@ The **Putart Palo Santo Candle** features a carefully crafted blend of **natural
 
 Beyond its aesthetic appeal, this candle is designed to support wellness routines by releasing the calming aroma of **Palo Santo**, known for its ability to reduce stress and enhance focus. The use of **non-toxic soy wax** not only benefits the environment but also ensures that the air remains clean, making it suitable for those with sensitivities. Whether used during yoga, meditation, or quiet evenings at home, this candle offers a natural way to create a peaceful atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0F88GYP87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Putart Lavender &amp; Bergamot Scented Candles For Home</a>
+## <a href="https://www.amazon.com/dp/B0F88GYP87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Putart Lavender &amp; Bergamot Scented Candles For Home</a>
 
 
-<a href="https://www.amazon.com/dp/B0F88GYP87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Putart Lavender &amp; Bergamot Scented Candles for Home, Natural Soy Wax Aromatherapy Non Toxic Candle Gifts for Women Men, Home Fragrance Decoration Glass Jar Candle for Meditation and Relaxation (9oz" src="https://m.media-amazon.com/images/I/414bl3o5ylL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F88GYP87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Putart Lavender &amp; Bergamot Scented Candles for Home, Natural Soy Wax Aromatherapy Non Toxic Candle Gifts for Women Men, Home Fragrance Decoration Glass Jar Candle for Meditation and Relaxation (9oz" src="https://m.media-amazon.com/images/I/414bl3o5ylL._SL500_.jpg"/></a>
 
 
 The **Putart Lavender & Bergamot Scented Candles** are ideal for individuals seeking a natural and calming ambiance in their living spaces. Perfect for those who appreciate **aromatherapy**, meditation, or simply want to enhance their home environment with a gentle, non-toxic fragrance, these candles cater to both men and women looking for a soothing and decorative home accessory.

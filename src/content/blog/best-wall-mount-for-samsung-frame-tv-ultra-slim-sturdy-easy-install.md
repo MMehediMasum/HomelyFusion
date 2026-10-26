@@ -23,10 +23,10 @@ Weight capacity varies, so choose one that fits your TV size and weight. Whether
 
 
 
-## <a href="https://www.amazon.com/dp/B0CTMH6KZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Supcline Ultra Slim Tv Wall Mount For 42 To 100 Inch Flat &amp; Frame Tvs</a>
+## <a href="https://www.amazon.com/dp/B0CTMH6KZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Supcline Ultra Slim Tv Wall Mount For 42 To 100 Inch Flat &amp; Frame Tvs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTMH6KZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Supcline Ultra Slim TV Wall Mount for 42 to 100 inch Flat &amp; Frame TVs, Only 0.31” Low Profile Flat to Wall TV Mount, Micro Gap Wall Mount tv Bracket, Hold up to 176 lbs, Blends in Any Interior" src="https://m.media-amazon.com/images/I/41ZuVF4DqfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTMH6KZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Supcline Ultra Slim TV Wall Mount for 42 to 100 inch Flat &amp; Frame TVs, Only 0.31” Low Profile Flat to Wall TV Mount, Micro Gap Wall Mount tv Bracket, Hold up to 176 lbs, Blends in Any Interior" src="https://m.media-amazon.com/images/I/41ZuVF4DqfL._SL500_.jpg"/></a>
 
 
 The **Supcline Ultra Slim TV Wall Mount** is ideal for homeowners and renters looking to maximize their living space with a sleek, modern setup. If you own a **42 to 100 inch flat or frame TV** and want a discreet, low-profile mounting solution that blends seamlessly into your interior, this mount is perfect for you. It is especially suited for those who value aesthetics without compromising on strength and durability.
@@ -49,10 +49,10 @@ The **Supcline Ultra Slim TV Wall Mount** stands out for its incredibly thin pro
 
 Additionally, its robust build quality from the trusted **Supcline brand** guarantees long-lasting performance. The mount's black finish helps it blend effortlessly into various room styles, whether modern or traditional. Overall, this wall bracket offers an elegant and sturdy solution for anyone looking to elevate their TV viewing experience while saving space and maintaining a clean, minimalist look.
 
-## <a href="https://www.amazon.com/dp/B0CL6TCYTK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Slim Tv Wall Mount</a>
+## <a href="https://www.amazon.com/dp/B0CL6TCYTK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Slim Tv Wall Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL6TCYTK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -80"="" 0.3"="" 100lbs"="" alt="Ultra Slim TV Wall Mount Compatible with 14" any="" blends="" flat="" frame="" hold="" interior,="" look,="" low="" micro-gap="" minimalist="" mount,="" profile="" src="https://m.media-amazon.com/images/I/41aSJq1A6BL._SL500_.jpg" to="" tv="" tvs,="" up=""/></a>
+<a href="https://www.amazon.com/dp/B0CL6TCYTK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -80"="" 0.3"="" 100lbs"="" alt="Ultra Slim TV Wall Mount Compatible with 14" any="" blends="" flat="" frame="" hold="" interior,="" look,="" low="" micro-gap="" minimalist="" mount,="" profile="" src="https://m.media-amazon.com/images/I/41aSJq1A6BL._SL500_.jpg" to="" tv="" tvs,="" up=""/></a>
 
 
 The **Ultra Slim TV Wall Mount** is ideal for homeowners and renters who want to maximize space and enhance their living area’s aesthetic. Perfect for those with **14"-80" flat or frame TVs**, this mount suits anyone looking for a sleek, low-profile installation that blends seamlessly with any interior design.
@@ -75,10 +75,10 @@ The **Ultra Slim TV Wall Mount** stands out with its incredibly low profile, sit
 
 Additionally, the mount’s robust construction supports up to 100 pounds, providing peace of mind that your TV will stay securely mounted. The sleek black finish enhances its ability to blend into any room setting without drawing unnecessary attention, giving your entertainment area a polished and refined look. Overall, this wall mount offers a practical and stylish solution for anyone looking to optimize their TV setup.
 
-## <a href="https://www.amazon.com/dp/B09ZBM66MB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Samsung Slim Fit Tv Wall Mount</a>
+## <a href="https://www.amazon.com/dp/B09ZBM66MB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Samsung Slim Fit Tv Wall Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZBM66MB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Samsung Slim Fit TV Wall Mount, Compatible w/ 43”- 85” Q Series, Crystal UHD Series Televisions, Easy Installation, Blends w/Any Interior, Minimalist Look, WMN-B50EB/ZA, 2022, Black" src="https://m.media-amazon.com/images/I/31jMQan9i-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZBM66MB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Samsung Slim Fit TV Wall Mount, Compatible w/ 43”- 85” Q Series, Crystal UHD Series Televisions, Easy Installation, Blends w/Any Interior, Minimalist Look, WMN-B50EB/ZA, 2022, Black" src="https://m.media-amazon.com/images/I/31jMQan9i-L._SL500_.jpg"/></a>
 
 
 The **Samsung Slim Fit TV Wall Mount** is ideal for homeowners and renters who want to maximize space and achieve a clean, modern look for their living rooms or entertainment areas. This mount is perfect for those with **43” to 85” Q Series or Crystal UHD Series Samsung televisions** seeking a reliable and stylish mounting solution that blends seamlessly with any interior design. If you value easy installation and a minimalist aesthetic, this product is tailored for you.
@@ -100,10 +100,10 @@ The **Samsung Slim Fit TV Wall Mount** offers an elegant and practical way to di
 
 Designed with user convenience in mind, the mount features an **easy installation process** that minimizes hassle, allowing most users to set up their television without professional help. Additionally, its **minimalist black finish** blends effortlessly with various interior styles, making it a versatile choice for any home. The compact dimensions and lightweight construction also make it easier to handle during installation, adding to the overall user experience.
 
-## <a href="https://www.amazon.com/dp/B0F1CK13ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elived Ultra Slim Tv Wall Mount For Samsung The Frame/neo Qled 8k/4k Tvs</a>
+## <a href="https://www.amazon.com/dp/B0F1CK13ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elived Ultra Slim Tv Wall Mount For Samsung The Frame/neo Qled 8k/4k Tvs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1CK13ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 400x400mm,="" 88="" 90="" alt="ELIVED Ultra Slim TV Wall Mount for Samsung The Frame/Neo QLED 8K/4K tvs, 1.1" bracket="" capacity,="" degree="" landscape="" lbs.="" low="" max="" mount="" mount,="" portrait."="" profile="" src="https://m.media-amazon.com/images/I/41rzaOrUuXL._SL500_.jpg" to="" tv="" vesa="" wall=""/></a>
+<a href="https://www.amazon.com/dp/B0F1CK13ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 400x400mm,="" 88="" 90="" alt="ELIVED Ultra Slim TV Wall Mount for Samsung The Frame/Neo QLED 8K/4K tvs, 1.1" bracket="" capacity,="" degree="" landscape="" lbs.="" low="" max="" mount="" mount,="" portrait."="" profile="" src="https://m.media-amazon.com/images/I/41rzaOrUuXL._SL500_.jpg" to="" tv="" vesa="" wall=""/></a>
 
 
 The **ELIVED Ultra Slim TV Wall Mount** is ideal for owners of Samsung The Frame, Neo QLED 8K, and 4K TVs who want a sleek, space-saving solution to display their television. If you are looking to enhance your viewing experience with a secure and adjustable mount that fits a wide range of models up to 88 lbs, this product is perfect for you. It is also suitable for those seeking a versatile mount that supports both landscape and portrait orientations.
@@ -125,10 +125,10 @@ The **ELIVED Ultra Slim TV Wall Mount** is designed with precision to offer a co
 
 Beyond its sleek design, this mount supports a significant weight capacity of 88 lbs, providing durable and reliable support for heavy TVs. The ability to rotate your TV 90 degrees from landscape to portrait adds a layer of versatility, perfect for displaying art or specialized content. Overall, the ELIVED mount combines functionality and style, offering users an easy-to-use, robust, and visually appealing mounting option for their high-end Samsung TVs.
 
-## <a href="https://www.amazon.com/dp/B0C3SCVP5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ynvision.design Ultra Slim Tv Wall Mount</a>
+## <a href="https://www.amazon.com/dp/B0C3SCVP5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ynvision.design Ultra Slim Tv Wall Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3SCVP5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ynVISION.DESIGN Ultra Slim TV Wall Mount Compatible with Samsung Frame TVs 2021-2026 and Most TVs 43-100 Inch - Micro Gap Design 0.37 Inch Profile - Max VESA 600x800-165 lbs Capacity - Easy Install" src="https://m.media-amazon.com/images/I/31mJ-Rz4mhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3SCVP5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ynVISION.DESIGN Ultra Slim TV Wall Mount Compatible with Samsung Frame TVs 2021-2026 and Most TVs 43-100 Inch - Micro Gap Design 0.37 Inch Profile - Max VESA 600x800-165 lbs Capacity - Easy Install" src="https://m.media-amazon.com/images/I/31mJ-Rz4mhL._SL500_.jpg"/></a>
 
 
 The **ynVISION.DESIGN Ultra Slim TV Wall Mount** is ideal for homeowners and interior enthusiasts who want a sleek, modern look for their living spaces. Specifically designed for those who own **Samsung Frame TVs from 2021-2026** or other large TVs ranging from **43 to 100 inches**, this mount suits users seeking a minimalistic setup with a near flush-to-wall appearance. If you value both style and functionality in your entertainment setup, this product is a perfect fit.
@@ -150,10 +150,10 @@ The **ynVISION.DESIGN Ultra Slim TV Wall Mount** stands out due to its remarkabl
 
 Installation is streamlined and user-friendly, making it accessible even for those who are not professional installers. The mount’s sturdy build from the reputable **ynVISION.DESIGN** brand guarantees durability and long-lasting performance. Overall, this mount enhances the viewing experience by providing a clean, elegant aesthetic while offering the strength and versatility needed for a wide range of television setups.
 
-## <a href="https://www.amazon.com/dp/B0BVFW3DWY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Slim Tv Mount Slim Fit Wall Mount For 43 To 85 Inch Samsung Neo Qled, Q Series Tvs, Crystal Uhd Tvs, The Frame Tv</a>
+## <a href="https://www.amazon.com/dp/B0BVFW3DWY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Slim Tv Mount Slim Fit Wall Mount For 43 To 85 Inch Samsung Neo Qled, Q Series Tvs, Crystal Uhd Tvs, The Frame Tv</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVFW3DWY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ultra Slim TV Mount Slim Fit Wall Mount for 43 to 85 inch 2021 Samsung Neo QLED, Q SeriesTVs, Crystal UHD TVs, The Frame TV (excluding Q80A, AU7000), Hold up to 132 lbs, Max VESA 1200x800" src="https://m.media-amazon.com/images/I/31ZpF7GEoqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVFW3DWY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ultra Slim TV Mount Slim Fit Wall Mount for 43 to 85 inch 2021 Samsung Neo QLED, Q SeriesTVs, Crystal UHD TVs, The Frame TV (excluding Q80A, AU7000), Hold up to 132 lbs, Max VESA 1200x800" src="https://m.media-amazon.com/images/I/31ZpF7GEoqL._SL500_.jpg"/></a>
 
 
 The **Ultra Slim TV Mount Slim Fit Wall Mount** is ideal for homeowners and tech enthusiasts who want a sleek, space-saving solution to mount their large TVs. If you own a **43 to 85 inch 2021 Samsung Neo QLED, Q Series TVs, Crystal UHD TVs, or The Frame TV** (excluding Q80A and AU7000 models), and desire a secure, low-profile mount that complements your modern living space, this product is perfect for you. It’s especially suitable for those prioritizing an elegant setup without compromising on strength and durability.
@@ -176,10 +176,10 @@ The **PUTORSEN Ultra Slim TV Mount** is engineered with a sleek profile that kee
 
 With a maximum VESA compatibility of 1200x800, this mount adapts to a wide variety of large TV models, but it is optimized for Samsung’s 2021 lineup, including Neo QLED and Crystal UHD TVs. This ensures precise alignment and easy installation, reducing the hassle of finding compatible mounting hardware. The durable construction and slim design make it a perfect choice for anyone wanting to combine aesthetics, functionality, and safety in their home entertainment setup.
 
-## <a href="https://www.amazon.com/dp/B0DZNTSHFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mountup Ultra Slim Tv Wall Mount For Samsung The Frame/neo Qled 8k/4k Tvs</a>
+## <a href="https://www.amazon.com/dp/B0DZNTSHFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mountup Ultra Slim Tv Wall Mount For Samsung The Frame/neo Qled 8k/4k Tvs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZNTSHFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOUNTUP Ultra Slim TV Wall Mount for Samsung The Frame/Neo QLED 8K/4K TVs, Low Profile TV Mount, Rotating 90 Degree Landscape to Portrait, Wall Mount Max VESA 400x400mm Hold up to 88 lbs MU0089" src="https://m.media-amazon.com/images/I/41EnvgbY+3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZNTSHFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOUNTUP Ultra Slim TV Wall Mount for Samsung The Frame/Neo QLED 8K/4K TVs, Low Profile TV Mount, Rotating 90 Degree Landscape to Portrait, Wall Mount Max VESA 400x400mm Hold up to 88 lbs MU0089" src="https://m.media-amazon.com/images/I/41EnvgbY+3L._SL500_.jpg"/></a>
 
 
 The **MOUNTUP Ultra Slim TV Wall Mount** is ideal for homeowners and tech enthusiasts who own **Samsung The Frame** or **Neo QLED 8K/4K TVs** and want a sleek, space-saving solution to mount their TV. If you are looking for a versatile mount that supports both **landscape and portrait orientations** and can hold larger TVs up to **88 lbs**, this product is designed to meet those needs with ease.
@@ -203,10 +203,10 @@ The **MOUNTUP Ultra Slim TV Wall Mount** is crafted to provide a minimalistic ye
 
 Additionally, the mount's ability to rotate 90 degrees from landscape to portrait allows users to customize their viewing experience effortlessly. Whether you're displaying digital artwork or watching your favorite show, this flexibility adds significant value. The strong construction ensures that even heavier TVs, up to 88 lbs, remain safely secured, giving peace of mind alongside style. Overall, this mount combines functionality with sleek design, making it an excellent choice for modern TV setups.
 
-## <a href="https://www.amazon.com/dp/B0DB8XYW32?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ynvision.design Ultra Slim Micro Gap Tv Wall Mount Bracket</a>
+## <a href="https://www.amazon.com/dp/B0DB8XYW32?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ynvision.design Ultra Slim Micro Gap Tv Wall Mount Bracket</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB8XYW32?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -65",="" 1)"="" alt="ynVISION.Design Ultra Slim Micro Gap TV Wall Mount Bracket | Compatible with Samsung Frame TVs (2021-2024) for Easy Install (32" of="" pack="" src="https://m.media-amazon.com/images/I/31pDmi-lUsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB8XYW32?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -65",="" 1)"="" alt="ynVISION.Design Ultra Slim Micro Gap TV Wall Mount Bracket | Compatible with Samsung Frame TVs (2021-2024) for Easy Install (32" of="" pack="" src="https://m.media-amazon.com/images/I/31pDmi-lUsL._SL500_.jpg"/></a>
 
 
 The **ynVISION.Design Ultra Slim Micro Gap TV Wall Mount Bracket** is ideal for homeowners and interior design enthusiasts who own **Samsung Frame TVs (2021-2024)** ranging from **32" to 65"**. If you want a sleek, minimalist look with a secure and easy installation process, this mount is perfect for those looking to save space without compromising on style or stability.
@@ -228,10 +228,10 @@ The **ynVISION.Design Ultra Slim Micro Gap TV Wall Mount Bracket** is engineered
 
 Beyond its visual appeal, the mount’s construction from durable materials ensures that your TV is held safely and securely. Weighing only 2.87 pounds, it is easy to handle during installation but strong enough to support televisions up to 65 inches. This bracket simplifies the mounting process for Samsung Frame TV owners by offering a tailored solution that requires minimal tools and effort, making it accessible even for users with limited technical experience.
 
-## <a href="https://www.amazon.com/dp/B0D31P5RXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Perlegear Ultra Slim Tv Wall Mount For 42”-86” Flat And Neo Qled Frame Tvs</a>
+## <a href="https://www.amazon.com/dp/B0D31P5RXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Perlegear Ultra Slim Tv Wall Mount For 42”-86” Flat And Neo Qled Frame Tvs</a>
 
 
-<a href="https://www.amazon.com/dp/B0D31P5RXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Perlegear Ultra Slim TV Wall Mount for 42”- 86” Flat and Neo QLED Frame TVs, Only 0.3” Low Profile TV Mount, Flat Television Wall Mount Holds up to 132 lbs, Only Included M6 Screws" src="https://m.media-amazon.com/images/I/414uc3Cr+kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D31P5RXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Perlegear Ultra Slim TV Wall Mount for 42”- 86” Flat and Neo QLED Frame TVs, Only 0.3” Low Profile TV Mount, Flat Television Wall Mount Holds up to 132 lbs, Only Included M6 Screws" src="https://m.media-amazon.com/images/I/414uc3Cr+kL._SL500_.jpg"/></a>
 
 
 The **Perlegear Ultra Slim TV Wall Mount** is ideal for homeowners and tech enthusiasts who want to save space while maintaining a sleek, modern look for their living room or entertainment area. This mount is perfect for those who own large flat or Neo QLED frame TVs ranging from **42” to 86”** and desire a minimalistic setup without bulky hardware protruding from the wall. If you value a clean aesthetic and sturdy support for your heavy television, this mount is a great choice.
@@ -253,10 +253,10 @@ The **Perlegear Ultra Slim TV Wall Mount** combines a sleek design with robust c
 
 Furthermore, the mount’s ability to hold up to 132 lbs ensures it can securely support heavy TVs, including large Neo QLED frame models. The durable black finish complements most TV colors and room themes, providing a discreet yet sturdy fixture. While installation hardware is minimal with only M6 screws included, this simplicity helps avoid clutter and makes the setup straightforward for most users. Overall, this mount offers a balance of style, strength, and simplicity for those seeking a premium wall mounting solution.
 
-## <a href="https://www.amazon.com/dp/B0BFJLF9Z3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vivo Micro-gap Flat Tv Wall Mount</a>
+## <a href="https://www.amazon.com/dp/B0BFJLF9Z3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vivo Micro-gap Flat Tv Wall Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFJLF9Z3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VIVO Micro-Gap Flat TV Wall Mount Designed for 43 to 85 inch 2021-2023 Samsung Neo QLED (Excluding QN95C Series), and More, Ultra Slim Profile, Mount-TVSG1" src="https://m.media-amazon.com/images/I/31LWUFPvQeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFJLF9Z3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VIVO Micro-Gap Flat TV Wall Mount Designed for 43 to 85 inch 2021-2023 Samsung Neo QLED (Excluding QN95C Series), and More, Ultra Slim Profile, Mount-TVSG1" src="https://m.media-amazon.com/images/I/31LWUFPvQeL._SL500_.jpg"/></a>
 
 
 The **VIVO Micro-Gap Flat TV Wall Mount** is ideal for homeowners and tech enthusiasts looking to securely mount their large screen TVs, specifically designed for **43 to 85 inch Samsung Neo QLED models** from 2021 to 2023 (excluding the QN95C series). This mount is perfect for those who want an ultra-slim, sleek setup that blends seamlessly with their living space without compromising safety or accessibility. If you want to maximize your viewing area while maintaining a clean, minimalist aesthetic, this mount is an excellent choice.

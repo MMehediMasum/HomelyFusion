@@ -23,10 +23,10 @@ This helps set the right mood for different activities. Some lamps include foot 
 
 
 
-## <a href="https://www.amazon.com/dp/B0B95XH99V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0B95XH99V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0B95XH99V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room, Modern Standing Lamp with Adjustable Hanging Drum Shade, Tall Pole Lamp with Foot Switch, Over Couch Arched Reading Light for Bedroom, Office (Black)" src="https://m.media-amazon.com/images/I/413IArq6kLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B95XH99V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room, Modern Standing Lamp with Adjustable Hanging Drum Shade, Tall Pole Lamp with Foot Switch, Over Couch Arched Reading Light for Bedroom, Office (Black)" src="https://m.media-amazon.com/images/I/413IArq6kLL._SL500_.jpg"/></a>
 
 
 The **Arc Floor Lamps for Living Room** is an ideal choice for individuals seeking a blend of modern design and functionality in their lighting solutions. Perfect for homeowners, office workers, and anyone looking to enhance their living or working space with a stylish yet practical floor lamp, this product offers adjustable lighting that suits various needs such as reading, relaxing, or working. If you value contemporary aesthetics combined with versatile lighting, this tall pole lamp is designed for you.
@@ -49,10 +49,10 @@ The **Arc Floor Lamp** by Seaside Village stands out with its tall and elegant d
 
 Additionally, the integrated foot switch adds a layer of convenience, enabling effortless control without needing to reach for a switch on the pole or cord. The lamp’s slim profile and lightweight structure make it easy to move and fit into tight spaces, while the durable construction promises long-lasting use. Overall, this lamp combines style, practicality, and user-friendly features that enhance any interior setting.
 
-## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp** by **Nintiue** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, or **office**. Perfect for those who appreciate **modern design** combined with versatility, this lamp suits homeowners, renters, and professionals looking to enhance ambiance with adjustable brightness and a sleek aesthetic.
@@ -74,10 +74,10 @@ Crafted with a **matte black frame** and topped with **beige linen shades**, thi
 
 Standing at nearly 80 inches tall with a broad arc design, this lamp illuminates wider areas effectively, making it ideal for reading corners, office spaces, or as an accent piece in living rooms. Its **heavy base** offers solid support, preventing tipping and enhancing safety, especially in homes with children or pets. The combination of style, functionality, and durability makes this floor lamp a valuable addition to any modern interior.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** with a **1000 Lumens LED Edison Bulb** is ideal for individuals seeking a stylish and functional lighting solution for their **living room, bedroom, office, or dining room**. If you want a modern, adjustable lamp that combines both aesthetic appeal and versatile lighting, this tall arc floor lamp with a **linen shade** is perfect for enhancing your home or workspace ambiance.
@@ -100,10 +100,10 @@ This **Nintiue dimmable floor lamp** features a sleek and sturdy design, combini
 
 Beyond its aesthetic appeal, this floor lamp offers practical benefits such as energy efficiency and ease of use. Its tall stature ensures the light spreads effectively across the room, improving visibility without harsh glare. Whether placed in a cozy corner of a living room or beside a desk in an office, the lamp enhances both the ambiance and functionality of the space, making it a versatile lighting choice for various environments.
 
-## <a href="https://www.amazon.com/dp/B09K41V8HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B09K41V8HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09K41V8HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp, Arc Floor Lamp with Dimmer, Black Standing Lamp with Adjustable Hanging Shade, Over Couch Tall Reading Light, Modern Pole Lamp for Living Room Bedroom, 9W LED Bulb Included" src="https://m.media-amazon.com/images/I/41lkYN0rKYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09K41V8HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp, Arc Floor Lamp with Dimmer, Black Standing Lamp with Adjustable Hanging Shade, Over Couch Tall Reading Light, Modern Pole Lamp for Living Room Bedroom, 9W LED Bulb Included" src="https://m.media-amazon.com/images/I/41lkYN0rKYL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp** by **Seaside Village** is ideal for individuals seeking a versatile and stylish lighting solution for their living spaces. Whether you're a reader who needs focused illumination, a homeowner looking to enhance the ambiance of a room, or someone who appreciates modern design, this **arc floor lamp** with an adjustable hanging shade offers both functionality and aesthetic appeal.
@@ -125,10 +125,10 @@ This **modern pole lamp** stands out with its elegant arc design that gracefully
 
 Constructed by **Seaside Village**, this **black standing lamp** combines durability with style. Its tall stature and minimalist design fit seamlessly into both living rooms and bedrooms, adding a touch of sophistication. The built-in dimmer switch offers effortless control over lighting intensity, enabling users to adapt the ambiance from bright task lighting to soft, relaxing glow with ease.
 
-## <a href="https://www.amazon.com/dp/B07NJP1XJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sh Lighting 5 Adjustable Arm Arching Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B07NJP1XJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sh Lighting 5 Adjustable Arm Arching Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07NJP1XJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (black)"="" alt="SH Lighting 5 Adjustable Arm Arching Floor Lamp - Features a Dimmer Switch for Perfect Light Settings - 84" arching="" bedrooms,="" couches="" for="" great="" living="" or="" over="" rooms,="" src="https://m.media-amazon.com/images/I/31NF7W04+3L._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07NJP1XJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (black)"="" alt="SH Lighting 5 Adjustable Arm Arching Floor Lamp - Features a Dimmer Switch for Perfect Light Settings - 84" arching="" bedrooms,="" couches="" for="" great="" living="" or="" over="" rooms,="" src="https://m.media-amazon.com/images/I/31NF7W04+3L._SL500_.jpg" tall=""/></a>
 
 
 The **SH Lighting 5 Adjustable Arm Arching Floor Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their **living rooms, bedrooms, or seating areas**. Those who appreciate customizable lighting options and modern design will find this lamp perfect for enhancing ambiance while providing functional illumination.
@@ -151,10 +151,10 @@ The **SH Lighting 5 Adjustable Arm Arching Floor Lamp** features a unique design
 
 With a substantial height of **84 inches** and a wide reach, this lamp is perfect for arching over couches or seating areas, illuminating the space without the need for additional table lamps. The sleek **black finish** adds a contemporary touch to any room, blending seamlessly with diverse décor styles. Its solid yet lightweight construction ensures durability while allowing for easy repositioning to suit changing room layouts.
 
-## <a href="https://www.amazon.com/dp/B0DJ7225F3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall 70" Dimmable Arc Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DJ7225F3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall 70" Dimmable Arc Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ7225F3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (beige="" adjustable,="" alt="Ambimall 70" and="" arc="" arched="" black)"="" brightness="" color="" couch="" dimmable="" floor="" for="" head,="" lamp="" light="" living="" over="" reading="" remote,="" room="" rotating="" src="https://m.media-amazon.com/images/I/418knmpuhdL._SL500_.jpg" temperature="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DJ7225F3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (beige="" adjustable,="" alt="Ambimall 70" and="" arc="" arched="" black)"="" brightness="" color="" couch="" dimmable="" floor="" for="" head,="" lamp="" light="" living="" over="" reading="" remote,="" room="" rotating="" src="https://m.media-amazon.com/images/I/418knmpuhdL._SL500_.jpg" temperature="" with=""/></a>
 
 
 The **Ambimall 70" Dimmable Arc Floor Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their living space. Perfect for those who want adjustable lighting options with a modern design, this lamp caters to readers, remote workers, and anyone looking to enhance their room ambiance with ease. Its arched design makes it especially suitable for placing over couches or reading nooks.
@@ -176,10 +176,10 @@ The **Ambimall 70" Dimmable Arc Floor Lamp** features a sleek arched design that
 
 Additionally, the lamp's **rotating head** offers flexibility in directing light exactly where it is needed, making it ideal for reading areas or highlighting specific room features. The included remote control adds convenience, allowing users to effortlessly adjust settings without leaving their seat. With its substantial height and elegant **deep beige and black** color combination, this floor lamp serves as both a practical lighting tool and a stylish home decor element.
 
-## <a href="https://www.amazon.com/dp/B0D4D1F88S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D4D1F88S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4D1F88S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamp with Remote, Modern Standing Lamp for Living Room with Stepless Dimmable Bulb, Drum Shade, Foot Switch, Tall Floor Lamp for Farmhouse Bedroom Night Stand (Black)" src="https://m.media-amazon.com/images/I/416y-yf02lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4D1F88S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamp with Remote, Modern Standing Lamp for Living Room with Stepless Dimmable Bulb, Drum Shade, Foot Switch, Tall Floor Lamp for Farmhouse Bedroom Night Stand (Black)" src="https://m.media-amazon.com/images/I/416y-yf02lL._SL500_.jpg"/></a>
 
 
 The **Arc Floor Lamp with Remote** is perfect for individuals seeking a blend of modern style and practical lighting solutions. Ideal for those who want to enhance their **living room**, **farmhouse bedroom**, or night stand area with a tall, elegant lamp that offers customizable brightness and convenient controls. If you appreciate sleek design combined with user-friendly features, this **modern standing lamp** is an excellent choice.
@@ -202,10 +202,10 @@ The **Arc Floor Lamp** by Qingmiao stands out with its tall, graceful arc design
 
 Beyond style, the lamp’s functionality is enhanced by the convenient **foot switch** and **remote control**, allowing for effortless operation. Whether you prefer adjusting lighting levels without interrupting your activity or switching the lamp on and off with a simple step, this lamp caters to modern lifestyle needs. The **black color** adds a sophisticated and versatile look, easily integrating with farmhouse, modern, or minimalist decor themes.
 
-## <a href="https://www.amazon.com/dp/B0CFXZPJH4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory 3 Lights Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CFXZPJH4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory 3 Lights Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFXZPJH4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY 3 Lights Floor Lamp for Living Room, 78" arc="" arched="" base,="" bedroom,="" century="" corner"="" drum="" floor="" for="" hanging="" heavy="" lamp="" lamps="" mid="" modern="" office,="" shade,="" src="https://m.media-amazon.com/images/I/41FlevZ9zOL._SL500_.jpg" standing="" tall="" tree="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CFXZPJH4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY 3 Lights Floor Lamp for Living Room, 78" arc="" arched="" base,="" bedroom,="" century="" corner"="" drum="" floor="" for="" hanging="" heavy="" lamp="" lamps="" mid="" modern="" office,="" shade,="" src="https://m.media-amazon.com/images/I/41FlevZ9zOL._SL500_.jpg" standing="" tall="" tree="" with=""/></a>
 
 
 The **SUNMORY 3 Lights Floor Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, or **office**. Perfect for those who appreciate a blend of **modern** and **mid-century design**, this lamp suits homeowners and renters looking to brighten up corners or create ambient lighting with a statement piece. If you want a durable, tall lamp with multiple light sources, this is an excellent choice.
@@ -229,10 +229,10 @@ The **SUNMORY 3 Lights Floor Lamp** stands out with its impressive height of nea
 
 Another key feature is the convenient **rotary switch** that makes turning the lamp on and off effortless. The **black finish** and mid-century aesthetic allow it to blend seamlessly with contemporary or minimalist interiors, making it a versatile addition to bedrooms, offices, and living rooms alike. Overall, this floor lamp offers a perfect combination of durability, style, and lighting flexibility for users looking to enhance their home environment.
 
-## <a href="https://www.amazon.com/dp/B0CPF15DYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CPF15DYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPF15DYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room with 3 Color Temperatures, Black Standing Lamp with Remote &amp; Dimmable LED Bulb, Rattan Boho Floor Lamp, Farmhouse Tall Lamp for Bedroom, Over Couch Arched Reading Light" src="https://m.media-amazon.com/images/I/41CxH6OQ1XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPF15DYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room with 3 Color Temperatures, Black Standing Lamp with Remote &amp; Dimmable LED Bulb, Rattan Boho Floor Lamp, Farmhouse Tall Lamp for Bedroom, Over Couch Arched Reading Light" src="https://m.media-amazon.com/images/I/41CxH6OQ1XL._SL500_.jpg"/></a>
 
 
 The **Arc Floor Lamps for Living Room with 3 Color Temperatures** are perfect for individuals looking to enhance their living spaces with stylish and functional lighting. Ideal for homeowners, renters, and interior design enthusiasts who want a versatile lighting solution that combines modern technology with rustic charm. If you need a tall, adjustable lamp that can serve as a reading light or ambient light over a couch or bed, this **black standing lamp** with a **remote and dimmable LED bulb** is a great choice.
@@ -254,10 +254,10 @@ This **eyassi Arc Floor Lamp** features a sleek black metal frame combined with 
 
 Equipped with a **dimmable LED bulb** and a remote control, users can effortlessly switch between three different color temperatures—warm, neutral, and cool white—creating the perfect ambiance for reading, relaxing, or entertaining. The energy-efficient LED technology not only reduces electricity usage but also offers a long lifespan, ensuring reliable and cost-effective lighting for years to come.
 
-## <a href="https://www.amazon.com/dp/B0D9VW91C9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rgb Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D9VW91C9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rgb Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9VW91C9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RGB Floor Lamp with 3 Color Temperatures, Ultra Bright 1800LM Smart Arc LED Floor Lamp with Remote Control, Music Sync, Scene Modes, Modern Standing Tall Lamp for Bedroom Living Room Gaming Rooms" src="https://m.media-amazon.com/images/I/4136I8IDHYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9VW91C9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RGB Floor Lamp with 3 Color Temperatures, Ultra Bright 1800LM Smart Arc LED Floor Lamp with Remote Control, Music Sync, Scene Modes, Modern Standing Tall Lamp for Bedroom Living Room Gaming Rooms" src="https://m.media-amazon.com/images/I/4136I8IDHYL._SL500_.jpg"/></a>
 
 
 The **RGB Floor Lamp with 3 Color Temperatures** is ideal for individuals looking to enhance the ambiance of their **bedroom, living room, or gaming rooms** with versatile lighting options. If you want a modern, stylish, and functional lamp that offers customizable lighting and smart features, this lamp is perfect for you. Gamers, music lovers, and those who enjoy setting different moods with lighting will especially benefit from this **ultra bright 1800LM smart arc LED floor lamp**.

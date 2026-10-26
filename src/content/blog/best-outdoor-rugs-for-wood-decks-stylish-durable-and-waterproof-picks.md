@@ -23,10 +23,10 @@ Some rugs even feature non-slip backing to keep them steady on smooth wood surfa
 
 
 
-## <a href="https://www.amazon.com/dp/B0BNBTFNLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0BNBTFNLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNBTFNLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO Outdoor Rug 5' x 8' Waterproof for Patios Clearance, Reversible Plastic Straw Camping Carpet, Large Area Rugs Mats for RV, Picnic, Backyard, Deck, Balcony, Porch, Beach, Grey&amp;White" src="https://m.media-amazon.com/images/I/61zk5aPSw5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNBTFNLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO Outdoor Rug 5' x 8' Waterproof for Patios Clearance, Reversible Plastic Straw Camping Carpet, Large Area Rugs Mats for RV, Picnic, Backyard, Deck, Balcony, Porch, Beach, Grey&amp;White" src="https://m.media-amazon.com/images/I/61zk5aPSw5L._SL500_.jpg"/></a>
 
 
 The **GENIMO Outdoor Rug 5' x 8'** is ideal for individuals who seek a durable and versatile solution to enhance their outdoor living spaces. Whether you enjoy camping, picnics, or want to spruce up your patio, deck, or balcony, this **waterproof** and **reversible plastic straw camping carpet** is perfect for those who value both functionality and style in their outdoor rugs. It’s especially suited for RV owners, beachgoers, and anyone in need of a large-area rug that can withstand various weather conditions.
@@ -50,10 +50,10 @@ The **GENIMO Outdoor Rug** features a **large 5' x 8'** size, making it perfect 
 
 Additionally, the lightweight nature of this outdoor carpet (**2.86 pounds**) makes it highly portable, which is a major benefit for campers, beach visitors, or RV travelers who need a functional yet easy-to-carry rug. Its simple maintenance requirements mean that cleaning up after outdoor use is hassle-free, which adds convenience for everyday use. Overall, the **GENIMO Outdoor Rug** blends practicality with style, making it a valuable addition to any outdoor setup.
 
-## <a href="https://www.amazon.com/dp/B0D1N7KYZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug 8x10</a>
+## <a href="https://www.amazon.com/dp/B0D1N7KYZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug 8x10</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1N7KYZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug 8x10 Waterproof-Patio Rug Mat Outdoor Carpet Reversible RV Camping Picnic Plastic Straw Rug Outside Outdoor Area Rug for Balcony Deck Backyard Patio Decor Boho Modern Brown" src="https://m.media-amazon.com/images/I/61-pfb+iesL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1N7KYZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug 8x10 Waterproof-Patio Rug Mat Outdoor Carpet Reversible RV Camping Picnic Plastic Straw Rug Outside Outdoor Area Rug for Balcony Deck Backyard Patio Decor Boho Modern Brown" src="https://m.media-amazon.com/images/I/61-pfb+iesL._SL500_.jpg"/></a>
 
 
 The **MontVoo Outdoor Rug 8x10 Waterproof-Patio Rug Mat** is ideal for individuals looking to enhance their outdoor living spaces with a durable and stylish floor covering. Perfect for homeowners with balconies, decks, backyards, or those who enjoy camping and picnics, this rug suits anyone seeking a practical yet attractive solution for outdoor areas. Its waterproof and reversible design makes it especially beneficial for those who want a versatile and easy-to-maintain outdoor carpet.
@@ -77,10 +77,10 @@ The **MontVoo Outdoor Rug** features a waterproof and durable plastic straw cons
 
 Additionally, the lightweight nature of this rug makes it easy to transport for activities like camping or picnics, while its boho modern brown color enhances the aesthetic appeal of any outdoor setting. The rug’s low profile of 0.5 inches ensures it lies flat, reducing trip hazards and making it suitable for high-traffic areas. Overall, the **MontVoo Outdoor Rug** combines style, practicality, and versatility, making it a smart choice for anyone looking to upgrade their outdoor living spaces.
 
-## <a href="https://www.amazon.com/dp/B0CY7ZDVCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0CY7ZDVCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY7ZDVCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug Waterproof 5x8 ft Outdoor Carpet Patio Rug Mat Reversible RV Camping Rug Plastic Straw Outside Rug for Balcony Porch Deck Picnic Beach Modern Beige Brown" src="https://m.media-amazon.com/images/I/61Xihd1Rw5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY7ZDVCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug Waterproof 5x8 ft Outdoor Carpet Patio Rug Mat Reversible RV Camping Rug Plastic Straw Outside Rug for Balcony Porch Deck Picnic Beach Modern Beige Brown" src="https://m.media-amazon.com/images/I/61Xihd1Rw5L._SL500_.jpg"/></a>
 
 
 The **MontVoo Outdoor Rug Waterproof 5x8 ft** is ideal for individuals seeking a durable and stylish outdoor carpet that can withstand various weather conditions. Perfect for homeowners with patios, balconies, decks, or those who enjoy camping and beach outings, this reversible rug combines functionality with modern aesthetics, making it a great choice for anyone wanting to enhance their outdoor living space.
@@ -103,10 +103,10 @@ Crafted by **MontVoo**, this outdoor rug is designed with a **0.5-inch thickness
 
 Furthermore, the rug's dimensions of **96 by 60 inches** make it versatile enough to fit various outdoor areas, from small balconies to larger decks or even inside RVs. The modern beige brown color palette blends seamlessly with natural surroundings, adding a warm and inviting touch to any outdoor setting. Additionally, its lightweight and foldable nature make it an excellent companion for beach trips, picnics, and camping, offering both style and practicality in one product.
 
-## <a href="https://www.amazon.com/dp/B0C2YVV59F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happytrends Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0C2YVV59F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happytrends Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2YVV59F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HappyTrends Outdoor Rug Reversible Portable Plastic Straw Camping Rugs for Outside RV,Large Waterproof Outdoor Area Rugs for Patio,Deck,Porch,Balcony(5'x 8',White&amp;Gray)" src="https://m.media-amazon.com/images/I/51CEjdKlC7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2YVV59F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HappyTrends Outdoor Rug Reversible Portable Plastic Straw Camping Rugs for Outside RV,Large Waterproof Outdoor Area Rugs for Patio,Deck,Porch,Balcony(5'x 8',White&amp;Gray)" src="https://m.media-amazon.com/images/I/51CEjdKlC7L._SL500_.jpg"/></a>
 
 
 The **HappyTrends Outdoor Rug Reversible Portable Plastic Straw Camping Rug** is ideal for outdoor enthusiasts, RV travelers, and homeowners who want a durable, stylish, and practical solution for their patio, deck, porch, or balcony. If you are looking for a large, waterproof, and easy-to-clean outdoor rug that can withstand the elements while enhancing your outdoor space, this product is perfect for you.
@@ -128,10 +128,10 @@ The **HappyTrends Outdoor Rug** features a **reversible design** that allows use
 
 Additionally, the rug’s lightweight and portable nature make it an excellent choice for camping trips and RV adventures, where easy transport and quick setup are essential. The **white and gray color palette** adds a modern touch to any outdoor space, blending seamlessly with natural surroundings and outdoor furniture. Overall, this rug combines durability, functionality, and aesthetics for users seeking a reliable outdoor floor covering.
 
-## <a href="https://www.amazon.com/dp/B0DG8YL6JX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0DG8YL6JX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG8YL6JX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 5x8, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Boho Brown" src="https://m.media-amazon.com/images/I/51BR7nwZrlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG8YL6JX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 5x8, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Boho Brown" src="https://m.media-amazon.com/images/I/51BR7nwZrlL._SL500_.jpg"/></a>
 
 
 The **Pauwer Waterproof Outdoor Rug 5x8** is perfect for individuals who love spending time outdoors and want to enhance their space with a durable, stylish, and functional mat. Ideal for campers, RV owners, patio enthusiasts, and anyone looking to add comfort and protection to their **deck, porch, balcony, or backyard**, this rug suits those who appreciate convenience and aesthetic appeal in outdoor accessories.
@@ -153,10 +153,10 @@ The **Pauwer Waterproof Outdoor Rug** features a robust plastic straw constructi
 
 Beyond its aesthetic benefits, this rug provides practical advantages such as protecting your flooring or grass from dirt and wear while offering a clean, comfortable surface to walk or sit on. The **Boho Brown color** complements various decor styles, adding warmth and a touch of elegance to your surroundings. Whether you are hosting a picnic, relaxing on your porch, or outfitting your camper, this rug combines style, functionality, and durability in one convenient package.
 
-## <a href="https://www.amazon.com/dp/B0DHXBKH9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug Carpet</a>
+## <a href="https://www.amazon.com/dp/B0DHXBKH9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug Carpet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHXBKH9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug Carpet Waterproof-Patio Rug Mat 5x8 Reversible Portable RV Camping Picnic Beach Mat Plastic Straw Rugs Outside Outdoor Area Rugs for Patio Deck Pool Deck Balcony Backyard" src="https://m.media-amazon.com/images/I/51FzFK4tkNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHXBKH9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo Outdoor Rug Carpet Waterproof-Patio Rug Mat 5x8 Reversible Portable RV Camping Picnic Beach Mat Plastic Straw Rugs Outside Outdoor Area Rugs for Patio Deck Pool Deck Balcony Backyard" src="https://m.media-amazon.com/images/I/51FzFK4tkNL._SL500_.jpg"/></a>
 
 
 The **MontVoo Outdoor Rug Carpet Waterproof-Patio Rug Mat 5x8** is perfect for individuals who enjoy spending time outdoors and need a durable, versatile rug for various settings. Ideal customers include campers, RV travelers, beachgoers, and homeowners looking to enhance their patio, deck, balcony, or backyard with a practical and stylish outdoor rug. If you want a portable, easy-to-clean, and waterproof mat that can handle different terrains and weather conditions, this rug is an excellent choice.
@@ -179,10 +179,10 @@ The **MontVoo Outdoor Rug** features a waterproof and durable plastic straw cons
 
 Designed for portability, the rug can be rolled or folded to fit into an RV, picnic basket, or car trunk, making it a convenient accessory for outdoor enthusiasts. Its large 5x8 dimension provides ample space for gatherings, seating, or lounging, while its durable build ensures it withstands rough surfaces and frequent use. Overall, this rug combines practicality with style, delivering comfort and protection for any outdoor area.
 
-## <a href="https://www.amazon.com/dp/B09VXCG9FK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outdoor Rug Carpet 5x8 Ft</a>
+## <a href="https://www.amazon.com/dp/B09VXCG9FK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outdoor Rug Carpet 5x8 Ft</a>
 
 
-<a href="https://www.amazon.com/dp/B09VXCG9FK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outdoor Rug Carpet 5x8 ft, Flatweave Textured Outdoor Patio Rug Non Slip Indoor Outdoor Rugs with Rubber Particles Backing Boho Outdoor Area Rug for Patio Deck Front Porch Backyard Balcony" src="https://m.media-amazon.com/images/I/61CHh6um7ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09VXCG9FK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outdoor Rug Carpet 5x8 ft, Flatweave Textured Outdoor Patio Rug Non Slip Indoor Outdoor Rugs with Rubber Particles Backing Boho Outdoor Area Rug for Patio Deck Front Porch Backyard Balcony" src="https://m.media-amazon.com/images/I/61CHh6um7ML._SL500_.jpg"/></a>
 
 
 The **Outdoor Rug Carpet 5x8 ft** by **MontVoo** is ideal for homeowners or renters looking to enhance their outdoor living spaces with a stylish yet functional rug. Perfect for those who want a durable and non-slip surface for patios, decks, front porches, or balconies, this rug suits anyone who values both aesthetics and practicality in outdoor decor.
@@ -204,10 +204,10 @@ This **Outdoor Rug Carpet** combines durability and style through its flatweave 
 
 Additionally, the rug's **greyish black color** is a practical choice, as it hides dirt and stains better than lighter colors, maintaining a clean look longer. Although its thin profile may not offer much padding, it excels in providing a stable and slip-resistant surface that enhances comfort and usability on decks, patios, or balconies. Overall, this rug is a great option for anyone seeking a stylish, secure, and low-maintenance outdoor floor covering.
 
-## <a href="https://www.amazon.com/dp/B0CNH23TWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viesembo Fireplace Rugs Fire Resistant Hearth Rugs Fireproof Indoor Fire Pit Deck Protector Mat Hearth Pad For Wood Stove &amp; Firewood Under Grill Mat For Outdoor</a>
+## <a href="https://www.amazon.com/dp/B0CNH23TWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viesembo Fireplace Rugs Fire Resistant Hearth Rugs Fireproof Indoor Fire Pit Deck Protector Mat Hearth Pad For Wood Stove &amp; Firewood Under Grill Mat For Outdoor</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNH23TWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Viesembo Fireplace Rugs Fire Resistant, Hearth Rugs Fireproof Indoor, Fire Pit Deck Protector Mat, Hearth Pad for Wood Stove &amp; Firewood, Under Grill Mat for Outdoor (40×24 Inch)" src="https://m.media-amazon.com/images/I/21zap-aPSqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNH23TWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Viesembo Fireplace Rugs Fire Resistant, Hearth Rugs Fireproof Indoor, Fire Pit Deck Protector Mat, Hearth Pad for Wood Stove &amp; Firewood, Under Grill Mat for Outdoor (40×24 Inch)" src="https://m.media-amazon.com/images/I/21zap-aPSqL._SL500_.jpg"/></a>
 
 
 The **Viesembo Fireplace Rugs Fire Resistant** is ideal for homeowners and outdoor enthusiasts looking to enhance safety around their **wood stoves, fireplaces, or fire pits**. If you want a reliable, **fireproof hearth rug** that protects your floors from sparks, embers, and heat damage, this product is an excellent choice. It’s also perfect for those who frequently use outdoor grills and desire an extra layer of protection for decks or patios.
@@ -229,10 +229,10 @@ The **Viesembo Fireplace Rugs** stand out for their robust fire-resistant proper
 
 Additionally, this **hearth pad** doubles as an **under grill mat**, extending its functionality beyond just fireplaces. It allows users to safely enjoy grilling on decks or patios without worrying about scorch marks or grease stains. The sleek black color and low profile design blend seamlessly with various home aesthetics, ensuring safety doesn't come at the cost of style. Overall, the Viesembo rug combines safety, versatility, and durability to meet the needs of safety-conscious consumers.
 
-## <a href="https://www.amazon.com/dp/B0CQPVP8S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rustic Wood Grain Reversible Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0CQPVP8S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rustic Wood Grain Reversible Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQPVP8S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rustic Wood Grain Reversible Outdoor Rug Waterproof Brown Wooden Board Farmhouse Area Rugs for Balcony Deck Porch Patio Washable Soft Wool Carpet Durable Camping Rv Rugs 2x3" src="https://m.media-amazon.com/images/I/51GW6SpaEWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQPVP8S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rustic Wood Grain Reversible Outdoor Rug Waterproof Brown Wooden Board Farmhouse Area Rugs for Balcony Deck Porch Patio Washable Soft Wool Carpet Durable Camping Rv Rugs 2x3" src="https://m.media-amazon.com/images/I/51GW6SpaEWL._SL500_.jpg"/></a>
 
 
 The **Rustic Wood Grain Reversible Outdoor Rug** is ideal for homeowners and outdoor enthusiasts looking to enhance their **balcony, deck, porch, or patio** spaces with a stylish yet practical flooring solution. This rug is perfect for those who value both aesthetics and durability in their outdoor décor, especially individuals who want a **waterproof** and **washable** rug that can withstand the elements while providing a comfortable surface. Campers and RV owners will also appreciate its portability and resilience.
@@ -256,10 +256,10 @@ The **Rustic Wood Grain Reversible Outdoor Rug** features a unique **wooden boar
 
 Additionally, the **soft wool carpet** surface provides a comfortable feel underfoot, enhancing the outdoor experience whether relaxing on a porch or camping. The durable materials used by the **manufacturer QIANDUIXUE** under the **Yeifbft brand** guarantee long-lasting performance even with regular exposure to the elements. The rug’s compact dimensions (**24 x 36 inches**) make it suitable for smaller outdoor spaces, adding style without overwhelming the area. Overall, this rug offers a practical yet attractive solution for anyone seeking functional and stylish outdoor flooring.
 
-## <a href="https://www.amazon.com/dp/B0BX45VHR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sand Mine Reversible Mats</a>
+## <a href="https://www.amazon.com/dp/B0BX45VHR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sand Mine Reversible Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX45VHR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAND MINE Reversible Mats, Plastic Straw Rug, Modern Area Rug, Large Floor Mat and Rug for Outdoors, RV, Patio, Backyard, Deck, Picnic, Beach, Trailer, Camping, Black &amp; Beige, 6' x 9'" src="https://m.media-amazon.com/images/I/61avt1KkdqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX45VHR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAND MINE Reversible Mats, Plastic Straw Rug, Modern Area Rug, Large Floor Mat and Rug for Outdoors, RV, Patio, Backyard, Deck, Picnic, Beach, Trailer, Camping, Black &amp; Beige, 6' x 9'" src="https://m.media-amazon.com/images/I/61avt1KkdqL._SL500_.jpg"/></a>
 
 
 The **SAND MINE Reversible Mats** are perfect for outdoor enthusiasts, campers, and homeowners looking to enhance their outdoor living spaces. Ideal for those who want a durable, stylish, and easy-to-clean **area rug** suitable for patios, decks, RVs, picnics, and beach outings, this mat meets the needs of anyone seeking both functionality and modern design in outdoor accessories.

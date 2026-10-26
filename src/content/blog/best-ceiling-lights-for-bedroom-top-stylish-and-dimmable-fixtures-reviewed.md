@@ -22,10 +22,10 @@ Some models include smart controls, allowing easy changes via apps or voice comm
 
 
 
-## <a href="https://www.amazon.com/dp/B00EGPMK1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Designers Fountain Reedley 2-lights Flush Mount Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B00EGPMK1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Designers Fountain Reedley 2-lights Flush Mount Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B00EGPMK1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DESIGNERS FOUNTAIN Reedley 2-Lights Flush Mount Ceiling Light, 11 Inch Lighting Fixture for Kitchen, Bedroom, Bathroom, and Hallway, White Alabaster Glass, Oil Rubbed Bronze, 1257S-ORB-AL" src="https://m.media-amazon.com/images/I/31APb3UCeTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00EGPMK1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DESIGNERS FOUNTAIN Reedley 2-Lights Flush Mount Ceiling Light, 11 Inch Lighting Fixture for Kitchen, Bedroom, Bathroom, and Hallway, White Alabaster Glass, Oil Rubbed Bronze, 1257S-ORB-AL" src="https://m.media-amazon.com/images/I/31APb3UCeTL._SL500_.jpg"/></a>
 
 
 The **DESIGNERS FOUNTAIN Reedley 2-Lights Flush Mount Ceiling Light** is ideal for homeowners and interior designers seeking a stylish yet functional lighting solution for smaller spaces such as kitchens, bedrooms, bathrooms, and hallways. This fixture is perfect for those who want to enhance their home’s ambiance with a modern, elegant touch without overwhelming the room.
@@ -48,10 +48,10 @@ The **DESIGNERS FOUNTAIN Reedley Flush Mount Ceiling Light** features a sleek de
 
 This lighting fixture’s compact and lightweight construction ensures easy installation and maintenance. Its dual-light setup delivers ample illumination for smaller rooms while maintaining a subtle presence. The versatile design allows it to seamlessly fit in various home settings, offering both aesthetic appeal and practical lighting. Overall, this ceiling light balances form and function, making it a dependable addition to your living space.
 
-## <a href="https://www.amazon.com/dp/B0CRV5F1VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Smart Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B0CRV5F1VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Smart Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRV5F1VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee Smart Ceiling Light, RGBIC LED Ceiling Light Fixture, 2400LM Flush Mount Light Fixture, DIY Colors, Works with Alexa, 2200K-6500K Ceiling Lights for Bedroom, Living Room, 12 Inch, 1 Pack" src="https://m.media-amazon.com/images/I/41kEexnTlIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRV5F1VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee Smart Ceiling Light, RGBIC LED Ceiling Light Fixture, 2400LM Flush Mount Light Fixture, DIY Colors, Works with Alexa, 2200K-6500K Ceiling Lights for Bedroom, Living Room, 12 Inch, 1 Pack" src="https://m.media-amazon.com/images/I/41kEexnTlIL._SL500_.jpg"/></a>
 
 
 The **Govee Smart Ceiling Light** is ideal for tech-savvy homeowners and renters looking to enhance their living spaces with customizable and smart lighting solutions. If you want a versatile **RGBIC LED ceiling light fixture** that offers easy integration with voice assistants like **Alexa**, this product is perfect for bedrooms, living rooms, or any area that benefits from dynamic lighting and color control. DIY enthusiasts who enjoy personalizing ambiance with a range of colors and brightness levels will also find this ceiling light highly appealing.
@@ -74,10 +74,10 @@ The **Govee Smart Ceiling Light** combines modern technology with practical desi
 
 Additionally, the wide color temperature range from **2200K to 6500K** means you can easily adjust the light from warm, cozy tones to cool, daylight-like brightness. This flexibility helps reduce eye strain and improve comfort, making it suitable for various activities like reading, working, or entertaining. The fixture’s flush mount and compact size ensure a sleek, unobtrusive look that fits seamlessly into modern interiors while providing ample illumination at **2400 lumens**.
 
-## <a href="https://www.amazon.com/dp/B0DDKRKF99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightever Led Flush Mount Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B0DDKRKF99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightever Led Flush Mount Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDKRKF99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightever 4Pack LED Flush Mount Ceiling Light Fixture, 12 Inch 24W, Super Slim 0.67 Inch, 3200LM, Dimmable &amp; 2700K-6500K 5 Color Selectable LED Ceiling Lights for Bedroom" src="https://m.media-amazon.com/images/I/41sR0Dzl-AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDKRKF99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightever 4Pack LED Flush Mount Ceiling Light Fixture, 12 Inch 24W, Super Slim 0.67 Inch, 3200LM, Dimmable &amp; 2700K-6500K 5 Color Selectable LED Ceiling Lights for Bedroom" src="https://m.media-amazon.com/images/I/41sR0Dzl-AL._SL500_.jpg"/></a>
 
 
 The **Brightever 4Pack LED Flush Mount Ceiling Light Fixture** is ideal for homeowners and renters looking to upgrade their **bedroom lighting** with a modern, energy-efficient solution. Those who want a versatile, space-saving fixture with adjustable brightness and color temperature will find this product especially suitable. It's perfect for anyone who values sleek design and customizable lighting to enhance their living space ambiance.
@@ -101,10 +101,10 @@ The **Brightever 4Pack LED Flush Mount Ceiling Light Fixture** features a sleek,
 
 In addition to the customizable lighting options, the fixture is highly energy-efficient, consuming only 24 watts while delivering a bright 3200 lumens output. This balance of power and brightness ensures that users can enjoy well-lit spaces without worrying about high electricity bills. The dimmable feature further enhances flexibility, allowing users to set the perfect light intensity for different activities, from reading to winding down before sleep. Overall, this ceiling light fixture combines modern design with practical functionality, making it a valuable addition to any bedroom.
 
-## <a href="https://www.amazon.com/dp/B0BV28759Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matane 12 Inch Led Flush Mount Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B0BV28759Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matane 12 Inch Led Flush Mount Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0BV28759Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matane 12 Inch LED Flush Mount Ceiling Light Fixture with Night Light, 24W 2400LM 3000K/4000K/5000K Selectable, Dimmable Ceiling Lights for Bedroom, Dining Room, Kitchen, Round Black" src="https://m.media-amazon.com/images/I/41wSUOepfcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BV28759Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matane 12 Inch LED Flush Mount Ceiling Light Fixture with Night Light, 24W 2400LM 3000K/4000K/5000K Selectable, Dimmable Ceiling Lights for Bedroom, Dining Room, Kitchen, Round Black" src="https://m.media-amazon.com/images/I/41wSUOepfcL._SL500_.jpg"/></a>
 
 
 The **Matane 12 Inch LED Flush Mount Ceiling Light Fixture** is ideal for homeowners or renters looking to upgrade their lighting with a modern, energy-efficient solution. Those who want versatile lighting options for spaces like the **bedroom**, **dining room**, or **kitchen** will benefit from this fixture’s adjustable brightness and color temperature features. It is perfect for anyone who values both style and functionality in a sleek, low-profile design.
@@ -128,10 +128,10 @@ The **Matane 12 Inch LED Flush Mount Ceiling Light** offers a perfect balance be
 
 Additionally, the built-in **night light** feature adds convenience by providing soft, low-level lighting during nighttime hours, perfect for bedrooms or hallways. The **dimmable** capability allows for further customization, helping create the ideal atmosphere for dining, cooking, or relaxing. Finished in a stylish **black** color, this fixture complements modern and contemporary interiors, making it a versatile choice for various rooms in the home.
 
-## <a href="https://www.amazon.com/dp/B07VD4MNGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">13 Inch Flush Mount Led Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B07VD4MNGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">13 Inch Flush Mount Led Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B07VD4MNGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="13 inch Flush Mount LED Ceiling Light Fixture, 2700K/3000K/3500K/4000K/5000K Adjustable Ceiling Lights, Oil Rubbed Bronze Saturn Dimmable Lighting for Hallway Bathroom Kitchen or Stairwell, ETL Listed" src="https://m.media-amazon.com/images/I/31GjveEYWcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VD4MNGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="13 inch Flush Mount LED Ceiling Light Fixture, 2700K/3000K/3500K/4000K/5000K Adjustable Ceiling Lights, Oil Rubbed Bronze Saturn Dimmable Lighting for Hallway Bathroom Kitchen or Stairwell, ETL Listed" src="https://m.media-amazon.com/images/I/31GjveEYWcL._SL500_.jpg"/></a>
 
 
 The **13 inch Flush Mount LED Ceiling Light Fixture** is perfect for homeowners or renters looking to enhance the lighting in their **hallways, bathrooms, kitchens, or stairwells**. Ideal for those who value energy efficiency, customizable lighting options, and a stylish yet functional design, this fixture suits anyone wanting to upgrade their space with modern, dimmable illumination. Its **oil-rubbed bronze finish** also appeals to individuals looking for a classic, elegant touch in their interior decor.
@@ -154,10 +154,10 @@ This **LED ceiling light fixture** boasts a versatile range of color temperature
 
 Designed with a **flush mount** profile, the fixture is ideal for spaces with low ceilings, ensuring it does not intrude into the room while still providing ample light. Its **oil-rubbed bronze finish** brings a warm, classic look that complements a variety of interior styles, from traditional to contemporary. With an **ETL listing**, users can trust in its safety and performance, making it a reliable lighting solution for everyday use.
 
-## <a href="https://www.amazon.com/dp/B0BNBRSYR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hykolity 12 Inch Selectable Cct Led Round Flat Panel Light</a>
+## <a href="https://www.amazon.com/dp/B0BNBRSYR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hykolity 12 Inch Selectable Cct Led Round Flat Panel Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNBRSYR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hykolity 12 Inch Selectable CCT LED Round Flat Panel Light, 24W 3000K/4000K/5000K, Edge-Lit Flush Mount Ceiling Light Fixture for Kitchen, Bedroom, Laundry and Closet Room，Black" src="https://m.media-amazon.com/images/I/31uv4WUCiaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNBRSYR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hykolity 12 Inch Selectable CCT LED Round Flat Panel Light, 24W 3000K/4000K/5000K, Edge-Lit Flush Mount Ceiling Light Fixture for Kitchen, Bedroom, Laundry and Closet Room，Black" src="https://m.media-amazon.com/images/I/31uv4WUCiaL._SL500_.jpg"/></a>
 
 
 The **hykolity 12 Inch Selectable CCT LED Round Flat Panel Light** is ideal for homeowners or renters looking to upgrade their lighting with a versatile, energy-efficient solution. Perfect for spaces like the **kitchen, bedroom, laundry, and closet rooms**, this ceiling light fixture suits those who want customizable lighting options to match various moods and activities. If you need a sleek, modern, and easy-to-install lighting fixture that blends seamlessly with your décor, this product is an excellent choice.
@@ -181,10 +181,10 @@ The **hykolity 12 Inch Selectable CCT LED Round Flat Panel Light** stands out fo
 
 Additionally, this fixture’s **slim, flush mount design** makes it an excellent option for rooms with limited ceiling space. Its energy-saving **24W LED** not only lowers power bills but also has a longer lifespan compared to traditional lighting. The **black finish** gives it a modern and stylish look that can complement contemporary décor. Overall, this panel light offers both functional and aesthetic benefits, making it a smart investment for those seeking efficient, adaptable, and attractive lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B087JL1W9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amico 12 Pack 6 Inch Led Recessed Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B087JL1W9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amico 12 Pack 6 Inch Led Recessed Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B087JL1W9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amico 12 Pack 6 Inch 5CCT Ultra-Thin LED Recessed Ceiling Light with Junction Box, 1050LM Brightness, Dimmable Canless Wafer Downlight, 12W, ETL&amp;FCC" src="https://m.media-amazon.com/images/I/31Pibigj2HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087JL1W9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amico 12 Pack 6 Inch 5CCT Ultra-Thin LED Recessed Ceiling Light with Junction Box, 1050LM Brightness, Dimmable Canless Wafer Downlight, 12W, ETL&amp;FCC" src="https://m.media-amazon.com/images/I/31Pibigj2HL._SL500_.jpg"/></a>
 
 
 The **Amico 12 Pack 6 Inch 5CCT Ultra-Thin LED Recessed Ceiling Light** is ideal for homeowners, interior designers, and contractors seeking efficient, modern lighting solutions. This product is perfect for those who want to upgrade their lighting with a sleek, space-saving design that offers adjustable color temperatures and brightness levels to suit various environments and moods.
@@ -209,10 +209,10 @@ The **Amico 6 Inch 5CCT Ultra-Thin LED Recessed Ceiling Light** features a sleek
 
 Equipped with a **junction box**, this downlight ensures a straightforward and safe electrical connection, reducing installation time and complexity. The **dimmable** feature combined with a bright **1050 lumens output** means users can adjust the lighting intensity to suit their needs, promoting energy savings and creating the perfect atmosphere. Additionally, being **ETL and FCC certified** guarantees that the product meets high safety and performance standards, giving users peace of mind with their purchase.
 
-## <a href="https://www.amazon.com/dp/B0BM98D45R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">36w Led Ceiling Lights</a>
+## <a href="https://www.amazon.com/dp/B0BM98D45R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">36w Led Ceiling Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0BM98D45R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="36W LED Ceiling Lights for Bedroom Kitchen, 3600lm Super Bright, Dimmable Flush Mount Light Fixtures 6500K/5000K/4000K/3000K/2700K Adjusted Modern Lamps 2PACK, 13 Inch, Nickle" src="https://m.media-amazon.com/images/I/41RP+9wc1NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BM98D45R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="36W LED Ceiling Lights for Bedroom Kitchen, 3600lm Super Bright, Dimmable Flush Mount Light Fixtures 6500K/5000K/4000K/3000K/2700K Adjusted Modern Lamps 2PACK, 13 Inch, Nickle" src="https://m.media-amazon.com/images/I/41RP+9wc1NL._SL500_.jpg"/></a>
 
 
 The **36W LED Ceiling Lights** are ideal for homeowners or renters looking to enhance their **bedroom** or **kitchen** lighting with a modern, energy-efficient solution. If you want a versatile lighting fixture that offers adjustable color temperatures and a sleek design, this product is perfect for you. Those seeking bright, dimmable, and easy-to-install ceiling lights with a contemporary brushed nickel finish will find this 2-pack set especially beneficial.
@@ -235,10 +235,10 @@ The **TOBUSA 36W LED Ceiling Lights** stand out with their impressive brightness
 
 With a sleek **brushed nickel finish** and a minimalist flush mount design, these lights blend seamlessly into modern interiors. Their **dimmable** capability provides additional control over lighting intensity, supporting relaxation or focus as needed. Additionally, the LED technology not only offers longevity but also ensures energy efficiency, making it a cost-effective choice for environmentally conscious consumers.
 
-## <a href="https://www.amazon.com/dp/B08YJN4H85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tobusa Semi Flush Mount Ceiling Light Fixture Matte Black</a>
+## <a href="https://www.amazon.com/dp/B08YJN4H85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tobusa Semi Flush Mount Ceiling Light Fixture Matte Black</a>
 
 
-<a href="https://www.amazon.com/dp/B08YJN4H85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOBUSA Semi Flush Mount Ceiling Light Fixture Matte Black, Modern Sputnik Close to Ceiling Light, Chandelier Light Fixture Ceiling for Bedroom Kitchen Living Room Dining Room, 4 Light E26 Socket" src="https://m.media-amazon.com/images/I/31CmrGWnTuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08YJN4H85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOBUSA Semi Flush Mount Ceiling Light Fixture Matte Black, Modern Sputnik Close to Ceiling Light, Chandelier Light Fixture Ceiling for Bedroom Kitchen Living Room Dining Room, 4 Light E26 Socket" src="https://m.media-amazon.com/images/I/31CmrGWnTuL._SL500_.jpg"/></a>
 
 
 The **TOBUSA Semi Flush Mount Ceiling Light Fixture** is ideal for homeowners and interior enthusiasts looking to enhance their living spaces with a modern, stylish lighting solution. Perfect for those who want a blend of contemporary design and functional illumination, this fixture suits bedrooms, kitchens, living rooms, and dining rooms. If you appreciate sleek, minimalist décor with a touch of industrial charm, this **matte black chandelier light fixture** is a great choice.
@@ -261,10 +261,10 @@ The **TOBUSA Semi Flush Mount Ceiling Light Fixture** stands out with its sleek 
 
 Beyond aesthetics, the fixture’s design promotes even light distribution, brightening up living rooms, kitchens, bedrooms, or dining areas effectively. Its semi flush mount style ensures it does not overwhelm a room, making it versatile for various home sizes and layouts. Overall, the **TOBUSA ceiling light fixture** combines form and function, offering a modern, durable, and user-friendly lighting solution for contemporary homes.
 
-## <a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
 
 
 The **KSIPZE 100ft LED Strip Lights** are perfect for individuals looking to enhance their living spaces with vibrant and customizable lighting. Ideal for homeowners, renters, or anyone who enjoys modern **home décor**, these lights are especially suited for those who love music, tech-savvy users, or anyone seeking an easy way to create an ambient atmosphere in bedrooms, gaming rooms, or entertainment areas.

@@ -23,10 +23,10 @@ These rugs resist water and dirt, keeping floors clean and fresh. Lightweight an
 
 
 
-## <a href="https://www.amazon.com/dp/B0CGR2Q4XZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CGR2Q4XZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGR2Q4XZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Green, 4' x 6')" src="https://m.media-amazon.com/images/I/51DSTn8qLWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGR2Q4XZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Green, 4' x 6')" src="https://m.media-amazon.com/images/I/51DSTn8qLWL._SL500_.jpg"/></a>
 
 
 The **RUGSURE Washable Area Rugs** are ideal for homeowners looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who want a **pet and child-friendly** rug that offers **stain and water resistance**, this rug suits families with kids, pet owners, or anyone who desires an easy-to-clean and durable rug for their **living room, bedroom, nursery, or kids room**.
@@ -49,10 +49,10 @@ The **RUGSURE Washable Area Rug** measures **4' x 6'** with a low profile of jus
 
 Beyond functionality, the **vintage tribal design in green** offers a visually appealing aesthetic that can complement a variety of decor themes, from boho to contemporary. The rug’s lightweight nature means it can easily be moved or adjusted as needed, providing flexibility in styling and cleaning. Overall, the **RUGSURE Washable Area Rug** combines practicality with style, making it a smart choice for anyone seeking a durable, attractive, and low-maintenance area rug.
 
-## <a href="https://www.amazon.com/dp/B0CZT136MC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siiloom Sage Green Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0CZT136MC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siiloom Sage Green Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZT136MC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIILOOM 2x3 Sage Green Washable Rug for Entryway, Soft Traditional Printed Area Rug, Non-Slip Kitchen Rugs, Low-Pile Medallion Indoor Door Mat, Farmhouse Carpet for Entrance Kitchen Foyer" src="https://m.media-amazon.com/images/I/51kukm7A2RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZT136MC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIILOOM 2x3 Sage Green Washable Rug for Entryway, Soft Traditional Printed Area Rug, Non-Slip Kitchen Rugs, Low-Pile Medallion Indoor Door Mat, Farmhouse Carpet for Entrance Kitchen Foyer" src="https://m.media-amazon.com/images/I/51kukm7A2RL._SL500_.jpg"/></a>
 
 
 The **SIILOOM 2x3 Sage Green Washable Rug** is ideal for homeowners and renters looking to enhance their entryway, kitchen, or foyer with a stylish yet functional floor covering. This **soft traditional printed area rug** suits those who appreciate a farmhouse aesthetic while requiring a **durable, low-maintenance** option that is easy to clean and maintain. If you want a **non-slip, low-pile** rug that blends practicality with charm, this item is perfect for you.
@@ -75,10 +75,10 @@ The **SIILOOM Sage Green Washable Rug** offers a practical solution for areas pr
 
 Additionally, the rug’s **compact size** and **lightweight construction** make it highly versatile and easy to move or store when necessary. Whether placed in a busy foyer or near the sink in your kitchen, it provides a non-slip surface that enhances safety without compromising on style. This combination of features makes the SIILOOM rug a smart investment for anyone looking to blend functionality with farmhouse-inspired decor.
 
-## <a href="https://www.amazon.com/dp/B0D98QBXHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0D98QBXHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D98QBXHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Runner Rug Washable Kitchen Runner 2'6''x8' Runner Rug for Entryway Indoor Floral Non-Slip Soft Carpet Runner for Hallways, Kitchen, Laundry, Bedroom, Bathroom(Blue)" src="https://m.media-amazon.com/images/I/51sHliQ7REL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D98QBXHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Runner Rug Washable Kitchen Runner 2'6''x8' Runner Rug for Entryway Indoor Floral Non-Slip Soft Carpet Runner for Hallways, Kitchen, Laundry, Bedroom, Bathroom(Blue)" src="https://m.media-amazon.com/images/I/51sHliQ7REL._SL500_.jpg"/></a>
 
 
 The **Rugcomf Runner Rug** is ideal for homeowners and renters looking to add a touch of style and comfort to high-traffic indoor areas such as hallways, kitchens, and entryways. This washable and **non-slip kitchen runner** is perfect for those who want a durable yet soft carpet that can withstand daily use while enhancing the aesthetic of their living spaces. Its floral design and soothing **blue color** make it a great choice for anyone seeking both functionality and visual appeal in their home décor.
@@ -101,10 +101,10 @@ The **Rugcomf Runner Rug** combines a practical design with aesthetic appeal, ma
 
 Additionally, the rug’s **washable nature** allows for effortless upkeep, ensuring that it remains fresh and clean despite frequent use. Its dimensions of 31.2 inches in width and 96 inches in length make it suitable for many spaces without overwhelming the area. The subtle yet stylish **floral pattern** and calming **blue color** help brighten up rooms, complementing both modern and traditional interiors while providing a cozy atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0C9JHR849?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Runner Rug Hallway Runner Rug Washable Kitchen Runner Rugs With Rubber Backing</a>
+## <a href="https://www.amazon.com/dp/B0C9JHR849?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Runner Rug Hallway Runner Rug Washable Kitchen Runner Rugs With Rubber Backing</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9JHR849?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Runner Rug Hallway Runner Rug Washable Kitchen Runner Rugs with Rubber Backing 2'6''x8' 100% Polyester Vintage Rug for Entryway Indoor, Kitchen, Laundry, Bedroom (Grey and Brown)" src="https://m.media-amazon.com/images/I/51QqJLQUMJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9JHR849?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Runner Rug Hallway Runner Rug Washable Kitchen Runner Rugs with Rubber Backing 2'6''x8' 100% Polyester Vintage Rug for Entryway Indoor, Kitchen, Laundry, Bedroom (Grey and Brown)" src="https://m.media-amazon.com/images/I/51QqJLQUMJL._SL500_.jpg"/></a>
 
 
 The **Runner Rug Hallway Runner Rug** is ideal for homeowners and renters looking to add both style and functionality to narrow spaces like hallways, kitchens, or entryways. Those who prioritize easy maintenance and durability will appreciate this rug, especially in high-traffic areas. If you want a washable, slip-resistant option that complements your interior with a vintage aesthetic, this rug is a perfect choice.
@@ -127,10 +127,10 @@ The **Runner Rug Hallway Runner Rug** features a compact yet generous size of 31
 
 One of the standout features is the rug’s **rubber backing**, which firmly grips the floor to prevent slipping and sliding, thereby enhancing safety especially in homes with children or elderly residents. Additionally, the rug is fully **washable**, making it easy to remove stains and maintain cleanliness without specialized treatments. This combination of durability, safety, and easy maintenance ensures that the rug remains a practical and attractive addition to any indoor setting.
 
-## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
 
 
 The **zesthome 8x10 Area Rug** is ideal for homeowners and renters looking to add a touch of vintage charm and warmth to their living spaces. This rug is perfect for those who want a combination of style, durability, and practicality, especially in high-traffic areas like the living room. If you value a non-slip, washable rug that resists stains while enhancing your home decor, this item is designed for you.
@@ -154,10 +154,10 @@ The **zesthome 8x10 Area Rug** features a durable yet soft construction that off
 
 Designed with practicality in mind, this vintage large area rug is **washable**, allowing users to keep their living spaces hygienic and fresh. The generous dimensions cover a significant portion of the floor, helping to define living areas while adding warmth and style. The bold **orange hue** brings a lively and inviting atmosphere to your home, making it an excellent choice for those wanting to make a statement with their decor.
 
-## <a href="https://www.amazon.com/dp/B0CRHMYWSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Releany 5x7 Area Rug Vintage Machine Washable Low Pile Carpet No Shedding Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CRHMYWSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Releany 5x7 Area Rug Vintage Machine Washable Low Pile Carpet No Shedding Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRHMYWSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RELEANY 5x7 Area Rug Vintage Machine Washable Low Pile Carpet No Shedding Area Rugs for Living Room Bedroom Dining Room Kitchen Entryway Hallway Office Indoor-Brick/Pink" src="https://m.media-amazon.com/images/I/51YDFXBaqiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRHMYWSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RELEANY 5x7 Area Rug Vintage Machine Washable Low Pile Carpet No Shedding Area Rugs for Living Room Bedroom Dining Room Kitchen Entryway Hallway Office Indoor-Brick/Pink" src="https://m.media-amazon.com/images/I/51YDFXBaqiL._SL500_.jpg"/></a>
 
 
 The **RELEANY 5x7 Area Rug Vintage Machine Washable Low Pile Carpet** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who want a durable, easy-to-maintain rug that complements various rooms such as the living room, bedroom, dining room, kitchen, entryway, hallway, or office. This rug is especially suitable for people who appreciate vintage aesthetics combined with modern convenience like machine washability and low shedding.
@@ -180,10 +180,10 @@ The **RELEANY 5x7 Area Rug** features a vintage design that brings a timeless ch
 
 Crafted by **RELEANY**, this rug’s **brick/pink color** palette adds warmth and sophistication, perfectly complementing a variety of furniture styles and room aesthetics. Its versatile size of 5x7 feet makes it suitable for multiple indoor spaces such as living rooms, bedrooms, dining areas, and even entryways. Overall, this rug provides a blend of style, durability, and easy maintenance, making it a smart investment for anyone seeking both beauty and function in their floor coverings.
 
-## <a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Moroccan Trellis Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Moroccan Trellis Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Moroccan Trellis Washable Rug, 2x3 Kitchen Rugs for Entryway Bathroom, Non-Slip Indoor Door Mat Ultra-Thin, Small Oriental Throw Carpet for Bedroom Entry, Cream/Multi" src="https://m.media-amazon.com/images/I/513YQG3GJbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Moroccan Trellis Washable Rug, 2x3 Kitchen Rugs for Entryway Bathroom, Non-Slip Indoor Door Mat Ultra-Thin, Small Oriental Throw Carpet for Bedroom Entry, Cream/Multi" src="https://m.media-amazon.com/images/I/513YQG3GJbL._SL500_.jpg"/></a>
 
 
 The **Lahome Moroccan Trellis Washable Rug** is ideal for individuals seeking a stylish yet functional floor covering for smaller spaces such as kitchens, entryways, bathrooms, or bedrooms. If you want a **non-slip**, **ultra-thin** rug that combines aesthetic appeal with practicality, this rug is a perfect choice for your home. Its compact size and easy maintenance make it especially suitable for busy households or those looking to add a touch of **oriental design** without overwhelming the space.
@@ -207,10 +207,10 @@ Crafted by the reputable **Lahome** brand, this rug measures approximately **35.
 
 Beyond practicality, the **Moroccan trellis pattern** in a subtle cream and multi-color palette introduces an elegant, timeless design element to your home décor. This small oriental throw carpet not only protects your floors but also enhances the visual appeal of entryways, bedrooms, or bathrooms. Its lightweight and ultra-thin construction make it easy to move or reposition as needed, providing both convenience and style for everyday living.
 
-## <a href="https://www.amazon.com/dp/B0B8NGR93K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Vintage Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B8NGR93K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Vintage Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8NGR93K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Vintage Area Rug 3x5 for Entryway - Machine Washable Stain Resistant Non-Slip Low Pile Ultra-Thin Floral Print Indoor Rug for Kitchen Bedroom Living Room (3x5ft,Blue)" src="https://m.media-amazon.com/images/I/51tCHlMHHvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8NGR93K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Vintage Area Rug 3x5 for Entryway - Machine Washable Stain Resistant Non-Slip Low Pile Ultra-Thin Floral Print Indoor Rug for Kitchen Bedroom Living Room (3x5ft,Blue)" src="https://m.media-amazon.com/images/I/51tCHlMHHvL._SL500_.jpg"/></a>
 
 
 The **jinchan Vintage Area Rug 3x5** is an ideal choice for homeowners and renters looking to enhance their **entryway, kitchen, bedroom, or living room** with a stylish yet practical floor covering. Perfect for those who appreciate a **low-maintenance, durable, and visually appealing rug**, this product suits individuals who want both functionality and aesthetic appeal in their indoor decor. If you need a rug that is **machine washable**, **stain resistant**, and features a **non-slip backing** for safety, this is an excellent buy.
@@ -233,10 +233,10 @@ The **jinchan Vintage Area Rug** features a **low pile height** of just under 0.
 
 Beyond looks, this rug’s **machine washable and stain-resistant** properties allow users to keep it clean with minimal effort, which is especially beneficial in high-traffic areas like entryways and kitchens. The **non-slip backing** ensures that the rug stays securely in place, providing extra safety for households with children or elderly individuals. With dimensions tailored for smaller spaces, the rug fits perfectly in apartments or cozy rooms, combining practicality and style seamlessly.
 
-## <a href="https://www.amazon.com/dp/B0BVPL2QB5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mujoo Pink Rug 6'x9' Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0BVPL2QB5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mujoo Pink Rug 6'x9' Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVPL2QB5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUJOO Pink Rug 6'x9' Area Rugs for Living Room Washable Rugs Large Boho Carpet for Bedroom Dining Room Neutral Vintage Farmhouse Abstract Non Slip Soft Low-Pile Floral Flowers" src="https://m.media-amazon.com/images/I/51UQTo+IfbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVPL2QB5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUJOO Pink Rug 6'x9' Area Rugs for Living Room Washable Rugs Large Boho Carpet for Bedroom Dining Room Neutral Vintage Farmhouse Abstract Non Slip Soft Low-Pile Floral Flowers" src="https://m.media-amazon.com/images/I/51UQTo+IfbL._SL500_.jpg"/></a>
 
 
 The **MUJOO Pink Rug 6'x9'** is ideal for homeowners and renters looking to add a soft, stylish, and functional touch to their living spaces. If you want a **washable, low-pile area rug** that blends well with **boho, vintage farmhouse, or abstract décor**, this rug is perfect for your **living room, bedroom, or dining room**. It suits those who prioritize both aesthetics and practicality in their home furnishings.
@@ -259,10 +259,10 @@ The **MUJOO Pink Rug** stands out with its **soft, low-pile** construction that 
 
 Measuring a generous **6'x9'**, this rug provides ample coverage, making it versatile for placement in living rooms, bedrooms, or dining areas. The charming **pink floral and abstract design** adds a splash of color and character, fitting seamlessly into **boho and vintage farmhouse** decor styles. Lightweight yet durable, the rug balances aesthetics with functionality, making it a practical and beautiful addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0F3Y4N7G6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0F3Y4N7G6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3Y4N7G6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room: Floral Washable Rug Vintage Large Soft Boho Non-Slip Carpet Indoor Floor Stain Resistant Carpets for Bedroom Dining Room Farmhouse Nursery Home Office Dark Green" src="https://m.media-amazon.com/images/I/61FSdNJOLDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3Y4N7G6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room: Floral Washable Rug Vintage Large Soft Boho Non-Slip Carpet Indoor Floor Stain Resistant Carpets for Bedroom Dining Room Farmhouse Nursery Home Office Dark Green" src="https://m.media-amazon.com/images/I/61FSdNJOLDL._SL500_.jpg"/></a>
 
 
 The **8x10 Area Rugs for Living Room** by **PLHXFR** is ideal for homeowners looking to enhance their interior spaces with a touch of vintage charm and practicality. Perfect for those who want a **large, soft, and washable rug** that adds both style and comfort, this rug is especially suited for living rooms, bedrooms, dining areas, nurseries, and home offices. If you appreciate **boho and farmhouse aesthetics** combined with durability and ease of maintenance, this dark green floral rug is an excellent choice.

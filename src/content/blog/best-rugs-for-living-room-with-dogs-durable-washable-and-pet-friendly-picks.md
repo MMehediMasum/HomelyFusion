@@ -23,10 +23,10 @@ Non-slip backing keeps rugs in place during playful moments. Machine washable ru
 
 
 
-## <a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lessymo 8 X 10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lessymo 8 X 10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lessymo 8 x 10 Area Rugs for Living Room- Machine Washable Area Rugs Boho Faux Wool Low Pile Area Rug for Bedroom, Floral Medallion Vintage Rugs with Non-Slip Rubber, Kid &amp; Pet Friendly, Brown Beige" src="https://m.media-amazon.com/images/I/51ZNHuLa4gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lessymo 8 x 10 Area Rugs for Living Room- Machine Washable Area Rugs Boho Faux Wool Low Pile Area Rug for Bedroom, Floral Medallion Vintage Rugs with Non-Slip Rubber, Kid &amp; Pet Friendly, Brown Beige" src="https://m.media-amazon.com/images/I/51ZNHuLa4gL._SL500_.jpg"/></a>
 
 
 The **Lessymo 8 x 10 Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who want a **machine washable**, **kid and pet friendly** rug that combines aesthetic appeal with easy maintenance, especially in **living rooms** or **bedrooms**. If you appreciate **boho** and **vintage floral medallion designs** in subtle **brown beige** tones, this rug is a great choice.
@@ -48,10 +48,10 @@ The **Lessymo 8 x 10 Area Rug** features a **low pile height** that makes it an 
 
 Additionally, the **non-slip rubber backing** ensures that the rug stays firmly in place, reducing the risk of accidents, especially in homes with children or pets. Its **kid and pet friendly** materials make it durable and safe, catering to active households. The rug’s size of **8 x 10 feet** covers ample floor space, offering both style and functionality without overwhelming the room.
 
-## <a href="https://www.amazon.com/dp/B0CXPHQSV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CXPHQSV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXPHQSV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rug - 1/6 Thick - Stain &amp; Water Resistant Non-Slip - Resistant Rug for Living Room, Bedroom, Nursery, Pet &amp; Child Friendly, Vintage Charm Area Rugs (Darkgrey+Bule, 5' x 7')" src="https://m.media-amazon.com/images/I/51K6Iy2IBvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXPHQSV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rug - 1/6 Thick - Stain &amp; Water Resistant Non-Slip - Resistant Rug for Living Room, Bedroom, Nursery, Pet &amp; Child Friendly, Vintage Charm Area Rugs (Darkgrey+Bule, 5' x 7')" src="https://m.media-amazon.com/images/I/51K6Iy2IBvL._SL500_.jpg"/></a>
 
 
 The **RUGSURE Washable Area Rug** is ideal for homeowners and renters who seek a durable, stylish, and low-maintenance rug for high-traffic areas like the living room, bedroom, or nursery. It is especially suited for families with children and pets, thanks to its **stain and water-resistant** features and **non-slip** backing, ensuring safety and ease of cleaning.
@@ -75,10 +75,10 @@ The **RUGSURE Washable Area Rug** boasts a practical design with a thickness of 
 
 With dimensions of **60 by 84 inches**, this rug fits perfectly in medium-sized rooms such as living rooms or bedrooms, adding a touch of vintage charm with its **dark grey and blue color scheme**. The rug’s durability and ease of washing make it a practical choice for anyone looking to combine style with functionality, especially in homes where cleanliness and safety are top priorities.
 
-## <a href="https://www.amazon.com/dp/B0DP4RW2LZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room Rug Washable</a>
+## <a href="https://www.amazon.com/dp/B0DP4RW2LZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room Rug Washable</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP4RW2LZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room Rug Washable: Abstract Large Rug for Dining Room Bedroom Carpet Non Slip 8 by 10 Indoor Modern Nursery Home Office Blue Grey" src="https://m.media-amazon.com/images/I/51TAiYYwRLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP4RW2LZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room Rug Washable: Abstract Large Rug for Dining Room Bedroom Carpet Non Slip 8 by 10 Indoor Modern Nursery Home Office Blue Grey" src="https://m.media-amazon.com/images/I/51TAiYYwRLL._SL500_.jpg"/></a>
 
 
 The **8x10 Area Rugs for Living Room Rug Washable** is ideal for homeowners and renters looking to enhance their interior spaces with a stylish yet practical floor covering. Perfect for those who want a durable, easy-to-clean, and modern rug, this **abstract large rug** fits well in living rooms, dining rooms, bedrooms, nurseries, or home offices. Buyers seeking a non-slip, comfortable, and visually appealing carpet in a versatile **blue and grey** color scheme will find this rug an excellent choice.
@@ -100,10 +100,10 @@ This **Aelenmu 8x10 Area Rug** combines functionality with aesthetic appeal, fea
 
 Measuring **96 by 120 inches**, the rug offers ample coverage, making it versatile for use in various rooms such as living rooms, dining areas, and nurseries. The modern abstract pattern enhances the visual interest of any space without overwhelming existing decor. Lightweight yet durable, this rug balances comfort and practicality, making it a worthwhile investment for anyone seeking to upgrade their home flooring with a stylish and dependable product.
 
-## <a href="https://www.amazon.com/dp/B0BJ6DJ8RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vivorug 5x7 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0BJ6DJ8RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vivorug 5x7 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJ6DJ8RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vivorug 5x7 Area Rugs - Ultra-Thin Washable Rug with Non-Slip Backing, Ideal for Living Room, Bedroom, Kitchen Floor Carpet - Modern Abstract, Easy Clean, Durable, Low Pile Gray/Rust" src="https://m.media-amazon.com/images/I/51dZFEJJCcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJ6DJ8RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vivorug 5x7 Area Rugs - Ultra-Thin Washable Rug with Non-Slip Backing, Ideal for Living Room, Bedroom, Kitchen Floor Carpet - Modern Abstract, Easy Clean, Durable, Low Pile Gray/Rust" src="https://m.media-amazon.com/images/I/51dZFEJJCcL._SL500_.jpg"/></a>
 
 
 The **vivorug 5x7 Area Rugs** are perfect for individuals seeking a stylish yet practical addition to their living spaces. Ideal for homeowners or renters who want an **easy-to-clean**, **durable**, and **modern abstract rug** that fits well in the **living room**, **bedroom**, or **kitchen**. Those looking for a **low pile**, **ultra-thin rug** with **non-slip backing** for safety and convenience will find this rug especially appealing.
@@ -126,10 +126,10 @@ The **vivorug 5x7 Area Rug** features an **ultra-thin profile** that makes it id
 
 Made from **durable materials**, this rug withstands daily wear and tear, making it a reliable choice for busy households. The **washable design** allows users to maintain hygiene without professional cleaning, saving both time and money. Moreover, the **modern abstract pattern** in a **gray/rust color palette** complements a variety of interior styles, adding a touch of elegance and warmth to any room it adorns.
 
-## <a href="https://www.amazon.com/dp/B0CD7CJC6F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bestsweetie 8x10 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CD7CJC6F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bestsweetie 8x10 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD7CJC6F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BESTSWEETIE 8x10 Area Rugs for Living Room Washable Moroccan Farmhouse Neutral Geometric Low Pile Non-Slip Soft Print Pattern Rug for Bedroom Kitchen Dining Room Entryway Black/Brown" src="https://m.media-amazon.com/images/I/51zGQpKnVwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD7CJC6F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BESTSWEETIE 8x10 Area Rugs for Living Room Washable Moroccan Farmhouse Neutral Geometric Low Pile Non-Slip Soft Print Pattern Rug for Bedroom Kitchen Dining Room Entryway Black/Brown" src="https://m.media-amazon.com/images/I/51zGQpKnVwL._SL500_.jpg"/></a>
 
 
 The **BESTSWEETIE 8x10 Area Rugs** are ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who appreciate a blend of modern farmhouse charm and contemporary design, this rug suits individuals who want a durable, easy-to-maintain, and visually appealing addition for areas such as the living room, bedroom, kitchen, dining room, or entryway. If you seek a rug that combines aesthetic appeal with functionality, especially in high-traffic areas, this is a great choice.
@@ -153,10 +153,10 @@ The **BESTSWEETIE 8x10 Area Rug** features a low pile height that makes it an ex
 
 The rug's aesthetic combines a classic **Moroccan farmhouse geometric pattern** with neutral black and brown tones, allowing it to seamlessly blend with a variety of interior design styles. This makes it a versatile piece that can complement both modern and rustic decor. Additionally, the lightweight design means users can effortlessly move or roll up the rug when cleaning or redecorating. Overall, this rug offers an attractive balance of style, comfort, and practicality.
 
-## <a href="https://www.amazon.com/dp/B0B4N6D8TT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Art&amp;tuft Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0B4N6D8TT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Art&amp;tuft Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4N6D8TT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Art&amp;Tuft Washable Rug, Anti-Slip Backing Abstract Area Rug 5x7, Stain Resistant Rugs for Living Room, Foldable Machine Washable Area Rug(TPR18-Navy, 5'x7')" src="https://m.media-amazon.com/images/I/51ZTPntXkWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4N6D8TT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Art&amp;Tuft Washable Rug, Anti-Slip Backing Abstract Area Rug 5x7, Stain Resistant Rugs for Living Room, Foldable Machine Washable Area Rug(TPR18-Navy, 5'x7')" src="https://m.media-amazon.com/images/I/51ZTPntXkWL._SL500_.jpg"/></a>
 
 
 The **Art&Tuft Washable Rug** is ideal for homeowners and renters who want a stylish yet practical floor covering. If you need a **durable, stain-resistant** rug that is easy to clean and maintain, especially for high-traffic areas like the living room, this **5x7 abstract area rug** is a perfect choice. Families with kids or pets will particularly benefit from its **machine washable** feature and **anti-slip backing**, ensuring safety and convenience.
@@ -178,10 +178,10 @@ This **Art&Tuft rug** combines functional design with modern aesthetics, featuri
 
 Beyond its visual appeal, the rug’s **machine washable** fabric allows users to maintain a clean and fresh living environment effortlessly. The **foldable nature** makes it convenient for seasonal storage or relocation. Overall, the **Art&Tuft Washable Rug** offers a practical yet stylish solution that enhances both safety and hygiene in your living space.
 
-## <a href="https://www.amazon.com/dp/B0DG1ZL9SB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie 5x8 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DG1ZL9SB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie 5x8 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG1ZL9SB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie 5x8 Area Rug, Upgrade Non-Slip Fluffy Soft Living Room Rugs, Shag Large Fuzzy Plush Carpets for Bedroom Grey, Shaggy Gray Kids Boys Girls Dorm Nursery Home Decor Aesthetic" src="https://m.media-amazon.com/images/I/51GGfRP0TPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG1ZL9SB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie 5x8 Area Rug, Upgrade Non-Slip Fluffy Soft Living Room Rugs, Shag Large Fuzzy Plush Carpets for Bedroom Grey, Shaggy Gray Kids Boys Girls Dorm Nursery Home Decor Aesthetic" src="https://m.media-amazon.com/images/I/51GGfRP0TPL._SL500_.jpg"/></a>
 
 
 The **Ophanie 5x8 Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a cozy and stylish touch. Perfect for families with kids, dorm residents, or anyone seeking a plush, non-slip carpet to add both comfort and aesthetic appeal to bedrooms, living rooms, or nurseries. If you want a soft, durable, and visually appealing rug in a versatile **grey** shade, this shaggy carpet is an excellent choice.
@@ -204,10 +204,10 @@ The **Ophanie 5x8 Area Rug** features a shaggy, plush surface that feels luxurio
 
 Additionally, the rug’s versatile **grey color** and modern aesthetic blend seamlessly with various interior designs, from minimalist to cozy nurseries. Its generous size of 5 by 8 feet allows it to fit comfortably in different room layouts, creating a warm and inviting atmosphere. Lightweight and easy to handle, this rug is a practical yet stylish addition to any home environment.
 
-## <a href="https://www.amazon.com/dp/B0BLS4BR95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tortania Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BLS4BR95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tortania Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLS4BR95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tortania Area Rug Living Room Rugs - 5x7 Washable Large Soft Neutral Boho Moroccan Bohemian Farmhouse Rug Indoor Floor Carpet for Bedroom Under Dining Table Home Office Decor - Cream Brown" src="https://m.media-amazon.com/images/I/51yX93H-34L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLS4BR95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tortania Area Rug Living Room Rugs - 5x7 Washable Large Soft Neutral Boho Moroccan Bohemian Farmhouse Rug Indoor Floor Carpet for Bedroom Under Dining Table Home Office Decor - Cream Brown" src="https://m.media-amazon.com/images/I/51yX93H-34L._SL500_.jpg"/></a>
 
 
 The **Tortania Area Rug Living Room Rugs - 5x7** is an ideal choice for homeowners and renters looking to add a touch of **boho Moroccan** charm and cozy comfort to their living spaces. Perfect for those who want a stylish yet functional **indoor floor carpet** that complements a variety of decor styles including **farmhouse** and **bohemian**. This rug is especially suitable for individuals seeking a **washable, large, and soft** rug for areas like the bedroom, dining room, or home office.
@@ -230,10 +230,10 @@ The **Tortania Area Rug** stands out with its **washable** feature, making it a 
 
 Designed with versatility in mind, this **boho Moroccan farmhouse rug** offers a unique blend of style and functionality. Its **large 5x7 dimension** provides ample coverage, making it perfect for use under dining tables or as a centerpiece in bedrooms and home offices. Lightweight yet durable, the rug is easy to maintain and reposition, ensuring long-lasting use and aesthetic appeal in your living space.
 
-## <a href="https://www.amazon.com/dp/B0D47H2H3Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Area Rug Living Room Rugs</a>
+## <a href="https://www.amazon.com/dp/B0D47H2H3Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Area Rug Living Room Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0D47H2H3Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Area Rug Living Room Rugs: 5x7 Washable Large Abstract Modern Soft Stain Resistant Indoor Floor Non Slip Accent Carpet for Bedroom Nursery Playroom Dining Room Office Dorm Home House- Gray Gold" src="https://m.media-amazon.com/images/I/51EVzmFg9dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D47H2H3Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Area Rug Living Room Rugs: 5x7 Washable Large Abstract Modern Soft Stain Resistant Indoor Floor Non Slip Accent Carpet for Bedroom Nursery Playroom Dining Room Office Dorm Home House- Gray Gold" src="https://m.media-amazon.com/images/I/51EVzmFg9dL._SL500_.jpg"/></a>
 
 
 The **Area Rug Living Room Rugs: 5x7 Washable Large Abstract Modern Soft Stain Resistant Indoor Floor Non Slip Accent Carpet** is perfect for homeowners and renters looking to enhance their interior spaces with a stylish yet functional floor covering. Ideal for those who want a durable, easy-to-maintain rug that works well in various rooms such as the bedroom, nursery, playroom, dining room, office, or dorm. This rug is especially suitable for families with kids or pets due to its **stain resistant** and **washable** features.
@@ -257,10 +257,10 @@ This **LOONGRUG** area rug features a contemporary abstract pattern in elegant g
 
 The rug’s washable nature is a significant benefit, allowing users to easily maintain its fresh appearance without the need for professional cleaning. Additionally, the stain-resistant quality helps protect against spills and accidents, making it a practical choice for busy households and high-traffic areas like dining rooms and offices. With dimensions of 5x7 feet, it offers ample coverage while still fitting comfortably in smaller rooms such as nurseries or dormitories.
 
-## <a href="https://www.amazon.com/dp/B0D5J14HTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Washable Area Rug 5x7 Dog Cat Paw Print Bones</a>
+## <a href="https://www.amazon.com/dp/B0D5J14HTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Washable Area Rug 5x7 Dog Cat Paw Print Bones</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5J14HTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Washable Area Rug 5x7 Dog Cat Paw Print Bones Washable Large Rugs for Living Room Non-Slip Soft Low Pile Carpet Rug for Bedroom Bedside Dining Room Nursery" src="https://m.media-amazon.com/images/I/51isYUuSxsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5J14HTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Washable Area Rug 5x7 Dog Cat Paw Print Bones Washable Large Rugs for Living Room Non-Slip Soft Low Pile Carpet Rug for Bedroom Bedside Dining Room Nursery" src="https://m.media-amazon.com/images/I/51isYUuSxsL._SL500_.jpg"/></a>
 
 
 The **Washable Area Rug 5x7 Dog Cat Paw Print Bones** is an ideal choice for pet owners and animal lovers looking to add a playful yet practical touch to their living spaces. If you want a **durable**, **easy-to-clean** rug that complements rooms like the living room, bedroom, nursery, or dining area, this rug is designed for you. It's especially suitable for households with pets, thanks to its charming paw print design and pet-friendly features.

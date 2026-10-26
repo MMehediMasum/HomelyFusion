@@ -23,10 +23,10 @@ Some lights come with timers and remotes for easy control. Whether for daily use
 
 
 
-## <a href="https://www.amazon.com/dp/B08CXGRPL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pxbniuya Room Decor Tabletop Bonsai Tree Light</a>
+## <a href="https://www.amazon.com/dp/B08CXGRPL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pxbniuya Room Decor Tabletop Bonsai Tree Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08CXGRPL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (warm="" 108="" aesthetic="" alt="PXBNIUYA Room Decor, 20" artificial="" battery="" bedroom="" bonsai="" christmas="" decor="" diy="" for="" gifts="" home="" house="" lamp,="" lamps="" led="" light,="" living="" operated,="" room="" src="https://m.media-amazon.com/images/I/41iBkxbaXqL._SL500_.jpg" tabletop="" tree="" usb="" white)"=""/></a>
+<a href="https://www.amazon.com/dp/B08CXGRPL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (warm="" 108="" aesthetic="" alt="PXBNIUYA Room Decor, 20" artificial="" battery="" bedroom="" bonsai="" christmas="" decor="" diy="" for="" gifts="" home="" house="" lamp,="" lamps="" led="" light,="" living="" operated,="" room="" src="https://m.media-amazon.com/images/I/41iBkxbaXqL._SL500_.jpg" tabletop="" tree="" usb="" white)"=""/></a>
 
 
 The **PXBNIUYA Room Decor 20" 108 LED Tabletop Bonsai Tree Light** is perfect for individuals who want to add a touch of elegance and warmth to their living space. Ideal for those who appreciate **DIY aesthetic lamps** and are looking for a unique, versatile lighting option for their **living room, bedroom, or as a Christmas home gift**. This item suits people who prefer **battery or USB-operated decor** that is both functional and visually appealing.
@@ -49,12 +49,12 @@ The **PXBNIUYA 108 LED Tabletop Bonsai Tree Light** features a carefully crafted
 
 One of the standout features is its dual power options: it can be powered by batteries for placement flexibility or plugged in via USB for continuous use. This makes it ideal for decorating areas without convenient power outlets. The lightweight construction further enhances portability, so you can easily move it around to suit your mood or occasion. Overall, this bonsai tree lamp combines aesthetic appeal with practical functionality, making it a charming accent piece for any home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08CXGRPL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08CXGRPL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B074N4XPYZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lightshare 18 Inch Cherry Blossom Bonsai Tree</a>
+## <a href="https://www.amazon.com/dp/B074N4XPYZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lightshare 18 Inch Cherry Blossom Bonsai Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B074N4XPYZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIGHTSHARE 18 Inch Cherry Blossom Bonsai Tree, 48 LED Lights, 24V UL Listed Adapter Included, Metal Base, Warm White Lights, Ideal as Night Lights, Home Gift Idea" src="https://m.media-amazon.com/images/I/51NUWauWiwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074N4XPYZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIGHTSHARE 18 Inch Cherry Blossom Bonsai Tree, 48 LED Lights, 24V UL Listed Adapter Included, Metal Base, Warm White Lights, Ideal as Night Lights, Home Gift Idea" src="https://m.media-amazon.com/images/I/51NUWauWiwL._SL500_.jpg"/></a>
 
 
 The **LIGHTSHARE 18 Inch Cherry Blossom Bonsai Tree** with **48 LED Lights** is perfect for individuals seeking an elegant and calming night light or a unique home decor piece. Ideal for those who appreciate delicate aesthetics combined with functional lighting, this item suits people looking to add a warm ambiance to bedrooms, living rooms, or offices. It is also an excellent gift idea for loved ones who enjoy decorative lighting and nature-inspired designs.
@@ -76,12 +76,12 @@ The **LIGHTSHARE Cherry Blossom Bonsai Tree** is thoughtfully designed with **48
 
 With a compact yet elegant build, the bonsai tree’s **metal base** adds durability while complementing its aesthetic appeal. Its size, standing at **18 inches tall**, allows it to be a subtle centerpiece on desks, nightstands, or shelves without overwhelming the space. The lightweight design makes it easy to reposition, giving users flexibility in decorating their homes or offices.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B074N4XPYZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B074N4XPYZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07QMS77HX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Lighting Window Curtain String Lights</a>
+## <a href="https://www.amazon.com/dp/B07QMS77HX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Lighting Window Curtain String Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B07QMS77HX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOME LIGHTING Window Curtain String Lights, 300 LED 8 Lighting Modes Fairy Copper Light with Remote, USB Powered for Christmas Party Wedding Home Decorations (Warm White)" src="https://m.media-amazon.com/images/I/519ntGfKJfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QMS77HX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOME LIGHTING Window Curtain String Lights, 300 LED 8 Lighting Modes Fairy Copper Light with Remote, USB Powered for Christmas Party Wedding Home Decorations (Warm White)" src="https://m.media-amazon.com/images/I/519ntGfKJfL._SL500_.jpg"/></a>
 
 
 The **HOME LIGHTING Window Curtain String Lights** are perfect for individuals looking to add a cozy and enchanting ambiance to their living spaces. Ideal for those who enjoy decorating for special occasions like **Christmas, weddings, or parties**, these lights are also great for anyone wanting to create a warm and inviting atmosphere in their home year-round. If you appreciate versatile, easy-to-use lighting solutions that blend aesthetics with practicality, this product is an excellent choice.
@@ -105,12 +105,12 @@ The **HOME LIGHTING Window Curtain String Lights** feature a generous count of *
 
 Powered by a **USB connection**, these lights offer versatile installation options, whether plugged into a power bank, laptop, or wall adapter. Their **warm white glow** provides a soothing and elegant atmosphere, perfect for enhancing home décor during holidays or everyday living. The lightweight and flexible copper wire design also makes it easy to hang and shape the lights to fit different window sizes or creative setups, adding a magical touch to any room.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07QMS77HX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07QMS77HX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09MVMLRG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decorkey Set Of 2 Battery Operated Lamp Led Table Lantern</a>
+## <a href="https://www.amazon.com/dp/B09MVMLRG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decorkey Set Of 2 Battery Operated Lamp Led Table Lantern</a>
 
 
-<a href="https://www.amazon.com/dp/B09MVMLRG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DECORKEY Set of 2 Battery Operated Lamp LED Table Lantern, Brown Metal Cage Cordless Lamps with LED Bulb，Vintage Decorative Outdoor Lantern for Weddings, Parties, Patio, Events for Indoors Shelf Decor" src="https://m.media-amazon.com/images/I/51Sc8Q3rADL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MVMLRG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DECORKEY Set of 2 Battery Operated Lamp LED Table Lantern, Brown Metal Cage Cordless Lamps with LED Bulb，Vintage Decorative Outdoor Lantern for Weddings, Parties, Patio, Events for Indoors Shelf Decor" src="https://m.media-amazon.com/images/I/51Sc8Q3rADL._SL500_.jpg"/></a>
 
 
 The **DECORKEY Set of 2 Battery Operated Lamp LED Table Lanterns** are ideal for individuals looking to add a touch of vintage charm and ambient lighting to their indoor or outdoor spaces. Perfect for homeowners, event planners, and decorators, these cordless lamps suit those who want elegant, portable, and easy-to-use lighting solutions for **weddings, parties, patios, and shelf decor**. If you appreciate stylish yet functional decorative pieces that do not require complicated wiring, this set is designed for you.
@@ -133,12 +133,12 @@ Featuring a vintage brown metal cage design, these lanterns combine classic aest
 
 The cordless feature brings convenience and versatility, making these lanterns suitable for both indoor use and outdoor settings such as weddings or parties. Additionally, the energy-efficient LED bulbs provide reliable and eco-friendly illumination, reducing the need for frequent replacements and lowering energy consumption. This set of two allows for symmetrical decoration or spreading light across different areas, elevating the overall decor effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09MVMLRG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09MVMLRG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sujeet Night Light</a>
+## <a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sujeet Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sujeet Night Light, Night Lights Plug into Wall 4-Pack, Nightlight Plug in Night Lights, Dusk to Dawn Night Lamp Led Night Light for Bedroom, Bathroom, Hallway Warm White" src="https://m.media-amazon.com/images/I/41Lef0bIEgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sujeet Night Light, Night Lights Plug into Wall 4-Pack, Nightlight Plug in Night Lights, Dusk to Dawn Night Lamp Led Night Light for Bedroom, Bathroom, Hallway Warm White" src="https://m.media-amazon.com/images/I/41Lef0bIEgL._SL500_.jpg"/></a>
 
 
 The **Sujeet Night Light** is ideal for individuals seeking a reliable and energy-efficient lighting solution for dark spaces such as bedrooms, bathrooms, and hallways. Perfect for families with children, elderly people who need gentle illumination at night, or anyone who desires a convenient **dusk to dawn night lamp** that automatically lights up when it gets dark.
@@ -160,12 +160,12 @@ The **Sujeet Night Light** features a compact and lightweight design that plugs 
 
 Users benefit from the convenience of the 4-pack, allowing them to easily install these night lights in multiple areas of their home such as bedrooms, bathrooms, and hallways. This consistent illumination improves safety by reducing the risk of trips and falls in the dark. Additionally, the warm white hue creates a comfortable and inviting environment, supporting restful sleep and minimizing disruption during nighttime movements.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C9MRV1K9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Branch Lights</a>
+## <a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Branch Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Branch Lights Battery Powered Decorative Lights Willow Twig Lighted Branch for Home Decoration" src="https://m.media-amazon.com/images/I/51ulXSdXt7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Branch Lights Battery Powered Decorative Lights Willow Twig Lighted Branch for Home Decoration" src="https://m.media-amazon.com/images/I/51ulXSdXt7L._SL500_.jpg"/></a>
 
 
 The **LED Branch Lights Battery Powered Decorative Lights Willow Twig Lighted Branch** are perfect for individuals looking to enhance their living space with a warm, natural ambiance without the hassle of wiring. Ideal for home decorators, event planners, or anyone wanting to add a touch of elegance and subtle lighting to their environment, these lights are especially suitable for those who appreciate easy-to-use, portable, and aesthetically pleasing decor solutions.
@@ -188,12 +188,12 @@ The **LED Branch Lights** feature a thoughtfully designed willow twig structure 
 
 Additionally, the natural color and delicate design of these decorative lights provide a subtle yet sophisticated lighting solution that complements a wide range of decor styles, from rustic to modern. The soft LED illumination not only saves energy but also creates a warm, inviting space that is perfect for relaxing evenings or intimate gatherings. Overall, these lights offer a blend of aesthetic appeal and practical convenience for those seeking stylish yet functional home decor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07XVQ4WTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glass Battery Operated Led Flameless Candles</a>
+## <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glass Battery Operated Led Flameless Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glass Battery Operated LED Flameless Candles with Remote and Timer, Real Wax Candles Warm Color Flickering Light for Festival Wedding Home Party Decor(Pack of 3)-Gold" src="https://m.media-amazon.com/images/I/41A6E5R8ItL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glass Battery Operated LED Flameless Candles with Remote and Timer, Real Wax Candles Warm Color Flickering Light for Festival Wedding Home Party Decor(Pack of 3)-Gold" src="https://m.media-amazon.com/images/I/41A6E5R8ItL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking elegant and safe lighting solutions for special occasions or everyday ambiance, the **Glass Battery Operated LED Flameless Candles** with remote and timer are perfect for those who want the charm of real candles without the hazards of open flames. These candles suit event planners, homeowners, and anyone looking to enhance their **festival, wedding, or party decor** with a warm, flickering glow.
@@ -217,12 +217,12 @@ The **Tyawon Glass Battery Operated LED Flameless Candles** stand out due to the
 
 Equipped with a **remote control and timer function**, these candles provide unmatched convenience, allowing users to set lighting schedules or turn the candles on and off from a distance. Their dimensions (11 inches in height, 7 inches in width, and 4 inches in length) make them a perfect fit for tabletops, mantels, or centerpieces. This pack of three offers flexibility for decorating multiple areas or creating layered lighting effects to elevate any occasion.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peiduo Lighted Brown Branches With Timer</a>
+## <a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peiduo Lighted Brown Branches With Timer</a>
 
 
-<a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PEIDUO Lighted Brown Branches with Timer, 30Inch 3PK 60 LED Pathway Lights, Willow Branch Lights for Home Decorations Indoor Apartment Outdoor Stake Lights for Lawn" src="https://m.media-amazon.com/images/I/41SFz97jSGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PEIDUO Lighted Brown Branches with Timer, 30Inch 3PK 60 LED Pathway Lights, Willow Branch Lights for Home Decorations Indoor Apartment Outdoor Stake Lights for Lawn" src="https://m.media-amazon.com/images/I/41SFz97jSGL._SL500_.jpg"/></a>
 
 
 The **PEIDUO Lighted Brown Branches with Timer** are ideal for homeowners and apartment dwellers looking to add a warm, natural ambiance to their living spaces. Perfect for those who appreciate subtle, decorative lighting, these **30-inch willow branch lights** are excellent for enhancing both indoor and outdoor areas such as pathways, gardens, patios, or living rooms. If you want a simple yet elegant lighting solution that blends nature-inspired design with functionality, this product is a great choice.
@@ -244,12 +244,12 @@ The **PEIDUO Lighted Brown Branches** combine aesthetic appeal with practical fe
 
 With the **3-pack** configuration, users can easily create coordinated lighting displays across multiple areas such as pathways, porches, or indoor corners. Their lightweight and durable build means they can be repositioned or stored seasonally with ease. Overall, these **willow branch pathway lights** offer an elegant lighting solution that enhances the beauty and functionality of both outdoor and indoor spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07X4FFFJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CL9FY17B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Operated Lamp With Timer</a>
+## <a href="https://www.amazon.com/dp/B0CL9FY17B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Operated Lamp With Timer</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL9FY17B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Operated Lamp with Timer, Small Cozy Table Lamps for College Dorm, Aesthetic Cordless Battery Powered Decorative Lamp for Bedside Living Room Shelf Amber" src="https://m.media-amazon.com/images/I/51MWuc-tb5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CL9FY17B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Operated Lamp with Timer, Small Cozy Table Lamps for College Dorm, Aesthetic Cordless Battery Powered Decorative Lamp for Bedside Living Room Shelf Amber" src="https://m.media-amazon.com/images/I/51MWuc-tb5L._SL500_.jpg"/></a>
 
 
 The **Battery Operated Lamp with Timer** is ideal for **college students**, apartment dwellers, or anyone seeking a **portable** and **aesthetic lighting solution** without the hassle of cords. Its compact size and **cordless design** make it perfect for **bedside tables**, dorm rooms, or shelves where space and convenience are priorities.
@@ -272,12 +272,12 @@ This **LUSHARBOR Battery Operated Lamp** offers a blend of functionality and sty
 
 The integrated **timer feature** is especially useful for conserving battery life and ensuring the lamp operates only when needed, providing convenience and efficiency. This makes the lamp an excellent choice for those who want a cozy lighting option without worrying about turning the lamp off manually. Overall, this decorative lamp combines practicality with a trendy look, making it a versatile accessory for various settings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CL9FY17B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CL9FY17B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09F9B3BCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Runtop Floor Lamp With Shelves</a>
+## <a href="https://www.amazon.com/dp/B09F9B3BCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Runtop Floor Lamp With Shelves</a>
 
 
-<a href="https://www.amazon.com/dp/B09F9B3BCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUNTOP Floor Lamp with Shelves, Modern Shelf Lamp for Display Storage, 3 Color Temperature Wood Narrow Standing Corner Lamp with 8W Bulb for Living Room Decor, Bedroom, Office, Home Decor(Brown)" src="https://m.media-amazon.com/images/I/410Ap+Q-BtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09F9B3BCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUNTOP Floor Lamp with Shelves, Modern Shelf Lamp for Display Storage, 3 Color Temperature Wood Narrow Standing Corner Lamp with 8W Bulb for Living Room Decor, Bedroom, Office, Home Decor(Brown)" src="https://m.media-amazon.com/images/I/410Ap+Q-BtL._SL500_.jpg"/></a>
 
 
 The **RUNTOP Floor Lamp with Shelves** is ideal for individuals looking to combine stylish lighting with practical storage solutions. Perfect for those who want to enhance their **living room, bedroom, office, or home decor** with a modern touch, this lamp suits anyone who values both functionality and aesthetics in their interior design. If you need a **space-saving** lighting fixture that also serves as a display or storage unit, this lamp is a great choice.
@@ -299,7 +299,7 @@ The **RUNTOP Floor Lamp** offers a unique combination of lighting and storage wi
 
 Constructed with a sturdy frame and finished in an attractive **rustic brown**, this lamp complements a variety of interior themes from modern to farmhouse. The included **energy-efficient 8W bulb** provides ample illumination while keeping electricity consumption low. Additionally, the built-in shelves offer practical storage options for books, decor items, or essentials, reducing the need for extra furniture pieces. Overall, the **RUNTOP Floor Lamp with Shelves** delivers both aesthetic appeal and functional benefits for a well-organized, stylish home environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09F9B3BCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09F9B3BCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

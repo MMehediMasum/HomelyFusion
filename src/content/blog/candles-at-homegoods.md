@@ -24,10 +24,10 @@ Its soft glow helps relax after a long day. You can place it in the living room,
 
 
 
-## <a href="https://www.amazon.com/dp/B07RG1RDLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vela Led Home Style Pilar Essencial</a>
+## <a href="https://www.amazon.com/dp/B07RG1RDLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vela Led Home Style Pilar Essencial</a>
 
 
-<a href="https://www.amazon.com/dp/B07RG1RDLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vela Led Home Style Pilar Essencial" src="https://m.media-amazon.com/images/I/113FACSydnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RG1RDLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vela Led Home Style Pilar Essencial" src="https://m.media-amazon.com/images/I/113FACSydnL._SL500_.jpg"/></a>
 
 
 The **Vela Led Home Style Pilar Essencial** is perfect for individuals seeking a stylish and energy-efficient lighting solution for their living spaces. Ideal customers include homeowners, interior decorators, and anyone looking to enhance their ambiance with a modern and eco-friendly LED candle alternative.
@@ -48,7 +48,7 @@ The **Vela Led Home Style Pilar Essencial** boasts a minimalist design that seam
 
 Beyond aesthetics, this LED candle offers practical benefits such as enhanced safety, making it suitable for households with children or pets. Its portability and ease of use allow users to place it anywhere—from bedside tables to dining setups—adding charm and comfort to everyday living. Overall, it represents a perfect blend of style, safety, and sustainability.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07RG1RDLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07RG1RDLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

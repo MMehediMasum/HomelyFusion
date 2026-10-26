@@ -23,10 +23,10 @@ For those seeking comfort with a coastal vibe, the Karinne sofa is perfect. The 
 
 
 
-## <a href="https://www.amazon.com/dp/B07KQWGPB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair</a>
+## <a href="https://www.amazon.com/dp/B07KQWGPB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B07KQWGPB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair, Beige" src="https://m.media-amazon.com/images/I/415BHpNbizL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KQWGPB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair, Beige" src="https://m.media-amazon.com/images/I/415BHpNbizL._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a stylish yet comfortable outdoor seating option, the **Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair, Beige** is perfect for homeowners who want to enhance their patio or garden space. If you appreciate durable furniture that combines classic aesthetics with modern comfort, this lounge chair is designed for you.
@@ -48,10 +48,10 @@ The **Signature Design by Ashley Clare View Lounge Chair** is built using premiu
 
 With dimensions thoughtfully crafted to fit comfortably in smaller patios or larger garden layouts, this chair offers versatility in placement. The lightweight yet robust construction allows users to easily reposition the chair as needed, while the reputable **Ashley Furniture** manufacturing ensures quality and reliability. Overall, this lounge chair combines functionality with an elegant design to elevate your outdoor living experience.
 
-## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table** with Outlets and USB Ports is perfect for homeowners and apartment dwellers who want a stylish yet functional piece of furniture. Ideal for those who appreciate **farmhouse-style décor** and need convenient charging solutions for their electronic devices, this end table blends classic charm with modern utility. If you are looking to enhance your living room or bedroom with a compact table that offers both storage and power access, this item is an excellent choice.
@@ -74,10 +74,10 @@ The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table** feat
 
 Constructed with quality materials by **Ashley Furniture Industries**, the table showcases an elegant **whitewash finish** that enhances its farmhouse aesthetic. Despite its compact size, it offers a stable surface for lamps, books, or decorative accents. Its dimensions and weight are optimized to ensure stability without overwhelming small spaces, making it a practical and attractive choice for various interior settings.
 
-## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Lonoke Contemporary Sofa** in **Beige** is ideal for individuals seeking a stylish yet comfortable centerpiece for their **living room**. Perfect for those who appreciate modern design combined with practical functionality, this sofa suits homeowners or renters wanting to elevate their space with a versatile and durable seating option. If you value both aesthetics and comfort in your furniture, this sofa is an excellent choice.
@@ -100,10 +100,10 @@ The **Signature Design by Ashley Lonoke Contemporary Sofa** boasts a sleek and m
 
 Additionally, the sofa is built with durability in mind, combining sturdy construction and quality materials from the reputable **Ashley Furniture Industries**. This means users can enjoy lasting comfort and style without worrying about premature wear. The design balances form and function, making it both a practical and elegant addition to your home.
 
-## <a href="https://www.amazon.com/dp/B07LBN8HNM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone Round End Table</a>
+## <a href="https://www.amazon.com/dp/B07LBN8HNM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone Round End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBN8HNM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone Round End Table, Chipped White" src="https://m.media-amazon.com/images/I/41Sp8og5lsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBN8HNM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone Round End Table, Chipped White" src="https://m.media-amazon.com/images/I/41Sp8og5lsL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Two Tone Round End Table** in **Chipped White** is ideal for homeowners and interior enthusiasts who appreciate a blend of rustic charm and functional design. Perfect for those looking to enhance their living spaces with a piece that offers both style and practicality, this end table suits anyone wanting to add a cozy, vintage touch to their home décor.
@@ -126,10 +126,10 @@ Crafted by **Ashley Furniture Industries**, this round end table features a **tw
 
 The table’s balanced height of **26 inches** makes it ideal for use next to sofas or chairs, providing both convenience and style. Its lightweight structure allows for easy relocation as needed, while the charming **chipped white finish** adds a cozy, lived-in feel to any room. Overall, it’s a practical and attractive choice for those seeking to infuse their homes with a touch of timeless elegance.
 
-## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets & USB Ports** is ideal for individuals seeking a stylish yet functional piece to complement their living space. Perfect for those who appreciate **classic French country design** blended with modern convenience, this table suits homeowners who need extra surface space combined with easy access to charging ports for their devices.
@@ -152,10 +152,10 @@ The **Signature Design by Ashley Realyn Chair Side End Table** offers a perfect 
 
 Crafted by **Ashley Furniture**, this end table boasts quality materials and solid construction, ensuring it remains a dependable piece for years. The **antique white finish** complements various interior styles, and the sturdy build supports lamps, books, or decorative items. Overall, this multifunctional table enhances both the aesthetic and usability of your space, making it a smart investment for anyone looking to combine elegance with everyday functionality.
 
-## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Karinne Coastal Sofa** with **Non-skid Legs** in **White** is ideal for individuals seeking a stylish and comfortable seating option that complements coastal or modern interiors. Perfect for homeowners or renters who appreciate durable furniture with a clean, elegant aesthetic, this sofa suits living rooms, lounges, or open-concept spaces where both form and function matter.
@@ -177,10 +177,10 @@ The **Signature Design by Ashley Karinne Coastal Sofa** is thoughtfully designed
 
 Beyond aesthetics, the sofa’s solid construction by **Ashley Furniture Industries** guarantees durability and long-lasting comfort. Its height and depth provide ergonomic support for lounging, while the sturdy frame supports everyday use. Whether you’re looking to refresh your living area or add a centerpiece to your coastal-themed home, this sofa balances style, function, and quality to meet your needs.
 
-## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
+## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Altari Modern Sofa** with 2 Accent Pillows in **Light Gray** is ideal for individuals or families looking to enhance their living space with a stylish yet comfortable seating option. Perfect for those who appreciate modern design and want a versatile sofa that complements various interior styles, this sofa is suitable for apartment dwellers, homeowners, and anyone seeking a durable and elegant furniture piece.
@@ -203,10 +203,10 @@ The **Signature Design by Ashley Altari Modern Sofa** offers a contemporary look
 
 Beyond aesthetics, this sofa is thoughtfully designed with user comfort and durability in mind. The generous length and supportive cushioning provide ample room for multiple people, while the sturdy build from a trusted manufacturer like **Ashley Furniture Industries** ensures it will withstand everyday use. This makes it an excellent investment for those seeking both form and function in their home furniture.
 
-## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn Casual Cottage Coffee Table** is ideal for homeowners looking to add a blend of rustic charm and functional elegance to their living spaces. If you appreciate a cozy, cottage-style aesthetic with practical storage options, this coffee table is perfect for you. It suits those who want a durable piece that complements both traditional and casual décor while providing ample surface and storage space.
@@ -229,10 +229,10 @@ The **Signature Design by Ashley Realyn Casual Cottage Coffee Table** showcases 
 
 Crafted by **Ashley Furniture**, this coffee table offers a perfect balance of style and practicality. The cottage-inspired look adds character without overwhelming your existing décor, while the solid build ensures longevity. Whether placed in a casual family room or a cozy cottage setting, this coffee table is a versatile piece that enhances both functionality and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
+## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Semi-Circle Console Table** in **Whitewash** is ideal for homeowners and interior enthusiasts who appreciate a blend of rustic charm and functional elegance. Perfect for those looking to add a stylish yet practical accent piece to entryways, living rooms, or hallways, this table suits individuals who favor classic French country décor with modern versatility.
@@ -254,10 +254,10 @@ The **Realyn Console Table** features a distinctive semi-circle shape that not o
 
 Beyond aesthetics, the table offers practical benefits such as a generous surface area for displaying decorative items, lamps, or essentials like keys and mail. Its compact size makes it suitable for narrow spaces without compromising style. Whether used as a statement piece or functional furniture, the **Realyn French Country Console Table** enhances both the visual and practical aspects of your home environment.
 
-## <a href="https://www.amazon.com/dp/B07KGP75LD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Upholstered Tufted Accent Bench</a>
+## <a href="https://www.amazon.com/dp/B07KGP75LD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Upholstered Tufted Accent Bench</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGP75LD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Upholstered Tufted Accent Bench, Antique White" src="https://m.media-amazon.com/images/I/31IUOhrJ6UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGP75LD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Upholstered Tufted Accent Bench, Antique White" src="https://m.media-amazon.com/images/I/31IUOhrJ6UL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Upholstered Tufted Accent Bench** in **Antique White** is an ideal choice for individuals seeking a stylish yet functional seating option that complements rustic or vintage-inspired home décor. This bench is perfect for those who appreciate a blend of classic French country design with modern comfort, making it suitable for entryways, bedrooms, or living rooms. If you want to enhance your space with a charming accent piece that offers both elegance and practicality, this bench is tailored for you.

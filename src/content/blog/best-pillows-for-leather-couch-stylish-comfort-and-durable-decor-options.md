@@ -23,10 +23,10 @@ Sizes like 18x18 inches or lumbar shapes suit various couch designs. Pillow inse
 
 
 
-## <a href="https://www.amazon.com/dp/B0B6ZZGSL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fancy Homi Brown Boho Lumbar Faux Leather Decorative Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0B6ZZGSL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fancy Homi Brown Boho Lumbar Faux Leather Decorative Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6ZZGSL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fancy Homi 2 Packs Brown Boho Lumbar Faux Leather Decorative Throw Pillow Covers 12x20 Inch for Living Room Couch Bed Sofa, Hand Stitched Rectangle Cushion Case, Rustic Modern Farmhouse Home Decor" src="https://m.media-amazon.com/images/I/513h0SVRcPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6ZZGSL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fancy Homi 2 Packs Brown Boho Lumbar Faux Leather Decorative Throw Pillow Covers 12x20 Inch for Living Room Couch Bed Sofa, Hand Stitched Rectangle Cushion Case, Rustic Modern Farmhouse Home Decor" src="https://m.media-amazon.com/images/I/513h0SVRcPL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate a blend of rustic charm and modern farmhouse aesthetics, the **Fancy Homi 2 Packs Brown Boho Lumbar Faux Leather Decorative Throw Pillow Covers** are perfect for anyone looking to enhance their living room, couch, bed, or sofa with subtle yet stylish accents. If you want to add a cozy and handcrafted touch to your home decor, these **hand-stitched rectangle cushion cases** in a warm **brown** hue are an excellent choice.
@@ -48,10 +48,10 @@ The **Fancy Homi Brown Boho Lumbar Pillow Covers** are designed to deliver both 
 
 With dimensions of **12x20 inches**, these pillow covers are perfectly sized to provide lumbar support while adding decorative flair. Their rich brown color and rustic modern farmhouse vibe make them versatile enough to blend with a wide range of furniture styles, from minimalist to eclectic. Overall, these covers offer an effortless way to refresh your home decor with quality and style.
 
-## <a href="https://www.amazon.com/dp/B08214LJHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homfiner Faux Leather Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B08214LJHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homfiner Faux Leather Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B08214LJHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMFINER Faux Leather Throw Pillow Covers, 18 x 18 inch Set of 2 Thick Cognac Brown Modern Solid Decorative Square Bedroom Living Room Cushion Cases for Couch Bed Sofa" src="https://m.media-amazon.com/images/I/41MHn0R4VkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08214LJHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMFINER Faux Leather Throw Pillow Covers, 18 x 18 inch Set of 2 Thick Cognac Brown Modern Solid Decorative Square Bedroom Living Room Cushion Cases for Couch Bed Sofa" src="https://m.media-amazon.com/images/I/41MHn0R4VkL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to add a touch of elegance and modern style to their living space, the **HOMFINER Faux Leather Throw Pillow Covers** are perfect for homeowners and renters who want to effortlessly enhance their **couch, bed, or sofa**. These **18 x 18 inch** cushion cases suit anyone seeking durable, stylish, and easy-to-maintain decorative pillows in a warm **cognac brown** shade.
@@ -74,10 +74,10 @@ The **HOMFINER Faux Leather Throw Pillow Covers** feature a thick, high-quality 
 
 Beyond aesthetics, these pillow covers are designed for convenience and longevity. The faux leather surface is easy to wipe clean, making it perfect for households with kids or pets. Their sturdy construction ensures they maintain shape and appearance over time, helping users keep their living spaces looking fresh and inviting without frequent replacements.
 
-## <a href="https://www.amazon.com/dp/B093S37672?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tosewever Faux Leather Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B093S37672?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tosewever Faux Leather Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B093S37672?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 18")"="" alt="Tosewever Faux Leather Throw Pillow Covers, 18 x 18 inch Set of 2 Luxury Cognac Brown Modern Pillowcases Solid Decorative Square Cushion Cases for Bedroom Living Room Couch Bed Sofa (Brown, 18" src="https://m.media-amazon.com/images/I/41GrO11-T+S._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B093S37672?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 18")"="" alt="Tosewever Faux Leather Throw Pillow Covers, 18 x 18 inch Set of 2 Luxury Cognac Brown Modern Pillowcases Solid Decorative Square Cushion Cases for Bedroom Living Room Couch Bed Sofa (Brown, 18" src="https://m.media-amazon.com/images/I/41GrO11-T+S._SL500_.jpg" x=""/></a>
 
 
 The **Tosewever Faux Leather Throw Pillow Covers** are perfect for individuals looking to elevate the style and comfort of their living spaces. Ideal customers include those who want to add a touch of luxury and modern design to their **bedroom, living room, couch, bed, or sofa** with durable and attractive decorative accessories. These pillow covers suit anyone seeking a sophisticated yet practical way to refresh their home décor.
@@ -99,10 +99,10 @@ Crafted by **Tosewever**, these pillow covers combine style and functionality, b
 
 Beyond aesthetics, these **modern pillowcases** bring benefits such as easy maintenance—simply wipe clean to remove spills or dust. The faux leather surface resists stains better than traditional fabric, helping your cushions stay fresh and looking new longer. Whether placed on a cozy couch or an elegant bedroom bed, these covers provide both comfort and a refined finish that enhances your home’s overall ambiance.
 
-## <a href="https://www.amazon.com/dp/B0B7JCSGG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Woaboy Pack Of 2 Luxury Faux Fur Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0B7JCSGG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Woaboy Pack Of 2 Luxury Faux Fur Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7JCSGG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Woaboy Pack of 2 Luxury Faux Fur Throw Pillow Covers Cowhide Decorative Soft Fluffy Plush Couch Throws Brindle Cushion Covers for Couch Living Room Sofa Bedroom 18x18 Inch" src="https://m.media-amazon.com/images/I/51mGW+8cC6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7JCSGG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Woaboy Pack of 2 Luxury Faux Fur Throw Pillow Covers Cowhide Decorative Soft Fluffy Plush Couch Throws Brindle Cushion Covers for Couch Living Room Sofa Bedroom 18x18 Inch" src="https://m.media-amazon.com/images/I/51mGW+8cC6L._SL500_.jpg"/></a>
 
 
 The **Woaboy Pack of 2 Luxury Faux Fur Throw Pillow Covers** is ideal for individuals looking to add a touch of elegance and comfort to their living spaces. Perfect for homeowners, interior decorators, or anyone wanting to enhance the look of their **couch, sofa, or bedroom** with soft and stylish accents, these covers are suited for those who appreciate both aesthetic appeal and practical comfort.
@@ -125,10 +125,10 @@ These **Woaboy faux fur pillow covers** combine style and comfort effortlessly. 
 
 Beyond looks, these covers are lightweight and easy to remove, making cleaning simple and convenient. The pack of two provides the opportunity to create a matching set or mix with other pillows for a customized look. Overall, these covers are a stylish and practical way to refresh your furniture with a luxurious touch of faux fur.
 
-## <a href="https://www.amazon.com/dp/B0BLSN6FTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Decorative Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0BLSN6FTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Decorative Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLSN6FTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE Decorative Throw Pillow Covers for Couch Bed Livingroom 18x18 Inch Set of 2 Beige Boho Accent Throw Pllows Broadside Striped Patchwork Soft Corduroy Pillowcases" src="https://m.media-amazon.com/images/I/51tnm3os1ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLSN6FTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE Decorative Throw Pillow Covers for Couch Bed Livingroom 18x18 Inch Set of 2 Beige Boho Accent Throw Pllows Broadside Striped Patchwork Soft Corduroy Pillowcases" src="https://m.media-amazon.com/images/I/51tnm3os1ZL._SL500_.jpg"/></a>
 
 
 The **MIULEE Decorative Throw Pillow Covers** are perfect for individuals looking to enhance their **living room**, **couch**, or **bed** decor with stylish and cozy accents. Ideal for those who appreciate **boho** and **patchwork** designs, these pillow covers are suited for anyone wanting to add a soft yet elegant touch to their home interiors.
@@ -151,10 +151,10 @@ The **MIULEE Decorative Throw Pillow Covers** stand out due to their unique **br
 
 With dimensions of **18x18 inches**, these pillow covers fit standard throw pillows, making them easy to integrate into existing furniture setups. The set of two allows for a balanced and harmonious look on couches, beds, or armchairs. Additionally, the covers are designed for easy maintenance, providing practicality alongside aesthetic appeal for users seeking both style and functionality.
 
-## <a href="https://www.amazon.com/dp/B08TWGK98D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cygnus Set Of 2 Farmhouse Decor Stripe Patchwork Linen Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B08TWGK98D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cygnus Set Of 2 Farmhouse Decor Stripe Patchwork Linen Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B08TWGK98D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="cygnus Set of 2 Farmhouse Decor Stripe Patchwork Linen Throw Pillow Covers,Modern Tan Faux Leather Accent Pillow Covers 18x18 inch,Black" src="https://m.media-amazon.com/images/I/51MUSWGo7-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TWGK98D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="cygnus Set of 2 Farmhouse Decor Stripe Patchwork Linen Throw Pillow Covers,Modern Tan Faux Leather Accent Pillow Covers 18x18 inch,Black" src="https://m.media-amazon.com/images/I/51MUSWGo7-L._SL500_.jpg"/></a>
 
 
 The **cygnus Set of 2 Farmhouse Decor Stripe Patchwork Linen Throw Pillow Covers** is ideal for homeowners and interior design enthusiasts looking to add a touch of rustic charm and modern elegance to their living spaces. Perfect for those who appreciate **farmhouse style** accents combined with contemporary elements, these pillow covers are suited for anyone wanting to refresh their home decor with a subtle yet stylish upgrade.
@@ -177,10 +177,10 @@ The **cygnus farmhouse throw pillow covers** feature a beautifully crafted strip
 
 Beyond aesthetics, these pillow covers are designed for practicality. The removable covers allow for easy cleaning, ensuring your pillows stay fresh and inviting. The **black color** tone complements various color schemes and decor styles, from rustic farmhouse to modern minimalist. This makes the **cygnus set** a smart and stylish choice for anyone looking to combine function and design in their home accessories.
 
-## <a href="https://www.amazon.com/dp/B0DSBSCW3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sinyasan Tobacco Boucle Throw Pillow Covers Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DSBSCW3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sinyasan Tobacco Boucle Throw Pillow Covers Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSBSCW3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2="" accents="" alt="SINYASAN 18" bed="" boho="" boucle="" cases="" couch="" covers="" cushion="" decorative="" décor"="" farmhouse="" faux="" fluffy="" for="" home="" leather="" nordic="" of="" pillow="" set="" square="" src="https://m.media-amazon.com/images/I/51AmUYp0HYL._SL500_.jpg" textured="" throw="" tobacco="" with="" x18"=""/></a>
+<a href="https://www.amazon.com/dp/B0DSBSCW3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2="" accents="" alt="SINYASAN 18" bed="" boho="" boucle="" cases="" couch="" covers="" cushion="" decorative="" décor"="" farmhouse="" faux="" fluffy="" for="" home="" leather="" nordic="" of="" pillow="" set="" square="" src="https://m.media-amazon.com/images/I/51AmUYp0HYL._SL500_.jpg" textured="" throw="" tobacco="" with="" x18"=""/></a>
 
 
 The **SINYASAN 18"x18" Tobacco Boucle Throw Pillow Covers** are ideal for homeowners and interior design enthusiasts who appreciate a blend of modern and rustic aesthetics. If you are looking to add a touch of **boho farmhouse** charm or **Nordic home décor** vibes to your living space, these **fluffy textured** pillow covers with **faux leather accents** are perfect for your couch, bed, or lounge area. They cater to those seeking stylish yet comfortable decorative cushions that enhance any room's ambiance.
@@ -202,10 +202,10 @@ The **SINYASAN Tobacco Boucle Throw Pillow Covers** boast a high-quality design 
 
 Beyond aesthetics, these covers offer durability and easy adaptability. The lightweight material allows for hassle-free removal and cleaning, while the set of two ensures you can coordinate your décor effortlessly. Whether you want to enhance a **boho** vibe or add a touch of **farmhouse charm**, these pillow covers provide both comfort and style, enriching your home environment with subtle yet impactful design elements.
 
-## <a href="https://www.amazon.com/dp/B0C4TKRP7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee 18x18 Pillow Inserts Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C4TKRP7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee 18x18 Pillow Inserts Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4TKRP7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 18x18 Pillow Inserts Set of 2 Throw Pillows 18 Inch Premium Down Alternative Pillow Inserts Decorative Pillow Stuffer for Sofa, Couch (18x18 inch, Set of 2)" src="https://m.media-amazon.com/images/I/414FuZBtoqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4TKRP7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 18x18 Pillow Inserts Set of 2 Throw Pillows 18 Inch Premium Down Alternative Pillow Inserts Decorative Pillow Stuffer for Sofa, Couch (18x18 inch, Set of 2)" src="https://m.media-amazon.com/images/I/414FuZBtoqL._SL500_.jpg"/></a>
 
 
 The **MIULEE 18x18 Pillow Inserts Set of 2** is ideal for anyone looking to enhance their living space with plush, comfortable, and durable **throw pillows**. Perfect for homeowners, interior decorators, or anyone who wants to refresh their sofa or couch with a premium **down alternative pillow insert**, this product offers an excellent balance of support and softness. If you want to easily update your decorative pillows or need reliable stuffing for custom cushions, these inserts are an excellent choice.
@@ -228,10 +228,10 @@ These **MIULEE pillow inserts** are designed to fit standard 18-inch pillow cove
 
 Additionally, the inserts’ durable construction means they will withstand frequent use on sofas, couches, or chairs, maintaining their loft and support without flattening quickly. Whether you are refreshing your living room decor or creating your own custom pillows, these inserts offer a premium stuffing solution that balances comfort, durability, and value.
 
-## <a href="https://www.amazon.com/dp/B0F62F78T9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Faux Leather Boucle Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0F62F78T9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Faux Leather Boucle Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0F62F78T9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img accents="" alt="Pack of 2 Faux Leather Boucle Throw Pillow Covers 18" bed="" black="" boho="" cases="" chic="" couch="" decor"="" decorative="" farmhouse="" for="" home="" living="" pillow="" room="" square="" src="https://m.media-amazon.com/images/I/51RhmwH50+L._SL500_.jpg" textured="" x18"=""/></a>
+<a href="https://www.amazon.com/dp/B0F62F78T9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img accents="" alt="Pack of 2 Faux Leather Boucle Throw Pillow Covers 18" bed="" black="" boho="" cases="" chic="" couch="" decor"="" decorative="" farmhouse="" for="" home="" living="" pillow="" room="" square="" src="https://m.media-amazon.com/images/I/51RhmwH50+L._SL500_.jpg" textured="" x18"=""/></a>
 
 
 Ideal for those looking to elevate their home decor with stylish and durable accents, the **Pack of 2 Faux Leather Boucle Throw Pillow Covers 18"x18"** in **Black** is perfect for homeowners, renters, and interior design enthusiasts who want to add a chic, textured touch to their living room, couch, or bed. These **decorative pillow cases** suit fans of **farmhouse** and **boho** styles seeking a sophisticated yet cozy vibe.
@@ -254,10 +254,10 @@ The **DEZENE Pack of 2 Faux Leather Boucle Throw Pillow Covers** offers a unique
 
 Designed with both aesthetics and practicality in mind, these pillow covers bring a subtle depth and elegance to your living room couch or bedroom setup. Their **textured black finish** lends itself well to contrasting with lighter tones or complementing darker furniture, making them an adaptable choice for various interior styles. Whether you want to refresh your farmhouse or boho-inspired decor, these covers offer a simple yet effective way to enhance comfort and visual appeal.
 
-## <a href="https://www.amazon.com/dp/B0D418B97Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aootoolink Faux Leather Throw Pillow Cover Set Of 2 Brown</a>
+## <a href="https://www.amazon.com/dp/B0D418B97Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aootoolink Faux Leather Throw Pillow Cover Set Of 2 Brown</a>
 
 
-<a href="https://www.amazon.com/dp/B0D418B97Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOTOOLINK Faux Leather Throw Pillow Cover 18X18 Inch Set of 2 Brown Outdoor Modern Farmhouse Solid Decorative Pillow Covers for Room Couch Living Bedroom Bed Sofa" src="https://m.media-amazon.com/images/I/41paTUvJ9oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D418B97Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOTOOLINK Faux Leather Throw Pillow Cover 18X18 Inch Set of 2 Brown Outdoor Modern Farmhouse Solid Decorative Pillow Covers for Room Couch Living Bedroom Bed Sofa" src="https://m.media-amazon.com/images/I/41paTUvJ9oL._SL500_.jpg"/></a>
 
 
 The **AOOTOOLINK Faux Leather Throw Pillow Cover 18X18 Inch Set of 2** is ideal for homeowners and interior enthusiasts looking to add a touch of modern farmhouse charm to their living spaces. Perfect for those who appreciate durable, stylish, and easy-to-maintain decorative accents, these pillow covers are suited for anyone wanting to enhance the aesthetic of their room, couch, living room, bedroom, bed, or sofa with a warm **brown outdoor modern farmhouse** vibe.

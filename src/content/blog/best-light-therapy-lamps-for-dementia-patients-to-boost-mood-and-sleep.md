@@ -20,10 +20,10 @@ Many lamps come with adjustable brightness and timers, making them easy to use a
 
 
 
-## <a href="https://www.amazon.com/dp/B0BCWCLJ4R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Suxio Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BCWCLJ4R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Suxio Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCWCLJ4R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUXIO Light Therapy Lamp - 10000 Lux Therapy Light, 3 Timing &amp; Mode Happy Lamp, Touch Control Daylight Lamps with Memory Function, Portable Light Therapy Box for Home/Office Use As Lift Mood" src="https://m.media-amazon.com/images/I/31UNxbxM+lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCWCLJ4R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUXIO Light Therapy Lamp - 10000 Lux Therapy Light, 3 Timing &amp; Mode Happy Lamp, Touch Control Daylight Lamps with Memory Function, Portable Light Therapy Box for Home/Office Use As Lift Mood" src="https://m.media-amazon.com/images/I/31UNxbxM+lL._SL500_.jpg"/></a>
 
 
 The **SUXIO Light Therapy Lamp** is ideal for individuals experiencing seasonal affective disorder (SAD), those who work in dimly lit environments, or anyone seeking a natural way to boost their mood and energy levels. If you spend long hours indoors during winter months or suffer from low energy and concentration, this **portable light therapy box** offers an effective solution to improve your well-being.
@@ -47,10 +47,10 @@ The **SUXIO Light Therapy Lamp** is designed to emit a powerful 10000 Lux of gla
 
 Compact and lightweight, this **daylight lamp** is easy to carry between home and office, allowing consistent light therapy wherever you go. Its sleek white design fits comfortably on desks or bedside tables, providing a practical and unobtrusive source of bright light. Overall, the SUXIO lamp combines convenience, effectiveness, and user-friendly features to make light therapy accessible and beneficial for improving mood and energy throughout the year.
 
-## <a href="https://www.amazon.com/dp/B08HV89TVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B08HV89TVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08HV89TVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Therapy Lamp, UV-Free 10000 Lux Therapy Light Daylight Lamp Touch Control with 3 Adjustable Brightness Levels &amp; 4 Timer Function, Large Light Surface &amp; Rotatable Stand for Home/Office" src="https://m.media-amazon.com/images/I/21SRzxheqQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HV89TVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Therapy Lamp, UV-Free 10000 Lux Therapy Light Daylight Lamp Touch Control with 3 Adjustable Brightness Levels &amp; 4 Timer Function, Large Light Surface &amp; Rotatable Stand for Home/Office" src="https://m.media-amazon.com/images/I/21SRzxheqQL._SL500_.jpg"/></a>
 
 
 The **Light Therapy Lamp** by **Erligpowht** is ideal for individuals experiencing seasonal affective disorder (SAD), those who work in dimly lit environments, or anyone seeking to boost their mood and energy levels naturally. It is perfect for home or office use, especially during the darker months when natural sunlight is limited. Users who need a convenient and effective way to simulate daylight without UV exposure will find this product particularly beneficial.
@@ -75,10 +75,10 @@ This **Light Therapy Lamp** stands out due to its combination of functionality a
 
 Its **large light surface** ensures a broad area of illumination, promoting better mood and increased alertness during use. The **rotatable stand** adds versatility, enabling users to adjust the lamp’s angle for optimal positioning whether on a desk or bedside table. Compact dimensions and lightweight design make it ideal for both home and office environments, supporting daily routines with ease and convenience.
 
-## <a href="https://www.amazon.com/dp/B08BCLLYN5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Verilux Happylight Lumi Plus</a>
+## <a href="https://www.amazon.com/dp/B08BCLLYN5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Verilux Happylight Lumi Plus</a>
 
 
-<a href="https://www.amazon.com/dp/B08BCLLYN5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Verilux HappyLight Lumi Plus - Light Therapy Lamp with 10,000 Lux, UV-Free, LED Bright White Light with Adjustable Brightness, Countdown Timer, &amp; Detachable Stand - Boost Mood, Sleep, and Focus" src="https://m.media-amazon.com/images/I/31lXwUZVRoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BCLLYN5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Verilux HappyLight Lumi Plus - Light Therapy Lamp with 10,000 Lux, UV-Free, LED Bright White Light with Adjustable Brightness, Countdown Timer, &amp; Detachable Stand - Boost Mood, Sleep, and Focus" src="https://m.media-amazon.com/images/I/31lXwUZVRoL._SL500_.jpg"/></a>
 
 
 The **Verilux HappyLight Lumi Plus** is ideal for individuals seeking a natural way to enhance their **mood, sleep, and focus**. This light therapy lamp is perfect for those experiencing seasonal affective disorder (SAD), jet lag, or anyone who spends long hours indoors with limited exposure to natural sunlight.
@@ -101,10 +101,10 @@ The **Verilux HappyLight Lumi Plus** stands out with its powerful **10,000 Lux**
 
 Designed with portability in mind, the detachable stand lets users easily position the lamp for optimal light exposure, whether at home, in the office, or while traveling. Its compact size and lightweight construction make it simple to integrate into any environment. Overall, the **Verilux HappyLight Lumi Plus** offers a practical and user-friendly solution for those looking to improve their mental well-being, regulate sleep patterns, and boost concentration through natural light therapy.
 
-## <a href="https://www.amazon.com/dp/B0DQWLP66H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homedics Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DQWLP66H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homedics Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQWLP66H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homedics Light Therapy Lamp,10,000 Lux, UV-Free, Full Spectrum LEDs for Improved Sleep, Boosted Mood &amp; Increased Energy, Adjustable Color Temperature, 6 Timer Settings, Compact &amp; Stylish Design" src="https://m.media-amazon.com/images/I/41oOwVxT3rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQWLP66H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homedics Light Therapy Lamp,10,000 Lux, UV-Free, Full Spectrum LEDs for Improved Sleep, Boosted Mood &amp; Increased Energy, Adjustable Color Temperature, 6 Timer Settings, Compact &amp; Stylish Design" src="https://m.media-amazon.com/images/I/41oOwVxT3rL._SL500_.jpg"/></a>
 
 
 The **HoMedics Light Therapy Lamp** is ideal for individuals seeking to improve their **sleep quality**, enhance their **mood**, and increase their **energy levels** naturally. This product is especially beneficial for those who experience seasonal affective disorder (SAD), work in low-light environments, or want to regulate their circadian rhythm without exposure to harmful UV rays. Its compact and stylish design makes it perfect for anyone looking for a convenient, effective light therapy solution at home or in the office.
@@ -129,10 +129,10 @@ The **HoMedics Light Therapy Lamp** features a powerful **10,000 Lux** output th
 
 Another advantage is the inclusion of **6 timer settings**, which adds convenience by enabling users to select the optimal duration for their light therapy sessions. The lamp’s compact size, weighing only **0.68 pounds**, along with its sleek and minimalist **white design**, ensures it can easily fit on desks, bedside tables, or other small spaces without being obtrusive. Overall, this lamp offers an effective, versatile, and stylish solution for anyone looking to improve their well-being through light therapy.
 
-## <a href="https://www.amazon.com/dp/B01IU9MMPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Circadian Optics Lumos 2.0 Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B01IU9MMPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Circadian Optics Lumos 2.0 Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B01IU9MMPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Circadian Optics Lumos 2.0 Light Therapy Lamp | As Seen On Shark Tank | 10,000 Lux Full Spectrum UV-Free Light | Boost Mood, Improve Sleep, Increase Energy &amp; Enhance Focus (Gloss White)" src="https://m.media-amazon.com/images/I/41XI3OxPh8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IU9MMPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Circadian Optics Lumos 2.0 Light Therapy Lamp | As Seen On Shark Tank | 10,000 Lux Full Spectrum UV-Free Light | Boost Mood, Improve Sleep, Increase Energy &amp; Enhance Focus (Gloss White)" src="https://m.media-amazon.com/images/I/41XI3OxPh8L._SL500_.jpg"/></a>
 
 
 The **Circadian Optics Lumos 2.0 Light Therapy Lamp** is ideal for individuals struggling with seasonal affective disorder, irregular sleep patterns, low energy levels, or those seeking to enhance their mood and focus naturally. Whether you work in dimly lit environments, experience the winter blues, or want to improve your overall well-being, this **10,000 Lux Full Spectrum UV-Free Light** offers an effective solution.
@@ -155,10 +155,10 @@ The **Circadian Optics Lumos 2.0** is thoughtfully designed to mimic natural sun
 
 Users benefit from increased alertness and improved concentration, which is especially valuable for those working remotely or in low-light conditions. Additionally, the lamp’s ability to enhance sleep patterns and elevate mood can combat the effects of seasonal depression and fatigue. Overall, the **Lumos 2.0** provides a scientifically backed way to improve energy levels and mental clarity, making it a valuable addition to anyone’s daily routine.
 
-## <a href="https://www.amazon.com/dp/B0CCDB1PTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Suxio Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCDB1PTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Suxio Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDB1PTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUXIO Light Therapy Lamp Rechargeable, 10000 Lux Sunlight Lamp, with Wake-Up Function, Daylight Memory Happy Use As Lift-Mood, Box for Home/Office, White" src="https://m.media-amazon.com/images/I/41B03jDjR4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDB1PTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUXIO Light Therapy Lamp Rechargeable, 10000 Lux Sunlight Lamp, with Wake-Up Function, Daylight Memory Happy Use As Lift-Mood, Box for Home/Office, White" src="https://m.media-amazon.com/images/I/41B03jDjR4L._SL500_.jpg"/></a>
 
 
 The **SUXIO Light Therapy Lamp Rechargeable** is ideal for individuals experiencing seasonal affective disorder (SAD), those who work in low-light environments, or anyone looking to improve their mood and energy levels naturally. It is perfect for people who want a portable, easy-to-use solution for light therapy at home or in the office.
@@ -180,10 +180,10 @@ The **SUXIO Light Therapy Lamp** boasts a bright **10000 Lux** output that mimic
 
 One of the standout features is the **wake-up function**, designed to gently stimulate your senses in the morning, promoting a natural and refreshing start to the day. The daylight memory feature remembers your last settings, saving time and ensuring a consistent light therapy experience every session. Together, these features make the SUXIO lamp a practical and effective tool for improving well-being and combating the effects of low light exposure.
 
-## <a href="https://www.amazon.com/dp/B0F9Y1VQ3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">670nm Red Light Therapy Sleep Device &amp; 10,000 Lux Sun Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F9Y1VQ3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">670nm Red Light Therapy Sleep Device &amp; 10,000 Lux Sun Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9Y1VQ3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="670nm Red Light Therapy Sleep Device &amp; 10,000 Lux Sun Lamp – Dual Function Sleep Aid and Sunlight Lamp, Red Night Light Lamp to Support Deep Relaxation and Improve Sleeping for Adult &amp; Kid Bedroom" src="https://m.media-amazon.com/images/I/31KQLiY0elL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9Y1VQ3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="670nm Red Light Therapy Sleep Device &amp; 10,000 Lux Sun Lamp – Dual Function Sleep Aid and Sunlight Lamp, Red Night Light Lamp to Support Deep Relaxation and Improve Sleeping for Adult &amp; Kid Bedroom" src="https://m.media-amazon.com/images/I/31KQLiY0elL._SL500_.jpg"/></a>
 
 
 The **670nm Red Light Therapy Sleep Device & 10,000 Lux Sun Lamp** by **EVATEALE** is ideal for individuals seeking a natural and effective solution to improve their **sleep quality** and overall well-being. Whether you are an adult or a child struggling with sleep disturbances, or someone who experiences seasonal affective disorder (SAD) due to lack of sunlight, this dual-function device is designed to support **deep relaxation** and mood enhancement in the comfort of your bedroom.
@@ -206,10 +206,10 @@ This **dual-function sleep aid and sunlight lamp** offers a unique combination o
 
 Designed with user convenience in mind, the device's compact dimensions and lightweight build make it easy to place on bedside tables or desks. Its **red night light** feature creates a soothing environment conducive to winding down before sleep. This combination of features supports both adults and children in establishing a healthy sleep routine, making it a versatile addition to any bedroom. The **EVATEALE** brand ensures reliable manufacturing standards, giving users confidence in the product’s durability and effectiveness.
 
-## <a href="https://www.amazon.com/dp/B0F5WZM8ZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geecent Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F5WZM8ZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geecent Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5WZM8ZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geecent Light Therapy Lamp 10000 Lux Happy Sun Lamp, UV-Free with 3 Color Temperatures, 4 Bright Levels &amp; Timer, Remote Control, Sunlight for Home, Office, Shift Worker" src="https://m.media-amazon.com/images/I/41kiBR2HlBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5WZM8ZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geecent Light Therapy Lamp 10000 Lux Happy Sun Lamp, UV-Free with 3 Color Temperatures, 4 Bright Levels &amp; Timer, Remote Control, Sunlight for Home, Office, Shift Worker" src="https://m.media-amazon.com/images/I/41kiBR2HlBL._SL500_.jpg"/></a>
 
 
 The **Geecent Light Therapy Lamp 10000 Lux Happy Sun Lamp** is ideal for individuals seeking a reliable and effective way to combat seasonal affective disorder (SAD), improve mood, or boost energy levels. This device is perfect for **shift workers**, people working from home or office environments with limited natural sunlight, and anyone looking to enhance their overall well-being through light therapy.
@@ -232,10 +232,10 @@ The **Geecent Light Therapy Lamp** features a powerful 10000 Lux brightness that
 
 In addition, the inclusion of a timer and remote control adds convenience and ease of use, enabling users to set their desired session length and adjust settings without interrupting their activities. The lamp’s compact and sleek design makes it suitable for both home and office use, providing an accessible solution for those who need to regulate their exposure to natural light, especially during darker months or irregular work shifts.
 
-## <a href="https://www.amazon.com/dp/B0BJL2G85Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BJL2G85Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJL2G85Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Therapy Lamp 10000 Lux, Happy Sun Lamp UV-Free with 3 Color Temperatures, Adjustable Brightness, Timer &amp; Memory Function, Bright Sunlight Lamps, Full Spectrum Light Perfect for Home, Office" src="https://m.media-amazon.com/images/I/31wmTLmGZ8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJL2G85Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Therapy Lamp 10000 Lux, Happy Sun Lamp UV-Free with 3 Color Temperatures, Adjustable Brightness, Timer &amp; Memory Function, Bright Sunlight Lamps, Full Spectrum Light Perfect for Home, Office" src="https://m.media-amazon.com/images/I/31wmTLmGZ8L._SL500_.jpg"/></a>
 
 
 The **Light Therapy Lamp 10000 Lux** by **VUSIHOO** is ideal for individuals experiencing seasonal affective disorder (SAD), those who work in low-light environments, or anyone seeking to enhance their mood and energy through natural light therapy. It is perfect for home or office use, especially during darker months or in spaces lacking sufficient sunlight.
@@ -259,10 +259,10 @@ This **Light Therapy Lamp** boasts a powerful **10000 Lux** light output, which 
 
 Additionally, the **timer and memory function** add to the lamp's user-friendly features, allowing you to set your preferred session duration and ensuring the lamp remembers your last settings. This makes daily use hassle-free and consistent. Its sleek and compact design fits seamlessly into any workspace or living area, making it a practical solution for boosting mood, improving focus, and combating the effects of insufficient sunlight.
 
-## <a href="https://www.amazon.com/dp/B0F88GVXVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vusihoo Light Therapy Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F88GVXVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vusihoo Light Therapy Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F88GVXVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VUSIHOO Light Therapy Lamp 10,000 Lux Happy Sunlight Lamps UV-Free with 3 Color Temperatures, Adjustable Brightness,Timer &amp; Memory Function, Sun Lamp, Full Spectrum Light for Home, Office" src="https://m.media-amazon.com/images/I/31MCx1lS1FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F88GVXVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VUSIHOO Light Therapy Lamp 10,000 Lux Happy Sunlight Lamps UV-Free with 3 Color Temperatures, Adjustable Brightness,Timer &amp; Memory Function, Sun Lamp, Full Spectrum Light for Home, Office" src="https://m.media-amazon.com/images/I/31MCx1lS1FL._SL500_.jpg"/></a>
 
 
 The **VUSIHOO Light Therapy Lamp 10,000 Lux** is ideal for individuals experiencing seasonal affective disorder (SAD), those working in low-light environments, or anyone seeking to improve mood and energy levels through natural light exposure. This lamp is perfect for home or office use, especially during the darker months when sunlight is limited.

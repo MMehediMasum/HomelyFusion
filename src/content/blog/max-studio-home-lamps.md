@@ -24,10 +24,10 @@ Their soft, warm light creates a cozy atmosphere, perfect for relaxing or workin
 
 
 
-## <a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oyears 3-way Dimmable 22'' Usb A+c Touch Control Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oyears 3-way Dimmable 22'' Usb A+c Touch Control Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2 with Nightlight for Living Room Bedroom Farmhouse Bedside Nightstand Lamps (Bulb Included)" src="https://m.media-amazon.com/images/I/51RHVHpkHiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2 with Nightlight for Living Room Bedroom Farmhouse Bedside Nightstand Lamps (Bulb Included)" src="https://m.media-amazon.com/images/I/51RHVHpkHiL._SL500_.jpg"/></a>
 
 
 The **OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2** is ideal for individuals seeking versatile and stylish lighting solutions for their **living room**, **bedroom**, or **bedside nightstand**. This set is perfect for those who value both functionality and aesthetic appeal, especially in farmhouse or modern décor settings. It suits users who want adjustable brightness options, easy touch controls, and convenient USB charging ports integrated into their lighting fixtures.
@@ -51,10 +51,10 @@ The **OYEARS table lamp set** features a convenient **3-way dimmable touch contr
 
 Designed with a sleek **wash white finish** and measuring 22 inches tall, these lamps fit comfortably on nightstands or desks without overwhelming the space. The set of two offers symmetrical lighting, enhancing room aesthetics. The fact that the **bulb is included** means users can start using the lamps immediately without extra purchases, adding to the value and ease of setup.
 
-## <a href="https://www.amazon.com/dp/B083YT69MP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Addlon Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B083YT69MP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Addlon Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B083YT69MP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="addlon Floor Lamp for Living Room with 3 Color Temperatures, Standing lamp with Linen lampshade for Bedroom, Office, Lamps with 9W LED Bulb Included - Black with Beige Lampshade" src="https://m.media-amazon.com/images/I/41KfqJsgy7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083YT69MP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="addlon Floor Lamp for Living Room with 3 Color Temperatures, Standing lamp with Linen lampshade for Bedroom, Office, Lamps with 9W LED Bulb Included - Black with Beige Lampshade" src="https://m.media-amazon.com/images/I/41KfqJsgy7L._SL500_.jpg"/></a>
 
 
 The **addlon Floor Lamp for Living Room** is perfect for individuals seeking a versatile and stylish lighting solution for their **bedroom**, **office**, or living area. Ideal for those who value adjustable lighting options, this lamp caters to users who want both functionality and aesthetic appeal in one elegant piece.
@@ -76,10 +76,10 @@ The **addlon Floor Lamp** stands out with its adjustable **3 color temperature s
 
 Crafted with a chic **linen lampshade** in beige, this lamp effortlessly blends with diverse décor styles, adding warmth and texture to any room. Its **black frame** offers a modern touch while maintaining robustness for long-term use. With dimensions of **62.2 inches in height** and a balanced width, it is designed to provide ample lighting coverage without overpowering the space.
 
-## <a href="https://www.amazon.com/dp/B0C7KZVNL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxax Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C7KZVNL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxax Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7KZVNL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Maxax Table Lamps Set of 2 for Living Room, Buffet Lamps Black Nightstand Lamps with Fabric Shade 26" bedroom,="" bedside="" desk="" for="" kids="" lamps="" living="" office,="" room"="" room,="" src="https://m.media-amazon.com/images/I/41x+DPcv3vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7KZVNL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Maxax Table Lamps Set of 2 for Living Room, Buffet Lamps Black Nightstand Lamps with Fabric Shade 26" bedroom,="" bedside="" desk="" for="" kids="" lamps="" living="" office,="" room"="" room,="" src="https://m.media-amazon.com/images/I/41x+DPcv3vL._SL500_.jpg"/></a>
 
 
 The **Maxax Table Lamps Set of 2** is ideal for individuals seeking elegant and functional lighting solutions for their **living room**, **bedroom**, or **office**. Perfect for those who appreciate a blend of modern design and practicality, these lamps are especially suited for people looking to enhance their space with stylish yet versatile lighting that complements various décor styles. Whether you need ambient light for relaxing evenings or task lighting for reading and working, this set caters to diverse needs.
@@ -102,10 +102,10 @@ The **Maxax Table Lamps Set** offers a perfect combination of style and function
 
 Designed by **4ModernHome**, the lamps boast a sturdy yet lightweight construction that ensures durability while allowing for easy relocation as needed. The dual-lamp set is especially beneficial for symmetrical room setups, providing balanced illumination and enhancing the overall aesthetic. Whether used in a **kids room** for soft night lighting or in an **office** to brighten workspaces, these lamps bring both function and flair to any environment.
 
-## <a href="https://www.amazon.com/dp/B0CQK5QV1N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weiters 29'' Tall Farmhouse Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CQK5QV1N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weiters 29'' Tall Farmhouse Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQK5QV1N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEITERS 29'' Tall Farmhouse Table Lamps Set of 2, Boho Table Lamp for Living Room with USB C+A, Bedside Lamp with Nightlight for Bedroom, Hollow Out Resin Lamp Nightstand Lamp (Bulbs Included)" src="https://m.media-amazon.com/images/I/51RO98DJEnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQK5QV1N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEITERS 29'' Tall Farmhouse Table Lamps Set of 2, Boho Table Lamp for Living Room with USB C+A, Bedside Lamp with Nightlight for Bedroom, Hollow Out Resin Lamp Nightstand Lamp (Bulbs Included)" src="https://m.media-amazon.com/images/I/51RO98DJEnL._SL500_.jpg"/></a>
 
 
 The **WEITERS 29'' Tall Farmhouse Table Lamps Set of 2** is perfect for individuals seeking a blend of rustic charm and modern functionality in their home decor. Ideal customers include those who want to enhance their living room or bedroom ambiance with stylish **boho table lamps** that also offer practical features like **USB C+A ports** for convenient device charging. This set is especially suitable for people who appreciate unique designs, such as the **hollow out resin lamp**, and desire a bedside lamp with a gentle **nightlight** option.
@@ -129,10 +129,10 @@ The **WEITERS farmhouse table lamps** showcase a thoughtfully designed structure
 
 One of the standout features is the integration of **USB C+A ports**, allowing users to conveniently charge their devices without cluttering the bedside or living room tables with extra adapters. Additionally, the built-in **nightlight** offers soft illumination that enhances relaxation without disturbing sleep. Together, these elements make the set not just decorative but highly functional for everyday living.
 
-## <a href="https://www.amazon.com/dp/B0CL8MGY6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zecoxol Boho Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CL8MGY6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zecoxol Boho Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL8MGY6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZECOXOL Boho Floor Lamp for Living Room Bedroom-3 Light Dimmable Floor Lamp with Three Led Bulb, Rustic Tall Lamp Black Standing Lamp Tree Floor Lamps for Living Room Bedroom,Office,Corner" src="https://m.media-amazon.com/images/I/51TmEU5pFGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CL8MGY6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZECOXOL Boho Floor Lamp for Living Room Bedroom-3 Light Dimmable Floor Lamp with Three Led Bulb, Rustic Tall Lamp Black Standing Lamp Tree Floor Lamps for Living Room Bedroom,Office,Corner" src="https://m.media-amazon.com/images/I/51TmEU5pFGL._SL500_.jpg"/></a>
 
 
 The **ZECOXOL Boho Floor Lamp** is ideal for individuals looking to enhance their living spaces with a stylish yet functional lighting solution. Whether you want to brighten up your **living room**, **bedroom**, **office**, or a cozy corner, this lamp suits those who appreciate **rustic** and **boho**-style décor combined with modern lighting technology.
@@ -155,10 +155,10 @@ The **ZECOXOL Boho Floor Lamp** features a **tall and slender design** with a **
 
 Designed by **ELY201**, this lamp combines both style and functionality. The **dimmable feature** allows users to easily control the light intensity, enhancing comfort and versatility. Its robust build and sizeable dimensions ensure it stands firmly, making it suitable for multiple settings such as living rooms, bedrooms, offices, or corners that need focused lighting. Overall, this lamp is a practical and elegant lighting solution for those who value both aesthetics and performance.
 
-## <a href="https://www.amazon.com/dp/B0D83NJGCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luvkczc 71" Arc Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0D83NJGCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luvkczc 71" Arc Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0D83NJGCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3="" 9w="" adjustable="" alt="Luvkczc 71" arc="" arched="" bedroom,="" bulb="" color="" floor="" foot="" for="" head,="" included"="" lamp="" lamps="" light="" living="" office,="" pole="" reading="" room,="" src="https://m.media-amazon.com/images/I/411gJMM1-+L._SL500_.jpg" standing="" switch,="" tall="" temperatures="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D83NJGCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3="" 9w="" adjustable="" alt="Luvkczc 71" arc="" arched="" bedroom,="" bulb="" color="" floor="" foot="" for="" head,="" included"="" lamp="" lamps="" light="" living="" office,="" pole="" reading="" room,="" src="https://m.media-amazon.com/images/I/411gJMM1-+L._SL500_.jpg" standing="" switch,="" tall="" temperatures="" with=""/></a>
 
 
 The **Luvkczc 71" Arc Floor Lamp** is an excellent choice for individuals looking to enhance their living room, bedroom, or office space with stylish and functional lighting. Ideal for those who appreciate modern design combined with versatility, this lamp is perfect for readers, remote workers, or anyone needing adjustable, focused light without sacrificing aesthetic appeal.
@@ -180,10 +180,10 @@ The **Luvkczc 71" Arc Floor Lamp** boasts a tall pole and an arched design that 
 
 Additionally, the lamp’s foot switch enhances usability by allowing easy on/off control without bending down, which is especially beneficial for people with mobility concerns or busy hands. The fabric lampshade in black and beige adds a sophisticated look that fits seamlessly into various decor styles, making it not just a functional piece but also a stylish addition to your living space.
 
-## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Rustic Farmhouse Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Rustic Farmhouse Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
 
 
 The **Nourison Home 23" Greyish Brown Earth Tone Rustic Farmhouse Ceramic Table Lamp** is ideal for individuals seeking to enhance their **bedroom**, **living room**, **dining area**, or **office** with a stylish yet functional lighting solution. Perfect for those who appreciate **rustic farmhouse decor** combined with modern utility, this lamp suits homeowners, interior decorators, and anyone looking to add a warm, inviting ambiance to their space.
@@ -206,10 +206,10 @@ The **Nourison Home Rustic Farmhouse Ceramic Table Lamp** stands out with its be
 
 This lamp's rustic farmhouse aesthetic blends seamlessly with natural and vintage-inspired interiors, adding a touch of charm and sophistication. Its lightweight yet sturdy construction ensures durability while enabling easy relocation as needed. Whether used to create a calming atmosphere in a bedroom or as an elegant accent in an office, this lamp offers users a perfect combination of decorative appeal and practical lighting.
 
-## <a href="https://www.amazon.com/dp/B0D47BWXF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 26" Modern Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D47BWXF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 26" Modern Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D47BWXF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (1="" alt="PORTRES 26" bedroom="" bedside="" ceramic="" decor="" end="" farmhouse="" for="" home="" lamp="" lamps="" living="" modern="" nightstand="" pack)"="" room="" src="https://m.media-amazon.com/images/I/418dqoYIMrL._SL500_.jpg" table=""/></a>
+<a href="https://www.amazon.com/dp/B0D47BWXF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (1="" alt="PORTRES 26" bedroom="" bedside="" ceramic="" decor="" end="" farmhouse="" for="" home="" lamp="" lamps="" living="" modern="" nightstand="" pack)"="" room="" src="https://m.media-amazon.com/images/I/418dqoYIMrL._SL500_.jpg" table=""/></a>
 
 
 The **PORTRES 26" Modern Ceramic Table Lamp** is ideal for individuals looking to enhance their **bedroom** or **living room decor** with a stylish yet functional lighting solution. Perfect for those who appreciate a blend of **modern farmhouse style** and practicality, this lamp suits anyone wanting an elegant **bedside** or **end table lamp** that complements various interior designs.
@@ -231,10 +231,10 @@ Featuring a **modern ceramic base** with clean lines and a subtle black and whit
 
 Beyond aesthetics, this lamp offers durability and stability thanks to its quality ceramic construction. Its size and style make it versatile, suitable for use on **nightstands, end tables, or desks**. Users benefit from both form and function, enjoying enhanced lighting while elevating their room’s overall look. The PORTRES lamp is an excellent choice for those seeking a reliable, stylish lighting fixture that complements their home’s decor.
 
-## <a href="https://www.amazon.com/dp/B0DLL1MVL2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zsminghui Industrial Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DLL1MVL2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zsminghui Industrial Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLL1MVL2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZSMINGHUI Industrial Floor Lamp 68'' - 3-Light Gold Dimmable Rustic Floor Lamp with Sturdy Pole &amp; Heavy Base, 800 Lumens LED Bulbs Lamp for Living Room, Bedroom, Office Decor" src="https://m.media-amazon.com/images/I/41GUTrX53CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLL1MVL2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZSMINGHUI Industrial Floor Lamp 68'' - 3-Light Gold Dimmable Rustic Floor Lamp with Sturdy Pole &amp; Heavy Base, 800 Lumens LED Bulbs Lamp for Living Room, Bedroom, Office Decor" src="https://m.media-amazon.com/images/I/41GUTrX53CL._SL500_.jpg"/></a>
 
 
 The **ZSMINGHUI Industrial Floor Lamp 68''** is perfect for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, or **office**. Ideal customers include those who appreciate **rustic decor** with a modern twist and need adjustable lighting to create the perfect ambiance for reading, working, or relaxing.
@@ -257,10 +257,10 @@ The **ZSMINGHUI Industrial Floor Lamp** features a **three-light setup** with di
 
 With its stylish **gold rustic finish**, this floor lamp serves as both a functional light source and a decorative statement piece. Its sleek dimensions make it versatile enough to complement various room sizes without overwhelming the space. Whether placed beside a reading chair, in a bedroom corner, or near a desk, the lamp enhances ambiance and improves lighting quality, contributing to a comfortable and inviting atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0DDGJVVZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxax 24" Rustic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DDGJVVZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxax 24" Rustic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDGJVVZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3-way="" alt="Maxax 24" bedroom="" bedside="" brown="" charging="" dimmable="" farmhouse="" for="" lamp="" large="" living="" nightstand"="" port,="" room,="" rustic="" shade="" src="https://m.media-amazon.com/images/I/414wCtb42pL._SL500_.jpg" table="" usb="" vintage="" white="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DDGJVVZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3-way="" alt="Maxax 24" bedroom="" bedside="" brown="" charging="" dimmable="" farmhouse="" for="" lamp="" large="" living="" nightstand"="" port,="" room,="" rustic="" shade="" src="https://m.media-amazon.com/images/I/414wCtb42pL._SL500_.jpg" table="" usb="" vintage="" white="" with=""/></a>
 
 
 The **Maxax 24" Rustic Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room** or **bedroom**. Perfect for those who appreciate a **farmhouse** aesthetic combined with modern convenience, this lamp suits homeowners looking to enhance their space with a vintage touch while enjoying practical features like a **USB charging port** and **3-way dimmable** lighting. If you want a versatile lamp that complements both rustic and contemporary decor, this item is an excellent choice.

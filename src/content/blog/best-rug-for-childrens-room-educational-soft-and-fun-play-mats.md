@@ -23,10 +23,10 @@ Some rugs come with non-slip backing for safety during active play. Machine wash
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Kids Educational Rug</a>
+## <a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Kids Educational Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Kids Educational Rug, Kids Collection Area Rug for Learning Alphabet, Numbers, Colors, Season and Animal Words, Playmat for Classroom Playroom, 4x6 Feet" src="https://m.media-amazon.com/images/I/618slIavJLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Kids Educational Rug, Kids Collection Area Rug for Learning Alphabet, Numbers, Colors, Season and Animal Words, Playmat for Classroom Playroom, 4x6 Feet" src="https://m.media-amazon.com/images/I/618slIavJLL._SL500_.jpg"/></a>
 
 
 The **HOMORE Kids Educational Rug** is perfect for parents and educators seeking an engaging and interactive learning tool for young children. Ideal for toddlers and preschoolers, this vibrant **playmat** combines fun with education, making it an excellent addition to any **classroom** or **playroom**. It is designed to help kids learn the **alphabet, numbers, colors, seasons,** and **animal words** in a visually stimulating and hands-on way.
@@ -48,10 +48,10 @@ The **HOMORE Kids Educational Rug** is thoughtfully designed to combine educatio
 
 Beyond its educational benefits, this **area rug** is crafted to be durable and easy to clean, which is essential for busy classrooms and active playrooms. The lightweight design allows caregivers and teachers to relocate it effortlessly, making it versatile for various settings. Overall, the HOMORE Kids Educational Rug is a valuable investment for anyone looking to create an interactive and stimulating learning space for children.
 
-## <a href="https://www.amazon.com/dp/B0CGVRLR97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nursery Rug For Baby Girl</a>
+## <a href="https://www.amazon.com/dp/B0CGVRLR97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nursery Rug For Baby Girl</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGVRLR97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nursery Rug for Baby Girl,Neutral Blush Pink Boho Cute Floral Foldable Machine Washable Soft Faux Wool Carpet Area Rugs for Living Room Bedroom Dorm Kids Playroom,5x7" src="https://m.media-amazon.com/images/I/51EMiA4dkJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGVRLR97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nursery Rug for Baby Girl,Neutral Blush Pink Boho Cute Floral Foldable Machine Washable Soft Faux Wool Carpet Area Rugs for Living Room Bedroom Dorm Kids Playroom,5x7" src="https://m.media-amazon.com/images/I/51EMiA4dkJL._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers looking to create a cozy and stylish space for their little one, the **Nursery Rug for Baby Girl** is perfect for nurseries, playrooms, and bedrooms. Those who value both aesthetics and functionality will appreciate this **neutral blush pink boho floral rug** that adds a soft, inviting touch to any room while being practical and easy to maintain.
@@ -73,10 +73,10 @@ The **BILEEHOME Nursery Rug** is crafted from soft faux wool, ensuring a plush s
 
 Featuring a **neutral blush pink boho floral design**, this rug seamlessly blends with various nursery themes, adding a charming and soothing ambiance to the room. Its lightweight construction makes it versatile for use in multiple spaces, including living rooms, bedrooms, dorms, or kids' playrooms, providing both style and comfort wherever it is placed.
 
-## <a href="https://www.amazon.com/dp/B072883CSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Carpet Playmat Rug City Life</a>
+## <a href="https://www.amazon.com/dp/B072883CSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Carpet Playmat Rug City Life</a>
 
 
-<a href="https://www.amazon.com/dp/B072883CSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Carpet Playmat Rug City Life Great for Playing with Cars and Toys - Play Learn and Have Fun Safely - Kids Baby Children Educational Road Traffic Play Mat for Bedroom Play Room Game Safe Area" src="https://m.media-amazon.com/images/I/51GpLmoKLOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072883CSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Carpet Playmat Rug City Life Great for Playing with Cars and Toys - Play Learn and Have Fun Safely - Kids Baby Children Educational Road Traffic Play Mat for Bedroom Play Room Game Safe Area" src="https://m.media-amazon.com/images/I/51GpLmoKLOL._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers looking for a safe and engaging play area, the **Kids Carpet Playmat Rug City Life** is perfect for toddlers and young children who love playing with cars and toys. This playmat is designed to foster imaginative play while providing a comfortable and educational surface, making it a great addition to bedrooms, playrooms, or any child-friendly space.
@@ -98,10 +98,10 @@ The **Kids Carpet Playmat Rug City Life** offers a thoughtfully crafted surface 
 
 Made by the trusted brand **Angels**, this playmat balances fun and functionality. Its lightweight nature allows parents to easily relocate the mat as needed, while the safe materials ensure peace of mind during playtime. Although the thin profile might require additional cushioning for extended comfort, it remains an excellent option for creating a dedicated and educational play zone for kids.
 
-## <a href="https://www.amazon.com/dp/B0C6K8X151?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">B Benron Kids Rugs For Playroom Classroom Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0C6K8X151?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">B Benron Kids Rugs For Playroom Classroom Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6K8X151?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="B BENRON Kids Rugs for Playroom Classroom Bedroom, Educational and Fun Play Mat with ABC Alphabet Animals, Learning Rug for Children Toddler Baby Girls Boys Nursery, Washable, 4x6" src="https://m.media-amazon.com/images/I/61riO8lQ4LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6K8X151?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="B BENRON Kids Rugs for Playroom Classroom Bedroom, Educational and Fun Play Mat with ABC Alphabet Animals, Learning Rug for Children Toddler Baby Girls Boys Nursery, Washable, 4x6" src="https://m.media-amazon.com/images/I/61riO8lQ4LL._SL500_.jpg"/></a>
 
 
 The **B BENRON Kids Rugs for Playroom Classroom Bedroom** is ideal for parents, educators, and caregivers looking to create an engaging and educational environment for toddlers and young children. This **colorful learning rug** is perfect for nurseries, playrooms, and classrooms where kids can enjoy interactive play while developing their knowledge of the **ABC alphabet and animals**. If you want a durable, fun, and washable mat that encourages early learning and creativity, this rug is an excellent choice.
@@ -123,10 +123,10 @@ The **B BENRON Kids Rug** offers a vibrant and interactive surface that enhances
 
 Crafted with convenience in mind, this rug is **washable** and easy to clean, which is essential for busy households and educational settings. Its lightweight yet durable construction ensures it can withstand daily use while remaining portable. Overall, the **B BENRON Kids Rugs** provides a practical and enjoyable learning environment for toddlers, babies, and young children.
 
-## <a href="https://www.amazon.com/dp/B0CHTGWHX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flagship Carpets Schoolgirl Style Pastel Rainbow Smileys Criss-cross Applesauce Educational Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CHTGWHX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flagship Carpets Schoolgirl Style Pastel Rainbow Smileys Criss-cross Applesauce Educational Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHTGWHX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 12',="" 28"="" alt="Flagship Carpets Schoolgirl Style Pastel Rainbow Smileys Criss-Cross Applesauce Educational Area Rug for Kids Room, Children's Classroom for Teaching and Playroom, 7'6" multi,="" seats="" src="https://m.media-amazon.com/images/I/513oht4ALuL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CHTGWHX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 12',="" 28"="" alt="Flagship Carpets Schoolgirl Style Pastel Rainbow Smileys Criss-Cross Applesauce Educational Area Rug for Kids Room, Children's Classroom for Teaching and Playroom, 7'6" multi,="" seats="" src="https://m.media-amazon.com/images/I/513oht4ALuL._SL500_.jpg" x=""/></a>
 
 
 The **Flagship Carpets Schoolgirl Style Pastel Rainbow Smileys Criss-Cross Applesauce Educational Area Rug** is ideal for parents, teachers, and caregivers looking to create a vibrant and engaging learning environment for young children. Perfect for **kids' rooms, classrooms, and playrooms**, this rug is designed to comfortably seat up to 28 children, making it suitable for group activities and interactive lessons. Those seeking a combination of educational functionality and cheerful aesthetics will find this rug a great addition to their space.
@@ -148,10 +148,10 @@ This **educational area rug** by Flagship Carpets features a unique pastel rainb
 
 Constructed with durable materials, the rug is lightweight and easy to maintain, ideal for busy classrooms or playrooms where frequent cleaning is necessary. Its low-profile height ensures safety by minimizing tripping hazards, while its educational design supports interactive learning methods. Whether used in a **children's classroom** or at home, this area rug fosters collaboration, comfort, and creativity among young learners.
 
-## <a href="https://www.amazon.com/dp/B0BTCQ4DQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topotdor Round Kids Play Rug Alphabet Nursery Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BTCQ4DQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topotdor Round Kids Play Rug Alphabet Nursery Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTCQ4DQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topotdor Round Kids Play Rug Alphabet Nursery Area Rug Extra Large Soft Crawling Play Mat for Children Toddlers Bedroom (47 inch, White)" src="https://m.media-amazon.com/images/I/415TxhVtqsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTCQ4DQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topotdor Round Kids Play Rug Alphabet Nursery Area Rug Extra Large Soft Crawling Play Mat for Children Toddlers Bedroom (47 inch, White)" src="https://m.media-amazon.com/images/I/415TxhVtqsL._SL500_.jpg"/></a>
 
 
 The **Topotdor Round Kids Play Rug Alphabet Nursery Area Rug** is ideal for parents and caregivers looking for a safe, soft, and educational play space for their **toddlers** and young children. Perfect for nurseries, playrooms, or bedrooms, this **extra large** rug offers a comfortable crawling surface while introducing little ones to the alphabet in a fun and engaging way.
@@ -173,10 +173,10 @@ This **Topotdor play rug** combines functionality with educational value. Its la
 
 Additionally, the neutral white tone fits seamlessly into various room styles, making it a versatile choice for any child's space. While its softness cushions little ones during play, the rug is also designed to be durable enough to withstand daily use. However, potential buyers should consider that its light color may require more frequent cleaning to maintain its pristine look. Overall, this rug is a practical and educational addition to any toddler’s environment.
 
-## <a href="https://www.amazon.com/dp/B08HCY4RYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Kids Play Rugs</a>
+## <a href="https://www.amazon.com/dp/B08HCY4RYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Kids Play Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B08HCY4RYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set - Durable Carpet Playmat Rug - City Pretend Play - Toddler Car Track Rug" src="https://m.media-amazon.com/images/I/61UaUXcpm3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HCY4RYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set - Durable Carpet Playmat Rug - City Pretend Play - Toddler Car Track Rug" src="https://m.media-amazon.com/images/I/61UaUXcpm3L._SL500_.jpg"/></a>
 
 
 The **JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set** is ideal for parents and caregivers looking to engage toddlers and young children in imaginative and interactive play. If you want a durable, colorful, and educational **carpet playmat rug** that encourages creativity and motor skills development, this product is an excellent choice. It’s perfect for families seeking a fun, safe, and easy-to-clean play area that doubles as a city-themed pretend play environment.
@@ -200,10 +200,10 @@ The **JOYIN Kids Play Rugs** feature a vibrant and detailed cityscape design tha
 
 Measuring 31.5 inches wide by 58.5 inches long, this playmat offers ample space for multiple children to play together, fostering social interaction and cooperative play. Its lightweight and portable design allow parents to easily move it from room to room or take it on trips. Overall, the **JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set** is a practical and enjoyable solution for creating a fun, educational, and stimulating play area for toddlers.
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** are ideal for anyone looking to add a touch of comfort and style to their home, especially parents of young children, college students in dorms, or individuals decorating nursery rooms. If you want a soft, cozy, and visually appealing rug that is also easy to maintain, this **machine washable shaggy rug** is perfect for you.
@@ -225,10 +225,10 @@ The **OLANLY Area Rug** boasts a plush, shaggy surface that provides a warm and 
 
 One of the standout features is its **machine washable fabric**, which simplifies upkeep and ensures that the rug stays fresh and clean, an important consideration for families with kids or pets. Additionally, its lightweight nature makes it easy to move, allowing for quick redecorating or cleaning under the rug. Overall, this rug combines style, comfort, and convenience, making it a practical addition to any home environment.
 
-## <a href="https://www.amazon.com/dp/B0C52H8G8S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chicrug Educational 4x6 Kids Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0C52H8G8S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chicrug Educational 4x6 Kids Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C52H8G8S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chicrug Educational 4x6 Kids Area Rug for Playroom, TPR Non Slip Kids Classroom Carpet Rug for Learning ABC Animal Shape Color Fruit, Washable Play Mat Rug for Children Nursery Toddler Room Decor" src="https://m.media-amazon.com/images/I/61GmAXXGKbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C52H8G8S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chicrug Educational 4x6 Kids Area Rug for Playroom, TPR Non Slip Kids Classroom Carpet Rug for Learning ABC Animal Shape Color Fruit, Washable Play Mat Rug for Children Nursery Toddler Room Decor" src="https://m.media-amazon.com/images/I/61GmAXXGKbL._SL500_.jpg"/></a>
 
 
 The **Chicrug Educational 4x6 Kids Area Rug** is ideal for parents, educators, and caregivers looking to create a fun and interactive learning environment for young children. Perfect for playrooms, classrooms, and nurseries, this rug is designed to engage toddlers and preschoolers with colorful **ABC**, **animal shapes**, and **fruit** patterns, making it an excellent choice for those who want to combine education with play.
@@ -250,10 +250,10 @@ The **Chicrug Educational Kids Area Rug** features a vibrant green background ad
 
 Another significant advantage is the rug’s **washable** nature, allowing parents and teachers to maintain a clean and hygienic space with minimal effort. This feature is essential for areas where spills and messes are common. The lightweight design also means it can be easily moved or rolled up for storage or transport, making it a versatile and practical addition to any child-focused setting. Overall, this rug combines educational value with functional design, making it a smart investment for fostering learning through play.
 
-## <a href="https://www.amazon.com/dp/B07YZ7C691?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Soft Pink Rugs For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B07YZ7C691?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra Soft Pink Rugs For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZ7C691?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ultra Soft Pink Rugs for Bedroom 4x6 Feet, Fluffy Shag Area Rugs for Living Room, Large Comfy Furry Rug for Girls Kids Baby Room Decor, Non Slip Nursery Modern Indoor Fuzzy Floor Carpet" src="https://m.media-amazon.com/images/I/41tm8ltTWTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZ7C691?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ultra Soft Pink Rugs for Bedroom 4x6 Feet, Fluffy Shag Area Rugs for Living Room, Large Comfy Furry Rug for Girls Kids Baby Room Decor, Non Slip Nursery Modern Indoor Fuzzy Floor Carpet" src="https://m.media-amazon.com/images/I/41tm8ltTWTL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to add a touch of cozy elegance to their living spaces, the **Ultra Soft Pink Rugs for Bedroom 4x6 Feet** by **ST. BRIDGE** are perfect for **girls, kids, and baby room decor**. This rug is designed for anyone who wants a **fluffy shag area rug** that brings warmth and comfort to bedrooms, nurseries, or living rooms while maintaining a stylish, modern look.

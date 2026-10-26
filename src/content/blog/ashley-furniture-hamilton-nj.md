@@ -20,10 +20,10 @@ Many products come in neutral colors like antique cream, chipped white, and brow
 
 
 
-## <a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table</a>
+## <a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table, Antique Cream" src="https://m.media-amazon.com/images/I/31pNa0l+XQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKQXH2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table, Antique Cream" src="https://m.media-amazon.com/images/I/31pNa0l+XQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Rectangular Two Tone Sofa Table** in **Antique Cream** is ideal for homeowners and interior design enthusiasts seeking a stylish yet functional accent piece. Perfect for those who appreciate **farmhouse charm** combined with modern practicality, this sofa table suits living rooms, entryways, or hallways looking to add a cozy, inviting atmosphere. If you want a compact but durable table that enhances your decor, this item is an excellent choice.
@@ -45,10 +45,10 @@ The **Signature Design by Ashley Bolanburg Farmhouse Sofa Table** features a bea
 
 Beyond its appealing design, the table’s robust build and substantial weight of **72 pounds** contribute to its overall stability, preventing wobbling or tipping. This makes it not only decorative but also highly functional. Additionally, the compact dimensions allow it to fit seamlessly in smaller living spaces without overcrowding. Whether you want to showcase family photos, add greenery, or simply create a welcoming entryway, this sofa table offers both style and utility in one elegant package.
 
-## <a href="https://www.amazon.com/dp/B07CBJT4P7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Warnerton Faux Leather Power Recliner</a>
+## <a href="https://www.amazon.com/dp/B07CBJT4P7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Warnerton Faux Leather Power Recliner</a>
 
 
-<a href="https://www.amazon.com/dp/B07CBJT4P7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Warnerton Faux Leather Power Recliner with Adjustable Headrest, Brown" src="https://m.media-amazon.com/images/I/31Cyqg6zkeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CBJT4P7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Warnerton Faux Leather Power Recliner with Adjustable Headrest, Brown" src="https://m.media-amazon.com/images/I/31Cyqg6zkeL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Warnerton Faux Leather Power Recliner with Adjustable Headrest** in **Dark Brown** is ideal for individuals seeking a combination of comfort, style, and functionality in their living space. This recliner is perfect for those who want to enhance their relaxation experience with adjustable features, making it suitable for anyone from busy professionals to seniors looking for added support and ease of use.
@@ -71,10 +71,10 @@ The **Warnerton Power Recliner** by **Signature Design by Ashley** features a sl
 
 Designed by **Ashley Furniture Industries**, this recliner balances style and practicality. Its compact size fits well in both small apartments and larger living rooms, making it a versatile choice. Moreover, the faux leather surface is easy to clean, ideal for busy households or pet owners. Overall, this recliner provides a comfortable, stylish seating option that adapts to the user’s needs, promoting restful moments and improved posture.
 
-## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
+## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser** in **Chipped White** is ideal for those seeking a blend of rustic charm and practical storage. Perfect for homeowners who appreciate **French country style** and need ample space to organize clothing and accessories, this dresser suits both master bedrooms and guest rooms. If you value a statement piece that combines functionality with a classic design, this dresser is an excellent choice.
@@ -97,10 +97,10 @@ This dresser features a **classic French country design** with a chipped white t
 
 Crafted by **Ashley Furniture**, the dresser combines style with reliability, making it a long-lasting addition to your home. The neutral cream color allows it to blend effortlessly with both modern and traditional interiors. Overall, this piece offers a harmonious balance of beauty and functionality, making it a smart investment for those looking to enhance their bedroom storage with a touch of timeless charm.
 
-## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn Casual Cottage Coffee Table** is an excellent choice for homeowners and renters looking to add a charming, rustic touch to their living space. Ideal for those who appreciate a blend of casual elegance and practicality, this coffee table fits perfectly in cozy cottages, traditional homes, or casual living rooms. If you want a functional centerpiece that also enhances your room’s aesthetic, this piece is designed with you in mind.
@@ -122,10 +122,10 @@ The **Signature Design by Ashley Realyn Casual Cottage Coffee Table** features a
 
 Designed by **Ashley Furniture**, this coffee table emphasizes both form and function. The solid build ensures long-lasting durability, while the spacious tabletop and lower shelf offer organized storage and display options. Whether you’re hosting guests or enjoying a quiet evening, this piece supports your lifestyle by providing a stable and attractive focal point in your living area.
 
-## <a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
+## <a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server** in **Chipped White** is ideal for homeowners and interior enthusiasts seeking a stylish yet functional piece to enhance their dining area. Those who appreciate a blend of rustic charm and elegant French country design will find this **whitewash buffet cabinet** a perfect addition to their home décor. It suits individuals looking for ample storage space combined with a visually appealing distressed finish that complements a variety of interior styles.
@@ -148,10 +148,10 @@ Crafted by **Signature Design by Ashley**, this buffet cabinet features a timele
 
 Beyond its charming appearance, the **Realyn buffet cabinet** is designed to enhance daily living by providing a reliable storage solution that complements your home’s ambiance. Its sturdy build and elegant design allow it to serve multiple purposes, whether as a server during meals or as a statement furniture piece. The blend of rustic and refined elements brings warmth and character to your dining space, making every meal and occasion feel more special.
 
-## <a href="https://www.amazon.com/dp/B01N5PNAWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Tripton Classic Tufted Upholstered Armless Dining Chair</a>
+## <a href="https://www.amazon.com/dp/B01N5PNAWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Tripton Classic Tufted Upholstered Armless Dining Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B01N5PNAWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2="" alt="Signature Design by Ashley Tripton Classic Tufted Upholstered 19.63" armless="" brownish="" chair,="" count,="" dining="" gray"="" src="https://m.media-amazon.com/images/I/41ChIs5la9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N5PNAWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2="" alt="Signature Design by Ashley Tripton Classic Tufted Upholstered 19.63" armless="" brownish="" chair,="" count,="" dining="" gray"="" src="https://m.media-amazon.com/images/I/41ChIs5la9L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Tripton Classic Tufted Upholstered 19.63" Armless Dining Chair** in **Brownish Gray** is ideal for individuals seeking a stylish yet comfortable seating solution for their dining area. Perfect for homeowners, apartment dwellers, or anyone looking to elevate their dining experience with a touch of classic elegance, this chair blends seamlessly with various interior styles. If you value both aesthetics and functionality in your dining furniture, this set of two chairs is an excellent choice.
@@ -174,10 +174,10 @@ Featuring a classic tufted upholstery, these chairs not only enhance the visual 
 
 Built by **Ashley Furniture**, a trusted name in home furnishings, the chairs promise durability and long-lasting use. The choice of materials and craftsmanship ensure that these chairs withstand everyday wear while maintaining their elegant appearance. Whether for daily family meals or entertaining guests, the Signature Design by Ashley Tripton chairs provide both comfort and a refined aesthetic that elevates any dining environment.
 
-## <a href="https://www.amazon.com/dp/B092KYBYFH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Greaves Modern Sectional Sofa Couch</a>
+## <a href="https://www.amazon.com/dp/B092KYBYFH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Greaves Modern Sectional Sofa Couch</a>
 
 
-<a href="https://www.amazon.com/dp/B092KYBYFH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Greaves Modern Sectional Sofa Couch with Convertible Chaise Lounge, Beige" src="https://m.media-amazon.com/images/I/31l6eltNjmS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092KYBYFH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Greaves Modern Sectional Sofa Couch with Convertible Chaise Lounge, Beige" src="https://m.media-amazon.com/images/I/31l6eltNjmS._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Greaves Modern Sectional Sofa Couch with Convertible Chaise Lounge** in **Beige** is ideal for individuals or families seeking a stylish yet functional seating solution for their living spaces. Perfect for those who value modern design and versatility, this sectional sofa is especially suited for apartment dwellers, small families, or anyone looking to maximize comfort and space without sacrificing aesthetics.
@@ -200,10 +200,10 @@ The **Signature Design by Ashley Greaves Modern Sectional Sofa Couch** features 
 
 Crafted by **Ashley Furniture Industries**, the sectional boasts sturdy construction and quality materials designed to withstand daily use. The compact dimensions make it a smart choice for those with limited space, while the plush cushions provide excellent support. Overall, this sectional sofa delivers a blend of style, comfort, and functionality, making it a valuable addition to modern homes.
 
-## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Karinne Coastal Sofa** with **Non-skid Legs** in **White** is perfect for individuals looking to enhance their living space with a stylish yet practical piece of furniture. Ideal for homeowners who appreciate coastal-inspired decor and want a comfortable, durable sofa that stays securely in place, this sofa suits families, couples, or anyone who values both aesthetics and functionality in their seating options.
@@ -226,10 +226,10 @@ The **Karinne Coastal Sofa** features a striking white finish that embodies a fr
 
 With a width of **96 inches** and a height of **39 inches**, this sofa offers generous seating without overwhelming the room. The comfortable cushioning and quality craftsmanship from **Ashley Furniture Industries** contribute to a relaxing experience, whether for lounging, entertaining guests, or family gatherings. Its coastal style and neutral color make it easy to pair with different decor themes, offering flexibility for future design changes.
 
-## <a href="https://www.amazon.com/dp/B0CHLFCM35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Cashton Casual Loveseat</a>
+## <a href="https://www.amazon.com/dp/B0CHLFCM35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Cashton Casual Loveseat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLFCM35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Loveseat for Living Room, White" src="https://m.media-amazon.com/images/I/41674emlQGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLFCM35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Loveseat for Living Room, White" src="https://m.media-amazon.com/images/I/41674emlQGL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Cashton Casual Loveseat** in **White** is ideal for individuals or families looking to enhance their **living room** with a stylish yet comfortable seating option. This loveseat suits those who appreciate modern design with a cozy feel, perfect for small spaces or as a complementary piece to larger furniture sets.
@@ -252,10 +252,10 @@ The **Signature Design by Ashley Cashton Casual Loveseat** stands out with its e
 
 Crafted by **Ashley Furniture Industries**, this loveseat combines quality materials with thoughtful design. The sturdy frame and durable upholstery ensure that it withstands everyday use. Additionally, the lightweight nature of the loveseat allows users to easily reposition it within their living space, adapting to changing needs or preferences without hassle.
 
-## <a href="https://www.amazon.com/dp/B0BKTT7925?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Cascilla Casual Sofa, Dark Gray</a>
+## <a href="https://www.amazon.com/dp/B0BKTT7925?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Cascilla Casual Sofa, Dark Gray</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKTT7925?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Cascilla Casual Sofa, Dark Gray" src="https://m.media-amazon.com/images/I/41vtT6TH7XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKTT7925?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Cascilla Casual Sofa, Dark Gray" src="https://m.media-amazon.com/images/I/41vtT6TH7XL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Cascilla Casual Sofa** in **Dark Gray** is ideal for individuals or families seeking a stylish yet comfortable centerpiece for their living room. Perfect for those who appreciate quality craftsmanship combined with a modern design, this sofa suits anyone wanting a durable and visually appealing seating option that can complement various decor styles.

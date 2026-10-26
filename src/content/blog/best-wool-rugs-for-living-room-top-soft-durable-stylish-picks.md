@@ -23,10 +23,10 @@ Some rugs are handmade, offering unique patterns and quality craftsmanship. Othe
 
 
 
-## <a href="https://www.amazon.com/dp/B073HFWKHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Area Rug 9x12 Natura Collection</a>
+## <a href="https://www.amazon.com/dp/B073HFWKHS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Area Rug 9x12 Natura Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B073HFWKHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Area Rug 9x12 - Natura Collection - Large - Ivory, Handmade Wool Blend, Textured Design, Ideal for Living Room, Bedroom, Dining Space (NAT620A)" src="https://m.media-amazon.com/images/I/51AEWMqidiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073HFWKHS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Area Rug 9x12 - Natura Collection - Large - Ivory, Handmade Wool Blend, Textured Design, Ideal for Living Room, Bedroom, Dining Space (NAT620A)" src="https://m.media-amazon.com/images/I/51AEWMqidiL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 9x12** from the **Natura Collection** is perfect for homeowners and interior enthusiasts looking to add warmth and texture to large spaces such as the **living room**, **bedroom**, or **dining area**. Ideal for those who appreciate **handmade craftsmanship** and desire a stylish yet functional piece, this rug suits individuals wanting a durable and aesthetically pleasing floor covering.
@@ -49,10 +49,10 @@ The **SAFAVIEH Natura Collection Area Rug** boasts a beautiful **handmade wool b
 
 In addition to its aesthetic appeal, the **ivory color** creates a bright, inviting atmosphere and complements a wide range of interior styles. The quality manufacturing from **Safavieh** ensures longevity and resistance to everyday wear, making it an excellent investment for those seeking both style and practicality in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 8x10 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 8x10 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 8x10 Area Rugs for Living Room,Rugs for Bedroom,Large Carpets,Ultra Soft Faux Wool Retro Dining Room Rug,Non Slip&amp;Non-Shedding Low Pile Vintage Print Rug for Home Office Decor" src="https://m.media-amazon.com/images/I/51Dh9EoKT+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 8x10 Area Rugs for Living Room,Rugs for Bedroom,Large Carpets,Ultra Soft Faux Wool Retro Dining Room Rug,Non Slip&amp;Non-Shedding Low Pile Vintage Print Rug for Home Office Decor" src="https://m.media-amazon.com/images/I/51Dh9EoKT+L._SL500_.jpg"/></a>
 
 
 The **Srugn Washable Rugs 8x10 Area Rugs** are perfect for homeowners and renters seeking a stylish yet practical solution to enhance their living spaces. Ideal for those who want a combination of comfort, durability, and easy maintenance, this rug suits individuals looking to add a touch of vintage charm to their **living room**, **bedroom**, or **dining room**. Its large size and neutral color palette make it a versatile choice for various home or office decor styles.
@@ -75,10 +75,10 @@ The **Srugn Washable Rug** stands out for its combination of functionality and a
 
 Moreover, the rug's **washable** feature is a significant advantage for busy households or offices where spills and stains are common. Its **vintage print** and neutral color scheme blend well with different decor styles, adding warmth and character without overwhelming the room. Whether placed under a dining table or as a centerpiece in the living room, this rug combines practicality with timeless design, making it a valuable addition to any home or workspace.
 
-## <a href="https://www.amazon.com/dp/B09V97SSDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Natura Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09V97SSDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Natura Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09V97SSDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Natura Collection 9' x 12' Ivory NAT450A Handmade Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51TjNgsD8HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V97SSDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Natura Collection 9' x 12' Ivory NAT450A Handmade Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51TjNgsD8HL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Natura Collection 9' x 12' Ivory NAT450A Handmade Wool Area Rug** is ideal for homeowners and interior enthusiasts looking to enhance their **living room**, **dining room**, or **bedroom** with a stylish yet durable floor covering. This rug is perfect for those who appreciate **handmade craftsmanship** and desire a natural, elegant aesthetic in a neutral **ivory** tone that complements various decor styles.
@@ -101,10 +101,10 @@ The **SAFAVIEH Natura Collection NAT450A** is crafted from 100% wool, providing 
 
 Beyond aesthetics, the wool material offers natural insulation properties, helping to maintain room temperature and provide comfort during cooler months. The **ivory color** creates a bright and airy feel, making spaces appear larger and more inviting. While the rug is substantial in weight, this adds to its stability, reducing slipping and movement on various floor types. Overall, this rug combines style, comfort, and quality, making it a valuable addition to home décor.
 
-## <a href="https://www.amazon.com/dp/B0C9J1GRC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf 8x10 Rug</a>
+## <a href="https://www.amazon.com/dp/B0C9J1GRC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf 8x10 Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9J1GRC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf 8x10 Rug Washable Boho Rug Soft Large Area Rug Non-Slip Non-Shedding Faux Wool Vintage Rug for Living Room, Farmhouse, Dining Room, Indoor, Kids Playroom (Grey)" src="https://m.media-amazon.com/images/I/51xhQ1AR6ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9J1GRC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf 8x10 Rug Washable Boho Rug Soft Large Area Rug Non-Slip Non-Shedding Faux Wool Vintage Rug for Living Room, Farmhouse, Dining Room, Indoor, Kids Playroom (Grey)" src="https://m.media-amazon.com/images/I/51xhQ1AR6ML._SL500_.jpg"/></a>
 
 
 The **Rugcomf 8x10 Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet functional floor covering. Perfect for those who appreciate **boho** and **vintage aesthetics**, this rug suits spaces like the **living room**, **dining room**, farmhouse-style interiors, and even **kids’ playrooms**. If you want a large, soft, and easy-to-maintain rug that complements various decor styles while providing comfort and safety, this rug is an excellent choice.
@@ -127,10 +127,10 @@ The **Rugcomf 8x10 Rug** features a soft, faux wool construction that provides a
 
 Additionally, the **non-slip** backing adds a layer of safety by preventing slips and falls, which is especially valuable in high-traffic areas or homes with active kids and pets. The rug’s **large size** and neutral **grey color** make it a versatile piece that can unify various room layouts and design themes, from farmhouse to modern boho. Overall, this rug balances aesthetics, comfort, and practical features to enhance any indoor space.
 
-## <a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lessymo 8 X 10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lessymo 8 X 10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lessymo 8 x 10 Area Rugs for Living Room- Machine Washable Area Rugs Boho Faux Wool Low Pile Area Rug for Bedroom, Floral Medallion Vintage Rugs with Non-Slip Rubber, Kid &amp; Pet Friendly, Brown Beige" src="https://m.media-amazon.com/images/I/51ZNHuLa4gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGTJ6ZSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lessymo 8 x 10 Area Rugs for Living Room- Machine Washable Area Rugs Boho Faux Wool Low Pile Area Rug for Bedroom, Floral Medallion Vintage Rugs with Non-Slip Rubber, Kid &amp; Pet Friendly, Brown Beige" src="https://m.media-amazon.com/images/I/51ZNHuLa4gL._SL500_.jpg"/></a>
 
 
 The **Lessymo 8 x 10 Area Rugs for Living Room** is ideal for homeowners and renters looking to add a touch of **boho vintage style** to their living spaces while prioritizing practicality. This **machine washable** and **kid & pet friendly** rug is perfect for families with children or pets who want an attractive yet durable floor covering. Additionally, anyone seeking a low-maintenance, **non-slip** area rug with a **floral medallion design** in warm **brown beige** tones will find this rug a great fit.
@@ -153,10 +153,10 @@ The **Lessymo 8 x 10 Area Rug** stands out with its **boho faux wool texture** a
 
 With a sturdy **non-slip rubber backing**, this rug offers enhanced safety by preventing slips and trips, making it ideal for homes with active children or elderly family members. Weighing 19 pounds and measuring 8 by 10 feet, it provides ample coverage for living rooms and large bedrooms. Overall, the **Lessymo Area Rug** combines style, practicality, and durability, making it a smart investment for anyone seeking a beautiful yet functional floor covering.
 
-## <a href="https://www.amazon.com/dp/B07VCVD5QP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Natura Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07VCVD5QP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Natura Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07VCVD5QP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Natura Collection Area Rug - 9' x 12', Ivory, Handmade Moroccan Boho Wool Fringe, Ideal for High Traffic Areas in Living Room, Bedroom (NAT852B)" src="https://m.media-amazon.com/images/I/610iUca4fKS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VCVD5QP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Natura Collection Area Rug - 9' x 12', Ivory, Handmade Moroccan Boho Wool Fringe, Ideal for High Traffic Areas in Living Room, Bedroom (NAT852B)" src="https://m.media-amazon.com/images/I/610iUca4fKS._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Natura Collection Area Rug** is perfect for homeowners and renters seeking a stylish yet durable floor covering for high traffic areas like the **living room** or **bedroom**. Ideal for those who appreciate **handmade craftsmanship** and desire a versatile, boho-inspired aesthetic, this rug suits anyone looking to combine functionality with elegant design.
@@ -179,10 +179,10 @@ The **SAFAVIEH Natura Collection Area Rug** stands out with its exquisite handma
 
 Designed to withstand the demands of busy households, this rug’s robust construction makes it an excellent choice for **high traffic areas**. The large dimensions of **108 by 144 inches** allow it to anchor furniture pieces effectively, creating a cohesive and stylish environment. Whether placed in a living room or bedroom, this rug balances aesthetic appeal with practical benefits, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B09FY91PQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Metro Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09FY91PQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Metro Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09FY91PQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Metro Collection 6' x 9' NaturalIvory MET998A Handmade Premium Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51tJcPpCcxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09FY91PQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Metro Collection 6' x 9' NaturalIvory MET998A Handmade Premium Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51tJcPpCcxL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Metro Collection 6' x 9' Natural/Ivory MET998A** is ideal for homeowners and interior enthusiasts looking to enhance their living, dining, or bedroom spaces with a touch of elegance and comfort. Those who appreciate handcrafted quality and want a durable yet stylish area rug made from premium materials will find this product a perfect fit.
@@ -204,10 +204,10 @@ The **SAFAVIEH Metro Collection MET998A** rug showcases meticulous craftsmanship
 
 The **Natural/Ivory color** palette offers a timeless and versatile aesthetic that blends seamlessly with both modern and traditional décor. Its **1.0 inch pile height** enhances comfort while providing a luxurious feel underfoot. While the weight of **30.5 pounds** reflects its quality and density, it may require some effort when relocating. Overall, this rug combines style, comfort, and durability, making it a valuable addition to any home seeking both function and elegance.
 
-## <a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shilucheng Wool Rug 8x10 Ft</a>
+## <a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shilucheng Wool Rug 8x10 Ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shilucheng Wool Rug 8x10 Ft,80% New Zealand Wool&amp; 20% Cotton Rugs for Living Room, Bedroom, Soft Low Pile Area Rug 100% Cotton Non-Slip Backing Large Area Rug (Grey)" src="https://m.media-amazon.com/images/I/51Q0mhmlNqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shilucheng Wool Rug 8x10 Ft,80% New Zealand Wool&amp; 20% Cotton Rugs for Living Room, Bedroom, Soft Low Pile Area Rug 100% Cotton Non-Slip Backing Large Area Rug (Grey)" src="https://m.media-amazon.com/images/I/51Q0mhmlNqL._SL500_.jpg"/></a>
 
 
 The **Shilucheng Wool Rug 8x10 Ft** is perfect for homeowners and interior enthusiasts looking to add a touch of elegance and comfort to their living spaces. Ideal for those who prioritize quality, durability, and aesthetic appeal, this rug is especially suited for living rooms and bedrooms where a soft, cozy atmosphere is desired. If you want a rug that combines natural materials with practical features, this area rug is an excellent choice.
@@ -229,10 +229,10 @@ The **Shilucheng Wool Rug** features a premium blend of **New Zealand wool** and
 
 Additionally, the **100% cotton non-slip backing** adds an important safety feature by preventing slips and keeping the rug firmly in place. This makes it suitable for homes with children or elderly family members. The large **8x10 ft size** covers ample floor space, making it a versatile choice for various room layouts. The subtle **grey color** enhances any décor, adding a sophisticated and timeless appeal to your living room or bedroom.
 
-## <a href="https://www.amazon.com/dp/B09FY7DB87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Metro Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09FY7DB87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Metro Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09FY7DB87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Metro Collection 5' x 8' NaturalIvory MET995A Handmade Premium Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51hZrxUe+KS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09FY7DB87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Metro Collection 5' x 8' NaturalIvory MET995A Handmade Premium Wool Living Room Dining Bedroom Area Rug" src="https://m.media-amazon.com/images/I/51hZrxUe+KS._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Metro Collection 5' x 8' Natural/Ivory MET995A Handmade Premium Wool Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and comfort to their **living rooms, dining areas, or bedrooms**. This rug suits those who appreciate high-quality craftsmanship and natural materials and want a durable yet stylish floor covering that complements a wide range of decor styles.
@@ -255,10 +255,10 @@ Crafted by **SAFAVIEH**, a trusted manufacturer known for quality, this rug feat
 
 Measuring **5 feet by 8 feet** with a **1-inch pile height**, the rug offers an ideal size and thickness to balance comfort and practicality. It weighs just **22.5 pounds**, allowing for easy rearrangement and cleaning. This combination of features makes the SAFAVIEH Metro Collection rug not only a beautiful addition but also a functional choice for those who value both style and everyday usability in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B01N4DTL3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Area Rug 8x10 - Antiquity Collection</a>
+## <a href="https://www.amazon.com/dp/B01N4DTL3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Area Rug 8x10 - Antiquity Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B01N4DTL3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Antiquity Collection - Large - Peacock &amp; Blue, Handmade Wool, Traditional Design, Ideal for Living Room, Bedroom, Office, Dining Space (AT812B)" src="https://m.media-amazon.com/images/I/61G8d-UEtiS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N4DTL3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Antiquity Collection - Large - Peacock &amp; Blue, Handmade Wool, Traditional Design, Ideal for Living Room, Bedroom, Office, Dining Space (AT812B)" src="https://m.media-amazon.com/images/I/61G8d-UEtiS._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 8x10 - Antiquity Collection** in **Peacock & Blue** is perfect for individuals looking to add a touch of elegance and traditional charm to their living spaces. Ideal customers include homeowners, interior designers, and office managers who want a durable, stylish, and handmade wool rug that complements living rooms, bedrooms, offices, or dining areas. Those who appreciate handcrafted quality and timeless design will find this rug an excellent choice.

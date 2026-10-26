@@ -23,10 +23,10 @@ Soft, plush runners also provide warmth and coziness, perfect for bedrooms or nu
 
 
 
-## <a href="https://www.amazon.com/dp/B0CPPVJ331?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo 2x5 Non Slip Hallway Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0CPPVJ331?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo 2x5 Non Slip Hallway Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPPVJ331?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO 2x5 Non Slip Hallway Runner Rug, Machine Washable, Thin &amp; Low Pile Lightweight for Kitchen, Laundry, Entryway, Bedroom &amp; Living Room, Gray" src="https://m.media-amazon.com/images/I/51wWk+oarXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPPVJ331?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO 2x5 Non Slip Hallway Runner Rug, Machine Washable, Thin &amp; Low Pile Lightweight for Kitchen, Laundry, Entryway, Bedroom &amp; Living Room, Gray" src="https://m.media-amazon.com/images/I/51wWk+oarXL._SL500_.jpg"/></a>
 
 
 The **GENIMO 2x5 Non Slip Hallway Runner Rug** is an excellent choice for homeowners looking to enhance safety and style in high-traffic areas such as kitchens, laundry rooms, entryways, bedrooms, and living rooms. Ideal for those who want a **machine washable** and **lightweight** rug with a thin profile that doesn’t take up much space, this rug is perfect for busy households and pet owners seeking a practical yet elegant floor covering.
@@ -50,12 +50,12 @@ The **GENIMO 2x5 Non Slip Hallway Runner Rug** offers a **low pile** and **thin*
 
 Maintenance is simplified with the rug being fully **machine washable**, making it convenient for households with pets or children where spills and dirt are common. The elegant **grey color** pairs well with a wide range of interior designs, providing a subtle yet stylish enhancement to any room. With precise dimensions of 24 inches by 60 inches, this runner rug fits perfectly in narrow hallways or transitional spaces, offering both functionality and aesthetic appeal without overpowering the room.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPPVJ331?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPPVJ331?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2x6 Rug Runners For Hallways Kitchen Runner Rug Non Slip Washable Grey Long Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2x6 Rug Runners For Hallways Kitchen Runner Rug Non Slip Washable Grey Long Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2x6 Rug Runners for Hallways Kitchen Runner Rug Non Slip Washable Grey Long Runner Rugs with Rubber Backing Soft Abstract Carpet Runner for Hallways, Kitchen, Bedroom, Bathroom, Entryway" src="https://m.media-amazon.com/images/I/51CtQmXheaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2x6 Rug Runners for Hallways Kitchen Runner Rug Non Slip Washable Grey Long Runner Rugs with Rubber Backing Soft Abstract Carpet Runner for Hallways, Kitchen, Bedroom, Bathroom, Entryway" src="https://m.media-amazon.com/images/I/51CtQmXheaL._SL500_.jpg"/></a>
 
 
 The **2x6 Rug Runners for Hallways Kitchen Runner Rug** is ideal for homeowners and renters looking to enhance the safety and style of narrow spaces such as hallways, kitchens, bedrooms, bathrooms, and entryways. Those who want a durable, non-slip, and easy-to-clean rug that complements modern interiors will find this product especially beneficial. It is perfect for busy households, pet owners, and anyone seeking to protect floors while adding a touch of softness underfoot.
@@ -78,12 +78,12 @@ The **2x6 Rug Runners** offer a combination of functionality and style designed 
 
 One of the key benefits of this rug runner is its easy maintenance. The washable material allows users to quickly clean spills and dirt, which is especially useful in high-traffic areas like kitchens and entryways. Its thin profile ensures it won't create a tripping hazard while still providing comfort underfoot. Overall, the **Ompaa 2x6 Rug Runner** is a practical and stylish choice for anyone looking to improve safety, cleanliness, and décor in narrow spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DCNPCS8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hebe Hallway Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hebe Hallway Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6HST5YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEBE Hallway Runner Rug 2'x6' Washable Vintage Distressed Area Rugs Non Slip Laundry Rug Runner Boho Floor Carpet Runners for Hallways Entryway Laundry Room Kitchen Bathroom" src="https://m.media-amazon.com/images/I/51A+6mShfnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6HST5YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEBE Hallway Runner Rug 2'x6' Washable Vintage Distressed Area Rugs Non Slip Laundry Rug Runner Boho Floor Carpet Runners for Hallways Entryway Laundry Room Kitchen Bathroom" src="https://m.media-amazon.com/images/I/51A+6mShfnL._SL500_.jpg"/></a>
 
 
 The **HEBE Hallway Runner Rug 2'x6'** is ideal for homeowners or renters looking to add a touch of vintage charm and practicality to narrow spaces like hallways, entryways, kitchens, or laundry rooms. Those who want a stylish yet functional floor covering that is easy to clean and maintain will find this **washable vintage distressed area rug** especially suitable.
@@ -107,12 +107,12 @@ The **HEBE Hallway Runner Rug** stands out with its combination of style and pra
 
 Measuring 2 feet by 6 feet, this rug fits perfectly in narrow spaces such as hallways, entryways, kitchens, and laundry rooms. Its lightweight design allows for effortless relocation and cleaning, while the sturdy material ensures long-lasting durability. The muted **grey tone** complements various interior designs, making it a versatile addition to your home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hallway Washable Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hallway Washable Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hallway Washable Runner Rug - 2'6x12 Kitchen Rugs Entryway Rug Runner Vintage Soft Floor Mat Non Slip Indoor Farmhouse Carpet for Bathroom Living Room Bedroom (2'6''x12', Beige)" src="https://m.media-amazon.com/images/I/514HAC-6nKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hallway Washable Runner Rug - 2'6x12 Kitchen Rugs Entryway Rug Runner Vintage Soft Floor Mat Non Slip Indoor Farmhouse Carpet for Bathroom Living Room Bedroom (2'6''x12', Beige)" src="https://m.media-amazon.com/images/I/514HAC-6nKL._SL500_.jpg"/></a>
 
 
 The **Hallway Washable Runner Rug - 2'6x12 Kitchen Rugs Entryway Rug Runner** is an excellent choice for homeowners looking to enhance their indoor spaces with a stylish yet functional floor covering. Ideal for those who want a durable, soft, and non-slip rug that fits well in high-traffic areas such as hallways, kitchens, entryways, bathrooms, living rooms, or bedrooms. This product suits anyone who values easy maintenance combined with vintage farmhouse aesthetics.
@@ -135,12 +135,12 @@ This **vintage soft floor mat** combines both functionality and style, making it
 
 The runner’s generous size of **2'6''x12'** offers excellent coverage for long corridors or narrow spaces, while its soft texture ensures comfort underfoot. The beige color adds a warm and welcoming touch, blending seamlessly with many interior designs, particularly farmhouse or rustic styles. Overall, this rug is a practical and attractive solution for anyone wanting to upgrade their home flooring with ease and elegance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4YJSS2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B097479QQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chicrug Soft Runner Rugs For Bedroom Living Room</a>
+## <a href="https://www.amazon.com/dp/B097479QQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chicrug Soft Runner Rugs For Bedroom Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B097479QQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chicrug Soft Runner Rugs for Bedroom Living Room Plush Fluffy Rug 2x6 Feet, Shag Furry Area Rug Carpet Non Shedding for Nursery Children Kids Girls Room Home Decorative, Grey" src="https://m.media-amazon.com/images/I/51YbDLd8c7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097479QQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chicrug Soft Runner Rugs for Bedroom Living Room Plush Fluffy Rug 2x6 Feet, Shag Furry Area Rug Carpet Non Shedding for Nursery Children Kids Girls Room Home Decorative, Grey" src="https://m.media-amazon.com/images/I/51YbDLd8c7L._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a cozy and stylish addition to their living spaces, the **Chicrug Soft Runner Rug** is perfect for bedrooms, nurseries, and children’s rooms. If you want a **plush, fluffy rug** that adds warmth and comfort without the hassle of shedding, this **2x6 feet grey shag furry area rug** will meet your needs beautifully.
@@ -162,12 +162,12 @@ The **Chicrug Soft Runner Rug** boasts a luxurious height of **1.8 inches**, cre
 
 Crafted with care by **Chicrug**, this runner fits perfectly in various home settings, including nurseries, kids’ rooms, and living areas. Its lightweight design allows for easy repositioning, so you can refresh your space whenever desired. The muted **grey color** blends seamlessly with different interior themes, from modern to classic, enhancing your home’s decor while providing a cozy spot to walk or play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B097479QQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B097479QQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Washable Kitchen Runner Rug For Family</a>
+## <a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Washable Kitchen Runner Rug For Family</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Washable Kitchen Runner Rug for Family: Easy-to-Clean Runners for Hallway Entryway Bedroom - Stain and Water Resistant Rugs with Non-Slip Backing - Soft Low-Pile Carpet 2x6 Beige Grey" src="https://m.media-amazon.com/images/I/51owA1OwM1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Washable Kitchen Runner Rug for Family: Easy-to-Clean Runners for Hallway Entryway Bedroom - Stain and Water Resistant Rugs with Non-Slip Backing - Soft Low-Pile Carpet 2x6 Beige Grey" src="https://m.media-amazon.com/images/I/51owA1OwM1L._SL500_.jpg"/></a>
 
 
 The **Washable Kitchen Runner Rug for Family** is ideal for homeowners looking to add a practical and stylish touch to their **hallways, entryways, kitchens, or bedrooms**. This rug is perfect for families and individuals who prioritize easy maintenance, durability, and safety in high-traffic areas. If you want a **soft, low-pile carpet** that is both **stain and water resistant**, this **2x6 beige/grey runner** with **non-slip backing** is a great choice.
@@ -190,12 +190,12 @@ This **WIEVEDENS kitchen runner rug** combines practical functionality with aest
 
 Measuring 24 inches wide and 72 inches long with a low 0.25-inch pile height, this rug provides a comfortable surface that is easy to clean and maintain. Its neutral **beige and grey tones** seamlessly fit into various interior design schemes, making it a versatile addition to any home. Whether placed in an entryway or a bedroom, this runner is designed to deliver both style and performance, catering to families and individuals seeking a durable, low-maintenance floor covering.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DRCXDNRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yamaziot Washable Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yamaziot Washable Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yamaziot Washable Runner Rug, 2x8 Non-Slip Boho Vintage Hallway Rug Runner with Rubber Backing, Stain Resistant &amp; Low Pile Faux Wool Distressed Carpet Runner for Bedroom, Kitchen, Laundry, Entrance" src="https://m.media-amazon.com/images/I/51VFXSn1QXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yamaziot Washable Runner Rug, 2x8 Non-Slip Boho Vintage Hallway Rug Runner with Rubber Backing, Stain Resistant &amp; Low Pile Faux Wool Distressed Carpet Runner for Bedroom, Kitchen, Laundry, Entrance" src="https://m.media-amazon.com/images/I/51VFXSn1QXL._SL500_.jpg"/></a>
 
 
 The **Yamaziot Washable Runner Rug** is ideal for homeowners and renters looking to add a stylish yet practical touch to high-traffic areas such as hallways, kitchens, bedrooms, or entryways. If you need a durable, easy-to-maintain runner that blends vintage charm with modern functionality, this **2x8 Non-Slip Boho Vintage Hallway Rug Runner** is an excellent choice. It is especially suitable for those who prioritize both aesthetics and convenience in home décor.
@@ -219,12 +219,12 @@ The **Yamaziot Washable Runner Rug** combines a thoughtfully designed rubber bac
 
 Its vintage boho design in **rust and dull teal** tones offers a warm, inviting look that can enhance the aesthetic of any home. Measuring nearly 8 feet in length and just under 2 feet wide, it fits seamlessly into narrow spaces without overwhelming the room. Additionally, the lightweight construction allows for easy cleaning and repositioning, making it a versatile addition to any household. Overall, this rug offers a perfect balance of style, safety, and convenience for those looking to elevate their hallway or entrance décor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CD7FKF2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo Runner Rug For Hallways</a>
+## <a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo Runner Rug For Hallways</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO Runner Rug for Hallways Machine Washable, 2x5 Non Slip Boho Vintage Lightweight Washable Runners, Thin Floor Rugs for Entryway Hallway Bathroom Laundry Room Corridor, Charcoal" src="https://m.media-amazon.com/images/I/51kHqJcPfpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO Runner Rug for Hallways Machine Washable, 2x5 Non Slip Boho Vintage Lightweight Washable Runners, Thin Floor Rugs for Entryway Hallway Bathroom Laundry Room Corridor, Charcoal" src="https://m.media-amazon.com/images/I/51kHqJcPfpL._SL500_.jpg"/></a>
 
 
 The **GENIMO Runner Rug for Hallways** is ideal for homeowners or renters looking to enhance their entryways, hallways, bathrooms, or laundry rooms with a stylish yet practical floor covering. This runner is perfect for those who need a **lightweight, non-slip, and machine washable rug** that combines vintage aesthetics with everyday functionality. If you want to protect your floors while adding a touch of boho charm, this **2x5 runner in charcoal** is a great choice.
@@ -247,12 +247,12 @@ The **GENIMO Runner Rug** features a thin and lightweight construction that make
 
 Beyond aesthetics, the rug’s machine washable fabric ensures hassle-free cleaning, making it ideal for high-traffic zones prone to dirt and spills. Its compact dimensions (24 x 60 inches) make it a practical choice to protect floors from wear while adding warmth and texture. Overall, this runner rug combines style, safety, and convenience for customers who want a durable and attractive solution for their narrow floor spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DCVKB7FK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C1YG36PS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Kozyfly Boho Runners For Hallways </a>
+## <a href="https://www.amazon.com/dp/B0C1YG36PS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Kozyfly Boho Runners For Hallways </a>
 
 
-<a href="https://www.amazon.com/dp/B0C1YG36PS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KOZYFLY Boho Runners for Hallways 2x6 ft Washable Kitchen Runner Non Slip Rubber Backed Hall Runners Cotton Entryway Runner Rugs Floor Carpet for Indoor Backdoor Bedroom Kitchen, Tan/Orange/Brown" src="https://m.media-amazon.com/images/I/51bonG4MaWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1YG36PS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KOZYFLY Boho Runners for Hallways 2x6 ft Washable Kitchen Runner Non Slip Rubber Backed Hall Runners Cotton Entryway Runner Rugs Floor Carpet for Indoor Backdoor Bedroom Kitchen, Tan/Orange/Brown" src="https://m.media-amazon.com/images/I/51bonG4MaWL._SL500_.jpg"/></a>
 
 
 The **KOZYFLY Boho Runners for Hallways** are ideal for homeowners and renters looking to add a stylish yet functional touch to their indoor spaces such as hallways, kitchens, bedrooms, or entryways. Those who value both design and practicality will appreciate this **washable kitchen runner** with a non-slip rubber backing, perfect for busy households seeking comfort and safety.
@@ -275,12 +275,12 @@ The **KOZYFLY Boho Runner** stands out with its blend of style and functionality
 
 Additionally, the runner is **washable**, simplifying maintenance and making it suitable for areas like kitchens and entryways where dirt and spills are common. The subtle yet vibrant color scheme of **tan, orange, and brown** harmonizes well with various décor styles, enhancing the visual appeal of your floor space while protecting it from wear and tear. Overall, this runner offers a practical and stylish solution for anyone looking to enhance their home’s interior with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C1YG36PS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C1YG36PS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Lahome Moroccan 2x6 Black Runner Rug </a>
+## <a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Lahome Moroccan 2x6 Black Runner Rug </a>
 
 
-<a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Moroccan 2x6 Black Runner Rug Non-Slip, Kitchen Rug Runner Washable Non-Skid Hallway, Geometric Print Distressed Carpet for Entryway Bathroom Laundry" src="https://m.media-amazon.com/images/I/51JnvTnXBpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Moroccan 2x6 Black Runner Rug Non-Slip, Kitchen Rug Runner Washable Non-Skid Hallway, Geometric Print Distressed Carpet for Entryway Bathroom Laundry" src="https://m.media-amazon.com/images/I/51JnvTnXBpL._SL500_.jpg"/></a>
 
 
 The **Lahome Moroccan 2x6 Black Runner Rug** is ideal for homeowners and renters looking to enhance their **kitchen**, **hallway**, or **entryway** with a stylish yet functional floor covering. If you want a **non-slip**, **washable** rug that combines aesthetic appeal with practicality, this runner is perfect for busy households, pet owners, and anyone seeking to prevent slips in high-traffic areas.
@@ -302,7 +302,7 @@ The **Lahome Moroccan 2x6 Black Runner Rug** features a sleek **geometric print*
 
 One of the key benefits of this rug is its **non-slip** backing, which prevents unwanted movement on tile, hardwood, or laminate flooring, enhancing household safety. Additionally, the rug is **washable**, allowing you to maintain its fresh appearance with minimal effort. This combination of style, safety, and easy care makes the Lahome runner an excellent choice for busy environments such as entryways, laundry rooms, or bathrooms where moisture and dirt are common.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGRJBRMB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

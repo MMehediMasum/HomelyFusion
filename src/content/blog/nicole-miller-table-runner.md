@@ -23,10 +23,10 @@ Fabrics range from stain-resistant materials for everyday use to luxurious linen
 
 
 
-## <a href="https://www.amazon.com/dp/B09RPBW1WG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Bargains Plus Rectangle Fabric Table Runner</a>
+## <a href="https://www.amazon.com/dp/B09RPBW1WG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Bargains Plus Rectangle Fabric Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B09RPBW1WG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Bargains Plus Rectangle Fabric Table Runner, 7o Inch Long, Allure Yellow and Blue Floral Bordered Print, Indoor Outdoor Stain and Water Resistant Table Runner, Provence French Country" src="https://m.media-amazon.com/images/I/61sp7jMfEkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09RPBW1WG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Bargains Plus Rectangle Fabric Table Runner, 7o Inch Long, Allure Yellow and Blue Floral Bordered Print, Indoor Outdoor Stain and Water Resistant Table Runner, Provence French Country" src="https://m.media-amazon.com/images/I/61sp7jMfEkL._SL500_.jpg"/></a>
 
 
 The **Home Bargains Plus Rectangle Fabric Table Runner** is ideal for individuals seeking a stylish yet practical addition to their dining or outdoor tables. Perfect for homeowners who appreciate the charm of **Provence French Country** design and want to protect their surfaces with a durable, easy-to-maintain accessory. This item suits anyone looking to enhance their table décor with a splash of **Allure Yellow and Blue Floral Bordered Print** while benefiting from stain and water resistance.
@@ -48,12 +48,12 @@ Crafted by **Lintex** and branded as **Home Bargains Plus**, this table runner c
 
 The fabric’s **stain and water resistant** properties make it especially suitable for busy households or outdoor gatherings where spills are common. This feature not only preserves the runner’s appearance over time but also reduces the effort needed for maintenance. Whether it’s a casual family meal or a festive outdoor event, this table runner offers both functionality and decorative charm.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09RPBW1WG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09RPBW1WG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Alynsehom Macrame Table Runner Cream Beige Boho Table Runners With Tassels</a>
+## <a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Alynsehom Macrame Table Runner Cream Beige Boho Table Runners With Tassels</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Alynsehom Macrame Table Runner Cream Beige Boho Table Runners with Tassels Hand Woven Cotton Table Runner Rustic Farmhouse Table Runners for Bohemian Kitchen Dining Table(12x71in)" src="https://m.media-amazon.com/images/I/512mTFpbV4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Alynsehom Macrame Table Runner Cream Beige Boho Table Runners with Tassels Hand Woven Cotton Table Runner Rustic Farmhouse Table Runners for Bohemian Kitchen Dining Table(12x71in)" src="https://m.media-amazon.com/images/I/512mTFpbV4L._SL500_.jpg"/></a>
 
 
 The **Alynsehom Macrame Table Runner Cream Beige Boho Table Runners** is ideal for individuals who appreciate rustic farmhouse and bohemian décor styles. Perfect for homeowners, interior decorators, and anyone looking to add a cozy, handcrafted touch to their kitchen or dining table, this **hand woven cotton table runner** enhances both casual and formal dining settings with its elegant tassels and neutral beige color.
@@ -76,12 +76,12 @@ Crafted by the **Alynsehom** brand, this **macrame table runner** stands out wit
 
 Measuring nearly six feet in length and a foot in width, this table runner fits comfortably on most dining tables, offering ample coverage without overwhelming the surface. The lightweight **cotton material** ensures it drapes nicely and can be easily moved or cleaned. Whether you're hosting a casual brunch or a cozy family dinner, the **Alynsehom Macrame Table Runner** elevates your table setting by combining functionality with artisanal beauty.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BX6T2GTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09XN34QHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Solino Home Linen Small Table Runner Athena</a>
+## <a href="https://www.amazon.com/dp/B09XN34QHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Solino Home Linen Small Table Runner Athena</a>
 
 
-<a href="https://www.amazon.com/dp/B09XN34QHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Solino Home Linen Small Table Runner 36 Inches - Athena, 100% Pure Linen Chambray Indigo Table Runner 14 x 36 Inch Ideal for Dresser and Coffee Tables - Summer" src="https://m.media-amazon.com/images/I/4135aAEQhSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XN34QHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Solino Home Linen Small Table Runner 36 Inches - Athena, 100% Pure Linen Chambray Indigo Table Runner 14 x 36 Inch Ideal for Dresser and Coffee Tables - Summer" src="https://m.media-amazon.com/images/I/4135aAEQhSL._SL500_.jpg"/></a>
 
 
 The **Solino Home Linen Small Table Runner 36 Inches - Athena** is perfect for individuals who appreciate elegant yet functional home décor. Ideal for those looking to enhance their **dresser** or **coffee tables** with a subtle touch of style, this table runner is especially suited for customers who prefer natural fabrics and a minimalist, summer-inspired aesthetic.
@@ -103,12 +103,12 @@ The **Solino Home Linen Small Table Runner** boasts a sleek and refined design c
 
 Measuring **14 inches wide and 36 inches long**, this table runner fits neatly on **dressers** and **coffee tables**, enhancing their appearance without overwhelming the surface. The natural linen fabric is breathable and environmentally friendly, which appeals to eco-conscious users. Additionally, the easy-care material ensures that maintaining its crisp and fresh look requires minimal effort, making it a practical yet stylish addition to your home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09XN34QHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09XN34QHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Socomi Boho Table Runner</a>
+## <a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Socomi Boho Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Socomi Boho Table Runner Summer Farmhouse Burlap Jute Bamboo Rustic Dining Kitchen Centerpiece Decor Small Macrame Woven Coffee Table Runner for Dresser Scarf Home Decor 12x72 inch" src="https://m.media-amazon.com/images/I/51uE-EO3UVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Socomi Boho Table Runner Summer Farmhouse Burlap Jute Bamboo Rustic Dining Kitchen Centerpiece Decor Small Macrame Woven Coffee Table Runner for Dresser Scarf Home Decor 12x72 inch" src="https://m.media-amazon.com/images/I/51uE-EO3UVL._SL500_.jpg"/></a>
 
 
 The **Socomi Boho Table Runner** is ideal for homeowners and decor enthusiasts looking to infuse a rustic, farmhouse charm into their living spaces. If you appreciate natural textures and want to enhance your dining or coffee table with a subtle yet stylish centerpiece, this **12x72 inch** woven runner is perfect for you. Its boho and farmhouse aesthetic makes it a great choice for those who favor a cozy, vintage-inspired look in their kitchen or dining area.
@@ -131,12 +131,12 @@ The **Socomi Boho Table Runner** features a unique blend of **burlap, jute, and 
 
 Measuring approximately **13 inches wide and 72 inches long**, this table runner provides ample coverage to protect your surfaces while enhancing the overall aesthetic. The rustic, earthy tones blend effortlessly with wooden furniture and farmhouse decor, creating an inviting atmosphere. Whether used for everyday dining or special occasions, this runner elevates your home decor with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CJ4SQYCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08SW8PZM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tosewever Decorative Linen Table Runner Farmhouse Style Tabletop Collection</a>
+## <a href="https://www.amazon.com/dp/B08SW8PZM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tosewever Decorative Linen Table Runner Farmhouse Style Tabletop Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B08SW8PZM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 72",="" alt="Tosewever Decorative Linen Table Runner Farmhouse Style Tabletop Collection 14 x 72 Inches Table Runners for Everyday Dining Wedding Party Holiday Home Decor (14" coffee="" light="" src="https://m.media-amazon.com/images/I/51EETbYtGGL._SL500_.jpg" straight)"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B08SW8PZM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 72",="" alt="Tosewever Decorative Linen Table Runner Farmhouse Style Tabletop Collection 14 x 72 Inches Table Runners for Everyday Dining Wedding Party Holiday Home Decor (14" coffee="" light="" src="https://m.media-amazon.com/images/I/51EETbYtGGL._SL500_.jpg" straight)"="" x=""/></a>
 
 
 The **Tosewever Decorative Linen Table Runner Farmhouse Style Tabletop Collection** is perfect for individuals looking to add a touch of rustic charm and elegance to their dining or event spaces. Ideal for homeowners who appreciate a cozy, farmhouse aesthetic, event planners, and anyone wanting to elevate their everyday dining experience or special occasions such as weddings and holiday parties. This **14 x 72 inches light coffee-colored table runner** complements various decor styles and enhances table settings with subtle sophistication.
@@ -158,12 +158,12 @@ The **Tosewever Decorative Linen Table Runner** stands out with its high-quality
 
 This table runner is not only functional but also versatile, effortlessly transitioning from everyday meals to more formal occasions like weddings and holiday gatherings. Its lightweight design ensures easy placement and removal, while the farmhouse style brings a cozy, inviting atmosphere to any room. Overall, it is an excellent choice for those who value both aesthetics and practicality in their home decor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08SW8PZM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08SW8PZM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DFWGW448?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Beige Tassel Table Runner</a>
+## <a href="https://www.amazon.com/dp/B0DFWGW448?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Beige Tassel Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFWGW448?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Beige Tassel Table Runner, Boho Linen Blend Rustic Farmhouse Style Kitchen Table Decoration Holiday Wedding Party Dinning Decor 13x72 Inch" src="https://m.media-amazon.com/images/I/51GbCtMl68L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFWGW448?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Beige Tassel Table Runner, Boho Linen Blend Rustic Farmhouse Style Kitchen Table Decoration Holiday Wedding Party Dinning Decor 13x72 Inch" src="https://m.media-amazon.com/images/I/51GbCtMl68L._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Beige Tassel Table Runner** is perfect for individuals who appreciate a rustic, boho farmhouse aesthetic and want to enhance their dining space with subtle yet stylish decor. Ideal for homeowners, event planners, and anyone hosting **holiday, wedding, or party gatherings**, this table runner adds an elegant touch to any kitchen or dining table setting.
@@ -185,12 +185,12 @@ The **Artoid Mode Beige Tassel Table Runner** stands out with its appealing blen
 
 Measuring **13 inches wide and 72 inches long**, this table runner fits a variety of table sizes, making it a flexible decor choice for both intimate dinners and larger gatherings. Its lightweight construction ensures easy placement and removal, while the neutral beige tone pairs well with a wide palette of tableware and seasonal decorations. Whether used for everyday dining or special celebrations, this runner enhances the ambiance with understated sophistication and farmhouse warmth.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DFWGW448?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DFWGW448?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01D668J8O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dii Handmade Chindi Tabletop Table Runner</a>
+## <a href="https://www.amazon.com/dp/B01D668J8O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dii Handmade Chindi Tabletop Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B01D668J8O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DII Handmade Chindi Tabletop, Reversible and Machine Washable, Table Runner, 14x72, Natural" src="https://m.media-amazon.com/images/I/516UDQFiJVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01D668J8O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DII Handmade Chindi Tabletop, Reversible and Machine Washable, Table Runner, 14x72, Natural" src="https://m.media-amazon.com/images/I/516UDQFiJVL._SL500_.jpg"/></a>
 
 
 The **DII Handmade Chindi Tabletop Table Runner** is ideal for individuals who appreciate handcrafted home décor and seek a versatile, eco-friendly addition to their dining or living space. Perfect for those who want to add a natural, rustic charm to their table settings while valuing easy maintenance and durability. This item suits homeowners, event planners, and anyone looking for a stylish yet practical table accessory.
@@ -212,12 +212,12 @@ Crafted by the trusted **DII brand**, this table runner features a handmade chin
 
 In addition to its visual appeal, the **DII Handmade Chindi Table Runner** is highly practical. It is fully machine washable, making it easy to clean spills and stains without compromising its quality or appearance. Measuring 14 inches wide by 72 inches long, it fits comfortably on most dining tables, providing a perfect balance of coverage and elegance. Lightweight and easy to handle, this runner is a functional and stylish choice for everyday use or special events.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01D668J8O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01D668J8O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CN2W614Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Boho Bohemia Style Black Table Runner</a>
+## <a href="https://www.amazon.com/dp/B0CN2W614Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Boho Bohemia Style Black Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN2W614Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Boho Bohemia Style Black Table Runner, Country Rustic Farmhouse Magical Fall Kitchen Dining Table Decoration for Home Party Decor 13x72 Inch" src="https://m.media-amazon.com/images/I/51fGKM11XSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN2W614Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Boho Bohemia Style Black Table Runner, Country Rustic Farmhouse Magical Fall Kitchen Dining Table Decoration for Home Party Decor 13x72 Inch" src="https://m.media-amazon.com/images/I/51fGKM11XSL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Boho Bohemia Style Black Table Runner** is perfect for individuals who love to infuse their living spaces with a **rustic farmhouse** charm and a touch of **bohemian flair**. Ideal for homeowners, party hosts, and decor enthusiasts looking to enhance their kitchen or dining table with a stylish, seasonal accent, this table runner suits those who appreciate both aesthetics and functionality in their home decorations.
@@ -240,12 +240,12 @@ The **Artoid Mode Boho Bohemia Style Black Table Runner** is designed with a **c
 
 Crafted by **Artoid Mode**, this table runner combines style with durability, making it perfect for **home parties** and casual family meals alike. Its **bohemian fall-inspired design** adds a magical touch to your setting, enhancing the ambiance and making gatherings feel special. Whether used as a standalone piece or layered with other decor, it effortlessly elevates the look of your kitchen or dining table with rustic charm.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CN2W614Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CN2W614Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Windkream Scalloped Edge Table Runner</a>
+## <a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Windkream Scalloped Edge Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Windkream Scalloped Edge Table Runner 70 Inches Preppy Embroidery Edge Table Runner Cute Neutral Rustic Dining Decor for Kitchen (Dark Pink,Light Pink)" src="https://m.media-amazon.com/images/I/511lgIVvKML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Windkream Scalloped Edge Table Runner 70 Inches Preppy Embroidery Edge Table Runner Cute Neutral Rustic Dining Decor for Kitchen (Dark Pink,Light Pink)" src="https://m.media-amazon.com/images/I/511lgIVvKML._SL500_.jpg"/></a>
 
 
 The **Windkream Scalloped Edge Table Runner** is perfect for those looking to add a touch of **preppy, rustic charm** to their dining or kitchen space. Ideal customers include homeowners, interior decorators, and anyone who appreciates **cute, neutral dining decor** with a subtle pop of color. If you want to enhance your table setting with a delicate yet eye-catching piece in **dark pink and light pink**, this table runner is a great choice.
@@ -268,12 +268,12 @@ The **Windkream Scalloped Edge Table Runner** features a beautifully crafted **s
 
 Measuring 70 inches in length, this table runner offers ample coverage for standard dining tables while its neutral design ensures it blends seamlessly with various styles. The durable fabric promises long-term use, making it both a practical and stylish addition to your home. Whether for daily use or special occasions, this table runner enhances your dining experience by adding warmth and charm to your kitchen or dining room.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F3XHW1WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Keva Boho Table Runner</a>
+## <a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Keva Boho Table Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KEVA Boho Table Runner 72inches Long, Farmhouse Linen Table Runner, Rustic Vintage White Embroidered Table Runners 13x72 Inch for Dining Table Decorations" src="https://m.media-amazon.com/images/I/41nubSrD9oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KEVA Boho Table Runner 72inches Long, Farmhouse Linen Table Runner, Rustic Vintage White Embroidered Table Runners 13x72 Inch for Dining Table Decorations" src="https://m.media-amazon.com/images/I/41nubSrD9oL._SL500_.jpg"/></a>
 
 
 The **KEVA Boho Table Runner 72 inches Long** is ideal for homeowners and decorators seeking to add a touch of rustic charm and vintage elegance to their dining spaces. Perfect for those who appreciate **farmhouse style** and **boho aesthetics**, this table runner suits individuals looking to enhance their table settings for everyday use or special occasions. If you want a versatile and stylish piece that complements both modern and traditional interiors, this item is a great choice.
@@ -296,7 +296,7 @@ The **KEVA Boho Table Runner** features a beautifully embroidered pattern on hig
 
 Measuring **72 inches in length** and approximately **7.87 inches in width**, this table runner is designed to fit a variety of dining tables, providing ample coverage and enhancing the overall table presentation. Its lightweight nature makes it easy to place and remove, while the neutral **linen color** allows it to pair well with different table settings and seasonal decorations, offering versatility and style in one elegant package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DGKCT3KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

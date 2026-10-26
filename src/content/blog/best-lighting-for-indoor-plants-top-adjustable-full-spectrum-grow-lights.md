@@ -23,10 +23,10 @@ Some popular options include full spectrum LED lamps, grow light bulbs with high
 
 
 
-## <a href="https://www.amazon.com/dp/B0BWXZX9SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yadoker Led Growing Light</a>
+## <a href="https://www.amazon.com/dp/B0BWXZX9SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yadoker Led Growing Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWXZX9SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plant Grow Light,yadoker LED Growing Light Full Spectrum for Indoor Plants,Height Adjustable, Automatic Timer, 5V Low Safe Voltage,Idea for Large Plant Light" src="https://m.media-amazon.com/images/I/41hnlAs4iSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWXZX9SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plant Grow Light,yadoker LED Growing Light Full Spectrum for Indoor Plants,Height Adjustable, Automatic Timer, 5V Low Safe Voltage,Idea for Large Plant Light" src="https://m.media-amazon.com/images/I/41hnlAs4iSL._SL500_.jpg"/></a>
 
 
 The **yadoker LED Growing Light Full Spectrum** is ideal for indoor gardening enthusiasts, plant lovers, and anyone looking to enhance the growth of their large indoor plants. If you want a reliable, energy-efficient, and safe solution to provide your plants with the essential light they need, this grow light is designed for you. It is especially beneficial for those who have limited access to natural sunlight or want to create an optimized growing environment year-round.
@@ -48,10 +48,10 @@ The **yadoker LED Growing Light** stands out with its full spectrum lighting tec
 
 Another significant benefit is the built-in automatic timer, which simplifies plant care by regulating light exposure without manual intervention. Coupled with the safe 5V low voltage power supply, the grow light is safe for both your plants and your home environment. Its sleek bamboo design and compact size make it an unobtrusive yet functional addition to any indoor plant setup, especially for larger plants that require more coverage and focused light.
 
-## <a href="https://www.amazon.com/dp/B09CTNVVRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lordem Grow Light</a>
+## <a href="https://www.amazon.com/dp/B09CTNVVRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lordem Grow Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09CTNVVRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LORDEM Grow Light, Full Spectrum LED Plant Light for Indoor Plants, Height Adjustable Growing Lamp with Auto On/Off Timer 4/8/12H, 4 Dimmable Brightness, Ideal for Small Plants, 2 Packs" src="https://m.media-amazon.com/images/I/51+7xKwA+kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CTNVVRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LORDEM Grow Light, Full Spectrum LED Plant Light for Indoor Plants, Height Adjustable Growing Lamp with Auto On/Off Timer 4/8/12H, 4 Dimmable Brightness, Ideal for Small Plants, 2 Packs" src="https://m.media-amazon.com/images/I/51+7xKwA+kL._SL500_.jpg"/></a>
 
 
 The **LORDEM Grow Light** is perfect for indoor gardening enthusiasts who want to nurture their **small plants** with optimal light conditions. Ideal for those who have limited natural sunlight or want to enhance plant growth indoors, this **full spectrum LED plant light** caters to beginners and experienced growers alike, offering convenience and efficiency in a compact design.
@@ -75,10 +75,10 @@ Featuring a **full spectrum LED** light, the **LORDEM Grow Light** mimics natura
 
 The built-in **auto on/off timer** with options for 4, 8, or 12 hours ensures plants receive consistent lighting without the need for manual intervention, making it ideal for busy individuals. Additionally, the four dimmable brightness settings provide tailored light intensity, which can be adjusted as plants grow or based on specific plant needs. Compact and practical, this dual-pack set offers excellent value for anyone looking to enhance their indoor gardening experience effectively.
 
-## <a href="https://www.amazon.com/dp/B08PJQG3B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bseah Grow Light Plant Lights For Indoor Plants</a>
+## <a href="https://www.amazon.com/dp/B08PJQG3B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bseah Grow Light Plant Lights For Indoor Plants</a>
 
 
-<a href="https://www.amazon.com/dp/B08PJQG3B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="bseah Grow Light Plant Lights for Indoor Plants, Full Spectrum Plant Grow Lamp, 10 Dimmable Levels Auto ON &amp; Off with 3/9/12H Timer" src="https://m.media-amazon.com/images/I/510IUrxUlfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PJQG3B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="bseah Grow Light Plant Lights for Indoor Plants, Full Spectrum Plant Grow Lamp, 10 Dimmable Levels Auto ON &amp; Off with 3/9/12H Timer" src="https://m.media-amazon.com/images/I/510IUrxUlfL._SL500_.jpg"/></a>
 
 
 The **bseah Grow Light Plant Lights for Indoor Plants** is ideal for indoor gardening enthusiasts, apartment dwellers, and anyone looking to provide their plants with optimal lighting conditions regardless of natural sunlight availability. This product is perfect for those who want to enhance the growth of their indoor plants with a reliable, energy-efficient, and easy-to-use grow light system.
@@ -100,10 +100,10 @@ The **bseah Grow Light** features a **full spectrum plant grow lamp** that mimic
 
 Additionally, the built-in **auto ON & OFF timer** with 3, 9, and 12-hour settings offers hassle-free automation, allowing users to set a consistent lighting schedule that fits their lifestyle. The sleek **black design** and compact dimensions make it easy to install in any indoor space without being intrusive, while the energy-efficient technology helps reduce electricity consumption, making it an eco-friendly choice for plant lovers.
 
-## <a href="https://www.amazon.com/dp/B07BRKG7X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sansi Grow Lights For Indoor Plants Full Spectrum</a>
+## <a href="https://www.amazon.com/dp/B07BRKG7X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sansi Grow Lights For Indoor Plants Full Spectrum</a>
 
 
-<a href="https://www.amazon.com/dp/B07BRKG7X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SANSI Grow Lights for Indoor Plants Full Spectrum, 36W Grow Light Bulb (400 Watt Equivalent) with Optical Lens for High PPFD, PPF 65.6 umol/s LED Energy Saving Plant Light Bulb for Seeding and Growing" src="https://m.media-amazon.com/images/I/41WLkNbbhuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BRKG7X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SANSI Grow Lights for Indoor Plants Full Spectrum, 36W Grow Light Bulb (400 Watt Equivalent) with Optical Lens for High PPFD, PPF 65.6 umol/s LED Energy Saving Plant Light Bulb for Seeding and Growing" src="https://m.media-amazon.com/images/I/41WLkNbbhuL._SL500_.jpg"/></a>
 
 
 The **SANSI Grow Lights for Indoor Plants Full Spectrum, 36W Grow Light Bulb** is ideal for gardening enthusiasts, indoor plant lovers, and professional growers who need an efficient lighting solution to support healthy plant growth. If you are looking to enhance seedling development or maintain vibrant indoor plants without natural sunlight, this grow light bulb offers a powerful and energy-saving option.
@@ -125,10 +125,10 @@ The **SANSI 36W Full Spectrum Grow Light Bulb** is designed to provide the perfe
 
 Another key benefit of this grow light is its **energy efficiency**. By consuming only 36 watts while delivering the equivalent output of a 400-watt traditional bulb, it allows users to save on electricity costs and reduce heat emission. This makes it safer to use in enclosed spaces and helps maintain an optimal temperature around the plants. Overall, the **SANSI Grow Light** is a reliable and cost-effective solution for anyone looking to improve indoor plant health and growth.
 
-## <a href="https://www.amazon.com/dp/B081CWHKPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ghodec Grow Light With Stand</a>
+## <a href="https://www.amazon.com/dp/B081CWHKPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ghodec Grow Light With Stand</a>
 
 
-<a href="https://www.amazon.com/dp/B081CWHKPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GHodec Grow Light with Stand, 5500K Full Spectrum Gooseneck Floor Plant Light for Indoor Plants Growing,5 Dimmable Levels &amp; Auto On/Off Timer,Tripod Stand Plant Lamp Height Adjustable" src="https://m.media-amazon.com/images/I/41REI6-ZmYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081CWHKPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GHodec Grow Light with Stand, 5500K Full Spectrum Gooseneck Floor Plant Light for Indoor Plants Growing,5 Dimmable Levels &amp; Auto On/Off Timer,Tripod Stand Plant Lamp Height Adjustable" src="https://m.media-amazon.com/images/I/41REI6-ZmYL._SL500_.jpg"/></a>
 
 
 The **GHodec Grow Light with Stand** is ideal for indoor gardening enthusiasts, plant hobbyists, and anyone looking to enhance the growth of their indoor plants year-round. If you struggle with insufficient natural light or want to create the perfect environment for seedlings, herbs, or houseplants, this **full spectrum grow light** offers a versatile and efficient solution.
@@ -152,10 +152,10 @@ The **GHodec Grow Light with Stand** features a powerful **5500K full spectrum L
 
 Designed with user convenience in mind, the grow light includes an **auto on/off timer** which automates your plant lighting schedule, saving you time and reducing energy consumption. The **adjustable tripod stand** and flexible **gooseneck neck** allow you to position the light precisely where it's needed, accommodating plants of various sizes and shapes. Its compact build and lightweight design make it easy to move and set up in any indoor space, making it a practical choice for both beginners and seasoned plant growers.
 
-## <a href="https://www.amazon.com/dp/B0CKRKT2QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taurusy Grow Lights For Indoor Plants</a>
+## <a href="https://www.amazon.com/dp/B0CKRKT2QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taurusy Grow Lights For Indoor Plants</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKRKT2QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TAURUSY Grow Lights for Indoor Plants Full Spectrum with Detachable Tripod Stand, 10-55 Inches Height Adjustable Aluminum Alloy Indoor Plant Grow Lamp with Auto On/Off Timer Function" src="https://m.media-amazon.com/images/I/41wb+EDwvUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKRKT2QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TAURUSY Grow Lights for Indoor Plants Full Spectrum with Detachable Tripod Stand, 10-55 Inches Height Adjustable Aluminum Alloy Indoor Plant Grow Lamp with Auto On/Off Timer Function" src="https://m.media-amazon.com/images/I/41wb+EDwvUL._SL500_.jpg"/></a>
 
 
 The **TAURUSY Grow Lights for Indoor Plants** are ideal for plant enthusiasts, urban gardeners, and anyone looking to cultivate healthy indoor plants year-round. If you struggle with insufficient natural sunlight or want to boost your plants’ growth efficiently, this full spectrum grow lamp with an adjustable tripod stand is tailored for you. It suits both beginners and experienced gardeners seeking convenience and effective lighting solutions.
@@ -177,10 +177,10 @@ The **TAURUSY Grow Lights** feature a **full spectrum LED** that mimics natural 
 
 Another standout feature is the **auto on/off timer function**, which simplifies plant care by automating light cycles. This reduces the risk of overexposure or underexposure to light, ensuring plants receive a consistent and optimal lighting schedule. Constructed from sturdy **aluminum alloy**, the lamp is both durable and stable, providing a reliable lighting solution for indoor gardens. Its compact design and lightweight build make it easy to move and adjust, perfect for any indoor space.
 
-## <a href="https://www.amazon.com/dp/B08JLZ29QV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wolezek Grow Lights For Indoor Plants</a>
+## <a href="https://www.amazon.com/dp/B08JLZ29QV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wolezek Grow Lights For Indoor Plants</a>
 
 
-<a href="https://www.amazon.com/dp/B08JLZ29QV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wolezek Grow lights for Indoor Plants, 4-Head Full Spectrum LED Grow Light with Adjustable Tripod Stand 15-61 inches for Seed Starting, 3500K 6500K 660nm White Red Floor Plant Lamp with 6/12/16H Timer" src="https://m.media-amazon.com/images/I/51WQLvnUjlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JLZ29QV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wolezek Grow lights for Indoor Plants, 4-Head Full Spectrum LED Grow Light with Adjustable Tripod Stand 15-61 inches for Seed Starting, 3500K 6500K 660nm White Red Floor Plant Lamp with 6/12/16H Timer" src="https://m.media-amazon.com/images/I/51WQLvnUjlL._SL500_.jpg"/></a>
 
 
 The **Wolezek Grow Lights for Indoor Plants** is ideal for gardening enthusiasts, urban plant lovers, and anyone looking to boost the growth of their indoor plants year-round. Whether you're starting seeds, nurturing seedlings, or growing mature plants indoors, this full spectrum LED grow light with an adjustable tripod stand offers the versatility and light quality to meet your needs. It’s especially suited for those who want precise control over lighting conditions to ensure healthy plant development.
@@ -203,10 +203,10 @@ The **Wolezek 4-Head Full Spectrum LED Grow Light** delivers a balanced light ou
 
 The adjustable tripod stand offers remarkable flexibility, allowing users to position the light at heights between 15 and 61 inches. This adaptability is beneficial for various plant sizes and growth phases, ensuring even light distribution and preventing light burn. Moreover, the built-in timer with 6, 12, and 16-hour settings automates lighting schedules, supporting consistent light exposure without the need for constant monitoring. This feature is particularly useful for busy users who want to maintain optimal plant care effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0D6RD1ZV2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grow Lights For Indoor Plant</a>
+## <a href="https://www.amazon.com/dp/B0D6RD1ZV2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grow Lights For Indoor Plant</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6RD1ZV2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Grow Lights for Indoor Plant, 6000K Full Spectrum Plant Lights for Indoor Growing, 3.5'' LED Dual Ring Grow Light, Height Extendable 9-16'', Auto On Off Timing 4/8/12/18Hrs (Black)" src="https://m.media-amazon.com/images/I/41F66YhLZ9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6RD1ZV2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Grow Lights for Indoor Plant, 6000K Full Spectrum Plant Lights for Indoor Growing, 3.5'' LED Dual Ring Grow Light, Height Extendable 9-16'', Auto On Off Timing 4/8/12/18Hrs (Black)" src="https://m.media-amazon.com/images/I/41F66YhLZ9L._SL500_.jpg"/></a>
 
 
 The **Grow Lights for Indoor Plant** by GHodec are perfect for gardening enthusiasts, urban dwellers, and anyone looking to nurture plants indoors without relying on natural sunlight. Ideal for small indoor gardens, apartments, or offices, this product suits those who want to maintain healthy plants year-round regardless of outdoor weather conditions.
@@ -230,10 +230,10 @@ This **GHodec Grow Light** offers a full spectrum 6000K light that mimics natura
 
 The built-in auto on/off timer supports busy individuals by automating light cycles, helping to maintain consistent plant care without manual intervention. This promotes healthier plant life and simplifies indoor gardening routines. Additionally, the compact and lightweight design paired with a stylish black finish makes it a practical and visually appealing addition to any indoor growing setup.
 
-## <a href="https://www.amazon.com/dp/B07QHYKZQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mosthink Led Grow Light For Indoor Plants</a>
+## <a href="https://www.amazon.com/dp/B07QHYKZQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mosthink Led Grow Light For Indoor Plants</a>
 
 
-<a href="https://www.amazon.com/dp/B07QHYKZQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mosthink LED Grow Light for Indoor Plants, 20W Grow Light Strips with Auto On/Off Timer, 48 LEDs /4 Dimmable Levels, Plant Light Bars for Succulents, Seedlings,Indoor Greenhouse,Plant Shelf" src="https://m.media-amazon.com/images/I/41k3LGP9qOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QHYKZQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mosthink LED Grow Light for Indoor Plants, 20W Grow Light Strips with Auto On/Off Timer, 48 LEDs /4 Dimmable Levels, Plant Light Bars for Succulents, Seedlings,Indoor Greenhouse,Plant Shelf" src="https://m.media-amazon.com/images/I/41k3LGP9qOL._SL500_.jpg"/></a>
 
 
 The **Mosthink LED Grow Light for Indoor Plants** is ideal for indoor gardening enthusiasts, especially those who cultivate **succulents, seedlings, and plants** in a greenhouse or on a plant shelf. If you’re looking to provide your plants with consistent, efficient light to promote healthy growth regardless of natural sunlight availability, this grow light is a perfect fit. It’s particularly suited for hobbyists and small-scale indoor gardeners who want an easy-to-use, energy-efficient lighting solution.
@@ -256,10 +256,10 @@ The **Mosthink LED Grow Light** features a robust set of **48 LEDs** that emit a
 
 Additionally, the **4 dimmable levels** provide flexibility to adjust the light intensity depending on the growth stage of your plants, whether they are seedlings requiring gentle light or mature plants needing more intense illumination. Its lightweight and compact structure allow easy placement on plant shelves or inside indoor greenhouses, making it a versatile choice for various indoor gardening setups. Overall, this grow light is a practical and efficient solution for anyone looking to enhance their indoor gardening experience.
 
-## <a href="https://www.amazon.com/dp/B07MV6TFFW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dommia Grow Lights For Indoor Plants</a>
+## <a href="https://www.amazon.com/dp/B07MV6TFFW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dommia Grow Lights For Indoor Plants</a>
 
 
-<a href="https://www.amazon.com/dp/B07MV6TFFW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DOMMIA Grow Lights for Indoor Plants,Full Spectrum Grow Light with Warmwhite Red LED,Dual Head Clip Plant Light for Indoor Plants,Manual ON/Off Switch,Adjustable Gooseneck Plant Light for Houseplants" src="https://m.media-amazon.com/images/I/41v8ICy+MDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MV6TFFW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DOMMIA Grow Lights for Indoor Plants,Full Spectrum Grow Light with Warmwhite Red LED,Dual Head Clip Plant Light for Indoor Plants,Manual ON/Off Switch,Adjustable Gooseneck Plant Light for Houseplants" src="https://m.media-amazon.com/images/I/41v8ICy+MDL._SL500_.jpg"/></a>
 
 
 The **DOMMIA Grow Lights for Indoor Plants** are perfect for plant enthusiasts who want to enhance the growth of their houseplants in environments with limited natural light. Ideal for urban gardeners, apartment dwellers, or anyone looking to maintain healthy indoor greenery, this product provides a reliable and customizable lighting solution to support various plant species.

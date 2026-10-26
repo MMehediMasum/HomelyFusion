@@ -23,10 +23,10 @@ Their natural colors, like taupe, navy blue, and grey, fit many decor styles. Wo
 
 
 
-## <a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Taupe, 8'x10'" src="https://m.media-amazon.com/images/I/51IGC+no3sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Taupe, 8'x10'" src="https://m.media-amazon.com/images/I/51IGC+no3sL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and warmth to their living spaces. This **100% wool rug** is perfect for those who appreciate high-quality craftsmanship and desire a stylish yet durable floor covering to enhance bedrooms, living rooms, or offices.
@@ -49,10 +49,10 @@ The **Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug** boasts a
 
 Constructed with **100% wool**, this area rug offers natural resilience and comfort underfoot, making it suitable for high-traffic areas. Wool’s inherent stain resistance and breathability mean the rug stays fresh longer while maintaining its lush feel. With dimensions of **8'x10'**, it fits well in a variety of room sizes, providing ample coverage without overwhelming the space. Overall, this rug combines aesthetic appeal with functional benefits, making it an excellent choice for anyone seeking to elevate their home's ambiance.
 
-## <a href="https://www.amazon.com/dp/B0DNQ5R9KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ5R9KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ5R9KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug, 100% Wool Rug, Taupe, 6'x9'" src="https://m.media-amazon.com/images/I/5175laXzjJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ5R9KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug, 100% Wool Rug, Taupe, 6'x9'" src="https://m.media-amazon.com/images/I/5175laXzjJL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts seeking to add a touch of elegance and texture to their living spaces. Those who appreciate high-quality craftsmanship and natural materials will find this **100% wool rug** a perfect fit, especially if they want a durable yet stylish centerpiece in their room.
@@ -75,10 +75,10 @@ The **Nicole Miller New York Mod Weave Rug** stands out due to its meticulous ha
 
 Beyond its aesthetic appeal, the rug's size and durable wool fibers offer practical benefits. The **6'x9'** dimensions provide ample coverage for key areas, creating a cozy atmosphere in living rooms or bedrooms. Wool's natural resilience means the rug can withstand heavy foot traffic while maintaining its softness and appearance over time, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0DNQ956VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ956VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ956VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug, 100% Wool Rug, Navy Blue, 8'x10'" src="https://m.media-amazon.com/images/I/61Tb3N2b1uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ956VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug, 100% Wool Rug, Navy Blue, 8'x10'" src="https://m.media-amazon.com/images/I/61Tb3N2b1uL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug** is an excellent choice for homeowners and interior designers seeking a stylish yet durable floor covering. Ideal for those who appreciate high-quality materials and sophisticated design, this rug is perfect for living rooms, bedrooms, or offices that require a touch of elegance with a modern geometric pattern. If you want to enhance your space with a luxurious navy blue accent that complements various decor styles, this 100% wool rug is a great investment.
@@ -102,10 +102,10 @@ This **Nicole Miller New York Kendall Fluted Geo Rug** boasts a meticulously han
 
 With dimensions of **8'x10'** and a comfortable thickness of **0.5 inches**, this area rug provides ample coverage and cushioning underfoot. The fluted geometric pattern adds texture and depth, transforming any room into a chic and welcoming space. While its substantial weight ensures stability and prevents slipping, it may require assistance during setup or relocation. Overall, this rug combines function and fashion, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 5'x7’" src="https://m.media-amazon.com/images/I/51Ymp3LiEuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 5'x7’" src="https://m.media-amazon.com/images/I/51Ymp3LiEuL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug** in **Grey** is perfect for homeowners and interior design enthusiasts looking to add a touch of elegance and bold floral aesthetics to their living spaces. Ideal for those who appreciate handcrafted quality and natural materials, this **5'x7’ natural wool rug** is suited for anyone wanting a durable yet stylish centerpiece for their room, combining both comfort and artistic flair.
@@ -128,10 +128,10 @@ The **Nicole Miller New York Flora Grandeur Bloom Rug** stands out with its hand
 
 Beyond aesthetics, the choice of **wool material** brings natural stain resistance and warmth, enhancing comfort especially in colder seasons. The carefully measured dimensions of **60.24 inches by 83.86 inches** make it versatile enough to fit various spaces without overwhelming the room. Overall, this rug combines style, functionality, and quality craftsmanship, making it a worthwhile investment for anyone looking to elevate their home decor with a timeless yet contemporary piece.
 
-## <a href="https://www.amazon.com/dp/B08RSS4FM9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Momeni Charles Wool Hand Tufted Contemporary Indoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B08RSS4FM9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Momeni Charles Wool Hand Tufted Contemporary Indoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B08RSS4FM9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Momeni Charles Wool Hand Tufted Contemporary Indoor Area Rug, Taupe, 9' X 12'" src="https://m.media-amazon.com/images/I/51WvmYH8IrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08RSS4FM9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Momeni Charles Wool Hand Tufted Contemporary Indoor Area Rug, Taupe, 9' X 12'" src="https://m.media-amazon.com/images/I/51WvmYH8IrL._SL500_.jpg"/></a>
 
 
 The **Momeni Charles Wool Hand Tufted Contemporary Indoor Area Rug** in **Taupe** is ideal for homeowners and interior enthusiasts looking to add a touch of elegance and warmth to their living spaces. This rug is perfect for those who appreciate handcrafted quality and desire a durable yet stylish floor covering to complement contemporary décor. If you want a rug that balances comfort, aesthetics, and practicality, this **9' X 12'** area rug is an excellent choice.
@@ -154,10 +154,10 @@ The **Momeni Charles Wool Hand Tufted Rug** features a meticulous hand tufting t
 
 In addition to its functional benefits, the rug’s **taupe color** offers versatility in home décor, effortlessly complementing both bold and muted color schemes. Its ample dimensions of **9' X 12'** make it perfect for defining spaces within open floor plans or anchoring furniture arrangements in living or dining rooms. Overall, this area rug combines style, comfort, and longevity, making it a valuable addition to any contemporary home.
 
-## <a href="https://www.amazon.com/dp/B0DTF341T2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Frelish Decor Wool And Jute Premium Handwoven Chunky Stripes Rug</a>
+## <a href="https://www.amazon.com/dp/B0DTF341T2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Frelish Decor Wool And Jute Premium Handwoven Chunky Stripes Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTF341T2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FRELISH DECOR Wool and Jute Premium Handwoven Chunky Stripes Rug - Contemporary Area Rug for Living Room Bedroom (6' x 9' - Natural Ivory)" src="https://m.media-amazon.com/images/I/519m3MrKj-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTF341T2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FRELISH DECOR Wool and Jute Premium Handwoven Chunky Stripes Rug - Contemporary Area Rug for Living Room Bedroom (6' x 9' - Natural Ivory)" src="https://m.media-amazon.com/images/I/519m3MrKj-L._SL500_.jpg"/></a>
 
 
 The **FRELISH DECOR Wool and Jute Premium Handwoven Chunky Stripes Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of natural elegance and contemporary style to their living spaces. Perfect for those who appreciate handcrafted quality and durable materials, this rug suits anyone wanting to enhance their **living room** or **bedroom** with a stylish yet functional floor covering. Its size of **6' x 9'** makes it versatile enough for medium to large rooms, while the natural ivory and jute tones complement a variety of decor themes.
@@ -179,10 +179,10 @@ Crafted by **FRELISH DECOR**, this rug features a handwoven blend of **wool and 
 
 Beyond its visual appeal, the rug’s substantial weight adds a layer of stability, preventing unwanted slipping and bunching. This makes it a practical choice for busy households. Additionally, the natural ivory hue and jute accents work harmoniously to brighten up interiors while maintaining a neutral palette that complements diverse styles, from modern minimalist to rustic chic. Investing in this premium handwoven rug means bringing both style and long-lasting quality into your home.
 
-## <a href="https://www.amazon.com/dp/B09Y9C3732?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hand Tufted Traditional Wool Area Rugs By Allen Home</a>
+## <a href="https://www.amazon.com/dp/B09Y9C3732?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hand Tufted Traditional Wool Area Rugs By Allen Home</a>
 
 
-<a href="https://www.amazon.com/dp/B09Y9C3732?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand Tufted Traditional Wool Area Rugs by Allen Home - 100% Wool - Living Room, Dining Room, Bedroom, Entryway Area Rugs - 8’ x 10’ - Anny Multi" src="https://m.media-amazon.com/images/I/51J2O7m9JTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Y9C3732?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand Tufted Traditional Wool Area Rugs by Allen Home - 100% Wool - Living Room, Dining Room, Bedroom, Entryway Area Rugs - 8’ x 10’ - Anny Multi" src="https://m.media-amazon.com/images/I/51J2O7m9JTL._SL500_.jpg"/></a>
 
 
 The **Hand Tufted Traditional Wool Area Rugs by Allen Home** are perfect for homeowners and interior enthusiasts looking to add a touch of classic elegance and comfort to their living spaces. Ideal for those who appreciate quality craftsmanship and durable materials, this rug suits anyone wanting to enhance their **living room**, **dining room**, **bedroom**, or **entryway** with a timeless design. If you seek a versatile and durable rug that combines traditional aesthetics with practical functionality, this product is an excellent choice.
@@ -206,10 +206,10 @@ The **Hand Tufted Traditional Wool Area Rug** by Allen Home features expertly cr
 
 With dimensions of **8’ x 10’** and a thickness of **0.4 inches**, this rug offers ample coverage and cushioning, enhancing comfort in any room. The substantial weight ensures it stays firmly in place, reducing the need for additional rug pads. Designed to elevate your home’s ambiance, this area rug seamlessly combines style, comfort, and resilience, making it an investment piece that adds lasting value to your living environment.
 
-## <a href="https://www.amazon.com/dp/B0DTK3S7P4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Molly Collection Mol-07 Tobacco/sage Low Pile Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DTK3S7P4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Molly Collection Mol-07 Tobacco/sage Low Pile Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTK3S7P4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 12'="" alt="Loloi Amber Lewis Molly Collection MOL-07 Tobacco/Sage 8'-6" area="" low="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51PNyXXEXQL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DTK3S7P4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 12'="" alt="Loloi Amber Lewis Molly Collection MOL-07 Tobacco/Sage 8'-6" area="" low="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51PNyXXEXQL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Amber Lewis Molly Collection MOL-07 Tobacco/Sage 8'-6" x 12'** low pile area rug is ideal for homeowners and interior design enthusiasts looking to add a sophisticated yet cozy touch to their living spaces. Perfect for those who want a stylish, durable rug that complements both modern and traditional decor, this rug suits high-traffic areas such as living rooms, dining rooms, or home offices. Buyers seeking an elegant color palette and quality craftsmanship will find this product a great fit.
@@ -231,10 +231,10 @@ The **Loloi Amber Lewis Molly Collection MOL-07** stands out with its expertly c
 
 Additionally, the rug’s size, at **8'-6" x 12'**, ensures it covers a significant area, grounding furniture arrangements and adding a layer of warmth underfoot. Its manageable weight of **36.72 pounds** means it can be easily handled during cleaning or seasonal redecorating. Overall, this rug combines style, function, and quality craftsmanship to deliver a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shilucheng Wool Rug</a>
+## <a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shilucheng Wool Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Shilucheng Wool Rug 8x10 Ft,80% New Zealand Wool&amp; 20% Cotton Rugs for Living Room, Bedroom, Soft Low Pile Area Rug 100% Cotton Non-Slip Backing Large Area Rug (Grey)" src="https://m.media-amazon.com/images/I/51Q0mhmlNqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPSWXDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Shilucheng Wool Rug 8x10 Ft,80% New Zealand Wool&amp; 20% Cotton Rugs for Living Room, Bedroom, Soft Low Pile Area Rug 100% Cotton Non-Slip Backing Large Area Rug (Grey)" src="https://m.media-amazon.com/images/I/51Q0mhmlNqL._SL500_.jpg"/></a>
 
 
 The **Shilucheng Wool Rug 8x10 Ft** is an excellent choice for homeowners and interior enthusiasts looking to add a touch of elegance and comfort to their living spaces. Ideal for those who appreciate high-quality materials and durable design, this rug is perfect for living rooms, bedrooms, or any area requiring a stylish yet practical floor covering. If you want a soft, low pile rug with natural fibers that also offers safety features, this product is designed for you.
@@ -256,10 +256,10 @@ The **Shilucheng Wool Rug** combines the natural resilience of New Zealand wool 
 
 Additionally, the **100% cotton non-slip backing** is a significant safety feature, providing stability on hard floors and reducing the risk of slips and falls. This makes it an excellent choice for households with children or elderly family members. Overall, this rug balances style, comfort, and functionality, making it a valuable investment for those seeking both beauty and practicality in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B0F44V3BNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Waylon Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0F44V3BNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Waylon Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F44V3BNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Waylon Collection WAY-02 Natural/Rust 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51el+8hnWhL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F44V3BNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Waylon Collection WAY-02 Natural/Rust 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51el+8hnWhL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Waylon Collection WAY-02 Natural/Rust 5'-0" x 7'-6" Area Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of rustic elegance and warmth to their living spaces. If you appreciate a blend of modern and farmhouse styles, this rug is perfect for enhancing your home’s ambiance with a versatile and stylish accent. It suits those who want durable, high-quality décor that complements both casual and formal rooms.

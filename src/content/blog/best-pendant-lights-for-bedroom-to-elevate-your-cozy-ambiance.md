@@ -23,10 +23,10 @@ Adjustable cords and dimmable bulbs help you control brightness and height. Some
 
 
 
-## <a href="https://www.amazon.com/dp/B0CJPYVZ54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duhu Black And Wood Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B0CJPYVZ54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duhu Black And Wood Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJPYVZ54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUHU Black and Wood Pendant Light,Modern Kitchen Pendant Light Over Island,Industrial Metal Lampshade,Single Hanging Light E26 for Dinning Table,Bedroom Nightstand,Bar,Farmhouse,Height Adjustable" src="https://m.media-amazon.com/images/I/31v0ohx5djL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJPYVZ54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUHU Black and Wood Pendant Light,Modern Kitchen Pendant Light Over Island,Industrial Metal Lampshade,Single Hanging Light E26 for Dinning Table,Bedroom Nightstand,Bar,Farmhouse,Height Adjustable" src="https://m.media-amazon.com/images/I/31v0ohx5djL._SL500_.jpg"/></a>
 
 
 The **DUHU Black and Wood Pendant Light** is ideal for homeowners and interior designers seeking a stylish yet functional lighting solution for modern spaces such as kitchens, dining areas, bedrooms, or bars. Those who appreciate an industrial aesthetic combined with natural wood accents will find this pendant light a perfect addition to elevate their décor while providing adjustable lighting. It is especially suitable for individuals looking to enhance their kitchen island or farmhouse-style rooms with a versatile and contemporary fixture.
@@ -49,10 +49,10 @@ The **DUHU Black and Wood Pendant Light** stands out with its sleek, modern desi
 
 Beyond aesthetics, this pendant light offers practical benefits including ease of installation and versatility. The use of a standard **E26 bulb socket** means users can choose from a variety of bulbs, including energy-efficient LEDs, to customize brightness and color temperature. Its robust construction by the brand **DUHU** and manufacturer **Matiere** ensures durability and long-lasting performance. Whether used individually or in multiples, this pendant light enhances both the functionality and style of any room.
 
-## <a href="https://www.amazon.com/dp/B0D25W7F1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plug In Pendant Light Rattan Hanging Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D25W7F1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plug In Pendant Light Rattan Hanging Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D25W7F1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plug in Pendant Light Rattan Hanging Lamp, Boho Hanging Lights with Paper Woven &amp; Fabric 2 in 1 Shade, 3-Way Dimmable Bulb Included, Ceiling Light Fixture for Living Room,Bedroom,Farmhouse" src="https://m.media-amazon.com/images/I/41HCQaQn2-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D25W7F1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plug in Pendant Light Rattan Hanging Lamp, Boho Hanging Lights with Paper Woven &amp; Fabric 2 in 1 Shade, 3-Way Dimmable Bulb Included, Ceiling Light Fixture for Living Room,Bedroom,Farmhouse" src="https://m.media-amazon.com/images/I/41HCQaQn2-L._SL500_.jpg"/></a>
 
 
 The **Plug in Pendant Light Rattan Hanging Lamp** is ideal for individuals seeking a stylish yet functional lighting solution that complements a **boho** or **farmhouse** decor. Perfect for homeowners and renters who want to effortlessly enhance their **living room** or **bedroom** ambiance without complicated installations. This light fixture suits those who appreciate eco-friendly materials and versatile design features in their home lighting.
@@ -74,10 +74,10 @@ This **ceiling light fixture** by Qingmiao beautifully integrates both **rattan*
 
 The **plug-in pendant light** design ensures an effortless setup process, ideal for those who prefer a hassle-free installation without the need for professional electricians. Its compact dimensions make it suitable for various spaces, while the natural **boho hanging lamp** style adds a touch of rustic charm to modern interiors. Whether placed in a **living room** or **bedroom**, this fixture serves as both a functional light source and an eye-catching decorative piece.
 
-## <a href="https://www.amazon.com/dp/B08K2SYMCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dewenwils Plug In Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B08K2SYMCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dewenwils Plug In Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08K2SYMCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEWENWILS Plug in Pendant Light, Hanging Light with 15Ft Clear Cord, On/Off Switch, Beige Linen Shade, Hanging Light Fixture for Bedroom, Kitchen, Living Room, Dining Table" src="https://m.media-amazon.com/images/I/314VFzeNfxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08K2SYMCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEWENWILS Plug in Pendant Light, Hanging Light with 15Ft Clear Cord, On/Off Switch, Beige Linen Shade, Hanging Light Fixture for Bedroom, Kitchen, Living Room, Dining Table" src="https://m.media-amazon.com/images/I/314VFzeNfxL._SL500_.jpg"/></a>
 
 
 The **DEWENWILS Plug in Pendant Light** is ideal for homeowners and renters who want to effortlessly enhance their living spaces with stylish and functional lighting. Perfect for those who prefer easy installation without hardwiring, this hanging light fixture suits bedrooms, kitchens, living rooms, and dining areas where a cozy yet elegant ambiance is desired. If you’re seeking a versatile lighting solution with a classic beige linen shade and convenient features, this pendant light is a great choice.
@@ -100,10 +100,10 @@ The **DEWENWILS Plug in Pendant Light** boasts a practical design tailored for e
 
 This pendant light's dimensions ensure it is neither too large nor too small, fitting comfortably above dining tables or in cozy corners without overwhelming your space. Its plug-in feature means no professional installation is necessary, making it especially appealing for renters or those who prefer a hassle-free lighting upgrade. Additionally, the classic color and fabric shade make it a versatile lighting fixture that can easily coordinate with existing decor, enhancing the overall aesthetic of any room it is placed in.
 
-## <a href="https://www.amazon.com/dp/B09XQ5W8R1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kuaugst Plug In Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B09XQ5W8R1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kuaugst Plug In Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09XQ5W8R1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUAUGST Plug in Pendant Light, 15 FT Hanging Lamp with Plug in Cord, On/Off Switch, Pendant Lighting with Fabric Shade, Hanging Light Fixture for Living Room, Bedroom, Dining Room, Kitchen (Gray)" src="https://m.media-amazon.com/images/I/41-vpkDbB1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XQ5W8R1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUAUGST Plug in Pendant Light, 15 FT Hanging Lamp with Plug in Cord, On/Off Switch, Pendant Lighting with Fabric Shade, Hanging Light Fixture for Living Room, Bedroom, Dining Room, Kitchen (Gray)" src="https://m.media-amazon.com/images/I/41-vpkDbB1L._SL500_.jpg"/></a>
 
 
 The **KUAUGST Plug in Pendant Light** is ideal for individuals looking to enhance their living spaces with stylish and functional lighting without complicated installation. Perfect for renters, homeowners, or anyone who wants an easy-to-install hanging light fixture for the **living room, bedroom, dining room,** or **kitchen**, this pendant light offers a versatile and elegant solution that fits seamlessly into various decor styles.
@@ -126,10 +126,10 @@ The **KUAUGST Plug in Pendant Light** combines convenience with style, making it
 
 Crafted with a **gray fabric shade**, this pendant light offers a soft, diffused glow that enhances the ambiance of any room. Its compact size and lightweight construction mean it can be installed in cozy corners or above dining tables without overwhelming the space. Overall, the **KUAUGST pendant lighting fixture** balances aesthetics with practicality, delivering both visual appeal and functional illumination to enhance your home environment.
 
-## <a href="https://www.amazon.com/dp/B0D17PSBHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zslaifu Hanging Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D17PSBHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zslaifu Hanging Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D17PSBHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZSLAIFU 15FT Hanging lamp with Switch,White Hanging Lights with Plug in Cord, Pendant Lamp with Remote Control，Pendant Light Fixture for Living Room Bedroom Farmhouse" src="https://m.media-amazon.com/images/I/414suXakOOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D17PSBHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZSLAIFU 15FT Hanging lamp with Switch,White Hanging Lights with Plug in Cord, Pendant Lamp with Remote Control，Pendant Light Fixture for Living Room Bedroom Farmhouse" src="https://m.media-amazon.com/images/I/414suXakOOL._SL500_.jpg"/></a>
 
 
 The **ZSLAIFU 15FT Hanging Lamp with Switch** is ideal for homeowners and renters who want to enhance their living spaces with stylish and functional lighting. Perfect for those looking to add a touch of farmhouse charm to their **living room** or **bedroom**, this pendant lamp suits anyone who values easy installation, remote control convenience, and a clean white design.
@@ -152,10 +152,10 @@ The **ZSLAIFU 15FT Hanging Lamp** offers a blend of functionality and style with
 
 With its compact size and clean lines, this pendant lamp fits perfectly in both **living rooms** and **bedrooms**, especially in homes decorated in a farmhouse or minimalist style. The easy plug-in design simplifies installation, making it accessible for users who want to upgrade their lighting without professional help. Overall, the **ZSLAIFU Hanging Lamp** combines practical features and aesthetic appeal, enhancing ambiance while providing user-friendly operation.
 
-## <a href="https://www.amazon.com/dp/B0D82NBR6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gcdfgv Pendant Lights Kitchen Island 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0D82NBR6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gcdfgv Pendant Lights Kitchen Island 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0D82NBR6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GCDFGV Pendant Lights Kitchen Island 2 Pack, Modern LED Pendant Light for Bedroom Bedside Table TV Background, Minimalist Black Pendant Light Fixture, Kitchen Island Light, Height Adjustable, 3000k" src="https://m.media-amazon.com/images/I/41SwTO4zQuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D82NBR6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GCDFGV Pendant Lights Kitchen Island 2 Pack, Modern LED Pendant Light for Bedroom Bedside Table TV Background, Minimalist Black Pendant Light Fixture, Kitchen Island Light, Height Adjustable, 3000k" src="https://m.media-amazon.com/images/I/41SwTO4zQuL._SL500_.jpg"/></a>
 
 
 The **GCDFGV Pendant Lights Kitchen Island 2 Pack** is ideal for homeowners and interior enthusiasts looking to enhance their living spaces with sleek, modern lighting. Perfect for those who want a minimalist yet functional design, these lights suit kitchens, bedrooms, and TV background areas. If you value adjustable lighting and a contemporary aesthetic, this product is designed for you.
@@ -177,10 +177,10 @@ The **GCDFGV Pendant Lights** feature a minimalist design with a sleek black fin
 
 Additionally, the lights emit a warm **3000k LED glow** that enhances ambiance while being energy-efficient. Their compact size makes them unobtrusive yet effective in brightening spaces without overwhelming the room. The dual-pack ensures even lighting distribution, ideal for kitchen islands or symmetrical bedside setups, combining style and functionality seamlessly.
 
-## <a href="https://www.amazon.com/dp/B0CLKFWX28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elyona Modern Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B0CLKFWX28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elyona Modern Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLKFWX28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELYONA Modern Pendant Light Walnut Wooden Pattern Dome Pendant Light Fixture Matte Black Metal Gold Inner Finish Adjustable Hanging Lighting for Kitchen Island Dining Room Office Hallway Foyer Bedroom" src="https://m.media-amazon.com/images/I/417ntNMEC9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLKFWX28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELYONA Modern Pendant Light Walnut Wooden Pattern Dome Pendant Light Fixture Matte Black Metal Gold Inner Finish Adjustable Hanging Lighting for Kitchen Island Dining Room Office Hallway Foyer Bedroom" src="https://m.media-amazon.com/images/I/417ntNMEC9L._SL500_.jpg"/></a>
 
 
 The **ELYONA Modern Pendant Light** is ideal for homeowners and interior designers looking to enhance their living or working spaces with a stylish, functional lighting fixture. Perfect for those who appreciate a blend of modern aesthetics and natural materials, this pendant light suits kitchens, dining rooms, offices, hallways, foyers, and bedrooms. If you want to add a warm, inviting atmosphere with a touch of elegance, this adjustable hanging light is an excellent choice.
@@ -203,10 +203,10 @@ The **ELYONA Modern Pendant Light** combines aesthetic appeal with practical des
 
 Additionally, the adjustable hanging feature provides flexibility, allowing users to easily customize the height according to their room’s requirements. Whether installed above a kitchen island or in a hallway, this pendant light delivers focused illumination while complementing the room’s decor. Its moderate size ensures it fits well in various rooms without dominating the space, making it a practical and elegant lighting solution for modern interiors.
 
-## <a href="https://www.amazon.com/dp/B0C37LMMQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ihengyanlt 2 Pack Plug In Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B0C37LMMQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ihengyanlt 2 Pack Plug In Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C37LMMQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IHENGYANLT 2 Pack Plug in Pendant Light, Hanging Light with 15Ft Clear Cord, On/Off Switch, Beige Linen Fabric Lamp Shade, Hanging Light Fixture for Bedroom, Kitchen, Living Room, Dining Table" src="https://m.media-amazon.com/images/I/311yPYiV8sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C37LMMQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IHENGYANLT 2 Pack Plug in Pendant Light, Hanging Light with 15Ft Clear Cord, On/Off Switch, Beige Linen Fabric Lamp Shade, Hanging Light Fixture for Bedroom, Kitchen, Living Room, Dining Table" src="https://m.media-amazon.com/images/I/311yPYiV8sL._SL500_.jpg"/></a>
 
 
 The **IHENGYANLT 2 Pack Plug in Pendant Light** is ideal for homeowners and renters looking to enhance their living spaces with stylish yet functional lighting. If you want an easy-to-install lighting solution with a modern, minimalist design that fits bedrooms, kitchens, living rooms, or dining areas, this hanging light fixture is perfect for you.
@@ -230,10 +230,10 @@ The **IHENGYANLT Plug in Pendant Light** combines practicality with aesthetic ap
 
 Designed for convenience, this pendant light includes an **on/off switch** right on the cord, so users can control lighting without needing to reach a wall switch. The plug-in design means no complex installation is necessary, making it ideal for renters or those who want to avoid electrical work. Overall, the **IHENGYANLT 2 Pack Hanging Light Fixture** delivers both style and functionality, enhancing the décor while providing efficient lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0CWDFBHWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ecogehen Boho Plug In Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B0CWDFBHWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ecogehen Boho Plug In Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWDFBHWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EcoGehen Boho Plug in Pendant Light, Hanging Light with Plug in Cord, Ceiling Lamp Rattan Cylinder Lamp Shade On-Off Switch, Hanging Plant Shelf Shelves Bohemian Decor for Bedroom Living Room Corner" src="https://m.media-amazon.com/images/I/41nlS2r0N2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWDFBHWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EcoGehen Boho Plug in Pendant Light, Hanging Light with Plug in Cord, Ceiling Lamp Rattan Cylinder Lamp Shade On-Off Switch, Hanging Plant Shelf Shelves Bohemian Decor for Bedroom Living Room Corner" src="https://m.media-amazon.com/images/I/41nlS2r0N2L._SL500_.jpg"/></a>
 
 
 The **EcoGehen Boho Plug in Pendant Light** is ideal for individuals seeking to add a touch of **bohemian charm** and functional lighting to their **bedroom, living room, or corner spaces**. If you appreciate eco-friendly, stylish décor with easy installation, this hanging light with a plug-in cord and an on-off switch is perfect for you. It suits renters, homeowners, and anyone looking to refresh their space without complex wiring.
@@ -256,10 +256,10 @@ The **EcoGehen Boho Pendant Light** combines both style and practicality. Its **
 
 Beyond lighting, this pendant also serves as a **hanging plant shelf**, allowing users to showcase greenery and add an extra layer of décor. This dual functionality not only saves space but also contributes to a cozy and inviting atmosphere. With its compact size, the lamp fits well in corners or smaller rooms, providing both illumination and aesthetic appeal without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B07PH3FWBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jonathan Y Jyl3513a Nixon Led Pendant</a>
+## <a href="https://www.amazon.com/dp/B07PH3FWBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jonathan Y Jyl3513a Nixon Led Pendant</a>
 
 
-<a href="https://www.amazon.com/dp/B07PH3FWBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img adjustable="" alt="JONATHAN Y JYL3513A Nixon 7.5" bedroom="" black"="" brass="" contemporary="" dimmable="" dining="" drop="" foyer="" glass="" globe="" gold="" hallway,="" kitchen="" led="" living="" metal="" pendant="" room="" src="https://m.media-amazon.com/images/I/21lLjrL+pOL._SL500_.jpg" transitional=""/></a>
+<a href="https://www.amazon.com/dp/B07PH3FWBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img adjustable="" alt="JONATHAN Y JYL3513A Nixon 7.5" bedroom="" black"="" brass="" contemporary="" dimmable="" dining="" drop="" foyer="" glass="" globe="" gold="" hallway,="" kitchen="" led="" living="" metal="" pendant="" room="" src="https://m.media-amazon.com/images/I/21lLjrL+pOL._SL500_.jpg" transitional=""/></a>
 
 
 The **JONATHAN Y JYL3513A Nixon 7.5" Adjustable Drop Globe Metal/Glass LED Pendant** is ideal for homeowners and interior designers looking to enhance their **dining room, living room, kitchen, foyer, bedroom, or hallway** with a stylish yet functional lighting fixture. This pendant light is perfect for those who appreciate **contemporary and transitional design** elements and want a versatile, dimmable lighting option that complements various decor styles.

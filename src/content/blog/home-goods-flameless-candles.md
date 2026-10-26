@@ -23,10 +23,10 @@ These candles last long and work well indoors or outdoors. They are perfect for 
 
 
 
-## <a href="https://www.amazon.com/dp/B07D266SGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vinkor Flameless Candles Battery Operated Real Wax Pillar Led Candles</a>
+## <a href="https://www.amazon.com/dp/B07D266SGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vinkor Flameless Candles Battery Operated Real Wax Pillar Led Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07D266SGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5"="" 6"="" 7"="" 8"="" 9")"="" alt="Vinkor Flameless Candles Battery Operated Candles Real Wax Pillar LED Candles with 10-Key Remote and Cycling 24 Hours Timer (Ivory 4" src="https://m.media-amazon.com/images/I/41gahjB+DTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D266SGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5"="" 6"="" 7"="" 8"="" 9")"="" alt="Vinkor Flameless Candles Battery Operated Candles Real Wax Pillar LED Candles with 10-Key Remote and Cycling 24 Hours Timer (Ivory 4" src="https://m.media-amazon.com/images/I/41gahjB+DTL._SL500_.jpg"/></a>
 
 
 The **Vinkor Flameless Candles Battery Operated Candles** are perfect for individuals who want the ambiance of real candles without the risks associated with open flames. Ideal for families with children or pets, event planners, and anyone looking to enhance their home décor safely and conveniently, these **real wax pillar LED candles** offer a stylish and practical lighting solution.
@@ -48,12 +48,12 @@ The **Vinkor Flameless Candles** feature a realistic design crafted from **real 
 
 Another standout feature is the **cycling 24-hour timer**, which offers added convenience by automatically turning the candles on and off at preset intervals. This makes them especially suitable for creating a cozy atmosphere in living rooms, bedrooms, or during special events without the need to manually manage them. With multiple sizes from 4" to 9", these candles can be arranged in various configurations to match your décor style and lighting needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07D266SGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07D266SGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B06XCTP65H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Homemory Flickering Flameless Candle</a>
+## <a href="https://www.amazon.com/dp/B06XCTP65H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Homemory Flickering Flameless Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B06XCTP65H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Homemory 24Pcs Flickering Flameless Candle Battery Operated, 200+Hours Fake Electric LED Tea Lights for Votive, Centerpiece Table Decorations, Wedding, Aniversary, Halloween, Christmas" src="https://m.media-amazon.com/images/I/41ZJxmw8XrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XCTP65H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Homemory 24Pcs Flickering Flameless Candle Battery Operated, 200+Hours Fake Electric LED Tea Lights for Votive, Centerpiece Table Decorations, Wedding, Aniversary, Halloween, Christmas" src="https://m.media-amazon.com/images/I/41ZJxmw8XrL._SL500_.jpg"/></a>
 
 
 The **Homemory 24Pcs Flickering Flameless Candle** is perfect for individuals seeking a safe, long-lasting, and aesthetically pleasing lighting solution. Ideal for event planners, homeowners, and anyone who enjoys creating a warm ambiance without the risks of real flames, these **battery-operated LED tea lights** are especially suitable for weddings, anniversaries, Halloween, and Christmas decorations.
@@ -76,12 +76,12 @@ The **Homemory Flameless Candles** feature a compact size and a warm white glow 
 
 With over **200 hours of battery life**, these LED tea lights offer extended use without the frequent need for battery changes. This longevity makes them cost-effective and convenient for continuous use throughout events or daily ambiance enhancement. Overall, their realistic flickering effect combined with user-friendly features makes the **Homemory 24Pcs Flickering Flameless Candle** a dependable and attractive lighting option for anyone seeking an elegant yet practical decorative candle alternative.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B06XCTP65H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B06XCTP65H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">14" X 4" Large Outdoor Candles</a>
+## <a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">14" X 4" Large Outdoor Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 1="" 4"="" alt="14" battery="" candles="" candles,="" control="" fake="" flameless="" flickering="" for="" ivory="" lanterns,="" large="" led="" operated="" outdoor="" pack"="" patio="" pillar="" porch="" realistic="" remote="" src="https://m.media-amazon.com/images/I/51An7ExFN2L._SL500_.jpg" timer,="" waterproof="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 1="" 4"="" alt="14" battery="" candles="" candles,="" control="" fake="" flameless="" flickering="" for="" ivory="" lanterns,="" large="" led="" operated="" outdoor="" pack"="" patio="" pillar="" porch="" realistic="" remote="" src="https://m.media-amazon.com/images/I/51An7ExFN2L._SL500_.jpg" timer,="" waterproof="" with="" x=""/></a>
 
 
 Ideal for those looking to add a cozy and elegant ambiance to their outdoor spaces without the hassle of traditional candles, the **14" x 4" Large Outdoor Candles** by **TaoFiaCo** are perfect for homeowners, event planners, and anyone seeking a safe, weather-resistant lighting solution. These **waterproof flickering LED flameless candles** are designed for use on patios, porches, lanterns, or any outdoor setting where real flames are impractical or prohibited.
@@ -103,12 +103,12 @@ The **14" x 4" Large Outdoor Candles** feature a substantial size that mimics tr
 
 Equipped with a **timer function** and a handy **remote control**, these candles offer user-friendly operation and convenience. Users can easily set the candles to turn on and off automatically, enhancing energy efficiency and extending battery life. The **flameless LED flicker** replicates the warm glow of a real flame without the safety concerns, making it a perfect choice for families and public spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F7XX8C3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glass Battery Operated Led Flameless Candles</a>
+## <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glass Battery Operated Led Flameless Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glass Battery Operated LED Flameless Candles with Remote and Timer, Real Wax Candles Warm Color Flickering Light for Festival Wedding Home Party Decor(Pack of 3)-Gold" src="https://m.media-amazon.com/images/I/41A6E5R8ItL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glass Battery Operated LED Flameless Candles with Remote and Timer, Real Wax Candles Warm Color Flickering Light for Festival Wedding Home Party Decor(Pack of 3)-Gold" src="https://m.media-amazon.com/images/I/41A6E5R8ItL._SL500_.jpg"/></a>
 
 
 These **Glass Battery Operated LED Flameless Candles with Remote and Timer** are perfect for individuals seeking a safe, elegant, and hassle-free lighting solution for their **home, parties, weddings, or festivals**. Ideal for those who want the authentic look of real candles without the risk of open flames, these candles suit anyone looking to enhance ambiance with convenience and style.
@@ -132,12 +132,12 @@ The **Tyawon Glass Battery Operated LED Flameless Candles** stand out due to the
 
 With the inclusion of a **remote control and timer**, users can effortlessly customize their lighting experience, setting the candles to turn on and off automatically. This feature not only adds convenience but also helps conserve battery life. Ideal for weddings, festivals, or cozy evenings at home, these flameless candles combine safety, elegance, and ease of use in one attractive package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09J1FK7RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07RW682K2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Angelloong Flickering Flameless Candles</a>
+## <a href="https://www.amazon.com/dp/B07RW682K2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Angelloong Flickering Flameless Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07RW682K2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANGELLOONG Flickering Flameless Candles, Realistic LED Candles with Remote and Timer, Set of 3 Battery Operated Candles for Room Fall Home Decor Wedding Christmas Decorations" src="https://m.media-amazon.com/images/I/31EL7kT10EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RW682K2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANGELLOONG Flickering Flameless Candles, Realistic LED Candles with Remote and Timer, Set of 3 Battery Operated Candles for Room Fall Home Decor Wedding Christmas Decorations" src="https://m.media-amazon.com/images/I/31EL7kT10EL._SL500_.jpg"/></a>
 
 
 The **ANGELLOONG Flickering Flameless Candles** are perfect for individuals seeking a safe, elegant, and hassle-free lighting solution for their **home decor**, weddings, Christmas celebrations, or any cozy indoor setting. Ideal for those who want the charm of traditional candles without the risks of open flames, these **realistic LED candles** cater to families, event planners, and anyone who values ambiance combined with convenience.
@@ -159,12 +159,12 @@ The **ANGELLOONG Flickering Flameless Candles** feature a realistic LED flame th
 
 Additionally, being **battery operated** means these candles provide flexibility in placement without the limitation of power outlets or tangled wires. The **classic ivory color** and soft flickering light make them an excellent choice for those who want a sophisticated look in their home or event space. Overall, these flameless candles blend safety, style, and functionality, making them a smart investment for anyone looking to enhance ambiance safely and beautifully.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07RW682K2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07RW682K2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07DN39C5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shymery Flameless Votive Candles</a>
+## <a href="https://www.amazon.com/dp/B07DN39C5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shymery Flameless Votive Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07DN39C5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHYMERY Flameless Votive Candles,Flameless Flickering Electric Fake Candle,24 Pack 200+Hour Battery Operated LED Tea Lights in Warm White for Wedding, Table, Halloween,Christmas Decorations 1.5" src="https://m.media-amazon.com/images/I/41i6G8TxGNL._SL500_.jpg" x1.7""=""/></a>
+<a href="https://www.amazon.com/dp/B07DN39C5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHYMERY Flameless Votive Candles,Flameless Flickering Electric Fake Candle,24 Pack 200+Hour Battery Operated LED Tea Lights in Warm White for Wedding, Table, Halloween,Christmas Decorations 1.5" src="https://m.media-amazon.com/images/I/41i6G8TxGNL._SL500_.jpg" x1.7""=""/></a>
 
 
 The **SHYMERY Flameless Votive Candles** are perfect for individuals looking to create a cozy and elegant atmosphere without the hassle and danger of real flames. Ideal for event planners, homeowners, and decorators who want safe, long-lasting, and realistic candlelight for occasions like weddings, Halloween, and Christmas, these **battery-operated LED tea lights** offer a convenient and beautiful lighting solution.
@@ -186,12 +186,12 @@ These **flameless votive candles** feature realistic flickering LED lights that 
 
 Designed by **SHYMERY** and manufactured by **ZORUI**, each candle is powered by batteries that deliver over **200 hours of continuous light**, ensuring that your events or decorations remain illuminated for extended periods without frequent maintenance. This makes them an excellent choice for weddings, festive celebrations, and everyday use where safety and longevity are priorities.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07DN39C5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07DN39C5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sasigeiaa Halloween Flameless Candles With Remote</a>
+## <a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sasigeiaa Halloween Flameless Candles With Remote</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 6")="" alt="Sasigeiaa Halloween Flameless Candles with Remote - Orange LED Candles &amp; String Lights, Glass Shell,Battery Operated Set of 3 (D3 x H4/5" decoration"="" decoration,living="" for="" halloween="" room="" src="https://m.media-amazon.com/images/I/41LGZphctiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 6")="" alt="Sasigeiaa Halloween Flameless Candles with Remote - Orange LED Candles &amp; String Lights, Glass Shell,Battery Operated Set of 3 (D3 x H4/5" decoration"="" decoration,living="" for="" halloween="" room="" src="https://m.media-amazon.com/images/I/41LGZphctiL._SL500_.jpg"/></a>
 
 
 The **Sasigeiaa Halloween Flameless Candles with Remote** are ideal for individuals looking to enhance their **Halloween decorations** or add a cozy ambiance to their **living room** without the hazards of real flames. Perfect for families with children or pets, as well as anyone seeking a safe, stylish, and convenient lighting option, these candles offer a festive glow that complements seasonal and everyday decor.
@@ -214,12 +214,12 @@ The **Sasigeiaa Halloween Flameless Candles** feature a carefully designed glass
 
 Battery operation ensures these candles can be placed anywhere without worrying about cords, while the handy **remote control** adds convenience by allowing users to switch them on or off and adjust settings effortlessly. This combination of features delivers both aesthetic appeal and practical safety, making the Sasigeiaa flameless candles a versatile choice for seasonal and everyday use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DZCBTMFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07YHPRWSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genswin Flameless Ivory Taper Candles</a>
+## <a href="https://www.amazon.com/dp/B07YHPRWSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genswin Flameless Ivory Taper Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07YHPRWSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GenSwin Flameless Ivory Taper Candles Flickering with 10-Key Remote, Battery Operated Led Warm 3D Wick Light Window Candles Real Wax Pack of 6, Christmas Home Wedding Decor(0.78 X 9.64 Inch)" src="https://m.media-amazon.com/images/I/41nJKx4cijL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YHPRWSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GenSwin Flameless Ivory Taper Candles Flickering with 10-Key Remote, Battery Operated Led Warm 3D Wick Light Window Candles Real Wax Pack of 6, Christmas Home Wedding Decor(0.78 X 9.64 Inch)" src="https://m.media-amazon.com/images/I/41nJKx4cijL._SL500_.jpg"/></a>
 
 
 The **GenSwin Flameless Ivory Taper Candles** are ideal for individuals seeking a safe, elegant alternative to traditional candles. Perfect for homeowners, event planners, and those who want to create a cozy ambiance without the risk of open flames, these battery-operated LED candles are especially suited for Christmas, weddings, or any home decor setting. If you want the charm of real wax candles combined with modern convenience, this product is for you.
@@ -241,12 +241,12 @@ The **GenSwin Flameless Ivory Taper Candles** offer the elegance of traditional 
 
 Designed with **real wax**, these candles maintain the authentic texture and appearance of classic taper candles, enhancing their visual appeal. Their slim profile and lightweight design make them versatile for use in various holders and arrangements. Whether you want to decorate your home during the holidays or add a touch of sophistication to a wedding, these candles combine style and functionality to elevate your decor experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07YHPRWSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07YHPRWSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Biyanuo Outdoor Plastic Flameless Candles</a>
+## <a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Biyanuo Outdoor Plastic Flameless Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Biyanuo 2PACK Outdoor Plastic flameless Candles with Remote Control and Timer, LED Flickering Battery Operated Electric Pillar Candles (D3 xH5.5) for Camping, Weddings, Home Decoration" src="https://m.media-amazon.com/images/I/31cpne+GRhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Biyanuo 2PACK Outdoor Plastic flameless Candles with Remote Control and Timer, LED Flickering Battery Operated Electric Pillar Candles (D3 xH5.5) for Camping, Weddings, Home Decoration" src="https://m.media-amazon.com/images/I/31cpne+GRhL._SL500_.jpg"/></a>
 
 
 The **Biyanuo 2PACK Outdoor Plastic Flameless Candles** with Remote Control and Timer are perfect for individuals who want a safe, elegant lighting solution without the hassle of real flames. Ideal for **campers, event planners, wedding coordinators**, and homeowners looking to enhance their **home decoration** with ambient lighting, these **LED flickering battery-operated electric pillar candles** offer a versatile and convenient alternative to traditional candles.
@@ -271,12 +271,12 @@ The **Biyanuo Outdoor Flameless Candles** feature an easy-to-use remote control 
 
 These **battery-operated electric pillar candles** are crafted from durable plastic, making them suitable for outdoor conditions without the risk of melting or damage. Their compact dimensions (3 inches in diameter and 5.5 inches tall) make them versatile for a variety of decor settings, fitting seamlessly on tables, mantels, or pathways. Overall, the Biyanuo flameless candles offer an effective, safe, and stylish lighting solution for those seeking ambiance with minimal maintenance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGX7DKHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artmarry Flameless Candles</a>
+## <a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artmarry Flameless Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10-key="" 2="" 3="" 3"="" 400+="" 5"="" 6"="" aa="" alt="Artmarry Flameless Candles 4" batteries"="" battery="" candles="" diameter="" flickering="" function="" hours="" include="" indoor="" ivory="" of="" operated="" outdoor="" pillars="" remote="" requires="" set="" src="https://m.media-amazon.com/images/I/317PYsGv-YL._SL500_.jpg" timer=""/></a>
+<a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10-key="" 2="" 3="" 3"="" 400+="" 5"="" 6"="" aa="" alt="Artmarry Flameless Candles 4" batteries"="" battery="" candles="" diameter="" flickering="" function="" hours="" include="" indoor="" ivory="" of="" operated="" outdoor="" pillars="" remote="" requires="" set="" src="https://m.media-amazon.com/images/I/317PYsGv-YL._SL500_.jpg" timer=""/></a>
 
 
 The **Artmarry Flameless Candles 4" 5" 6" Set of 3** are perfect for individuals seeking a safe, elegant, and convenient lighting option for both **outdoor and indoor** spaces. Ideal for homeowners, event planners, and anyone who appreciates the warm ambiance of candlelight without the risk of open flames, these candles suit those who want hassle-free decoration with long-lasting use.
@@ -298,7 +298,7 @@ The **Artmarry Flameless Candles** feature a realistic flickering flame effect p
 
 Equipped with a **10-key remote control**, users can conveniently adjust brightness, set timers, and switch between modes from a distance. This added functionality enhances user experience by providing customizable lighting options to suit different moods or occasions. Overall, the set offers a blend of style, safety, and practicality ideal for enhancing ambiance effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CRZ1D6K5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

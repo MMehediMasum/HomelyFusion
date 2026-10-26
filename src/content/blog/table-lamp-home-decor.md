@@ -23,10 +23,10 @@ Small lamps fit well on nightstands, desks, or shelves. They help with reading, 
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, or **desk** space. If you value adjustable lighting with modern convenience features like USB C charging ports and an AC outlet, this **3-way dimmable touch lamp** offers both practicality and aesthetic appeal, making it perfect for students, professionals, and home decor enthusiasts.
@@ -49,12 +49,12 @@ The **Fenmzee Bedside Table Lamp** combines elegance and functionality with its 
 
 Beyond lighting, this lamp serves as a convenient charging station thanks to its built-in **USB C ports** and **AC outlet**. This thoughtful integration helps declutter bedside tables by minimizing the need for multiple adapters and cables. Overall, the **Fenmzee lamp** offers a smart, stylish solution for those seeking an all-in-one bedside lighting and charging accessory.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
 
 
 The **Small Table Lamp for Bedroom** by aooshine is ideal for individuals seeking a compact, stylish lighting solution for their **bedside**, **nightstand**, or **desk**. Whether you are a student in a **dorm room**, a professional working from a **home office**, or a parent looking for a soft light source in your child's room, this lamp offers a minimalist design with practical functionality.
@@ -76,12 +76,12 @@ The **Small Table Lamp** features a sleek and minimalist design that prioritizes
 
 Designed by **aooshine**, this lamp's lightweight construction allows users to easily reposition it as needed, whether moving it from a bedroom nightstand to a living room side table or a child's study desk. The lamp is especially beneficial for students and professionals who require a dependable yet unobtrusive light source for late-night reading or work sessions. Overall, this lamp provides a balance of aesthetic appeal and practical illumination in a compact form, making it a versatile addition to any room.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F537KKPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lionvison Half Moon Light For Nail Desk</a>
+## <a href="https://www.amazon.com/dp/B0F537KKPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lionvison Half Moon Light For Nail Desk</a>
 
 
-<a href="https://www.amazon.com/dp/B0F537KKPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIONVISON Half Moon Light for Nail Desk: 31-inch Manicure Table Light with Phone Holder for Beginner DIY - 48W Professional Half Moon Lamp for Nail Tech,Eyelash,Makeup,Tattoo" src="https://m.media-amazon.com/images/I/41yPtye464L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F537KKPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIONVISON Half Moon Light for Nail Desk: 31-inch Manicure Table Light with Phone Holder for Beginner DIY - 48W Professional Half Moon Lamp for Nail Tech,Eyelash,Makeup,Tattoo" src="https://m.media-amazon.com/images/I/41yPtye464L._SL500_.jpg"/></a>
 
 
 The **LIONVISON Half Moon Light for Nail Desk** is ideal for **beginner DIY enthusiasts**, professional **nail technicians**, and artists specializing in **eyelash extensions, makeup, and tattoos**. If you need a reliable, bright, and ergonomic lighting solution for detailed work on a manicure table, this 31-inch half moon lamp is designed to enhance your workspace efficiency and comfort.
@@ -104,12 +104,12 @@ The **LIONVISON Half Moon Light** stands out with its impressive **48W power out
 
 Another notable feature is the integrated **phone holder**, which adds convenience by keeping your phone visible and accessible, enabling multitasking without disrupting your workflow. The modern and clean **white finish** adds a professional touch to any setup, while the sturdy construction ensures durability. Overall, this lamp enhances productivity and comfort, making it a valuable tool for both beginners and seasoned professionals in the beauty and creative industries.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F537KKPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F537KKPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
 
 
 The **Small Bedside Table Lamp for Bedroom** is ideal for individuals looking to enhance their bedroom or kids' room lighting with a versatile and compact lamp. Perfect for students, parents, or anyone needing a functional bedside lighting solution that offers multiple color temperatures and convenient charging options. This lamp suits those who value space-saving designs and multi-functionality in their nightstand accessories.
@@ -132,12 +132,12 @@ The **Dicoool Small Bedside Table Lamp** combines practicality with modern techn
 
 Additionally, the lamp’s **pull chain switch** offers convenient control without the hassle of searching for buttons, which is especially useful in low light. The integrated **AC outlet** further enhances functionality, enabling users to plug in additional electronics directly at the bedside. Compact yet sturdy, the lamp’s sleek **white shade** paired with a **black metal base** blends seamlessly into various bedroom decors, making it a practical choice for both kids and adults alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onewish Touch Bedside Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onewish Touch Bedside Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEWISH Touch Bedside Lamp for Bedroom, 3-Way Dimmable Farmhouse Table Lamps for Nightstand with Fabric Shade, Desk Lamp for Kids Reading, Home Office" src="https://m.media-amazon.com/images/I/41cCWv3THRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEWISH Touch Bedside Lamp for Bedroom, 3-Way Dimmable Farmhouse Table Lamps for Nightstand with Fabric Shade, Desk Lamp for Kids Reading, Home Office" src="https://m.media-amazon.com/images/I/41cCWv3THRL._SL500_.jpg"/></a>
 
 
 The **ONEWISH Touch Bedside Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their bedroom, home office, or kids' reading area. If you want a compact, easy-to-use lamp with adjustable brightness, this **3-way dimmable farmhouse table lamp** is perfect for enhancing your nighttime ambiance or providing focused light for tasks.
@@ -159,12 +159,12 @@ The **ONEWISH Touch Bedside Lamp** features a simple yet elegant **fabric shade*
 
 Additionally, the lamp’s lightweight construction makes it convenient to move around your home as needed, while its farmhouse-inspired style complements various décor themes. Whether you need a gentle night light for children or a focused desk lamp for your home office, the **ONEWISH Touch Bedside Lamp** offers versatility and user-friendly features that enhance everyday living.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23'' Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23'' Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 23'' Bedside Table Lamp for Bedroom Nightstands, Ceramic Lamp for Living Room, White Night Stand Light with Round Linen Shade, Modern, Silver" src="https://m.media-amazon.com/images/I/41maz5em+BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 23'' Bedside Table Lamp for Bedroom Nightstands, Ceramic Lamp for Living Room, White Night Stand Light with Round Linen Shade, Modern, Silver" src="https://m.media-amazon.com/images/I/41maz5em+BL._SL500_.jpg"/></a>
 
 
 The **PoKat 23'' Bedside Table Lamp** is ideal for individuals looking to enhance their bedroom or living room ambiance with a stylish yet functional lighting solution. Perfect for those who appreciate modern design and quality craftsmanship, this lamp suits homeowners, renters, and interior design enthusiasts seeking a versatile and elegant light fixture for their nightstands or side tables.
@@ -187,12 +187,12 @@ The **PoKat 23'' Bedside Table Lamp** boasts a sleek and modern design that comp
 
 Additionally, the lamp's size and weight make it a practical choice for various spaces, including small apartments or cozy reading nooks. Its neutral color palette allows it to pair well with different decor styles, from minimalist to traditional. Users will appreciate how the lamp balances form and function, delivering soft illumination that improves comfort without sacrificing elegance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPYCDMCR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F6LR11BM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Bsdgeclogy Foldable And Adjustable Led Desk Lamp </a>
+## <a href="https://www.amazon.com/dp/B0F6LR11BM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Bsdgeclogy Foldable And Adjustable Led Desk Lamp </a>
 
 
-<a href="https://www.amazon.com/dp/B0F6LR11BM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bsdgeclogy Foldable and Adjustable LED Desk Lamp, Dual Head Portable Book Light with Stepless Dimming and 3 Color Modes for Bedside, Reading or Travel (Pink)" src="https://m.media-amazon.com/images/I/31nuI3KlgKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6LR11BM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bsdgeclogy Foldable and Adjustable LED Desk Lamp, Dual Head Portable Book Light with Stepless Dimming and 3 Color Modes for Bedside, Reading or Travel (Pink)" src="https://m.media-amazon.com/images/I/31nuI3KlgKL._SL500_.jpg"/></a>
 
 
 The **Bsdgeclogy Foldable and Adjustable LED Desk Lamp** is ideal for readers, students, and travelers who need a compact, versatile lighting solution. Its portable design and adjustable features make it perfect for those who require focused illumination for bedside reading, studying, or on-the-go use. If you value convenience, customization, and style, especially in a vibrant **pink** color, this lamp is an excellent choice.
@@ -216,12 +216,12 @@ The **Bsdgeclogy Foldable and Adjustable LED Desk Lamp** features a compact size
 
 Additionally, the lamp's three distinct color modes—warm, cool, and natural light—cater to different lighting needs and preferences. This versatility not only improves visibility but also helps maintain eye health by adapting to various lighting conditions. The foldable and lightweight build means it can easily fit into a bag or bedside table, making it an excellent travel companion or an efficient bedside reading light. Overall, the **Bsdgeclogy LED Desk Lamp** combines style, portability, and customizable lighting to deliver a user-friendly experience for anyone seeking a reliable and adaptable light source.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F6LR11BM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F6LR11BM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp with USB Ports** by **Dott Arts** is perfect for individuals seeking a versatile and efficient lighting solution for their **home office**, **bedroom**, or study area. Ideal customers include students, professionals working from home, and anyone who values adjustable lighting combined with modern conveniences like USB charging.
@@ -245,12 +245,12 @@ The **Dott Arts LED Desk Lamp** offers a combination of functionality and style,
 
 Another standout feature is the integrated **USB charging ports**, which eliminate the need for extra power strips or chargers on your desk. This convenience helps keep your workspace organized and clutter-free. Additionally, the compact design paired with a **small night light** function makes it versatile enough for various settings, from bright task lighting during the day to soft illumination at night.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine Tripod Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine Tripod Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE Tripod Table Lamp, Small Cute Bedside Lamp with Linen Beige Lampshade, Nightstand Lamp for Nursery, Bedroom, Kid Room, Living Room, Light Brown Wooden Base, E26 Socket, 14.2 Inch" src="https://m.media-amazon.com/images/I/41Id7YdujHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE Tripod Table Lamp, Small Cute Bedside Lamp with Linen Beige Lampshade, Nightstand Lamp for Nursery, Bedroom, Kid Room, Living Room, Light Brown Wooden Base, E26 Socket, 14.2 Inch" src="https://m.media-amazon.com/images/I/41Id7YdujHL._SL500_.jpg"/></a>
 
 
 The **EDISHINE Tripod Table Lamp** is perfect for individuals seeking a charming and functional lighting solution for smaller spaces such as nurseries, bedrooms, or living rooms. Ideal for those who appreciate a blend of modern design and cozy ambiance, this lamp suits anyone wanting to add a subtle yet stylish touch to their nightstand or side table. Its compact size and neutral colors make it especially suitable for parents decorating a kid’s room or anyone looking to enhance their living area with soft lighting.
@@ -273,12 +273,12 @@ The **EDISHINE Tripod Table Lamp** features a thoughtfully designed **light brow
 
 The lamp’s use of a standard **E26 socket** means it is compatible with a variety of LED or incandescent bulbs, allowing users to customize the brightness and energy efficiency to their preference. Its lightweight build makes it easy to reposition, providing flexibility in decorating different rooms or adjusting lighting as needed. Overall, the **EDISHINE Tripod Table Lamp** offers a blend of style, function, and convenience for anyone looking to enhance their home lighting with a charming, small-scale lamp.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZTT3MKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Night Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Night Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8D2K76V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Night Table Lamp for Bedroom, Minimalist Nightstand Lamp with Round Fabric Linen Shade, Study Reading Desk Lamp for Kids Room, Living Room, College Dorm, Home, Office" src="https://m.media-amazon.com/images/I/41FCrvR3E8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8D2K76V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Night Table Lamp for Bedroom, Minimalist Nightstand Lamp with Round Fabric Linen Shade, Study Reading Desk Lamp for Kids Room, Living Room, College Dorm, Home, Office" src="https://m.media-amazon.com/images/I/41FCrvR3E8L._SL500_.jpg"/></a>
 
 
 The **Small Bedside Night Table Lamp** by **SEENSINY** is perfect for individuals seeking a compact and stylish lighting solution for their **bedroom**, **kids room**, **living room**, or **college dorm**. Ideal for those who prefer a minimalist design combined with functionality, this lamp suits students, professionals, and homeowners who need a cozy, warm light for reading or studying without taking up much space.
@@ -301,7 +301,7 @@ The **SEENSINY Small Bedside Night Table Lamp** features a thoughtfully designed
 
 With its lightweight construction and neutral beige color, this lamp is highly portable and blends seamlessly into various environments such as **kids' rooms, home offices, or dormitories**. Users benefit from its simplicity and functional design, making it an excellent choice for those who want an attractive yet unobtrusive light source that enhances their space without clutter. Although it lacks advanced features like dimming, its straightforward operation and cozy lighting make it a reliable companion for everyday use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

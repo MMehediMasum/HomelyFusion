@@ -23,10 +23,10 @@ Some vases come with thick glass to prevent tipping and add durability. Smaller 
 
 
 
-## <a href="https://www.amazon.com/dp/B09X34SFQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8 Inch Clear Glass Flower Vase</a>
+## <a href="https://www.amazon.com/dp/B09X34SFQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8 Inch Clear Glass Flower Vase</a>
 
 
-<a href="https://www.amazon.com/dp/B09X34SFQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8 inch Clear Glass Flower Vases for Centerpiece Table Home Indoor Desk Decor,Ins Modern Boho Style Vase for Wedding Housewarming Gift" src="https://m.media-amazon.com/images/I/21SPua7u8iL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09X34SFQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8 inch Clear Glass Flower Vases for Centerpiece Table Home Indoor Desk Decor,Ins Modern Boho Style Vase for Wedding Housewarming Gift" src="https://m.media-amazon.com/images/I/21SPua7u8iL._SL500_.jpg"/></a>
 
 
 The **8 inch Clear Glass Flower Vases** by **Nisoger** are perfect for individuals seeking a stylish and versatile centerpiece for their home or office. Ideal for those who appreciate **modern boho style** decor, this vase is a great choice for people wanting to enhance their indoor spaces with elegant and subtle floral arrangements. It is especially suitable for event planners or gift buyers looking for a thoughtful **wedding** or **housewarming gift**.
@@ -48,10 +48,10 @@ The **8 inch Clear Glass Flower Vase** stands out with its elegant and minimalis
 
 Additionally, this vase’s **modern boho style** fits seamlessly into various interior design themes, from contemporary to rustic chic. The sturdy build from **Nisoger** ensures durability while maintaining a lightweight feel for easy handling. Whether used as a centerpiece or a thoughtful gift, this vase offers both functionality and style for users looking to brighten their living or working environments.
 
-## <a href="https://www.amazon.com/dp/B0CCJ4HN22?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artistic Wood Glass Vase</a>
+## <a href="https://www.amazon.com/dp/B0CCJ4HN22?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artistic Wood Glass Vase</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCJ4HN22?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artistic Wood Glass Vase, 10" base="" bedroom="" boho="" centerpieces="" classic="" cylindrical="" desk"="" fireplace="" flower="" for="" h,="" kitchen="" living="" office="" room="" rustic="" src="https://m.media-amazon.com/images/I/41ML8BgIVQL._SL500_.jpg" style="" vase,="" wooden=""/></a>
+<a href="https://www.amazon.com/dp/B0CCJ4HN22?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artistic Wood Glass Vase, 10" base="" bedroom="" boho="" centerpieces="" classic="" cylindrical="" desk"="" fireplace="" flower="" for="" h,="" kitchen="" living="" office="" room="" rustic="" src="https://m.media-amazon.com/images/I/41ML8BgIVQL._SL500_.jpg" style="" vase,="" wooden=""/></a>
 
 
 The **Artistic Wood Glass Vase** is perfect for individuals who appreciate a blend of **rustic and boho style** in their home decor. Ideal for homeowners, interior decorators, and anyone looking to add a touch of **natural elegance** to spaces such as the **fireplace, bedroom, kitchen, living room centerpieces, or office desk**. This vase suits those who want a versatile and stylish piece that complements various environments while providing a functional floral display.
@@ -74,10 +74,10 @@ The **Artistic Wood Glass Vase** features a beautifully crafted **wooden base** 
 
 In addition to its aesthetic appeal, the vase's dimensions and weight make it practical for everyday use. It fits comfortably on desks, mantels, or kitchen counters without overwhelming the space. The quality manufacturing by **Valemoon** ensures durability, while the simple yet striking design allows users to effortlessly enhance their living or working environment with natural elements.
 
-## <a href="https://www.amazon.com/dp/B008NUQCHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wgvi Quality Thick Weighted Clear Cylinder Glass Vases</a>
+## <a href="https://www.amazon.com/dp/B008NUQCHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wgvi Quality Thick Weighted Clear Cylinder Glass Vases</a>
 
 
-<a href="https://www.amazon.com/dp/B008NUQCHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1="" 16"="" alt="WGVI Quality Thick Weighted Clear Cylinder Glass Vases, 3" arrangements="" bouquet="" bud="" candle="" centerpieces="" container="" decor,="" floral="" flower="" h,="" holders="" home="" piece"="" skinny="" src="https://m.media-amazon.com/images/I/314aJXu9cUL._SL500_.jpg" tall="" vase="" w="" wedding="" x=""/></a>
+<a href="https://www.amazon.com/dp/B008NUQCHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1="" 16"="" alt="WGVI Quality Thick Weighted Clear Cylinder Glass Vases, 3" arrangements="" bouquet="" bud="" candle="" centerpieces="" container="" decor,="" floral="" flower="" h,="" holders="" home="" piece"="" skinny="" src="https://m.media-amazon.com/images/I/314aJXu9cUL._SL500_.jpg" tall="" vase="" w="" wedding="" x=""/></a>
 
 
 The **WGVI Quality Thick Weighted Clear Cylinder Glass Vase** is ideal for individuals seeking an elegant and versatile container for their floral arrangements or decorative displays. Perfect for event planners, home decorators, or anyone who enjoys showcasing fresh or artificial flowers, this vase is especially suited for those who want a tall, slender design that adds height and sophistication to any space. Its clear glass construction makes it a great choice for weddings, centerpieces, or candle holders, appealing to customers who value both functionality and aesthetic appeal.
@@ -100,10 +100,10 @@ The **WGVI Quality Thick Weighted Clear Cylinder Glass Vase** stands out due to 
 
 Additionally, this vase’s versatility extends beyond flowers. It can also serve as a stylish candle holder or a decorative container for various events such as weddings or home gatherings. The combination of durability, elegance, and multi-functionality makes it a valuable addition to any home decor or event planning toolkit. Users benefit from having a reliable and attractive vessel that enhances the visual appeal of their space effortlessly.
 
-## <a href="https://www.amazon.com/dp/B07XP5D2G3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fantesticryan Modern Glass Vase</a>
+## <a href="https://www.amazon.com/dp/B07XP5D2G3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fantesticryan Modern Glass Vase</a>
 
 
-<a href="https://www.amazon.com/dp/B07XP5D2G3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FANTESTICRYAN Modern Glass Vase Irised Crystal Clear Glass Vase for Home Office Decor (Crystal Amber)" src="https://m.media-amazon.com/images/I/41KdGoxYXSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XP5D2G3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FANTESTICRYAN Modern Glass Vase Irised Crystal Clear Glass Vase for Home Office Decor (Crystal Amber)" src="https://m.media-amazon.com/images/I/41KdGoxYXSL._SL500_.jpg"/></a>
 
 
 The **FANTESTICRYAN Modern Glass Vase Irised Crystal Clear Glass Vase** in **Crystal Amber** is perfect for individuals looking to elevate their **home or office decor** with a stylish and contemporary piece. Ideal customers include those who appreciate modern design aesthetics and want a versatile vase that complements various interior styles while adding a subtle touch of color and elegance.
@@ -125,10 +125,10 @@ The **FANTESTICRYAN Modern Glass Vase** features a beautifully crafted irised cr
 
 Designed with both aesthetics and practicality in mind, the vase’s lightweight structure makes it easy to move and reposition as needed, perfect for those who like to refresh their space regularly. The high-quality glass ensures that the vase maintains its clarity and brilliance over time, providing users with a long-lasting decor element that adds charm and personality to their environment.
 
-## <a href="https://www.amazon.com/dp/B01N8SSUST?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Imports Flower/bud Glass Vase Decorative Centerpiece</a>
+## <a href="https://www.amazon.com/dp/B01N8SSUST?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Imports Flower/bud Glass Vase Decorative Centerpiece</a>
 
 
-<a href="https://www.amazon.com/dp/B01N8SSUST?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Imports Flower/Bud Glass Vase Decorative Centerpiece, Home or Wedding - 9" clear"="" src="https://m.media-amazon.com/images/I/31ClGAmWD2L._SL500_.jpg" x2",=""/></a>
+<a href="https://www.amazon.com/dp/B01N8SSUST?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Imports Flower/Bud Glass Vase Decorative Centerpiece, Home or Wedding - 9" clear"="" src="https://m.media-amazon.com/images/I/31ClGAmWD2L._SL500_.jpg" x2",=""/></a>
 
 
 The **Royal Imports Flower/Bud Glass Vase Decorative Centerpiece** is perfect for individuals looking to add an elegant touch to their home or wedding décor. Ideal for those who appreciate minimalist and clear design, this vase suits customers wanting a versatile and stylish container for fresh or artificial flowers. Whether you're a homeowner, event planner, or someone seeking a tasteful centerpiece, this vase fits seamlessly into various settings.
@@ -150,10 +150,10 @@ The **Royal Imports Glass Vase** features a sleek and transparent design that al
 
 Additionally, the vase’s clear glass complements any color scheme, making it a versatile choice for both casual home use and formal events like weddings. The quality craftsmanship by **Royal Imports** ensures that this decorative centerpiece remains a durable and attractive addition to your décor collection for years to come.
 
-## <a href="https://www.amazon.com/dp/B096LYGPX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Timefoto Flower Vase 7.5 Inch Green Thickened Glass Vase</a>
+## <a href="https://www.amazon.com/dp/B096LYGPX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Timefoto Flower Vase 7.5 Inch Green Thickened Glass Vase</a>
 
 
-<a href="https://www.amazon.com/dp/B096LYGPX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIMEFOTO Flower Vase 7.5 inch Green Thickened Glass Vase for Bookshelf,Dinner Table,Indoor Office Desktop,Meeting Room,Bathroom,Countertop,Home Christmas Day Decoration" src="https://m.media-amazon.com/images/I/41WFUQg3wML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096LYGPX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIMEFOTO Flower Vase 7.5 inch Green Thickened Glass Vase for Bookshelf,Dinner Table,Indoor Office Desktop,Meeting Room,Bathroom,Countertop,Home Christmas Day Decoration" src="https://m.media-amazon.com/images/I/41WFUQg3wML._SL500_.jpg"/></a>
 
 
 The **TIMEFOTO Flower Vase 7.5 inch Green Thickened Glass Vase** is ideal for individuals looking to enhance their living or working spaces with a touch of elegant greenery. Whether you want to decorate your **bookshelf**, **dinner table**, **office desktop**, or **meeting room**, this vase is perfect for those who appreciate stylish, durable home accessories that add color and charm. It also suits people who enjoy seasonal decorations, especially around **Christmas** or other special occasions.
@@ -176,10 +176,10 @@ The **TIMEFOTO Flower Vase** stands out with its **thickened green glass constru
 
 Beyond its aesthetic value, the vase's practical size and lightweight design provide convenience and flexibility in placement. Whether used for fresh flowers or decorative artificial arrangements, it offers a versatile solution for enhancing your environment. Its subtle green hue contributes to a calming atmosphere, promoting relaxation and creativity, which is especially beneficial in work or meeting spaces. Overall, the **TIMEFOTO Flower Vase** combines style, function, and durability for a charming decorative accessory.
 
-## <a href="https://www.amazon.com/dp/B0DG2812KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clear Glass Vases Flower Vases</a>
+## <a href="https://www.amazon.com/dp/B0DG2812KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clear Glass Vases Flower Vases</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG2812KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (transparent)"="" alt="Clear Glass Vases Flower Vases for Centerpieces 9" cylinder="" décor="" entryway="" events="" for="" glass="" home="" large="" office="" party="" src="https://m.media-amazon.com/images/I/415AA3zIXfL._SL500_.jpg" vase="" wedding=""/></a>
+<a href="https://www.amazon.com/dp/B0DG2812KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (transparent)"="" alt="Clear Glass Vases Flower Vases for Centerpieces 9" cylinder="" décor="" entryway="" events="" for="" glass="" home="" large="" office="" party="" src="https://m.media-amazon.com/images/I/415AA3zIXfL._SL500_.jpg" vase="" wedding=""/></a>
 
 
 The **Clear Glass Vases Flower Vases for Centerpieces** are ideal for individuals looking to enhance their home or event décor with a sleek and versatile touch. Perfect for homeowners, wedding planners, event organizers, or office decorators, this **9" large glass cylinder vase** offers a transparent and elegant solution for displaying flowers and creating stunning centerpieces. If you want a stylish yet simple vase that complements any setting, this item is an excellent choice.
@@ -201,10 +201,10 @@ The **misognare Clear Glass Vase** features a tall and elegant cylindrical shape
 
 Beyond aesthetics, this vase brings practical benefits by serving as a multipurpose décor piece suitable for home, office, or event settings. Its simplicity in design makes it easy to coordinate with other decorative elements, while the generous height allows for creative use beyond flowers—such as floating candles or decorative fillers. The lightweight nature ensures that the vase can be easily repositioned to suit changing décor needs, making it a versatile and valuable addition to any environment.
 
-## <a href="https://www.amazon.com/dp/B0DGQNZBR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chpindam Plant Propagation Station</a>
+## <a href="https://www.amazon.com/dp/B0DGQNZBR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chpindam Plant Propagation Station</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGQNZBR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHPINDAM Plant Propagation Station,Hydroponic Glass Container Vase Jars, with Wooden Saucer for Desks, Houses, Garden Decorations, Home Kitchen Decorations and Gifts for Plant Lovers (2)" src="https://m.media-amazon.com/images/I/411FK3-yIvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGQNZBR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHPINDAM Plant Propagation Station,Hydroponic Glass Container Vase Jars, with Wooden Saucer for Desks, Houses, Garden Decorations, Home Kitchen Decorations and Gifts for Plant Lovers (2)" src="https://m.media-amazon.com/images/I/411FK3-yIvL._SL500_.jpg"/></a>
 
 
 The **CHPINDAM Plant Propagation Station** is ideal for **plant enthusiasts**, hobbyists, and anyone looking to enhance their home or office decor with a touch of greenery. If you enjoy **hydroponic gardening** or want to propagate plants without soil, this stylish and functional glass container is perfect for your needs. It is also an excellent gift choice for **plant lovers** seeking a modern and elegant way to grow and display their plants.
@@ -228,10 +228,10 @@ The **CHPINDAM Plant Propagation Station** offers a beautifully crafted solution
 
 Additionally, this propagation station is designed to blend seamlessly with various home and garden decor styles. Whether used as a functional vase or a decorative piece, it helps bring a fresh, natural element into your living space. For people who enjoy growing plants from cuttings, this product simplifies the process by providing an ideal environment for root growth without the mess of soil. Overall, it is a thoughtful and stylish choice for anyone aiming to cultivate plants while enhancing their surroundings.
 
-## <a href="https://www.amazon.com/dp/B00KI1UUII?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chinese Dragon &amp; Phoenix Ceramic Vase</a>
+## <a href="https://www.amazon.com/dp/B00KI1UUII?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chinese Dragon &amp; Phoenix Ceramic Vase</a>
 
 
-<a href="https://www.amazon.com/dp/B00KI1UUII?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wrapables Gifts &amp; Décor 4.5 Inch Chinese Dragon &amp; Phoenix Ceramic Vase" src="https://m.media-amazon.com/images/I/41VGF0Sbr4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KI1UUII?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wrapables Gifts &amp; Décor 4.5 Inch Chinese Dragon &amp; Phoenix Ceramic Vase" src="https://m.media-amazon.com/images/I/41VGF0Sbr4L._SL500_.jpg"/></a>
 
 
 The **Wrapables Gifts & Décor 4.5 Inch Chinese Dragon & Phoenix Ceramic Vase** is ideal for collectors of unique cultural artifacts, enthusiasts of Asian-inspired décor, and anyone looking to add a touch of elegance and symbolism to their living space. This vase is perfect for those who appreciate intricate designs and want to incorporate meaningful art pieces that represent harmony and balance.
@@ -254,10 +254,10 @@ The **Wrapables Chinese Dragon & Phoenix Ceramic Vase** boasts exquisite craftsm
 
 Beyond its aesthetic appeal, this vase serves as a meaningful décor item that can bring positive energy and balance to a home or office. The green hue not only complements various interior styles but also symbolizes growth and renewal. Crafted by **Wrapables**, this vase assures users of high-quality materials and attention to detail, making it a valuable addition to any collection or gift selection.
 
-## <a href="https://www.amazon.com/dp/B0DTDJ6GC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wangsdjy Separated Desktop Glass Flower Vases</a>
+## <a href="https://www.amazon.com/dp/B0DTDJ6GC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wangsdjy Separated Desktop Glass Flower Vases</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTDJ6GC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="wangsdjy Separated Desktop Glass Flower Vases - Ideal Plants Propagation Stations for Living Room, Bedroom Decoration,Home Decor (2)" src="https://m.media-amazon.com/images/I/515xO5wX5WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTDJ6GC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="wangsdjy Separated Desktop Glass Flower Vases - Ideal Plants Propagation Stations for Living Room, Bedroom Decoration,Home Decor (2)" src="https://m.media-amazon.com/images/I/515xO5wX5WL._SL500_.jpg"/></a>
 
 
 The **wangsdjy Separated Desktop Glass Flower Vases** are perfect for individuals who enjoy adding a touch of nature and elegance to their living spaces. Ideal for plant enthusiasts, interior decorators, or anyone looking to enhance their **living room**, **bedroom**, or **home decor**, these vases are designed to showcase plants beautifully while supporting healthy propagation. Their compact size makes them suitable for desks, shelves, and small tables.

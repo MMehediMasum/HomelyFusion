@@ -23,10 +23,10 @@ You can also find options like the Seealle Modern Green Table Lamps or the sophi
 
 
 
-## <a href="https://www.amazon.com/dp/B0DPZPCN8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Terpsichore Lamps Set Of 2 Modern Farmhouse Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DPZPCN8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Terpsichore Lamps Set Of 2 Modern Farmhouse Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPZPCN8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Terpsichore Lamps Set of 2 Modern Farmhouse Table Lamp Bedside Reading Lamps Living Room End Lamp Night Stands Bedroom Night Lights,High 26.25 Inch,White,with Fabric Light Shade,Bulb Not Included" src="https://m.media-amazon.com/images/I/51oAYtFkhQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPZPCN8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Terpsichore Lamps Set of 2 Modern Farmhouse Table Lamp Bedside Reading Lamps Living Room End Lamp Night Stands Bedroom Night Lights,High 26.25 Inch,White,with Fabric Light Shade,Bulb Not Included" src="https://m.media-amazon.com/images/I/51oAYtFkhQL._SL500_.jpg"/></a>
 
 
 The **Terpsichore Lamps Set of 2** is ideal for individuals seeking stylish and functional lighting solutions for their **bedside, living room, or nightstands**. Perfect for those who appreciate a **modern farmhouse** aesthetic, these lamps cater to homeowners and renters who want to combine elegance with practicality in their interior decor. If you need reliable **reading lamps** that offer both ambiance and adequate illumination, this set is designed for you.
@@ -48,10 +48,10 @@ The **Terpsichore Lamps** feature a tall, slender silhouette measuring **26.25 i
 
 Each lamp is thoughtfully crafted with quality materials by the **Terpsichore brand**, ensuring durability and long-lasting performance. The set of two lamps allows users to create a balanced lighting setup, which is essential for tasks such as reading or working in the evening. While the lamps do not include bulbs, this gives users the flexibility to choose the type of bulb that best suits their lighting preferences and energy efficiency needs. Overall, these lamps are a perfect blend of form and function for those looking to enhance their home lighting.
 
-## <a href="https://www.amazon.com/dp/B0C1TRMQ2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Usumkky 25" Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C1TRMQ2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Usumkky 25" Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1TRMQ2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 2="" alt="USumkky 25" bedroom"="" bedside="" ceramic="" for="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/412arKi3syL._SL500_.jpg" table="" washed="" white=""/></a>
+<a href="https://www.amazon.com/dp/B0C1TRMQ2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 2="" alt="USumkky 25" bedroom"="" bedside="" ceramic="" for="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/412arKi3syL._SL500_.jpg" table="" washed="" white=""/></a>
 
 
 Ideal for those looking to enhance their bedroom or living room ambiance with a touch of modern elegance, the **USumkky 25" Table Lamps Set of 2** is perfect for individuals who appreciate stylish yet functional lighting solutions. Whether you want to brighten your nightstand or add a cozy glow to your living space, these lamps cater to homeowners and interior enthusiasts seeking both aesthetic appeal and practical use.
@@ -73,10 +73,10 @@ The **USumkky 25" Table Lamps** feature a beautifully crafted ceramic body with 
 
 Beyond their aesthetic appeal, these lamps are manufactured by **youmei lighting**, guaranteeing quality and durability. The set of two allows for synchronized lighting in multiple areas, which is especially useful for couples or those wanting a uniform look in their living room. With their lightweight design, these lamps are easy to relocate or adjust, giving users flexibility in decorating and lighting arrangement.
 
-## <a href="https://www.amazon.com/dp/B0DHRH4QZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner 23" Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DHRH4QZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner 23" Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHRH4QZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" alt="PARTPHONER 23" bedroom,="" bedside="" beige"="" ceramic="" decor="" desk="" end="" farmhouse="" for="" home="" lamp="" lamps="" living="" modern="" nightstand="" of="" room,="" rustic="" set="" src="https://m.media-amazon.com/images/I/41lr63+GeRL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B0DHRH4QZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" alt="PARTPHONER 23" bedroom,="" bedside="" beige"="" ceramic="" decor="" desk="" end="" farmhouse="" for="" home="" lamp="" lamps="" living="" modern="" nightstand="" of="" room,="" rustic="" set="" src="https://m.media-amazon.com/images/I/41lr63+GeRL._SL500_.jpg" table="" white=""/></a>
 
 
 The **PARTPHONER 23" Modern Ceramic Table Lamp Set of 2** is ideal for individuals seeking stylish and functional lighting solutions for their **living room**, **bedroom**, or **nightstand**. If you appreciate **rustic farmhouse** aesthetics combined with contemporary design, these **white and beige ceramic table lamps** are perfect for enhancing your home decor while providing ample illumination. Homeowners and interior enthusiasts who want a versatile, elegant lighting set that complements a variety of spaces will benefit greatly from this product.
@@ -99,10 +99,10 @@ The **PARTPHONER 23" Modern Ceramic Table Lamp Set** features an eye-catching co
 
 These lamps also offer practical benefits such as easy integration into existing decor and the convenience of having a matching pair to evenly distribute light in a room. Whether used for reading or ambient lighting, the **PARTPHONER table lamps** enhance both functionality and aesthetic appeal, making them a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0DDPSY391?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Seealle Modern Green Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DDPSY391?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Seealle Modern Green Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDPSY391?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Seealle Modern Green Table Lamps Set of 2 - Bedside Lamps for Night Stands, 19.4" bedroom="" for="" green="" lamp="" lamps="" living="" rocker="" room="" sage="" src="https://m.media-amazon.com/images/I/31wi4daxoTL._SL500_.jpg" swtich"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DDPSY391?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Seealle Modern Green Table Lamps Set of 2 - Bedside Lamps for Night Stands, 19.4" bedroom="" for="" green="" lamp="" lamps="" living="" rocker="" room="" sage="" src="https://m.media-amazon.com/images/I/31wi4daxoTL._SL500_.jpg" swtich"="" with=""/></a>
 
 
 The **Seealle Modern Green Table Lamps Set of 2** is ideal for individuals looking to enhance their bedroom or living room ambiance with stylish yet functional lighting. Perfect for those who appreciate contemporary design paired with practicality, this set of bedside lamps suits homeowners, renters, and interior decorators aiming to add a pop of color and modern flair to nightstands or side tables. If you want a reliable lighting solution that complements a sage green aesthetic, these lamps are a great choice.
@@ -125,10 +125,10 @@ The **Seealle Modern Green Table Lamps** feature a sleek, contemporary style tha
 
 Beyond aesthetics, these lamps offer practical benefits such as balanced illumination from the set of two, which is ideal for reading or creating a relaxing atmosphere. The solid construction and stable base ensure these lamps remain securely positioned on your nightstands or side tables. Whether you're upgrading your bedroom lighting or adding a stylish accent to your living room, this set from **Seealle** delivers both form and function with ease.
 
-## <a href="https://www.amazon.com/dp/B0DQ8Q4L2N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Retro Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DQ8Q4L2N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Retro Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQ8Q4L2N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Retro Table Lamps Set of 2, Bedside Lamp for Bedroom Rustic Farmhouse Table Lamps for Living Room, 22" lamps="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41Fl-ucHyuL._SL500_.jpg" vintage="" white="" white"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DQ8Q4L2N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Retro Table Lamps Set of 2, Bedside Lamp for Bedroom Rustic Farmhouse Table Lamps for Living Room, 22" lamps="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41Fl-ucHyuL._SL500_.jpg" vintage="" white="" white"="" with=""/></a>
 
 
 The **PARTPHONER Retro Table Lamps Set of 2** is ideal for those looking to add a touch of **rustic farmhouse charm** to their bedroom or living room. If you want a combination of vintage aesthetics and functional lighting, these **22-inch vintage nightstand lamps** with **white shades** are perfect for you. They suit homeowners and renters alike who appreciate classic design with modern usability.
@@ -151,10 +151,10 @@ These **PARTPHONER Retro Table Lamps** combine a timeless **vintage aesthetic** 
 
 Additionally, the lamps' rustic farmhouse style easily complements a variety of interior designs, from country-inspired rooms to modern eclectic spaces. The soft illumination provided by the white shades helps create a soothing environment, enhancing comfort and ambiance. Overall, these lamps are a great choice for anyone seeking a stylish yet functional lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0CZ3FGGMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gold Small Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CZ3FGGMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gold Small Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ3FGGMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gold Small Bedside Table Lamp for Bedroom, Brass Gold Mini Table Lamps for Nightstand, Rattan Shade Table Lamps for Small Spaces for Kitchen Counter, Bookshelf, Bedroom, Living Room, Kids Dorm" src="https://m.media-amazon.com/images/I/412kWRzCSmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ3FGGMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gold Small Bedside Table Lamp for Bedroom, Brass Gold Mini Table Lamps for Nightstand, Rattan Shade Table Lamps for Small Spaces for Kitchen Counter, Bookshelf, Bedroom, Living Room, Kids Dorm" src="https://m.media-amazon.com/images/I/412kWRzCSmL._SL500_.jpg"/></a>
 
 
 The **Gold Small Bedside Table Lamp** is perfect for individuals looking to enhance their bedroom, living room, or small spaces like kitchen counters and bookshelves with a stylish yet functional lighting solution. Ideal for those who appreciate a blend of modern elegance and practicality, this lamp suits students in kids’ dorms, homeowners with limited space, or anyone seeking a compact yet decorative lighting option.
@@ -177,10 +177,10 @@ The **Gold Small Bedside Table Lamp** by Ziqqeelam combines a stylish brass gold
 
 Beyond its aesthetic appeal, the lamp offers a warm and inviting glow thanks to its rattan shade, which softens the light and creates a relaxing atmosphere ideal for winding down in the evening. Its lightweight construction ensures easy portability, allowing users to move it around as needed to suit different moods or tasks. Overall, it is a functional and elegant lighting solution designed to elevate any small space.
 
-## <a href="https://www.amazon.com/dp/B08P25FP75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005b Penelope 22" Chinoiserie Classic Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B08P25FP75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005b Penelope 22" Chinoiserie Classic Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08P25FP75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005B Penelope 22" bedroom="" bedside="" bookcase="" bulb="" chinoiserie="" classic="" college="" cottage="" desk="" for="" green="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31c8PwA+87L._SL500_.jpg" table="" traditional="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B08P25FP75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005B Penelope 22" bedroom="" bedside="" bookcase="" bulb="" chinoiserie="" classic="" college="" cottage="" desk="" for="" green="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31c8PwA+87L._SL500_.jpg" table="" traditional="" white"=""/></a>
 
 
 The **JONATHAN Y JYL3005B Penelope 22" Chinoiserie Classic LED Table Lamp** is ideal for individuals seeking a blend of traditional charm and modern functionality. Perfect for those who want to enhance their **bedroom, living room, office, or college dorm** with an elegant yet practical lighting solution, this lamp fits beautifully on **bedside tables, desks, or bookcases**. Buyers who appreciate a classic design with energy-efficient **LED lighting** will find this lamp particularly appealing.
@@ -203,10 +203,10 @@ The **JONATHAN Y JYL3005B Penelope Table Lamp** combines a classic **Chinoiserie
 
 Functionality meets style as the lamp offers **energy-efficient LED lighting**, reducing electricity usage while providing steady, bright light. The lightweight construction ensures easy handling, allowing users to reposition it effortlessly across different rooms. Ideal for college students, professionals, or homeowners, this lamp adds a touch of tradition combined with modern convenience.
 
-## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
 
 
 The **Nourison Home 23" Greyish Brown Earth Tone Rustic Farmhouse Ceramic Table Lamp** is ideal for individuals seeking to add a touch of rustic charm and warm ambiance to their **bedroom, living room, dining area, or office**. This lamp is perfect for homeowners and interior enthusiasts who appreciate **earthy tones** and a classic farmhouse style that blends seamlessly with various décor themes.
@@ -229,10 +229,10 @@ The **Nourison Home 23" Rustic Farmhouse Ceramic Table Lamp** features a beautif
 
 Designed with both aesthetics and functionality in mind, this lamp not only enhances the visual appeal of your room but also offers practical lighting for reading, working, or ambiance. The neutral earth tones ensure that it pairs well with a wide range of furniture styles and colors, making it a versatile addition to any home or office setting.
 
-## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
 
 
 The **PARTPHONER Traditional Table Lamp Set of 2** is ideal for individuals looking to enhance their **living room** or **bedroom** decor with a touch of rustic farmhouse charm. Perfect for those who appreciate vintage aesthetics combined with functional lighting, these lamps suit anyone wanting to add warm, ambient light to their **bedside** or **desk** area. If you seek stylish yet practical lighting solutions with an antique vibe, this set is a great choice.
@@ -255,10 +255,10 @@ The **PARTPHONER Traditional Table Lamp** set features a classic farmhouse desig
 
 Beyond their aesthetic appeal, these lamps are built to be practical. Their compact **10 x 10 inch** footprint ensures they fit seamlessly on nightstands or small desks, making them versatile for various room layouts. The set of two allows for balanced lighting in multiple areas, enhancing the overall ambiance while maintaining a consistent rustic theme. Whether used in a living room or bedroom, these lamps blend style and function effortlessly.
 
-## <a href="https://www.amazon.com/dp/B08T9CYP4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Touch Control Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B08T9CYP4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Touch Control Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B08T9CYP4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Touch Control Table Lamps with 2 USB &amp; AC Outlet, 3-Way Dimmable Bedside Nightstand Lamps for Bedroom Living Room Nursery, 800 Lumens 5000K Daylight Bulbs Included" src="https://m.media-amazon.com/images/I/51-ClxFmSIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08T9CYP4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Touch Control Table Lamps with 2 USB &amp; AC Outlet, 3-Way Dimmable Bedside Nightstand Lamps for Bedroom Living Room Nursery, 800 Lumens 5000K Daylight Bulbs Included" src="https://m.media-amazon.com/images/I/51-ClxFmSIL._SL500_.jpg"/></a>
 
 
 The **Set of 2 Touch Control Table Lamps with 2 USB & AC Outlet** is ideal for anyone looking to enhance their **bedroom**, **living room**, or **nursery** with convenient, stylish, and functional lighting. Perfect for individuals who value easy access to charging ports and customizable brightness, this set is especially suited for those who want to combine aesthetics with practicality in their bedside or workspace lighting.

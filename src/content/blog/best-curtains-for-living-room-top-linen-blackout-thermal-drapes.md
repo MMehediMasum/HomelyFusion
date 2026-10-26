@@ -23,10 +23,10 @@ Energy-efficient curtains help save on heating and cooling costs. Colors range f
 
 
 
-## <a href="https://www.amazon.com/dp/B07C9HL1G1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen 100% Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B07C9HL1G1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen 100% Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B07C9HL1G1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen 100% Blackout Curtains for Bedroom Full Light Blocking Curtains, Textured Window Curtain for Living Room 84 inch Grommet, Energy Efficient Curtains White Liner(2 Panels, Natural)" src="https://m.media-amazon.com/images/I/41vHa09JNuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07C9HL1G1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen 100% Blackout Curtains for Bedroom Full Light Blocking Curtains, Textured Window Curtain for Living Room 84 inch Grommet, Energy Efficient Curtains White Liner(2 Panels, Natural)" src="https://m.media-amazon.com/images/I/41vHa09JNuL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Linen 100% Blackout Curtains** are ideal for homeowners and renters looking to enhance privacy, reduce light intrusion, and improve energy efficiency in their living spaces. Perfect for bedrooms, living rooms, or any area where full light blocking and a touch of elegance are desired, these curtains cater to those who value both functionality and style.
@@ -49,10 +49,10 @@ These **H.VERSAILTEX blackout curtains** feature a premium linen texture that no
 
 Beyond their stylish appearance, these curtains contribute to improved home comfort by maintaining room temperature and reducing outside noise to some extent. Whether you need a darkened environment for restful sleep or want to lower your energy bills, the **H.VERSAILTEX Linen 100% Blackout Curtains** offer a practical and attractive solution that enhances your living space with ease.
 
-## <a href="https://www.amazon.com/dp/B09QKMGXZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Natural Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B09QKMGXZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Natural Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09QKMGXZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Natural Linen Curtains 84 inch Long 2 Panels Set, Grommet Top Thick Linen Burlap Semi Sheer Vertical Drapes Privacy Assured with Light Filtering for Bedroom/Living Room, W55 x L84" src="https://m.media-amazon.com/images/I/51X9+vJU+-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QKMGXZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Natural Linen Curtains 84 inch Long 2 Panels Set, Grommet Top Thick Linen Burlap Semi Sheer Vertical Drapes Privacy Assured with Light Filtering for Bedroom/Living Room, W55 x L84" src="https://m.media-amazon.com/images/I/51X9+vJU+-L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Natural Linen Curtains 84 inch Long 2 Panels Set** is perfect for homeowners or renters looking to enhance their living spaces with a blend of style and functionality. Ideal for those who want to maintain privacy while allowing natural light to gently filter through, these curtains suit bedrooms, living rooms, or any area that benefits from a soft, elegant ambiance. If you appreciate durable, natural fabrics and a semi-sheer design that complements a variety of interior styles, this curtain set is an excellent choice.
@@ -74,10 +74,10 @@ The **NICETOWN Natural Linen Curtains** are crafted with high-quality linen burl
 
 Designed to fit standard window dimensions, these curtains provide versatility for different rooms and window sizes. The natural color complements various interior design styles, from modern to traditional, making them a flexible choice for any home. Their thick linen texture also adds a tactile depth to your windows, enhancing the overall aesthetic appeal of your space while providing practical benefits like light filtering and privacy assurance.
 
-## <a href="https://www.amazon.com/dp/B0BZDLT95R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco 100% Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BZDLT95R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco 100% Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZDLT95R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco 100% Blackout Curtains for Bedroom - Natural Linen Curtains 84 Inch Long, Thermal Insulated 2 Panels Linen Light Blocking Drapes, Rod Pocket &amp; Back Tabs, Darkening Privacy for Living Room" src="https://m.media-amazon.com/images/I/41kVmf4U2yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZDLT95R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco 100% Blackout Curtains for Bedroom - Natural Linen Curtains 84 Inch Long, Thermal Insulated 2 Panels Linen Light Blocking Drapes, Rod Pocket &amp; Back Tabs, Darkening Privacy for Living Room" src="https://m.media-amazon.com/images/I/41kVmf4U2yL._SL500_.jpg"/></a>
 
 
 The **Joydeco 100% Blackout Curtains for Bedroom** are ideal for individuals seeking to enhance privacy and control natural light in their living spaces. Perfect for homeowners, renters, or anyone looking to create a cozy, darkened environment for better sleep or relaxation, these curtains suit bedrooms, living rooms, and even home offices. If you value both style and functionality, these **thermal insulated linen light blocking drapes** offer an excellent solution.
@@ -100,10 +100,10 @@ The **Joydeco blackout curtains** feature a blend of aesthetic appeal and practi
 
 Additionally, the **100% light-blocking capability** ensures a darkened environment, perfect for those who work night shifts or prefer daytime naps. The **rod pocket and back tabs** design offers flexible hanging options, making installation simple and adaptable to different curtain rods. Overall, these curtains combine style, comfort, and functionality to improve the ambiance and privacy of any room.
 
-## <a href="https://www.amazon.com/dp/B0BWJDW3BX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cream Linen Back Tab Curtains 84 Inch Length 2 Panel Set</a>
+## <a href="https://www.amazon.com/dp/B0BWJDW3BX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cream Linen Back Tab Curtains 84 Inch Length 2 Panel Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWJDW3BX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cream Linen Back Tab Curtains 84 Inch Length for Living Room 2 Panel Set Neutral Modern Farmhouse Window Privacy Semi Sheer Linen Drapes Rustic Pinch Pleated Look Curtain Natural Ivory Colored" src="https://m.media-amazon.com/images/I/41Dim4Sm6pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWJDW3BX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cream Linen Back Tab Curtains 84 Inch Length for Living Room 2 Panel Set Neutral Modern Farmhouse Window Privacy Semi Sheer Linen Drapes Rustic Pinch Pleated Look Curtain Natural Ivory Colored" src="https://m.media-amazon.com/images/I/41Dim4Sm6pL._SL500_.jpg"/></a>
 
 
 The **Cream Linen Back Tab Curtains 84 Inch Length** are ideal for homeowners and interior enthusiasts seeking a blend of **privacy** and **style** in their living spaces. Perfect for those who appreciate a **neutral modern farmhouse** aesthetic, these curtains suit anyone wanting to enhance their windows with a **semi-sheer, natural ivory-colored** drape that complements rustic and contemporary decor alike.
@@ -127,10 +127,10 @@ The **Cream Linen Back Tab Curtains** feature a thoughtfully crafted **back tab 
 
 Additionally, the **natural ivory color** and **pinch pleated look** work harmoniously to bring a rustic yet modern farmhouse charm to any space. These curtains not only enhance the aesthetic appeal of your home but also contribute to a cozy ambiance. Their lightweight linen material is breathable and eco-friendly, making them a practical choice for those who value sustainable home décor solutions.
 
-## <a href="https://www.amazon.com/dp/B0BWDK5RNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estelar Textiler Navy Blue And Greyish White Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B0BWDK5RNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estelar Textiler Navy Blue And Greyish White Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWDK5RNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estelar Textiler Navy Blue and Greyish White Blackout Curtains for Bedroom 84 Inches Long, Full Room Darkening Grommet Curtains for Living Room,Thermal Insulated Ombre Drapes,52Wx84L,2 Panels" src="https://m.media-amazon.com/images/I/51T03yJG83L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWDK5RNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estelar Textiler Navy Blue and Greyish White Blackout Curtains for Bedroom 84 Inches Long, Full Room Darkening Grommet Curtains for Living Room,Thermal Insulated Ombre Drapes,52Wx84L,2 Panels" src="https://m.media-amazon.com/images/I/51T03yJG83L._SL500_.jpg"/></a>
 
 
 The **Estelar Textiler Navy Blue and Greyish White Blackout Curtains** are ideal for homeowners and renters looking to enhance their bedroom or living room with stylish, functional window treatments. These curtains are perfect for individuals who need effective light control and thermal insulation, such as those living in sunny climates or with rooms facing busy streets. If you value privacy, energy efficiency, and a modern aesthetic, this set of blackout drapes is an excellent choice.
@@ -152,10 +152,10 @@ Featuring a combination of **navy blue and greyish white**, these curtains bring
 
 Beyond aesthetics, the **thermal insulated** property of the curtains plays a crucial role in energy efficiency. By minimizing heat transfer through windows, they help keep rooms cooler in summer and warmer in winter, reducing reliance on HVAC systems. The **grommet design** not only adds a sleek look but also facilitates easy hanging and smooth operation. Overall, these curtains combine style, comfort, and functionality, making them a smart addition to any living space.
 
-## <a href="https://www.amazon.com/dp/B015SJ7RYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Gray Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B015SJ7RYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Gray Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B015SJ7RYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Gray Blackout Curtains for Bedroom 84 inches Long - Thermal Drapes Grommet Room Darkening Light Blocking Curtains Window Treatments for Living Room (2 Panels, W52 x L84, Grey)" src="https://m.media-amazon.com/images/I/41HGFudWNtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015SJ7RYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Gray Blackout Curtains for Bedroom 84 inches Long - Thermal Drapes Grommet Room Darkening Light Blocking Curtains Window Treatments for Living Room (2 Panels, W52 x L84, Grey)" src="https://m.media-amazon.com/images/I/41HGFudWNtL._SL500_.jpg"/></a>
 
 
 The **NICETOWN Gray Blackout Curtains** are ideal for homeowners or renters looking to enhance privacy, reduce outside light, and improve energy efficiency in their living spaces. Perfect for bedrooms, living rooms, or any room where controlling light and maintaining a comfortable temperature is essential, these thermal drapes cater to individuals who value both functionality and style.
@@ -177,10 +177,10 @@ These **NICETOWN blackout curtains** measure 52 inches wide by 84 inches long, p
 
 The elegant grey shade pairs well with various room styles, adding a modern touch without overwhelming the décor. Additionally, the grommet design allows for effortless opening and closing, enhancing user convenience. Weighing just 1.6 kilograms, these curtains are easy to handle and install, making them a versatile and user-friendly window treatment solution.
 
-## <a href="https://www.amazon.com/dp/B08SBYPF14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Blackout Linen Textured Curtains</a>
+## <a href="https://www.amazon.com/dp/B08SBYPF14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Blackout Linen Textured Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B08SBYPF14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 100% Blackout Linen Textured Curtains for Bedroom Solid Thermal Insulated Natural Beige Grommet Room Darkening Curtains &amp; Drapes Luxury Decor for Living Room Nursery 52 x 84 Inch (2 Panels)" src="https://m.media-amazon.com/images/I/41+aE3OKH1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SBYPF14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 100% Blackout Linen Textured Curtains for Bedroom Solid Thermal Insulated Natural Beige Grommet Room Darkening Curtains &amp; Drapes Luxury Decor for Living Room Nursery 52 x 84 Inch (2 Panels)" src="https://m.media-amazon.com/images/I/41+aE3OKH1L._SL500_.jpg"/></a>
 
 
 The **MIULEE 100% Blackout Linen Textured Curtains** are ideal for homeowners and renters looking to enhance their **bedroom**, **living room**, or **nursery** with elegant, functional window treatments. These curtains are perfect for those who value **privacy**, **energy efficiency**, and a **luxurious decor** touch while seeking effective room darkening solutions. If you want to block out sunlight and reduce noise with style, these **thermal insulated** curtains are an excellent choice.
@@ -204,10 +204,10 @@ The **MIULEE Blackout Curtains** feature a high-quality **linen textured fabric*
 
 Additionally, the **grommet design** makes these curtains easy to hang and operate, gliding smoothly along curtain rods without snagging. The substantial size (52 x 84 inches) covers standard windows adequately, while the solid construction helps reduce outside noise, contributing to a more peaceful indoor atmosphere. These curtains not only improve the comfort and ambiance of your living space but also contribute to energy efficiency by minimizing heat loss in winter and heat gain in summer.
 
-## <a href="https://www.amazon.com/dp/B0881QG5WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chrisdowa Grommet Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B0881QG5WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chrisdowa Grommet Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0881QG5WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ChrisDowa Grommet Blackout Curtains for Bedroom and Living Room - 2 Panels Set Thermal Insulated Room Darkening Curtains (Dark Grey, 42 x 63 Inch)" src="https://m.media-amazon.com/images/I/41Q0MzPdaHS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0881QG5WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ChrisDowa Grommet Blackout Curtains for Bedroom and Living Room - 2 Panels Set Thermal Insulated Room Darkening Curtains (Dark Grey, 42 x 63 Inch)" src="https://m.media-amazon.com/images/I/41Q0MzPdaHS._SL500_.jpg"/></a>
 
 
 The **ChrisDowa Grommet Blackout Curtains** are ideal for anyone looking to enhance privacy, reduce light, and improve energy efficiency in their **bedroom** or **living room**. These curtains are perfect for individuals who need a darker environment for better sleep, those working night shifts, or anyone wanting to keep their space cooler or warmer by insulating against external temperatures.
@@ -229,10 +229,10 @@ The **ChrisDowa Grommet Blackout Curtains** combine functional design with aesth
 
 Featuring a sturdy **grommet top**, these curtains are easy to hang on any standard curtain rod and glide smoothly when opening or closing. The **dark grey color** adds a modern and sophisticated touch to any room, while the generous dimensions provide excellent coverage for windows. Overall, these curtains are a practical and stylish solution for anyone looking to improve comfort and privacy in their living spaces.
 
-## <a href="https://www.amazon.com/dp/B09MT485FQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Inovaday 100% Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B09MT485FQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Inovaday 100% Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B09MT485FQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INOVADAY 100% Blackout Curtains for Bedroom, Black Out Curtains 84 Inch Long, Clip Rings Linen Blackout Drapes, Thermal Insulated Room Darkening for Living Room, 2 Panels - Beige,W50xL84" src="https://m.media-amazon.com/images/I/41a6jba4QZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MT485FQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INOVADAY 100% Blackout Curtains for Bedroom, Black Out Curtains 84 Inch Long, Clip Rings Linen Blackout Drapes, Thermal Insulated Room Darkening for Living Room, 2 Panels - Beige,W50xL84" src="https://m.media-amazon.com/images/I/41a6jba4QZL._SL500_.jpg"/></a>
 
 
 The **INOVADAY 100% Blackout Curtains for Bedroom** are ideal for homeowners or renters looking to enhance privacy, improve sleep quality, and regulate room temperature. These curtains are perfect for those who work night shifts, have young children, or simply want to create a dark and cozy environment in their bedroom or living room. If you value both style and functionality, these **thermal insulated blackout drapes** offer a practical solution.
@@ -254,10 +254,10 @@ The **INOVADAY Blackout Curtains** measure 84 inches in length and 50 inches in 
 
 Additionally, the included **clip rings** simplify hanging, allowing users to install the curtains quickly and adjust them effortlessly. The **beige color** offers a neutral palette that complements a wide range of interior styles, from modern to traditional. Overall, these **blackout curtains** combine functionality with aesthetic appeal, making them a valuable addition to any living space.
 
-## <a href="https://www.amazon.com/dp/B0D7VQ53PJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Simplebrand Ava Sage Green Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B0D7VQ53PJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Simplebrand Ava Sage Green Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7VQ53PJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Simplebrand Ava Sage Green Blackout Curtains for Bedroom 63 Inch Length 2 Panels Set, Solid Thermal Insulated Energy Saving Rod Pocket Window Treatment Curtains Blackout Drapes, W40 x L63 Inch, Sage" src="https://m.media-amazon.com/images/I/41a0++krrkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7VQ53PJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Simplebrand Ava Sage Green Blackout Curtains for Bedroom 63 Inch Length 2 Panels Set, Solid Thermal Insulated Energy Saving Rod Pocket Window Treatment Curtains Blackout Drapes, W40 x L63 Inch, Sage" src="https://m.media-amazon.com/images/I/41a0++krrkL._SL500_.jpg"/></a>
 
 
 These **Simplebrand Ava Sage Green Blackout Curtains** are ideal for homeowners or renters looking to enhance their **bedroom's ambiance** while improving energy efficiency and privacy. If you want to block out unwanted light, reduce noise, and maintain a cozy atmosphere, this 2-panel set is a perfect choice.

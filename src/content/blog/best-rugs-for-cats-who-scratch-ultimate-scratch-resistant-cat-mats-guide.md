@@ -23,10 +23,10 @@ Using natural and safe materials keeps cats healthy while they scratch. Combinin
 
 
 
-## <a href="https://www.amazon.com/dp/B0BRZR7HTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uross Carpet Protector For Pets</a>
+## <a href="https://www.amazon.com/dp/B0BRZR7HTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uross Carpet Protector For Pets</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRZR7HTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Uross Carpet Protector for Pets - Cat Scratch Guard Mat, Anti Scratch Under Door Guard, Easy to Cut Plastic, 3.6FT" src="https://m.media-amazon.com/images/I/61hHEYyRg6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRZR7HTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Uross Carpet Protector for Pets - Cat Scratch Guard Mat, Anti Scratch Under Door Guard, Easy to Cut Plastic, 3.6FT" src="https://m.media-amazon.com/images/I/61hHEYyRg6L._SL500_.jpg"/></a>
 
 
 The **Uross Carpet Protector for Pets** is ideal for pet owners who want to safeguard their carpets and floors from damage caused by cats and other pets. If you’re tired of dealing with scratched carpets or door areas, this **anti-scratch under door guard** offers a practical solution. It’s perfect for those seeking an easy-to-install, durable protector that blends seamlessly with home décor thanks to its **transparent** design.
@@ -48,10 +48,10 @@ The **Uross Carpet Protector** is designed with a thin yet durable plastic sheet
 
 Additionally, the product’s lightweight and flexible nature allow for easy cutting and adjustment to fit specific areas. This customization ensures that pet owners can tailor the protector for maximum efficiency. By protecting vulnerable carpet edges and floor sections, it helps extend the life of your flooring while reducing the need for costly repairs or replacements. Overall, the **Uross Carpet Protector for Pets** offers a practical and user-friendly solution to common pet-related damage concerns.
 
-## <a href="https://www.amazon.com/dp/B09YD8R2QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conlun Cat Scratcher Mat</a>
+## <a href="https://www.amazon.com/dp/B09YD8R2QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conlun Cat Scratcher Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B09YD8R2QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conlun Cat Scratcher Mat,Natural Sisal Cat Scratch Pad,Horizontal Floor Cat Scratching Pads Rug for Indoor Cats Grinding Claws Nails,Cat Furniture Protector for Couch &amp; Carpets &amp; Sofas" src="https://m.media-amazon.com/images/I/51uR4jeWYuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YD8R2QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conlun Cat Scratcher Mat,Natural Sisal Cat Scratch Pad,Horizontal Floor Cat Scratching Pads Rug for Indoor Cats Grinding Claws Nails,Cat Furniture Protector for Couch &amp; Carpets &amp; Sofas" src="https://m.media-amazon.com/images/I/51uR4jeWYuL._SL500_.jpg"/></a>
 
 
 The **Conlun Cat Scratcher Mat** is ideal for cat owners who want to protect their furniture while providing their indoor cats with a safe and satisfying outlet for their natural scratching instincts. If you have a beloved feline friend that tends to scratch couches, carpets, or sofas, this natural sisal cat scratch pad is an excellent choice to keep your home intact and your cat happy.
@@ -75,10 +75,10 @@ The **Conlun Cat Scratcher Mat** features a high-quality natural sisal surface t
 
 Additionally, the scratcher’s neutral grey color blends seamlessly with various interior styles, ensuring it doesn’t disrupt your home’s aesthetic. By investing in this scratch pad, cat owners can reduce the likelihood of scratched furniture and carpets, saving money on repairs and replacements. Overall, the **Conlun Cat Scratcher Mat** is a practical and stylish solution to keep both your cat and your home happy and protected.
 
-## <a href="https://www.amazon.com/dp/B07RV1GCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fukumaru Cat Scratcher Mat</a>
+## <a href="https://www.amazon.com/dp/B07RV1GCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fukumaru Cat Scratcher Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B07RV1GCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUKUMARU Cat Scratcher Mat, 23.6 X 15.7 Inch Natural Sisal Cat Scratch Mats, Horizontal Cat Floor Scratching Pad Rug with Sticky Tapes, Protect Couch and Carpets" src="https://m.media-amazon.com/images/I/513HGk9M2VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RV1GCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUKUMARU Cat Scratcher Mat, 23.6 X 15.7 Inch Natural Sisal Cat Scratch Mats, Horizontal Cat Floor Scratching Pad Rug with Sticky Tapes, Protect Couch and Carpets" src="https://m.media-amazon.com/images/I/513HGk9M2VL._SL500_.jpg"/></a>
 
 
 The **FUKUMARU Cat Scratcher Mat** is ideal for cat owners who want to protect their furniture and carpets from scratching damage. If you are looking for an effective, natural, and easy-to-use solution to keep your cat entertained and your home intact, this **natural sisal cat scratch mat** is a perfect choice. It suits cats of all sizes and is especially beneficial for those who frequently scratch couches or floors.
@@ -101,10 +101,10 @@ The **FUKUMARU Cat Scratcher Mat** features a natural sisal surface that appeals
 
 Beyond its practical benefits, the mat’s size and lightweight structure allow for versatile placement around the home, whether near favorite lounging areas or in play zones. The natural materials used not only attract cats but also promote eco-friendly choices for pet products. Overall, this cat scratcher mat offers a durable, attractive, and convenient solution to protect your valuable furniture while keeping your cat happily engaged.
 
-## <a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Graciadeco Carpet Cat Scratching Mat Sisal</a>
+## <a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Graciadeco Carpet Cat Scratching Mat Sisal</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 15.7"="" adhesive="" alt="Graciadeco Carpet Cat Scratching Mat Sisal, 2 Packs Sisal Fabric Large 23.6" cat="" cats="" cats"="" for="" hook="" indoor="" loop="" pad="" rug="" scratchers="" scratching="" src="https://m.media-amazon.com/images/I/51S5blx-3bL._SL500_.jpg" tape,="" wall="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 15.7"="" adhesive="" alt="Graciadeco Carpet Cat Scratching Mat Sisal, 2 Packs Sisal Fabric Large 23.6" cat="" cats="" cats"="" for="" hook="" indoor="" loop="" pad="" rug="" scratchers="" scratching="" src="https://m.media-amazon.com/images/I/51S5blx-3bL._SL500_.jpg" tape,="" wall="" with="" x=""/></a>
 
 
 The **Graciadeco Carpet Cat Scratching Mat Sisal** is an ideal choice for cat owners who want to protect their furniture while providing their indoor cats with a satisfying scratching experience. This product is perfect for those seeking a durable, natural material that can be easily attached to walls or other surfaces, keeping cats entertained and their claws healthy. If you have indoor cats that love to scratch and you want a neat, space-saving solution, this scratching mat is designed specifically for you.
@@ -126,10 +126,10 @@ The **Graciadeco Carpet Cat Scratching Mat Sisal** features high-quality, natura
 
 Additionally, the included **adhesive hook loop tape** makes installation quick and hassle-free. You can place these mats on walls, doors, or furniture, giving your cat a vertical or horizontal scratching surface that fits your space. This versatility combined with the natural look ensures that the scratching mats are both functional and aesthetically pleasing in any indoor environment.
 
-## <a href="https://www.amazon.com/dp/B0F1T4PFTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3-in-1 Sisal Cat Scratcher Mat</a>
+## <a href="https://www.amazon.com/dp/B0F1T4PFTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3-in-1 Sisal Cat Scratcher Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1T4PFTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3-in-1 Sisal Cat Scratcher Mat 23.6x15.7 – Durable Scratch Rug for Floor &amp; Wall with Sticker Tape, Protects Couch, Carpet &amp; Furniture, Anti-Slip, Pet-Safe for Indoor/Outdoor Cats, Golden Afterglow" src="https://m.media-amazon.com/images/I/51L7ahQZRHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1T4PFTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3-in-1 Sisal Cat Scratcher Mat 23.6x15.7 – Durable Scratch Rug for Floor &amp; Wall with Sticker Tape, Protects Couch, Carpet &amp; Furniture, Anti-Slip, Pet-Safe for Indoor/Outdoor Cats, Golden Afterglow" src="https://m.media-amazon.com/images/I/51L7ahQZRHL._SL500_.jpg"/></a>
 
 
 The **3-in-1 Sisal Cat Scratcher Mat 23.6x15.7** is ideal for cat owners looking to protect their **couches, carpets, and furniture** from destructive scratching behavior. Perfect for both indoor and outdoor cats, this durable scratch rug suits those who want a practical, pet-safe solution that keeps their living spaces clean and scratch-free while providing a satisfying outlet for their feline friends.
@@ -153,10 +153,10 @@ This **3-in-1 Sisal Cat Scratcher Mat** is crafted from robust sisal, a natural 
 
 Beyond durability and convenience, this scratcher mat protects your valuable furniture and carpets from claw damage, extending their lifespan and saving you money on repairs or replacements. Its **pet-safe** design and appealing **Golden Afterglow** color blend nicely with home decor, making it an unobtrusive addition to any room. Whether you own indoor cats or allow them outdoor access, this mat offers a practical, multi-surface solution that keeps both your pets and home happy.
 
-## <a href="https://www.amazon.com/dp/B0FF4WGX8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Deterrent Spray Natural Safe Cat Repellent</a>
+## <a href="https://www.amazon.com/dp/B0FF4WGX8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Deterrent Spray Natural Safe Cat Repellent</a>
 
 
-<a href="https://www.amazon.com/dp/B0FF4WGX8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Deterrent Spray Natural Safe Cat Repellent Indoor &amp; Outdoor, Effective Training Aid, Anti-Scratch Deterrent for Furniture, Sofas, Rugs, Citrus cat Deterrent Spray Non-Toxic（ice Blue）" src="https://m.media-amazon.com/images/I/413-lQ7uTpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FF4WGX8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Deterrent Spray Natural Safe Cat Repellent Indoor &amp; Outdoor, Effective Training Aid, Anti-Scratch Deterrent for Furniture, Sofas, Rugs, Citrus cat Deterrent Spray Non-Toxic（ice Blue）" src="https://m.media-amazon.com/images/I/413-lQ7uTpL._SL500_.jpg"/></a>
 
 
 The **Cat Deterrent Spray Natural Safe Cat Repellent** is perfect for pet owners who want to protect their indoor and outdoor spaces from unwanted cat behaviors such as scratching furniture, sofas, and rugs. Ideal for those seeking a gentle yet effective training aid, this spray is especially suitable for households with curious cats that need guidance without the use of harsh chemicals.
@@ -178,10 +178,10 @@ The **Aleaty Cat Deterrent Spray** features a **natural, safe formula** that rep
 
 Additionally, this cat repellent acts as an effective **training aid**, helping cats learn boundaries in a positive way. The **non-toxic** ingredients ensure that pets and children are safe around treated areas, making it a responsible choice for any household. The sleek **ice Blue** bottle design by **Aleaty** also makes storage convenient and visually appealing.
 
-## <a href="https://www.amazon.com/dp/B0DGGDZ9CZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Patiencet Cat Scratching Mat</a>
+## <a href="https://www.amazon.com/dp/B0DGGDZ9CZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Patiencet Cat Scratching Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGGDZ9CZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PatiencET Cat Scratching Mat, Natural Sisal Cat Scratcher Mat, Horizontal Cat Scratch Rug for Indoor Cats, Cat Wall Scratcher Furniture Protector for Couch, Carpet, Sofa (1 Pack, 23.6" src="https://m.media-amazon.com/images/I/51Jn4R-wSyL._SL500_.jpg" x15.7")"=""/></a>
+<a href="https://www.amazon.com/dp/B0DGGDZ9CZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PatiencET Cat Scratching Mat, Natural Sisal Cat Scratcher Mat, Horizontal Cat Scratch Rug for Indoor Cats, Cat Wall Scratcher Furniture Protector for Couch, Carpet, Sofa (1 Pack, 23.6" src="https://m.media-amazon.com/images/I/51Jn4R-wSyL._SL500_.jpg" x15.7")"=""/></a>
 
 
 The **PatiencET Cat Scratching Mat** is ideal for indoor cat owners who want to protect their furniture from claw damage while providing their pets with a safe and satisfying scratching outlet. If you are looking for a durable, natural, and easy-to-use scratching solution, this mat is perfect for your feline friends.
@@ -203,10 +203,10 @@ The **PatiencET Cat Scratching Mat** is crafted using high-quality natural sisal
 
 Additionally, this scratching mat serves as an effective furniture protector. By redirecting your cat’s scratching from sofas and carpets to this dedicated mat, you extend the life of your household furnishings. The natural sisal surface is not only appealing to cats but also environmentally friendly and easy to clean, making maintenance simple for pet owners. Overall, it offers a practical and pet-friendly solution for managing scratching habits indoors.
 
-## <a href="https://www.amazon.com/dp/B0BCFG1NMP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carpet Protector For Pets</a>
+## <a href="https://www.amazon.com/dp/B0BCFG1NMP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carpet Protector For Pets</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCFG1NMP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8.2Ft(L) Carpet Protector for Pets - Anti-Slip Cat Carpet Protector, Scratch Resistant Pets Scratch Stopper, Easy to Cut Floor Runner Under Doorway to Prevent Tearing" src="https://m.media-amazon.com/images/I/41j3MkuHQ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCFG1NMP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8.2Ft(L) Carpet Protector for Pets - Anti-Slip Cat Carpet Protector, Scratch Resistant Pets Scratch Stopper, Easy to Cut Floor Runner Under Doorway to Prevent Tearing" src="https://m.media-amazon.com/images/I/41j3MkuHQ1L._SL500_.jpg"/></a>
 
 
 The **8.2Ft(L) Carpet Protector for Pets** is ideal for pet owners who want to maintain the beauty and integrity of their flooring while providing a safe and comfortable environment for their pets. If you have cats or dogs that tend to scratch or tear at carpets and floors, this product offers an effective solution to prevent damage without compromising on style or ease of use. It's perfect for those seeking an easy-to-install, durable, and transparent protective runner that blends seamlessly with any décor.
@@ -228,10 +228,10 @@ Crafted by **MEWTOGO**, this **carpet protector** combines functionality with co
 
 The protector's easy-to-cut design means it can be tailored to fit under doorways, along hallways, or in any area where your pets frequent. This flexibility allows pet owners to protect high-traffic zones without the need for multiple products. Overall, the **MEWTOGO 8.2Ft Carpet Protector** offers a practical and stylish solution for safeguarding floors while ensuring your pets remain happy and comfortable.
 
-## <a href="https://www.amazon.com/dp/B083M54ZGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Karaseno Anti Cat Scratch Tape</a>
+## <a href="https://www.amazon.com/dp/B083M54ZGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Karaseno Anti Cat Scratch Tape</a>
 
 
-<a href="https://www.amazon.com/dp/B083M54ZGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Karaseno Anti Cat Scratch Tape, 3 inches x 30 Yards Cat Training Tape, 100% Transparent Clear Double Sided Cat Scratch Deterrent Tape, Furniture Protector for Couch, Carpet, Doors, Pet &amp; Kid Safe" src="https://m.media-amazon.com/images/I/41QsICSpoiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083M54ZGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Karaseno Anti Cat Scratch Tape, 3 inches x 30 Yards Cat Training Tape, 100% Transparent Clear Double Sided Cat Scratch Deterrent Tape, Furniture Protector for Couch, Carpet, Doors, Pet &amp; Kid Safe" src="https://m.media-amazon.com/images/I/41QsICSpoiL._SL500_.jpg"/></a>
 
 
 The **Karaseno Anti Cat Scratch Tape** is ideal for pet owners who want to protect their furniture, carpets, and doors from unwanted cat scratches. If you have a playful or curious cat that tends to damage household items, this **100% transparent clear double-sided cat scratch deterrent tape** offers a practical solution that is both effective and safe for pets and children.
@@ -253,10 +253,10 @@ The **Karaseno Anti Cat Scratch Tape** features a strong double-sided adhesive t
 
 Additionally, the tape is designed with safety in mind, using non-toxic materials that are safe for both pets and children. This means you can protect your home without worrying about harmful chemicals or residues. Its large dimensions of **3 inches in width and 30 yards in length** allow for ample coverage, making it economical for extended use across multiple areas in your home.
 
-## <a href="https://www.amazon.com/dp/B0DJ4BQNCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Cat Scratch Mat</a>
+## <a href="https://www.amazon.com/dp/B0DJ4BQNCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Cat Scratch Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ4BQNCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large Cat Scratch Mat [32 X 20 Inch] Natural Sisal Cat Scratching Mats for Indoor Cats, Durable Cat Scratcher Rug Sisal Pad for Cats Bed, Floor, Couch, Carpets" src="https://m.media-amazon.com/images/I/41SXknGX4KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ4BQNCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large Cat Scratch Mat [32 X 20 Inch] Natural Sisal Cat Scratching Mats for Indoor Cats, Durable Cat Scratcher Rug Sisal Pad for Cats Bed, Floor, Couch, Carpets" src="https://m.media-amazon.com/images/I/41SXknGX4KL._SL500_.jpg"/></a>
 
 
 The **Large Cat Scratch Mat [32 X 20 Inch]** by **FOOPOMARY** is ideal for indoor cat owners who want to protect their furniture and carpets while providing their pets with a natural and durable scratching surface. If you have an active cat that loves to scratch and you’re looking for a reliable, eco-friendly solution, this **natural sisal cat scratching mat** is perfect for you. It suits cats of all sizes, especially those who prefer a spacious area to stretch and scratch comfortably.

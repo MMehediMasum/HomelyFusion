@@ -23,10 +23,10 @@ They stay durable despite moisture and heavy use. Sizes vary, so measure the spa
 
 
 
-## <a href="https://www.amazon.com/dp/B08Z7SLMZ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happybuy Marine Carpet For Boats</a>
+## <a href="https://www.amazon.com/dp/B08Z7SLMZ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happybuy Marine Carpet For Boats</a>
 
 
-<a href="https://www.amazon.com/dp/B08Z7SLMZ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Happybuy 6 ft x 13 ft Grey Marine Carpet for Boats Waterproof - 0.18" carpet="" deck"="" for="" home="" indoor="" outdoor="" patio="" porch="" roll="" rug="" src="https://m.media-amazon.com/images/I/51DillgbVcL._SL500_.jpg" thick=""/></a>
+<a href="https://www.amazon.com/dp/B08Z7SLMZ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Happybuy 6 ft x 13 ft Grey Marine Carpet for Boats Waterproof - 0.18" carpet="" deck"="" for="" home="" indoor="" outdoor="" patio="" porch="" roll="" rug="" src="https://m.media-amazon.com/images/I/51DillgbVcL._SL500_.jpg" thick=""/></a>
 
 
 The **Happybuy 6 ft x 13 ft Grey Marine Carpet** is ideal for boat owners and outdoor enthusiasts seeking a durable, waterproof, and stylish flooring solution. Perfect for those who want to enhance the comfort and safety of their boat decks, patios, porches, or decks, this carpet roll is designed to withstand harsh marine environments while adding a touch of elegance to any outdoor space.
@@ -48,10 +48,10 @@ The **Happybuy Marine Carpet** features a robust **waterproof construction** tha
 
 Additionally, the **neutral grey color** of this carpet allows it to blend seamlessly with various outdoor decors while hiding dirt and stains effectively. Its large dimensions provide ample coverage, making it versatile for multiple applications such as patios, porches, and decks. Easy to install and maintain, the **Happybuy Marine Carpet** offers a practical and stylish flooring option for anyone looking to upgrade their outdoor living spaces.
 
-## <a href="https://www.amazon.com/dp/B085ZQNNGJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Black Rug For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B085ZQNNGJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Black Rug For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B085ZQNNGJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Black Rug for Bedroom 4x6 Furry Carpet for Boys Girls Shaggy Fuzzy Rugs for Living Room Non Slip Large Rug for Kids Dorm Home Decor" src="https://m.media-amazon.com/images/I/51jsx8JGDvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085ZQNNGJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Black Rug for Bedroom 4x6 Furry Carpet for Boys Girls Shaggy Fuzzy Rugs for Living Room Non Slip Large Rug for Kids Dorm Home Decor" src="https://m.media-amazon.com/images/I/51jsx8JGDvL._SL500_.jpg"/></a>
 
 
 The **HOMORE Black Rug for Bedroom 4x6** is ideal for families looking to add a cozy and stylish touch to their children's rooms, dorms, or living spaces. Specifically designed for boys and girls, this **shaggy, fuzzy carpet** brings warmth and comfort, making it perfect for play areas, study zones, or relaxing corners. If you're seeking a durable, non-slip, and large rug that enhances home decor while ensuring safety for kids, this product is an excellent choice.
@@ -74,10 +74,10 @@ The **HOMORE Black Rug** is crafted with a shaggy, fuzzy pile that offers a plus
 
 Beyond aesthetics, this rug is designed to be functional and safe. The dark black color not only adds a sleek, modern look but also helps conceal minor spills or dirt, reducing the need for constant cleaning. Parents will appreciate the easy-to-maintain material, which is ideal for busy homes or dormitory living. Overall, the HOMORE Black Rug combines style, comfort, and safety, making it a practical and attractive choice for anyone wanting to enhance their home decor with a cozy touch.
 
-## <a href="https://www.amazon.com/dp/B0CKX25XK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arogan Modern Shag Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CKX25XK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arogan Modern Shag Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKX25XK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AROGAN Modern Shag Area Rug for Bedroom, 4x6 Feet Washable Rugs for Living Room, Indoor Floor Carpet, Plush Memory Foam Bedside Rugs for Kids Girls Teens Room Low Pile, Dark Grey" src="https://m.media-amazon.com/images/I/41cMxYqGbML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKX25XK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AROGAN Modern Shag Area Rug for Bedroom, 4x6 Feet Washable Rugs for Living Room, Indoor Floor Carpet, Plush Memory Foam Bedside Rugs for Kids Girls Teens Room Low Pile, Dark Grey" src="https://m.media-amazon.com/images/I/41cMxYqGbML._SL500_.jpg"/></a>
 
 
 The **AROGAN Modern Shag Area Rug** is an ideal choice for homeowners looking to enhance the comfort and style of their indoor spaces, particularly in bedrooms, living rooms, or kids' rooms. This rug is perfect for those who appreciate a blend of modern aesthetics and practical functionality, especially families with children or teenagers who need a soft, durable, and easy-to-maintain floor covering.
@@ -99,10 +99,10 @@ The **AROGAN Modern Shag Area Rug** features a plush memory foam core that offer
 
 Additionally, the rug’s washable design is a major benefit for busy households, enabling quick and hassle-free cleaning to keep the area fresh and hygienic. Measuring 48 by 72 inches, this indoor floor carpet is perfectly sized to fit bedside areas or small living spaces, enhancing both aesthetics and functionality without overwhelming the room. Overall, the **AROGAN Modern Shag Area Rug** combines style, comfort, and convenience, making it a smart investment for anyone seeking a durable and attractive floor covering.
 
-## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
+## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
 
 
 Ideal for parents and homeowners looking to create a safe, comfortable, and stylish play or relaxation area, the **smabee Interlocking Carpet Shaggy Soft EVA Foam Mats** are perfect for children's rooms, playrooms, bedrooms, and parlors. These mats offer a soft, cushioned surface that protects little ones during playtime while enhancing home décor with their modern gray color and plush texture.
@@ -126,10 +126,10 @@ The **smabee Interlocking Carpet Shaggy Soft EVA Foam Mats** feature a perfect b
 
 Beyond aesthetics, these mats serve a practical purpose by protecting floors from everyday damage caused by toys, furniture, or foot traffic. Their lightweight nature means they can be easily moved or stored, offering flexibility for different occasions or room setups. Designed with safety and comfort in mind, the **smabee mats** provide a non-toxic, cushioned environment that supports active play and reduces the risk of injuries, making them an excellent addition to any family home.
 
-## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps Indoor</a>
+## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps Indoor</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
 
 
 The **KOOTETA Stair Treads for Wooden Steps Indoor** are ideal for homeowners looking to enhance safety and style on their staircases. Perfect for families with **kids, elders, and pets**, these stair treads provide a reliable non-slip surface that helps prevent accidents on wooden stairs. If you want to protect your stairs from wear and tear while ensuring secure footing, this product is a smart choice.
@@ -152,10 +152,10 @@ The **KOOTETA Stair Treads** are thoughtfully designed to combine functionality 
 
 Beyond safety, these treads also protect your wooden stairs from scratches, scuffs, and everyday wear, extending the life of your flooring. Their neutral **dark grey color** blends seamlessly into most home decors, adding a subtle touch of elegance. Overall, the KOOTETA Stair Treads offer a practical and stylish upgrade that benefits users of all ages, especially families with young children, seniors, or pets who need extra stair safety assurance.
 
-## <a href="https://www.amazon.com/dp/B093RYNK2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Laundry Room Rug Runner</a>
+## <a href="https://www.amazon.com/dp/B093RYNK2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Laundry Room Rug Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B093RYNK2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Laundry Room Rug Runner 20" bathroom="" decor"="" farmhouse="" floor="" for="" kitchen="" laundry="" mat="" mats="" mudroom="" non="" rubber="" rug="" runner="" slip="" src="https://m.media-amazon.com/images/I/51KQl6i3voS._SL500_.jpg" washable="" washroom="" waterproof="" x48"=""/></a>
+<a href="https://www.amazon.com/dp/B093RYNK2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Laundry Room Rug Runner 20" bathroom="" decor"="" farmhouse="" floor="" for="" kitchen="" laundry="" mat="" mats="" mudroom="" non="" rubber="" rug="" runner="" slip="" src="https://m.media-amazon.com/images/I/51KQl6i3voS._SL500_.jpg" washable="" washroom="" waterproof="" x48"=""/></a>
 
 
 The **Pauwer Laundry Room Rug Runner 20"x48"** is ideal for homeowners and renters looking to enhance the safety and aesthetics of their laundry rooms, kitchens, mudrooms, or bathrooms. This **waterproof rubber laundry mat** is perfect for individuals who want a durable, non-slip surface to protect their floors from water damage while adding a stylish touch to farmhouse or modern decor. If you need a practical solution to keep your floor dry and secure in high-traffic or moisture-prone areas, this mat is a great choice.
@@ -178,10 +178,10 @@ The **Pauwer Laundry Room Rug Runner** features a high-quality waterproof rubber
 
 Measuring 20 inches wide and 48 inches long, this mat offers a practical size that fits well in narrow spaces such as laundry rooms and mudrooms. Its lightweight construction makes it easy to move and clean, enhancing convenience for busy households. The sleek black color and minimalist design allow it to blend seamlessly with various interior themes, making it both a practical and attractive addition to your home.
 
-## <a href="https://www.amazon.com/dp/B085XT1FS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Upgrade 4x6 Rugs For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B085XT1FS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Upgrade 4x6 Rugs For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B085XT1FS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Upgrade 4x6 Rugs for Bedroom, Grey, Fluffy Shaggy Soft Area Rug, Gray Non-Slip Indoor Floor Carpet for Living Room, Kids Baby Boys Teen Dorm Home Decor Aesthetic, Nursery, Rug" src="https://m.media-amazon.com/images/I/51irYgwVLuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085XT1FS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Upgrade 4x6 Rugs for Bedroom, Grey, Fluffy Shaggy Soft Area Rug, Gray Non-Slip Indoor Floor Carpet for Living Room, Kids Baby Boys Teen Dorm Home Decor Aesthetic, Nursery, Rug" src="https://m.media-amazon.com/images/I/51irYgwVLuL._SL500_.jpg"/></a>
 
 
 The **Ophanie Upgrade 4x6 Rugs for Bedroom** is ideal for individuals seeking a combination of comfort, style, and practicality in their home decor. Perfect for **living rooms, bedrooms, nurseries**, and **dorm rooms**, this **fluffy shaggy soft area rug** is especially suited for families with **kids, babies, or teens** who want a cozy and aesthetic addition to their space. If you desire a **non-slip, indoor floor carpet** that offers both safety and elegance, this rug is a great choice.
@@ -203,10 +203,10 @@ The **Ophanie 4x6 rug** features a plush shaggy pile that enhances the tactile e
 
 Measuring 48 by 63.6 inches and weighing just around 3 pounds, this lightweight rug is easy to move and reposition, allowing users to refresh their space effortlessly. Its design caters to both aesthetic appeal and functional needs, offering a cozy, warm surface ideal for nurseries or dorm rooms where comfort and style matter most. Whether used in a living room or bedroom, this **Ophanie shaggy rug** elevates the ambiance while delivering practical benefits.
 
-## <a href="https://www.amazon.com/dp/B091TCWYQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2' X 6' Runner Rugs With Rubber Backing</a>
+## <a href="https://www.amazon.com/dp/B091TCWYQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2' X 6' Runner Rugs With Rubber Backing</a>
 
 
-<a href="https://www.amazon.com/dp/B091TCWYQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2' x 6' Runner Rugs with Rubber Backing, Indoor Outdoor Utility Carpet Runner Rugs, Stripe Gray, Can Be Used as Aisle for The RV and Boat, Laundry Room and Balcony" src="https://m.media-amazon.com/images/I/51l+hL7wPOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091TCWYQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2' x 6' Runner Rugs with Rubber Backing, Indoor Outdoor Utility Carpet Runner Rugs, Stripe Gray, Can Be Used as Aisle for The RV and Boat, Laundry Room and Balcony" src="https://m.media-amazon.com/images/I/51l+hL7wPOL._SL500_.jpg"/></a>
 
 
 The **2' x 6' Runner Rugs with Rubber Backing** are ideal for individuals seeking a versatile and durable carpet solution for both **indoor and outdoor** use. Whether you own an **RV**, a **boat**, or need a reliable runner for spaces like the **laundry room** or **balcony**, this rug is designed to meet your needs with ease and style. Its compact size and practical design make it perfect for anyone looking to add functionality and comfort to narrow walkways or high-traffic areas.
@@ -229,10 +229,10 @@ The **Heyroll 2' x 6' Runner Rug** features a sturdy rubber backing that firmly 
 
 With its sleek **stripe gray** design, the rug not only serves a functional purpose but also adds a touch of modern style to any area. Its lightweight and slim profile mean it can be easily moved, cleaned, or stored when not in use. Whether you want to enhance the safety of your **laundry room** or provide a clean, comfortable surface for your **balcony**, this rug adapts seamlessly to your lifestyle and space requirements.
 
-## <a href="https://www.amazon.com/dp/B0C7VCCTLN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shag Area Rugs For Living Room 5x7 Feet</a>
+## <a href="https://www.amazon.com/dp/B0C7VCCTLN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shag Area Rugs For Living Room 5x7 Feet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7VCCTLN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shag Area Rugs for Living Room 5x7 Feet, Upgrade Anti-Skid Rectangular Cozy Rug, Indoor Floor Carpet for Kids Boys Girls Dorm Bedroom Playroom, Home Decor Aesthetic, Tie-Dyed Dark Gray" src="https://m.media-amazon.com/images/I/51YkXkqs43L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7VCCTLN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shag Area Rugs for Living Room 5x7 Feet, Upgrade Anti-Skid Rectangular Cozy Rug, Indoor Floor Carpet for Kids Boys Girls Dorm Bedroom Playroom, Home Decor Aesthetic, Tie-Dyed Dark Gray" src="https://m.media-amazon.com/images/I/51YkXkqs43L._SL500_.jpg"/></a>
 
 
 The **Shag Area Rugs for Living Room 5x7 Feet** by **KNZE** is ideal for individuals seeking a blend of comfort and style in their indoor spaces. Perfect for families with **kids**, college students living in dorms, or anyone looking to enhance their **home decor aesthetic**, this rug offers a cozy and safe flooring option. Its **anti-skid** feature makes it especially suitable for active playrooms or bedrooms, ensuring both safety and softness underfoot.
@@ -254,10 +254,10 @@ The **shag area rug** features a plush pile height of 1.75 inches, creating a so
 
 Constructed by **KNZE**, the rug combines aesthetic appeal with practical functionality. The **anti-skid backing** ensures that the rug stays securely in place, reducing the risk of accidents in active environments such as children's rooms or dormitories. This makes it an excellent choice for families or students seeking both style and safety in their floor coverings.
 
-## <a href="https://www.amazon.com/dp/B07S64DZP9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Traffic Guard Door Mat</a>
+## <a href="https://www.amazon.com/dp/B07S64DZP9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Traffic Guard Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B07S64DZP9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Traffic Guard Door Mat, Heavy Duty Welcome Mats, Commercial Office Space Doormat, Waterproof, Fade Resistant, Strong Rubber Backing, Low Profile, Shoe and Boot Scraper, 29x17, Gray" src="https://m.media-amazon.com/images/I/519Zk7hkAJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07S64DZP9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Traffic Guard Door Mat, Heavy Duty Welcome Mats, Commercial Office Space Doormat, Waterproof, Fade Resistant, Strong Rubber Backing, Low Profile, Shoe and Boot Scraper, 29x17, Gray" src="https://m.media-amazon.com/images/I/519Zk7hkAJL._SL500_.jpg"/></a>
 
 
 The **GORILLA GRIP Traffic Guard Door Mat** is ideal for homeowners and business owners looking for a durable and effective solution to keep entryways clean. Perfect for commercial office spaces, busy households, or anyone needing a heavy-duty welcome mat that can withstand high foot traffic while maintaining its appearance and functionality.

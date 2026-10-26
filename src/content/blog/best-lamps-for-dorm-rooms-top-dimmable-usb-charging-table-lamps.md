@@ -23,10 +23,10 @@ Lamps with different color temperatures help reduce eye strain during late-night
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a stylish yet functional lighting solution, the **Fenmzee Bedside Table Lamp** is perfect for bedroom, living room, or desk use. Those who value convenience and modern features like dimmable lighting and integrated charging options will find this lamp especially beneficial.
@@ -48,10 +48,10 @@ The **Fenmzee Bedside Table Lamp** combines functionality with aesthetic appeal,
 
 In addition to lighting, this lamp serves as a practical charging station thanks to its built-in **USB C ports and AC outlet**. This dual charging capability allows you to power smartphones, tablets, laptops, or other devices without cluttering your bedside or desk with multiple adapters. Its compact dimensions ensure it fits comfortably in smaller areas, making it a versatile choice for various rooms and settings.
 
-## <a href="https://www.amazon.com/dp/B0DK4QZ1C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DK4QZ1C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK4QZ1C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bedside Table Lamp for Bedroom, 3-Color Small Lamps with Pull Chain, Bedroom Table Lamps for Night stands,Desk Reading Light AC Outlet Nightstand Lamp for Living Room Decor/Dorm/Office Bulb Included" src="https://m.media-amazon.com/images/I/41uJsnFv0NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK4QZ1C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bedside Table Lamp for Bedroom, 3-Color Small Lamps with Pull Chain, Bedroom Table Lamps for Night stands,Desk Reading Light AC Outlet Nightstand Lamp for Living Room Decor/Dorm/Office Bulb Included" src="https://m.media-amazon.com/images/I/41uJsnFv0NL._SL500_.jpg"/></a>
 
 
 The **Bedside Table Lamp for Bedroom** is perfect for individuals looking to enhance their bedroom or living space with a compact, stylish, and functional lighting solution. Ideal for students in dorms, professionals working late at night, or anyone needing a versatile nightstand lamp, this product combines convenience with aesthetic appeal.
@@ -74,10 +74,10 @@ The **Dott Arts Bedside Table Lamp** is crafted with both style and function in 
 
 Beyond aesthetics, this lamp is designed for practicality. The built-in AC outlet on the base is a smart addition, providing an extra spot to plug in devices such as phones or tablets, reducing clutter on your nightstand. Its compact and lightweight build makes it an excellent choice for dorm rooms, offices, or cozy bedrooms where space is limited but reliable lighting is essential.
 
-## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yarra-decor Bedside Table Lamp With Usb Port </a>
+## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yarra-decor Bedside Table Lamp With Usb Port </a>
 
 
-<a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
 
 
 The **Yarra-Decor Bedside Table Lamp with USB Port** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom, living room, dorm, or home office**. This lamp is perfect for those who value convenience, as it combines elegant design with practical features like **touch control** and a built-in **USB port** for easy device charging. If you want a versatile and modern nightstand lamp that enhances your space while providing customizable lighting, this is an excellent choice.
@@ -100,10 +100,10 @@ The **Yarra-Decor Bedside Table Lamp** combines both aesthetics and utility in o
 
 The lamp’s **round flaxen fabric shade** lends a warm, inviting ambiance that works well in various interior settings, from cozy dorm rooms to professional home offices. Despite its petite size, this lamp packs a powerful punch with the included **LED bulb**, which ensures energy efficiency and durability over time. Overall, the Yarra-Decor bedside lamp is a smart choice for those looking to enhance both the functionality and style of their living spaces.
 
-## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
 
 
 The **Small Bedside Table Lamp for Bedroom** by **Dicoool** is ideal for individuals seeking a compact yet versatile lighting solution for their bedroom or kids' room. Perfect for those who value adjustable lighting options and convenient charging capabilities, this lamp is especially suited for readers, night owlers, and parents looking to create a cozy nighttime environment with easy access to power outlets.
@@ -126,10 +126,10 @@ This **Dicoool bedside lamp** offers a blend of functionality and style, making 
 
 The lamp's **pull chain** switch provides a tactile and easy method to control the light without fumbling for buttons in the dark. Additionally, the integrated **AC outlet** is a thoughtful feature that expands power options for bedside gadgets. Its sleek **white shade** paired with a sturdy **black metal base** ensures durability while complementing various bedroom decor styles. Overall, this small yet powerful lamp balances practicality with a minimalist aesthetic.
 
-## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touch Bedside Table Lamp With Usb</a>
+## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touch Bedside Table Lamp With Usb</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
 
 
 The **Touch Bedside Table Lamp with USB** is perfect for individuals seeking a versatile and stylish lighting solution for their **bedroom nightstand**, **office desk**, or **living room**. Ideal for students in a **dorm**, parents looking for a gentle **nursery** light, or anyone who values convenience and modern design, this lamp combines functionality with aesthetic appeal. Its compact size and multiple features make it an excellent choice for small spaces and diverse settings.
@@ -152,10 +152,10 @@ This **Dicoool** lamp features a smooth touch interface with three adjustable br
 
 Crafted with a stylish **cream and wooden finish**, the lamp seamlessly blends with a variety of interior designs, from modern to rustic. Its compact size and lightweight construction make it ideal for use in small rooms such as dormitories or nurseries. Whether placed on a bedside table or office desk, this lamp offers a perfect balance of aesthetics, convenience, and functionality to enhance any living or working environment.
 
-## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
 
 
 The **BOHON LED Desk Lamp with USB Charging Port** is an excellent choice for students, professionals, and anyone who needs a reliable and versatile lighting solution for their workspace or bedside. Ideal for those who value adjustable lighting and convenient charging options, this lamp caters to users who require both functionality and style in their desk accessories.
@@ -179,10 +179,10 @@ The **BOHON LED Desk Lamp** features three distinct color modes—warm, cool, an
 
 Designed with a flexible gooseneck, this lamp offers exceptional adjustability, enabling users to direct light exactly where it is needed. The integrated USB charging port is a significant benefit for those who need to charge smartphones or other devices without cluttering their workspace with multiple chargers. With its sleek matt black finish and compact dimensions, the BOHON Desk Lamp blends seamlessly into any bedside or office setup, making it a practical and stylish lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Addtam Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D2LGK82V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Addtam Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2LGK82V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Addtam LED Desk Lamp, Power Strip with 3 Outlets 4 USB Charging Ports(2 USBC), 4 Modes 5 Level Brightness Touch Lamp, Small Desk Lamp for Home Office College Dorm Room Essentials" src="https://m.media-amazon.com/images/I/41UpQ-qygDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2LGK82V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Addtam LED Desk Lamp, Power Strip with 3 Outlets 4 USB Charging Ports(2 USBC), 4 Modes 5 Level Brightness Touch Lamp, Small Desk Lamp for Home Office College Dorm Room Essentials" src="https://m.media-amazon.com/images/I/41UpQ-qygDL._SL500_.jpg"/></a>
 
 
 The **Addtam LED Desk Lamp** is an ideal choice for students, remote workers, and anyone who needs a versatile lighting solution combined with convenient charging options. Perfect for **home offices, college dorm rooms,** or small workspaces, this compact lamp meets the needs of those who require adjustable brightness and multiple power outlets in one sleek device.
@@ -205,10 +205,10 @@ The **Addtam LED Desk Lamp** blends functionality and convenience by integrating
 
 Thanks to its thoughtful design, the lamp's **touch-sensitive controls** make adjusting light settings quick and effortless. The inclusion of **USB-C ports** caters to modern devices, enabling fast and efficient charging. Its slim profile and lightweight build make it an excellent choice for small spaces like dorm rooms or compact offices, offering essential lighting and charging capabilities without sacrificing desk space or aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rootro Touch Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rootro Touch Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
 
 
 The **ROOTRO Touch Bedside Table Lamp** is perfect for individuals seeking a versatile and stylish lighting solution for their bedroom or living room. Ideal for those who appreciate modern design combined with functional technology, this lamp suits users who want adjustable brightness and colorful lighting options to enhance their ambiance or create a cozy atmosphere. Whether you need a practical nightstand lamp or a decorative piece with smart features, this lamp caters to all those looking to blend style with convenience.
@@ -232,10 +232,10 @@ The **ROOTRO Touch Bedside Table Lamp** features a user-friendly touch control m
 
 Its compact and sleek design not only saves space on your bedside table but also adds a modern aesthetic to your room. The multi-color smart lighting options allow for creative expression, making it an excellent choice for those who enjoy setting different moods or themes. Additionally, its lightweight build facilitates easy portability, so you can effortlessly move it around your home as needed.
 
-## <a href="https://www.amazon.com/dp/B0BBPKPKN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bedside Table Lamp With 3 Color Temperatures</a>
+## <a href="https://www.amazon.com/dp/B0BBPKPKN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bedside Table Lamp With 3 Color Temperatures</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBPKPKN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bedside Table Lamp with 3 Color Temperatures - 3000/4000/5000K Small Lamp with USB C+A Ports, Nightstand Lamp with 3 Color Modes by Pull Chain, Bedroom Lamp for Living Read Work(LED Bulb Included)" src="https://m.media-amazon.com/images/I/41Nr85VxA9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBPKPKN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bedside Table Lamp with 3 Color Temperatures - 3000/4000/5000K Small Lamp with USB C+A Ports, Nightstand Lamp with 3 Color Modes by Pull Chain, Bedroom Lamp for Living Read Work(LED Bulb Included)" src="https://m.media-amazon.com/images/I/41Nr85VxA9L._SL500_.jpg"/></a>
 
 
 The **Bedside Table Lamp with 3 Color Temperatures** is ideal for anyone looking to enhance their bedroom or living space with a versatile and functional lighting solution. Perfect for readers, remote workers, or those who appreciate customizable ambiance, this lamp suits users who want both style and convenience in a compact design. Its multiple color modes and built-in USB ports make it especially suitable for tech-savvy individuals who need easy device charging while enjoying optimal lighting.
@@ -259,10 +259,10 @@ This **bedside table lamp** stands out with its ability to switch between three 
 
 Additionally, the lamp’s pull chain offers a straightforward way to change settings without fumbling for buttons or remotes, making it accessible and user-friendly. The inclusion of an energy-efficient LED bulb means users can enjoy bright, long-lasting light while keeping energy consumption low. The elegant beige and black finish adds a touch of modern style to any room, making it both a functional and attractive addition to your living environment.
 
-## <a href="https://www.amazon.com/dp/B09PDBNXGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sailstar Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B09PDBNXGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sailstar Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09PDBNXGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sailstar Desk Lamp, LED Desk Lamps for Home Office, Wireless Charger Small Desk Lamp with Pen Holder, 3 Color Modes, Dimmable, CRI 85, 800LM, Study Lamps for College Dorm Room, Adapter Included, Black" src="https://m.media-amazon.com/images/I/41EiGh5njdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PDBNXGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sailstar Desk Lamp, LED Desk Lamps for Home Office, Wireless Charger Small Desk Lamp with Pen Holder, 3 Color Modes, Dimmable, CRI 85, 800LM, Study Lamps for College Dorm Room, Adapter Included, Black" src="https://m.media-amazon.com/images/I/41EiGh5njdL._SL500_.jpg"/></a>
 
 
 The **Sailstar Desk Lamp** is ideal for students, professionals, and anyone working from home who needs a compact yet powerful lighting solution. This lamp is perfect for those who value functionality combined with modern design, especially in limited spaces like college dorm rooms or small home offices. If you require adjustable lighting with added convenience features such as wireless charging and an integrated pen holder, this lamp is an excellent choice.

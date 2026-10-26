@@ -23,10 +23,10 @@ The use of quality materials like antique brass and linen shades adds a touch of
 
 
 
-## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
 
 
 The **O’Bright Dimmable LED Pharmacy Floor Lamp** is ideal for individuals who require versatile and adjustable lighting solutions for detailed tasks. This includes avid readers, sewing enthusiasts, crafters, and professionals working on intricate projects who need precise illumination. If you value flexibility, energy efficiency, and a stylish design, this floor lamp is a perfect addition to your workspace or living area.
@@ -49,10 +49,10 @@ The **O’Bright Dimmable LED Pharmacy Floor Lamp** offers a combination of func
 
 Height adjustability further enhances usability, making this floor lamp adaptable for various seating positions or standing tasks. The **antique brass finish** lends a sophisticated look that complements both modern and traditional interiors. Being **ETL listed**, it meets rigorous safety standards, giving users peace of mind. Overall, this lamp is a durable, stylish, and practical lighting solution that suits anyone seeking efficient illumination for detailed activities.
 
-## <a href="https://www.amazon.com/dp/B00OV7UFOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Lighting Collection Ingram Swivel Swing Arm Gold Standing Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B00OV7UFOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Lighting Collection Ingram Swivel Swing Arm Gold Standing Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B00OV7UFOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Lighting Collection Ingram Swivel Swing Arm Gold 60-inch Living Room Bedroom Home Office Standing Floor Lamp (LED Bulb Included)" src="https://m.media-amazon.com/images/I/21OHWDIEq0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OV7UFOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Lighting Collection Ingram Swivel Swing Arm Gold 60-inch Living Room Bedroom Home Office Standing Floor Lamp (LED Bulb Included)" src="https://m.media-amazon.com/images/I/21OHWDIEq0L._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Lighting Collection Ingram Swivel Swing Arm Gold 60-inch Standing Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, or **home office**. This lamp is perfect for those who appreciate a blend of modern design and practicality, especially users who want adjustable lighting with an elegant gold finish.
@@ -75,10 +75,10 @@ The **SAFAVIEH Ingram Floor Lamp** features a **swivel swing arm** design, which
 
 With its dimensions of **14 inches in height, 18 inches in width, and 37 inches in length**, this lamp fits comfortably in various spaces without being intrusive. The lightweight **9-pound** construction makes it easy to move around, which is especially useful for those who like to change their room layouts frequently. Overall, this standing floor lamp combines style, convenience, and efficiency, making it a valuable addition to any contemporary living space.
 
-## <a href="https://www.amazon.com/dp/B0B5WXHTD1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Karjoefar 2-light Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B5WXHTD1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Karjoefar 2-light Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5WXHTD1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Karjoefar 2-Light Floor Lamp, Mid Century Floor Lamp with White Fabric Shade, Standing Lamp Tall Lamp for Living Room Bedroom, 3 Color Temperatures 9W Bulb Include" src="https://m.media-amazon.com/images/I/41CzOXDDDkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5WXHTD1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Karjoefar 2-Light Floor Lamp, Mid Century Floor Lamp with White Fabric Shade, Standing Lamp Tall Lamp for Living Room Bedroom, 3 Color Temperatures 9W Bulb Include" src="https://m.media-amazon.com/images/I/41CzOXDDDkL._SL500_.jpg"/></a>
 
 
 The **Karjoefar 2-Light Floor Lamp** is perfect for individuals looking to enhance their living space with stylish yet functional lighting. Ideal for those who appreciate **mid-century modern design** and need versatile lighting options for their **living room** or **bedroom**, this lamp is suited for homeowners, renters, or anyone wanting to add a sophisticated touch to their décor while enjoying adjustable illumination.
@@ -102,10 +102,10 @@ The **Karjoefar 2-Light Floor Lamp** offers exceptional versatility with its **3
 
 Designed with a **white fabric shade** and a sleek **mid-century black and white finish**, this lamp not only brightens your space but also elevates your interior design. Its tall stature at **61 inches** makes it an excellent choice for illuminating corners or areas that require a more focused light source, all while maintaining a stylish profile. Overall, this lamp blends functionality with aesthetic appeal, making it a valuable addition to any modern home.
 
-## <a href="https://www.amazon.com/dp/B07J1HSBK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3058a Ralph 60" Metal/glass Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B07J1HSBK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3058a Ralph 60" Metal/glass Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07J1HSBK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3058A Ralph 60" bedroom,="" clear"="" contemporary,="" dining="" elegant,="" family="" floor="" foyer,="" glass="" hallway,="" lamp,="" living="" metal="" modern,="" nickel="" office,="" polished="" room,="" src="https://m.media-amazon.com/images/I/31k36vEtanL._SL500_.jpg" transitional,=""/></a>
+<a href="https://www.amazon.com/dp/B07J1HSBK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3058A Ralph 60" bedroom,="" clear"="" contemporary,="" dining="" elegant,="" family="" floor="" foyer,="" glass="" hallway,="" lamp,="" living="" metal="" modern,="" nickel="" office,="" polished="" room,="" src="https://m.media-amazon.com/images/I/31k36vEtanL._SL500_.jpg" transitional,=""/></a>
 
 
 The **JONATHAN Y JYL3058A Ralph 60" Metal/Glass Floor Lamp** is ideal for those seeking a stylish and versatile lighting solution for their home or office. Perfect for individuals who appreciate **contemporary, modern, and transitional design**, this lamp complements spaces such as the **living room, family room, dining room, bedroom, hallway, and foyer**. If you want a combination of elegance and functionality with a sleek **polished nickel and clear glass** finish, this floor lamp is an excellent choice.
@@ -127,10 +127,10 @@ The **JONATHAN Y JYL3058A Ralph Floor Lamp** features a sleek metal frame combin
 
 Its elegant design is highly adaptable, blending seamlessly with various decor styles from modern to transitional. Whether placed in a living room to create a cozy atmosphere or in an office to add a touch of sophistication, this floor lamp delivers both style and function. The carefully chosen materials and dimensions make it a statement piece that elevates the overall look and feel of any space.
 
-## <a href="https://www.amazon.com/dp/B079536BVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">360 Lighting Spenser Traditional Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B079536BVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">360 Lighting Spenser Traditional Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B079536BVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="360 Lighting Spenser Traditional Floor Lamp Standing 58" antique="" bedroom="" brass="" brushed="" column="" empire="" fabric="" for="" gold="" home"="" house="" linen="" living="" metal="" off-white="" reading="" room="" shade="" src="https://m.media-amazon.com/images/I/31e4zzQxo3L._SL500_.jpg" tall="" thin=""/></a>
+<a href="https://www.amazon.com/dp/B079536BVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="360 Lighting Spenser Traditional Floor Lamp Standing 58" antique="" bedroom="" brass="" brushed="" column="" empire="" fabric="" for="" gold="" home"="" house="" linen="" living="" metal="" off-white="" reading="" room="" shade="" src="https://m.media-amazon.com/images/I/31e4zzQxo3L._SL500_.jpg" tall="" thin=""/></a>
 
 
 The **360 Lighting Spenser Traditional Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **reading nook**, or **bedroom**. Perfect for those who appreciate classic design combined with modern convenience, this lamp suits homeowners and renters looking to enhance their interior with a warm, inviting glow and a touch of elegance.
@@ -153,10 +153,10 @@ The **360 Lighting Spenser Traditional Floor Lamp** boasts a refined **brass fin
 
 Designed and manufactured by **Lamps Plus**, this floor lamp combines quality craftsmanship with timeless aesthetics. Its compact footprint, measuring just **17 inches in width and length**, makes it an excellent choice for homes with limited floor space. Whether used as a primary source of light in a cozy corner or as an accent piece to complement existing fixtures, this lamp offers both style and function for discerning homeowners.
 
-## <a href="https://www.amazon.com/dp/B07BF5GY9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6005b Roxy 60" Metal Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF5GY9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6005b Roxy 60" Metal Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF5GY9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL6005B Roxy 60" bedrooms,="" brass="" brushedbrass,="" contemporary,transitional="" floor="" for="" gold"="" lamp="" led="" living="" metal="" office,="" reading,="" room,="" src="https://m.media-amazon.com/images/I/31UtOHr9b2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BF5GY9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL6005B Roxy 60" bedrooms,="" brass="" brushedbrass,="" contemporary,transitional="" floor="" for="" gold"="" lamp="" led="" living="" metal="" office,="" reading,="" room,="" src="https://m.media-amazon.com/images/I/31UtOHr9b2L._SL500_.jpg"/></a>
 
 
 The **JONATHAN Y JYL6005B Roxy 60" Metal LED Floor Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **bedrooms, living rooms, offices, or reading areas**. Perfect for those who appreciate a blend of **contemporary and transitional design**, this lamp complements various decor styles while providing efficient illumination. If you want a durable and elegant floor lamp that adds warmth and sophistication to your space, this item is a great choice.
@@ -178,10 +178,10 @@ The **JONATHAN Y JYL6005B Roxy Floor Lamp** features a sleek and modern design w
 
 Additionally, the lamp’s 60-inch height makes it versatile enough to illuminate both floor and table surfaces, offering flexible lighting options. Its contemporary and transitional style means it seamlessly blends with both modern and classic interiors, making it a functional decor piece. The compact dimensions fit well in corners or next to furniture without occupying excessive space, making it ideal for homes and offices alike.
 
-## <a href="https://www.amazon.com/dp/B0DRPC3TT7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Ejiaxin Floor Lamps For Living Room </a>
+## <a href="https://www.amazon.com/dp/B0DRPC3TT7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Ejiaxin Floor Lamps For Living Room </a>
 
 
-<a href="https://www.amazon.com/dp/B0DRPC3TT7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 3="" almond="" alt="EJIAXIN Floor Lamps for Living Room - 60" bedroom="" color="" farmhouse="" floor="" for="" lamp="" light="" linen="" office,="" reading="" resin="" retro="" shade="" src="https://m.media-amazon.com/images/I/419a1TonAgL._SL500_.jpg" standing="" tall="" temperatures="" vintage="" white"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DRPC3TT7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 3="" almond="" alt="EJIAXIN Floor Lamps for Living Room - 60" bedroom="" color="" farmhouse="" floor="" for="" lamp="" light="" linen="" office,="" reading="" resin="" retro="" shade="" src="https://m.media-amazon.com/images/I/419a1TonAgL._SL500_.jpg" standing="" tall="" temperatures="" vintage="" white"="" with=""/></a>
 
 
 The **EJIAXIN Floor Lamps for Living Room** is an excellent choice for individuals seeking a blend of vintage charm and modern functionality in their lighting solutions. Ideal for homeowners, renters, or office workers who want a stylish yet practical lighting option, this **60" Resin Farmhouse Floor Lamp** fits perfectly in living rooms, bedrooms, or offices. Those who appreciate adjustable lighting and a classic aesthetic will find this **vintage standing lamp** with a **linen shade** especially appealing.
@@ -204,10 +204,10 @@ The **EJIAXIN Floor Lamp** stands out due to its elegant **resin construction** 
 
 Additionally, its **60-inch tall** stature ensures it provides sufficient lighting without overwhelming the room’s decor. The lightweight design makes it easy to move and position wherever needed, whether next to a cozy armchair in the living room or beside a desk in the office. The **almond white color** and vintage style help it blend seamlessly with a variety of interior themes, making it a functional and stylish addition to any space.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is perfect for individuals seeking a versatile and stylish lighting solution for their **living room**, **bedroom**, **office**, or **dining room**. Ideal for those who appreciate modern design with functional features, this lamp suits users who want adjustable brightness and a warm ambiance created by the included **LED Edison bulb**. If you value both aesthetics and practicality in your home or workspace lighting, this lamp is an excellent choice.
@@ -229,10 +229,10 @@ This **tall floor lamp** by **Nintiue** is designed to blend functionality with 
 
 The lamp’s **dimmable feature** enhances its usability by allowing users to adjust brightness according to mood or task, making it suitable for reading, relaxing, or working. Its compact size and stylish **matte black finish** ensure it fits seamlessly into various interior designs without overwhelming the space. Overall, this lamp offers a blend of practicality and elegance for anyone looking to enhance their room’s lighting.
 
-## <a href="https://www.amazon.com/dp/B093GXHRWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B093GXHRWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B093GXHRWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp for Living Room, Adjustable Height Standing Lamp with Marble Base, 3-Way Dimmable Gold Brass Tall Pole Light with White Linen Shade for Reading, Bedroom, Chain Switch, Bulb Included" src="https://m.media-amazon.com/images/I/5120EtfVckL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093GXHRWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp for Living Room, Adjustable Height Standing Lamp with Marble Base, 3-Way Dimmable Gold Brass Tall Pole Light with White Linen Shade for Reading, Bedroom, Chain Switch, Bulb Included" src="https://m.media-amazon.com/images/I/5120EtfVckL._SL500_.jpg"/></a>
 
 
 The **Modern Floor Lamp for Living Room** is ideal for individuals seeking a stylish yet functional lighting solution. Perfect for homeowners, renters, or interior design enthusiasts who want to enhance their living space with an elegant and adjustable light source. This lamp suits those who appreciate a combination of modern aesthetics and practical features, such as adjustable height and dimmable lighting for reading or ambiance.
@@ -257,10 +257,10 @@ This **Modern Floor Lamp** by Qingmiao combines a sleek gold brass pole with a r
 
 Equipped with a 3-way dimmable switch, this lamp provides multiple brightness settings, allowing users to shift from bright task lighting to a warm, relaxing glow effortlessly. The convenient chain switch adds to its usability, making it simple to operate without bending or reaching. Overall, this lamp blends functionality with refined design, making it a versatile addition to any living room or bedroom.
 
-## <a href="https://www.amazon.com/dp/B0DGQFVRSB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo 62" Rustic Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DGQFVRSB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo 62" Rustic Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGQFVRSB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BOBOMOMO 62" bedroom,="" corner,="" dining="" farmhouse="" floor="" for="" house"="" lamp="" living="" resin="" retro="" room,="" rotary="" rustic="" src="https://m.media-amazon.com/images/I/416jL0eMODL._SL500_.jpg" standing="" switch,=""/></a>
+<a href="https://www.amazon.com/dp/B0DGQFVRSB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BOBOMOMO 62" bedroom,="" corner,="" dining="" farmhouse="" floor="" for="" house"="" lamp="" living="" resin="" retro="" room,="" rotary="" rustic="" src="https://m.media-amazon.com/images/I/416jL0eMODL._SL500_.jpg" standing="" switch,=""/></a>
 
 
 The **BOBOMOMO 62" Rustic Floor Lamp** is perfect for individuals seeking to enhance their living spaces with a blend of **retro farmhouse charm** and functional lighting. Ideal for homeowners, renters, or interior design enthusiasts who want a stylish yet practical lamp for their **living room, bedroom, dining room, or cozy corners**. If you appreciate a warm, inviting ambiance paired with durable craftsmanship, this floor lamp is a fitting choice.

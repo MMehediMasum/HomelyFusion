@@ -23,10 +23,10 @@ Whether you prefer fragrance-free options from 365 by Whole Foods Market or anti
 
 
 
-## <a href="https://www.amazon.com/dp/B079FYJC97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softsoap Moisturizing Liquid Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B079FYJC97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softsoap Moisturizing Liquid Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B079FYJC97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Softsoap Moisturizing Liquid Hand Soap, Milk and Honey, 7.5 Fluid Ounce, Pack of 6 (Package may vary)" src="https://m.media-amazon.com/images/I/51GqNgbzZ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079FYJC97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Softsoap Moisturizing Liquid Hand Soap, Milk and Honey, 7.5 Fluid Ounce, Pack of 6 (Package may vary)" src="https://m.media-amazon.com/images/I/51GqNgbzZ4L._SL500_.jpg"/></a>
 
 
 The **Softsoap Moisturizing Liquid Hand Soap, Milk and Honey** is ideal for individuals and families seeking a gentle yet effective hand soap that nourishes the skin while cleansing. Perfect for those who prioritize hydration and a pleasant scent in their daily handwashing routine, this product suits anyone looking for a reliable soap to keep hands soft and refreshed.
@@ -48,12 +48,12 @@ The **Softsoap Moisturizing Liquid Hand Soap** combines the soothing properties 
 
 Additionally, the compact size and lightweight design make these bottles easy to store and handle, whether at home or in an office setting. The fact that this soap comes in a pack of six ensures that you have a sufficient supply for extended periods, reducing the need for frequent purchases. Overall, this product offers a balanced combination of moisturizing care, convenience, and value for those who want clean, healthy hands every day.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B079FYJC97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B079FYJC97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B074H64BVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">365 By Whole Foods Market Liquid Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B074H64BVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">365 By Whole Foods Market Liquid Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B074H64BVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="365 by Whole Foods Market, Liquid Hand Soap, Fragrance Free, 12.5 Fl Oz" src="https://m.media-amazon.com/images/I/311PQS28QyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074H64BVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="365 by Whole Foods Market, Liquid Hand Soap, Fragrance Free, 12.5 Fl Oz" src="https://m.media-amazon.com/images/I/311PQS28QyL._SL500_.jpg"/></a>
 
 
 The **365 by Whole Foods Market, Liquid Hand Soap, Fragrance Free, 12.5 Fl Oz** is ideal for individuals seeking a gentle, effective hand soap without any added fragrances. This product is perfect for those with sensitive skin, allergies to scented products, or anyone who prefers a minimalist approach to personal care. It is also well-suited for families, offices, and public spaces where a neutral, non-irritating soap is preferred.
@@ -75,12 +75,12 @@ The **365 by Whole Foods Market Liquid Hand Soap** stands out for its simplicity
 
 In addition to its gentle formula, the soap’s packaging is designed for convenience. Its moderate size and lightweight build make it an easy fit in any bathroom or kitchen setting, while still providing enough product for regular use. The trusted **365 by Whole Foods Market** brand adds an element of quality assurance, ensuring users receive a reliable and effective hand soap that meets high standards of natural and safe ingredients.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B074H64BVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B074H64BVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09HHDHXWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Gentle &amp; Mild Clear Liquid Hand Soap Refill</a>
+## <a href="https://www.amazon.com/dp/B09HHDHXWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Gentle &amp; Mild Clear Liquid Hand Soap Refill</a>
 
 
-<a href="https://www.amazon.com/dp/B09HHDHXWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Gentle &amp; Mild Clear Liquid Hand Soap Refill, Triclosan-free, 50 Fluid Ounces, 1-Pack (Previously Solimo)" src="https://m.media-amazon.com/images/I/31ajpb-D+eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HHDHXWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Gentle &amp; Mild Clear Liquid Hand Soap Refill, Triclosan-free, 50 Fluid Ounces, 1-Pack (Previously Solimo)" src="https://m.media-amazon.com/images/I/31ajpb-D+eL._SL500_.jpg"/></a>
 
 
 The **Amazon Basics Gentle & Mild Clear Liquid Hand Soap Refill** is ideal for individuals and families seeking a reliable, everyday hand soap that is gentle on the skin. Perfect for those who want a triclosan-free formula to avoid harsh chemicals, this product suits anyone looking to maintain clean hands without irritation or dryness. Its large 50-fluid-ounce size makes it especially practical for households, offices, or commercial spaces where frequent handwashing occurs.
@@ -103,12 +103,12 @@ The **Amazon Basics Gentle & Mild Clear Liquid Hand Soap Refill** is designed wi
 
 The refill pack's large size, with dimensions of **9.36 inches in height**, **4.66 inches in width**, and **4.04 inches in length**, provides long-lasting value and convenience. It fits standard soap dispensers, allowing users to easily replenish their soap supply while minimizing packaging waste. Overall, this product offers a practical and economical solution for keeping hands clean and healthy in homes, workplaces, and public settings alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09HHDHXWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09HHDHXWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00NU9MJYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B00NU9MJYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B00NU9MJYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap, Cruelty-Free, and Biodegradable Hand Wash Made with Essential Oils, Lemon Verbena Scent, 12.5 Oz (Pack of 3)" src="https://m.media-amazon.com/images/I/51ppxJHJYYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NU9MJYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap, Cruelty-Free, and Biodegradable Hand Wash Made with Essential Oils, Lemon Verbena Scent, 12.5 Oz (Pack of 3)" src="https://m.media-amazon.com/images/I/51ppxJHJYYL._SL500_.jpg"/></a>
 
 
 The **MRS. MEYER'S CLEAN DAY Liquid Hand Soap** is perfect for individuals who prioritize using **eco-friendly** and **cruelty-free** products in their daily routine. Ideal for those who want an effective hand wash that is also **biodegradable** and made with natural **essential oils**, this soap is especially suitable for environmentally conscious consumers and families seeking gentle yet powerful cleaning solutions.
@@ -130,12 +130,12 @@ The **MRS. MEYER'S CLEAN DAY Liquid Hand Soap** combines the power of **natural 
 
 Designed by **SC Johnson**, this hand soap comes in a clear, compact bottle measuring 2.9 inches in height, 3.0 inches in width, and 6.8 inches in length, making it easy to place in any bathroom or kitchen setting. The pack of three bottles offers convenience and value for users who want to maintain a consistent supply of a trusted, eco-conscious hand wash product.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00NU9MJYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00NU9MJYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00F1U0YB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap Refill</a>
+## <a href="https://www.amazon.com/dp/B00F1U0YB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap Refill</a>
 
 
-<a href="https://www.amazon.com/dp/B00F1U0YB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap Refill, Cruelty Free and Biodegradable Formula, Lemon Verbena Scent, 33 oz" src="https://m.media-amazon.com/images/I/41k9P-flyOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00F1U0YB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap Refill, Cruelty Free and Biodegradable Formula, Lemon Verbena Scent, 33 oz" src="https://m.media-amazon.com/images/I/41k9P-flyOL._SL500_.jpg"/></a>
 
 
 Ideal for environmentally conscious individuals seeking an effective yet gentle hand soap, the **MRS. MEYER'S CLEAN DAY Liquid Hand Soap Refill** with a refreshing **Lemon Verbena Scent** is perfect for those who prioritize cruelty-free and biodegradable products in their daily routine. This 33 oz refill pack is designed for users who want to maintain cleanliness while reducing plastic waste by refilling existing soap dispensers.
@@ -158,12 +158,12 @@ The **MRS. MEYER'S CLEAN DAY Liquid Hand Soap Refill** is crafted by **SC Johnso
 
 Additionally, the invigorating **Lemon Verbena scent** offers a natural, uplifting aroma that enhances the handwashing experience. The large 33 oz refill size not only reduces plastic waste but also offers convenience and cost savings for busy households or office environments. Overall, this product combines sustainability, performance, and sensory appeal in one eco-friendly package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00F1U0YB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00F1U0YB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09MR6SVQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B09MR6SVQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Liquid Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B09MR6SVQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap, Daisy, 12.5 OZ" src="https://m.media-amazon.com/images/I/31UnLdihScL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MR6SVQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Liquid Hand Soap, Daisy, 12.5 OZ" src="https://m.media-amazon.com/images/I/31UnLdihScL._SL500_.jpg"/></a>
 
 
 The **MRS. MEYER'S CLEAN DAY Liquid Hand Soap, Daisy, 12.5 OZ** is ideal for individuals who prioritize a combination of effective cleanliness and pleasant, natural fragrances in their hand care routine. Perfect for eco-conscious consumers and those looking for a gentle yet powerful soap that is suitable for everyday use in homes, offices, or schools. If you want a hand soap that not only cleans but also uplifts your mood with a fresh floral scent, this product is a great choice.
@@ -186,12 +186,12 @@ The **MRS. MEYER'S CLEAN DAY Liquid Hand Soap** stands out for its clean, natura
 
 Beyond its pleasant aroma and practical size, this hand soap reflects Mrs. MEYER'S commitment to environmentally friendly ingredients and packaging. Users benefit from a product that cleans thoroughly while supporting sustainability, making it a responsible choice for those who want to maintain hygiene without compromising on eco-conscious values. The product’s balance of fragrance, functionality, and design ensures that handwashing becomes a simple yet enjoyable daily ritual.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09MR6SVQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09MR6SVQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mrs. Meyer's Clean Day Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Hand Soap, Made with Essential Oils, Biodegradable Formula, Lavender, 12.5 fl. oz - Pack of 3" src="https://m.media-amazon.com/images/I/514n9FtibQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MRS. MEYER'S CLEAN DAY Hand Soap, Made with Essential Oils, Biodegradable Formula, Lavender, 12.5 fl. oz - Pack of 3" src="https://m.media-amazon.com/images/I/514n9FtibQL._SL500_.jpg"/></a>
 
 
 The **MRS. MEYER'S CLEAN DAY Hand Soap** is ideal for individuals who prioritize natural ingredients and eco-friendly products in their daily hygiene routine. If you are looking for a hand soap that combines effective cleaning with a pleasant **lavender scent** and a **biodegradable formula**, this product suits your needs perfectly. It is especially great for environmentally conscious consumers and those with sensitive skin who want a gentle yet refreshing hand wash.
@@ -214,12 +214,12 @@ The **MRS. MEYER'S CLEAN DAY Hand Soap** features a thoughtfully crafted formula
 
 With dimensions of **8.25 inches in height**, **3.13 inches in width**, and **8.38 inches in length**, this soap bottle fits comfortably on most bathroom sinks or kitchen counters. The well-designed packaging from **SC Johnson** under the trusted **Mrs. MEYER'S** brand combines both aesthetics and function. Users will appreciate the gentle yet effective cleansing, the natural ingredients, and the long-lasting scent, making it a highly recommended hand soap for everyday use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01N1N6FMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B084MVWG1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dial Antibacterial Liquid Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B084MVWG1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dial Antibacterial Liquid Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B084MVWG1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dial Antibacterial Liquid Hand Soap, Spring Water, 11 fl oz (Pack of 4)" src="https://m.media-amazon.com/images/I/51vr4npd1WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084MVWG1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dial Antibacterial Liquid Hand Soap, Spring Water, 11 fl oz (Pack of 4)" src="https://m.media-amazon.com/images/I/51vr4npd1WL._SL500_.jpg"/></a>
 
 
 The **Dial Antibacterial Liquid Hand Soap, Spring Water, 11 fl oz (Pack of 4)** is ideal for individuals and families seeking an effective and refreshing hand cleansing solution. Perfect for those who prioritize hygiene and want to maintain clean hands throughout the day, this product suits both home and office environments. It is especially beneficial for anyone who needs a reliable antibacterial soap to help reduce germs and bacteria on their skin.
@@ -242,12 +242,12 @@ The **Dial Antibacterial Liquid Hand Soap** features a potent antibacterial form
 
 This pack of 4 bottles provides excellent value and convenience, ensuring you won’t run out of soap quickly. The product’s design focuses on reliable antibacterial protection, which is essential for maintaining hygiene especially during cold and flu seasons or in environments where cleanliness is critical. Overall, this hand soap combines effectiveness, pleasant fragrance, and practicality, making it a smart choice for everyday hand hygiene.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B084MVWG1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B084MVWG1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B081FFRGZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softsoap Antibacterial Liquid Hand Soap Refill</a>
+## <a href="https://www.amazon.com/dp/B081FFRGZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softsoap Antibacterial Liquid Hand Soap Refill</a>
 
 
-<a href="https://www.amazon.com/dp/B081FFRGZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Softsoap Antibacterial Liquid Hand Soap Refill, White Tea &amp; Berry Scented Hand Soap, 50 Ounce(Packaging May Vary)" src="https://m.media-amazon.com/images/I/418-DXnivZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081FFRGZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Softsoap Antibacterial Liquid Hand Soap Refill, White Tea &amp; Berry Scented Hand Soap, 50 Ounce(Packaging May Vary)" src="https://m.media-amazon.com/images/I/418-DXnivZL._SL500_.jpg"/></a>
 
 
 The **Softsoap Antibacterial Liquid Hand Soap Refill** in **White Tea & Berry Scent** is ideal for individuals and families who prioritize cleanliness and hygiene in their daily routine. This product is perfect for those looking to maintain antibacterial protection while enjoying a refreshing and pleasant fragrance in their handwashing experience. It is especially suitable for households, offices, and public spaces that require frequent handwashing with an effective and convenient refill option.
@@ -270,12 +270,12 @@ The **Softsoap Antibacterial Liquid Hand Soap Refill** is thoughtfully designed 
 
 Infused with a subtle yet invigorating **White Tea & Berry scent**, this hand soap transforms routine handwashing into a refreshing sensory experience. Manufactured by the trusted brand **Colgate-Palmolive Co.**, the product guarantees quality and safety. Its compact dimensions and manageable weight make it easy to store and handle, fitting conveniently in most storage spaces without hassle. Overall, this refill is an excellent option for those seeking reliable antibacterial protection combined with a delightful fragrance and sustainable packaging.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B081FFRGZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B081FFRGZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">J.r. Watkins Foaming Hand Soap</a>
+## <a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">J.r. Watkins Foaming Hand Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="J.R. Watkins Foaming Hand Soap with Pump Dispenser, Moisturizing Foam Hand Wash, All Natural, Alcohol-Free, Cruelty-Free, USA Made, Lemon, 9 fl oz, 3 Pack" src="https://m.media-amazon.com/images/I/51Ak+RE97HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="J.R. Watkins Foaming Hand Soap with Pump Dispenser, Moisturizing Foam Hand Wash, All Natural, Alcohol-Free, Cruelty-Free, USA Made, Lemon, 9 fl oz, 3 Pack" src="https://m.media-amazon.com/images/I/51Ak+RE97HL._SL500_.jpg"/></a>
 
 
 The **J.R. Watkins Foaming Hand Soap with Pump Dispenser** is ideal for individuals who prioritize natural and gentle skincare products. If you are looking for an **all-natural, alcohol-free, and cruelty-free** hand soap that moisturizes while cleansing, this product is perfect for your home or office. It is especially suitable for those with sensitive skin or anyone wanting a refreshing lemon-scented hand wash made in the USA.
@@ -299,7 +299,7 @@ The **J.R. Watkins Foaming Hand Soap** features a rich, foaming texture that eff
 
 Crafted with **all-natural and alcohol-free ingredients**, this hand soap is safe for sensitive skin and suitable for frequent handwashing. The cruelty-free formulation aligns with ethical consumer values, while the fresh **lemon fragrance** adds a pleasant, uplifting touch to your handwashing routine. Overall, this product combines effective cleansing with skin nourishment and environmental responsibility.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B3S3NGXB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

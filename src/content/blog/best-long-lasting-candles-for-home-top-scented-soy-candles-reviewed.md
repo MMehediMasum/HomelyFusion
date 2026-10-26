@@ -23,10 +23,10 @@ Premium options like 300-hour long lasting soy wax candles ensure weeks of enjoy
 
 
 
-## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
+## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
 
 
 The **Lulu Candles | Jasmine, Oud & Sandalwood | Luxury Scented Soy Jar Candle** is perfect for individuals who appreciate a sophisticated and long-lasting fragrance in their living or workspaces. Ideal customers include those seeking a premium, hand-poured candle made from natural soy wax, lovers of rich floral and woody aromas, and anyone wanting to create a relaxing and elegant ambiance with a highly scented candle crafted in the USA.
@@ -49,10 +49,10 @@ The **Lulu Candles Jasmine, Oud & Sandalwood luxury scented soy jar candle** sta
 
 Designed with both aesthetics and functionality in mind, the candle’s **elegant black jar** adds a touch of sophistication to your space, making it suitable for gifts or personal use. Its **highly scented formula** means fewer candles are needed to fill a room with fragrance, maximizing value over time. Whether used for relaxation, meditation, or to simply elevate your home décor, this candle offers a luxurious sensory experience that justifies its premium positioning.
 
-## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
+## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
 
 
 Ideal for pet owners, smokers, and anyone looking to quickly neutralize unwanted odors, the **Vanilla Bean Odor Eliminating Highly Fragranced Candle** is perfect for those who want a pleasant, lasting scent while effectively eliminating common household smells. If you seek a premium candle that combines fragrance and functionality, this product is designed for you.
@@ -74,10 +74,10 @@ The **Vanilla Bean Odor Eliminating Candle** stands out due to its ability to ef
 
 With a generous **up to 80-hour burn time**, this candle provides excellent value and long-lasting enjoyment. The **compact size** and elegant **Vanilla Bean color** make it easy to incorporate into any room décor, offering both style and function. Overall, this candle is an ideal solution for anyone looking to create a pleasant atmosphere while efficiently eliminating unwanted odors.
 
-## <a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
 
 
 The **Fissiworx Vanilla Scented Candle Set 2 Pack** is ideal for individuals who want to create a cozy and inviting atmosphere in their home. This set is perfect for those seeking an effective way to eliminate odors, reduce stress, and enjoy a long-lasting fragrance experience. Whether you are looking for a thoughtful gift for women or a personal indulgence, these **soy candles** offer a natural and elegant solution.
@@ -100,10 +100,10 @@ The **Fissiworx Vanilla Scented Candle Set** features high-quality soy wax that 
 
 Designed with longevity in mind, each candle boasts an impressive burn time of up to **110 hours**, allowing users to enjoy the comforting scent for weeks. The compact size and elegant design fit seamlessly into any home décor, making it easy to place the candles in living rooms, bedrooms, or bathrooms. Additionally, the candles effectively neutralize unwanted odors, promoting a fresher and more inviting environment.
 
-## <a href="https://www.amazon.com/dp/B0BCW32ZWW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Candles For Home Scented Lavender Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0BCW32ZWW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Candles For Home Scented Lavender Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCW32ZWW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Candles for Home Scented, Lavender Candle Set, Aromatherapy Jar Candle for Home, 28 oz 200 Hour Long Lasting, Natural Soy Wax Candles Gifts Set for Women, Birthday, Valentine, Anniversary" src="https://m.media-amazon.com/images/I/41oHOAfyAiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCW32ZWW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Candles for Home Scented, Lavender Candle Set, Aromatherapy Jar Candle for Home, 28 oz 200 Hour Long Lasting, Natural Soy Wax Candles Gifts Set for Women, Birthday, Valentine, Anniversary" src="https://m.media-amazon.com/images/I/41oHOAfyAiL._SL500_.jpg"/></a>
 
 
 The **4 Pack Candles for Home Scented** by **THORNWOLF** are ideal for individuals seeking a calming and fragrant ambiance in their living spaces. Perfect for those who appreciate **aromatherapy** benefits, natural soy wax products, or are looking for a thoughtful gift for occasions like **birthdays**, **Valentine's Day**, or **anniversaries**. These candles suit anyone wanting a long-lasting, soothing lavender scent to enhance relaxation and home decor.
@@ -126,10 +126,10 @@ These **aromatherapy jar candles** are crafted with **natural soy wax**, which b
 
 With a substantial **burn time of 200 hours** per candle, this set of four ensures lasting enjoyment and excellent value. Whether used individually or together, these candles enhance the ambiance of your home, while the natural ingredients provide a healthier alternative for your living environment. Their versatility as gifts also makes them a popular choice for women celebrating special occasions.
 
-## <a href="https://www.amazon.com/dp/B0DCNV655L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candles Gift Set For Women</a>
+## <a href="https://www.amazon.com/dp/B0DCNV655L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candles Gift Set For Women</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCNV655L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candles Gift Set for Women, Aromatherapy Candles for Home Scented 4 Pack, 80 Hours Long Lasting, Womens Gifts for Christmas, Birthday, Valentines Day" src="https://m.media-amazon.com/images/I/51M-dfTMB3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCNV655L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candles Gift Set for Women, Aromatherapy Candles for Home Scented 4 Pack, 80 Hours Long Lasting, Womens Gifts for Christmas, Birthday, Valentines Day" src="https://m.media-amazon.com/images/I/51M-dfTMB3L._SL500_.jpg"/></a>
 
 
 The **Candles Gift Set for Women** is perfect for anyone looking to add a touch of elegance and relaxation to their living space or searching for a thoughtful gift for special occasions like **Christmas**, **Birthday**, or **Valentine's Day**. Ideal for women who appreciate soothing aromas and beautifully crafted home decor, this set offers a blend of style and function, making it a wonderful choice for aromatherapy enthusiasts and those wanting to create a calming atmosphere at home.
@@ -151,10 +151,10 @@ Each candle in this **aromatherapy gift set** is designed to deliver a gentle ye
 
 Beyond aesthetics, the candles offer a soothing aroma that can help reduce stress and create a peaceful environment, ideal for unwinding after a long day or setting the mood for special moments. Whether you are gifting it to a loved one or treating yourself, this set embodies thoughtful craftsmanship and practical benefits that elevate everyday living.
 
-## <a href="https://www.amazon.com/dp/B0DRK6RW8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0DRK6RW8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRK6RW8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Scented Candles Set, 42oz 300 Hour Long Lasting Candle, Soy Candles for Home Scented, Scents of Pink Sands/Coconut Vanilla/Bahama Breeze/Pineapple Cocktail/Sicilian Lemon/Vanilla Ice Cream" src="https://m.media-amazon.com/images/I/513z97HQNcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRK6RW8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Scented Candles Set, 42oz 300 Hour Long Lasting Candle, Soy Candles for Home Scented, Scents of Pink Sands/Coconut Vanilla/Bahama Breeze/Pineapple Cocktail/Sicilian Lemon/Vanilla Ice Cream" src="https://m.media-amazon.com/images/I/513z97HQNcL._SL500_.jpg"/></a>
 
 
 Ideal for those who love to create a cozy and inviting atmosphere at home, the **6 Pack Scented Candles Set** by **DL DREAMY DEWLA** is perfect for individuals seeking long-lasting, high-quality soy candles with delightful fragrances. Whether you enjoy aromatherapy, want to enhance your living space, or need a thoughtful gift, this set offers a variety of scents to suit different moods and preferences.
@@ -176,10 +176,10 @@ The **6 Pack Scented Candles Set** features a generous **42oz** size with dimens
 
 Each candle provides approximately **300 hours of burn time**, ensuring lasting enjoyment and value for money. The carefully curated fragrances not only uplift your living space but also promote relaxation and stress relief, making them ideal for unwinding after a busy day or setting the mood for special occasions. The elegant size and design fit seamlessly into most home decors, adding both visual appeal and a pleasant aroma.
 
-## <a href="https://www.amazon.com/dp/B08T1XYNG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Gift Set</a>
+## <a href="https://www.amazon.com/dp/B08T1XYNG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Gift Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08T1XYNG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Gift Set,12 Pack Candles for Home Scented, 300 Hour Long Lasting Soy Wax Aromatherapy Candle Set, Birthday Gifts for Women with Gift Box" src="https://m.media-amazon.com/images/I/61j7nB2CEgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08T1XYNG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Gift Set,12 Pack Candles for Home Scented, 300 Hour Long Lasting Soy Wax Aromatherapy Candle Set, Birthday Gifts for Women with Gift Box" src="https://m.media-amazon.com/images/I/61j7nB2CEgL._SL500_.jpg"/></a>
 
 
 The **Scented Candles Gift Set, 12 Pack Candles for Home Scented** is ideal for individuals looking to enhance their living spaces with pleasant aromas. This product is perfect for those who appreciate long-lasting, natural **aromatherapy candles** made from **soy wax**, and is also an excellent choice for anyone searching for thoughtful **birthday gifts for women** or stylish home décor accents.
@@ -202,10 +202,10 @@ The **LAJDL Scented Candles Gift Set** offers a premium selection of **12 classi
 
 Designed for versatility, these candles complement various home styles and personal preferences. Whether used for daily relaxation, meditation, or festive gatherings, the set delivers consistent quality and delightful aromas. The natural soy wax not only supports cleaner air but also aligns with eco-conscious values, appealing to customers who prioritize sustainability in their purchases. Overall, this candle set provides a harmonious blend of style, function, and thoughtful gifting potential.
 
-## <a href="https://www.amazon.com/dp/B0DRK59497?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Cupcake Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0DRK59497?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Cupcake Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRK59497?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Cupcake Scented Candle, 12oz 60 Hour Long Lasting Candles, Large 3 Wick Natural Soy Candles for Home Scented, Candle Gifts for Women Men" src="https://m.media-amazon.com/images/I/41vs21kIOYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRK59497?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Cupcake Scented Candle, 12oz 60 Hour Long Lasting Candles, Large 3 Wick Natural Soy Candles for Home Scented, Candle Gifts for Women Men" src="https://m.media-amazon.com/images/I/41vs21kIOYL._SL500_.jpg"/></a>
 
 
 The **Vanilla Cupcake Scented Candle** is perfect for individuals who love cozy, sweet aromas and want to enhance their living spaces with a warm, inviting fragrance. Ideal for anyone seeking a long-lasting, natural soy candle that not only freshens up a room but also adds a touch of elegance, this candle is a great choice for both personal use and as a thoughtful gift for women and men.
@@ -228,10 +228,10 @@ This **Vanilla Cupcake Scented Candle** boasts three wicks that burn evenly to m
 
 Beyond its aroma, the candle's elegant design and trusted manufacturing by **DL DREAMY DEWLA** make it an excellent decorative piece and a perfect gift option. Whether placed in a living room, bedroom, or bathroom, this candle elevates any environment with both style and fragrance, making it a must-have for anyone who appreciates quality scented candles.
 
-## <a href="https://www.amazon.com/dp/B0DBZKNR6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deluxe Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0DBZKNR6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deluxe Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBZKNR6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deluxe Scented Candle for Women &amp; Men, Vanilla Coconut Soy Wax Candle, 8 Oz Jar Candle for Home, Scented-60 Hours Long Lasting Burning, Suitable Gift for Mom" src="https://m.media-amazon.com/images/I/51pJr4Yn+XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBZKNR6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deluxe Scented Candle for Women &amp; Men, Vanilla Coconut Soy Wax Candle, 8 Oz Jar Candle for Home, Scented-60 Hours Long Lasting Burning, Suitable Gift for Mom" src="https://m.media-amazon.com/images/I/51pJr4Yn+XL._SL500_.jpg"/></a>
 
 
 Ideal for anyone looking to enhance their living space with a soothing and luxurious aroma, the **Deluxe Scented Candle for Women & Men** is perfect for those who appreciate high-quality home fragrances. Whether you're searching for a thoughtful gift for your mom or a relaxing ambiance for your own home, this **Vanilla Coconut Soy Wax Candle** offers an elegant and long-lasting solution.
@@ -254,10 +254,10 @@ The **Deluxe Scented Candle** features a carefully crafted blend of **vanilla an
 
 Designed by **WarmEmbrace**, this candle comes in a sleek **8 oz white jar** that fits seamlessly into any home decor style. Its compact dimensions make it easy to place on shelves, bedside tables, or in bathrooms. Additionally, the natural ingredients and subtle scent make it a perfect gift choice, especially for moms who deserve a touch of tranquility and luxury in their daily routine.
 
-## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Balance + Harmony Scented Candle** with **Water Lily Pear Fragrance** is ideal for individuals seeking a calming and refreshing ambiance in their living or workspace. Perfect for those who appreciate a long-lasting, warm, and decorative candle made from a **soy wax blend**, this candle suits anyone looking to enhance relaxation, mindfulness, or simply add a subtle pleasant scent to their environment.

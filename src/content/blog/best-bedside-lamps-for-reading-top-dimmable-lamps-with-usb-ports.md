@@ -23,10 +23,10 @@ Some lamps have flexible necks or clip-on designs for perfect light direction. O
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp for Bedroom** is an excellent choice for individuals seeking a stylish yet functional lighting solution. Ideal for those who value convenience and modern design, this lamp suits bedroom, living room, or desk settings where space is limited but versatility is needed. If you want a lamp that combines elegant aesthetics with practical features like dimming options and charging ports, this product is perfect for you.
@@ -49,10 +49,10 @@ The **Fenmzee Bedside Table Lamp** offers a sleek and modern design featuring a 
 
 Beyond its lighting capabilities, this lamp stands out due to its practical integrations. The inclusion of **USB C charging ports and an AC outlet** means you can conveniently charge your phone, tablet, or other devices without needing extra adapters or searching for wall sockets. This makes it especially useful for desks or bedside tables where space and accessibility are priorities. The lightweight design and compact dimensions ensure it fits well in smaller spaces without sacrificing functionality.
 
-## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
 
 
 The **BOHON LED Desk Lamp with USB Charging Port** is an ideal choice for students, professionals, and anyone in need of a versatile and efficient lighting solution for their workspace or bedside. Those who value adjustable brightness, multiple color modes, and convenient charging capabilities will find this lamp especially useful for reading, studying, or office tasks.
@@ -76,10 +76,10 @@ The **BOHON LED Desk Lamp** features three distinct color modes, including warm,
 
 The intelligent induction auto-dimming sensor is a standout feature that automatically adjusts the lamp’s brightness based on surrounding light levels, enhancing comfort and energy efficiency. Its flexible gooseneck design enables precise positioning, making it easier to focus light exactly where it’s needed, whether you’re reading a book or working on detailed projects. The integrated USB charging port further enhances convenience by allowing users to charge smartphones or other devices directly from the lamp, reducing desk clutter.
 
-## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light For Reading In Bed</a>
+## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light For Reading In Bed</a>
 
 
-<a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
 
 
 The **Gritin 9 LED Rechargeable Book Light** is ideal for avid readers, students, and professionals who need a reliable and portable lighting solution for reading or studying in low-light environments. If you often find yourself reading in bed or working late without disturbing others, this compact and lightweight clip-on light is perfect for you.
@@ -102,10 +102,10 @@ The **Gritin 9 LED Rechargeable Book Light** features three adjustable color tem
 
 Designed with portability in mind, this light is compact and lightweight, weighing only 0.14 pounds, making it simple to clip onto books, e-readers, or desks. Its rechargeable battery supports an impressive 80 hours of continuous use on a single charge, eliminating the need for frequent battery replacements. Overall, the **Gritin book light** combines convenience, comfort, and efficiency, catering perfectly to those who value quality lighting while reading or studying.
 
-## <a href="https://www.amazon.com/dp/B0C2773FPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Honeywell Hwt-h01 Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C2773FPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Honeywell Hwt-h01 Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2773FPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Honeywell HWT-H01 LED Desk Lamp Stepless Dimmable Table Lamp with USB A+C Dual Charging Port Eye-Caring Foldable Desk Light with 3 Color Modes for Home Office Bedroom Reading Study Sunturalux (Gray)" src="https://m.media-amazon.com/images/I/21bJ9+STHIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2773FPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Honeywell HWT-H01 LED Desk Lamp Stepless Dimmable Table Lamp with USB A+C Dual Charging Port Eye-Caring Foldable Desk Light with 3 Color Modes for Home Office Bedroom Reading Study Sunturalux (Gray)" src="https://m.media-amazon.com/images/I/21bJ9+STHIL._SL500_.jpg"/></a>
 
 
 The **Honeywell HWT-H01 LED Desk Lamp** is perfect for individuals seeking a versatile and eye-friendly lighting solution for their **home, office, or study space**. Whether you are a student, a professional working long hours at a desk, or someone who enjoys reading in comfortable lighting, this lamp meets diverse needs with its adjustable brightness and color modes.
@@ -128,10 +128,10 @@ The **Honeywell HWT-H01 LED Desk Lamp** stands out with its **stepless dimmable*
 
 Additionally, the lamp is designed with user convenience in mind, featuring **USB A+C dual charging ports** that allow simultaneous charging of multiple devices without cluttering your workspace. The **eye-caring technology** ensures a flicker-free, soft light that protects your eyes during extended use, making it a smart choice for students, professionals, and avid readers alike. Overall, this lamp combines functionality, comfort, and modern design to enhance any work or study environment.
 
-## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
 
 
 The **Industrial Table Lamps for Bedrooms Set of 2** are ideal for individuals seeking stylish yet functional lighting solutions for their bedside, living room, or office. These lamps are perfect for those who appreciate a blend of modern industrial design with practical features such as dimmability and multiple charging options. If you need versatile lighting that also supports your electronic devices, this set is tailored for you.
@@ -153,10 +153,10 @@ These **Industrial Table Lamps** feature a robust build with a distinctive **see
 
 Designed by **Innqoo**, these lamps combine aesthetics with practicality. Their sleek black finish blends seamlessly with modern or industrial-themed interiors, while the sturdy construction ensures long-lasting use. Whether placed on a nightstand, desk, or side table, they provide both illumination and device connectivity, making them an excellent choice for tech-savvy users who value style and efficiency in their living or workspace.
 
-## <a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08923SXXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08923SXXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with USB Ports,Touch Desk Lamps for Home Office with 5 Color Modes,3 Brightness Desk Light with Small Night Light,Reading Lamp Table Lamp for Bedroom Bedside Study Black （with adapter）" src="https://m.media-amazon.com/images/I/41f4lxdCqgL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp with USB Ports** by **Dott Arts** is ideal for individuals seeking a versatile and modern lighting solution for their **home office**, **bedroom bedside**, or **study area**. This lamp is perfect for students, professionals, and anyone who needs adjustable lighting combined with convenient charging options in a compact design.
@@ -179,10 +179,10 @@ The **LED Desk Lamp** from **Dott Arts** features an elegant and functional desi
 
 Beyond lighting, this desk lamp includes built-in **USB ports** that provide convenient charging capabilities for smartphones, tablets, or other USB-powered devices. This feature reduces clutter by eliminating the need for multiple chargers on your desk. Additionally, the lamp’s **touch control** interface makes switching between settings seamless, while the small **night light** mode is perfect for soft illumination during nighttime hours without disturbing your rest. Overall, this lamp combines practicality with style, making it a great addition to any workspace or bedroom setup.
 
-## <a href="https://www.amazon.com/dp/B016U6ZJGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Clip On Light</a>
+## <a href="https://www.amazon.com/dp/B016U6ZJGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Clip On Light</a>
 
 
-<a href="https://www.amazon.com/dp/B016U6ZJGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Clip on Light/Reading Lights/Book Light/Desk Lamp Color Changeable/Night Lights Clip on for Desk, Bed Headboard and Computers, Adapter Included (Black)" src="https://m.media-amazon.com/images/I/31gnMcB01KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B016U6ZJGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Clip on Light/Reading Lights/Book Light/Desk Lamp Color Changeable/Night Lights Clip on for Desk, Bed Headboard and Computers, Adapter Included (Black)" src="https://m.media-amazon.com/images/I/31gnMcB01KL._SL500_.jpg"/></a>
 
 
 The **LEPOWER Clip on Light** is ideal for readers, students, and professionals who need focused, adjustable lighting for their desks, beds, or computer workstations. This versatile **book light** and **desk lamp** is perfect for those seeking a compact, portable lighting solution that can easily clip onto various surfaces, providing convenience and enhanced visibility without taking up much space.
@@ -204,10 +204,10 @@ The **LEPOWER Clip on Light** offers a height of 14.96 inches and a sleek black 
 
 Additionally, the included adapter provides consistent power without the hassle of replacing batteries, making it an energy-efficient and cost-effective lighting solution. Whether you are working late at your computer or enjoying a book in bed, this **clip-on desk lamp** delivers focused illumination exactly where you need it, enhancing productivity and comfort.
 
-## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
 
 
 The **iZELL Desk Lamp** is ideal for students, book lovers, and professionals who need a versatile and efficient lighting solution for reading or working in low-light environments. Its compact size and clamp design make it perfect for those living in dorms, small apartments, or anyone who requires a portable and adjustable light source that can easily attach to desks, headboards, or shelves.
@@ -230,10 +230,10 @@ The **iZELL Desk Lamp** stands out with its versatile lighting options, offering
 
 Its **clamp-on mechanism** is a practical solution for limited spaces, securely attaching to tables, headboards, or shelves without occupying valuable desk space. With a height of 15.8 inches and a lightweight build, this lamp combines portability with functionality, making it an excellent choice for dorm rooms and bedside reading. The use of **energy-efficient LED technology** ensures long-lasting brightness while keeping electricity costs low, making it both user-friendly and eco-conscious.
 
-## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
 
 
 The **luckystyle Floor Lamp** is ideal for individuals seeking a versatile and modern lighting solution for their **living room, bedroom, or office**. If you want a lamp that offers **customizable brightness** and **color temperature** to suit different moods and tasks, this lamp is perfect for you. Its **adjustable gooseneck design** makes it an excellent choice for readers or those needing focused lighting for work or relaxation.
@@ -257,10 +257,10 @@ The **luckystyle Floor Lamp** boasts a **super bright LED** light source that ca
 
 Its **adjustable gooseneck** design adds to its functionality, allowing users to direct light exactly where it is needed—whether you're reading a book or working on your computer. The combination of remote and push button controls ensures ease of use, letting you adjust settings without leaving your seat. The lamp's stylish **black finish** and tall stature make it a striking addition to any room, blending both form and function seamlessly.
 
-## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarra-decor Bedside Table Lamp With Usb Port</a>
+## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarra-decor Bedside Table Lamp With Usb Port</a>
 
 
-<a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
 
 
 The **Yarra-Decor Bedside Table Lamp with USB Port** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom**, **living room**, **dorm**, or **home office**. Perfect for those who value convenience and modern design, this lamp caters to people who want easy access to charging their devices while enjoying adjustable lighting to suit various moods and tasks.

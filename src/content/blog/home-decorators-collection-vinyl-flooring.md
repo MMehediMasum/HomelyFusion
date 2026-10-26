@@ -23,10 +23,10 @@ Each pack includes 20 tiles, measuring 12" x 12", perfect for a quick room refre
 
 
 
-## <a href="https://www.amazon.com/dp/B01EO3SJRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive Vinyl Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B01EO3SJRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive Vinyl Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B01EO3SJRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" decor"="" dining="" diy="" flooring="" for="" home="" kitchen,="" oak="" parquet="" pattern="" peel="" room,="" src="https://m.media-amazon.com/images/I/51BU9OjfBjL._SL500_.jpg" stick,="" x=""/></a>
+<a href="https://www.amazon.com/dp/B01EO3SJRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" decor"="" dining="" diy="" flooring="" for="" home="" kitchen,="" oak="" parquet="" pattern="" peel="" room,="" src="https://m.media-amazon.com/images/I/51BU9OjfBjL._SL500_.jpg" stick,="" x=""/></a>
 
 
 The **Nexus Self Adhesive 12-Inch Vinyl Floor Tiles** are perfect for homeowners and DIY enthusiasts looking to easily update their flooring without professional installation. Ideal for those who want a stylish, affordable, and quick solution for areas like the **kitchen**, **dining room**, **bedrooms**, or **bathrooms**, these peel and stick tiles offer a hassle-free way to enhance living spaces with minimal effort.
@@ -50,12 +50,12 @@ These **vinyl floor tiles** by **Achim Home Decor** are designed for simplicity 
 
 Measuring **12 inches by 12 inches** and only 0.5 inches thick, these tiles are lightweight yet sturdy, providing a comfortable underfoot experience while protecting the subfloor. Their peel-and-stick design means you can refresh your space quickly, saving time and money on renovations. Overall, the **Nexus Self Adhesive Vinyl Floor Tiles** combine aesthetic appeal with practical functionality, making them a smart choice for anyone seeking an easy, cost-effective flooring upgrade.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01EO3SJRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01EO3SJRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01EO3SINE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vinyl Peel And Stick Floor Tile</a>
+## <a href="https://www.amazon.com/dp/B01EO3SINE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vinyl Peel And Stick Floor Tile</a>
 
 
-<a href="https://www.amazon.com/dp/B01EO3SINE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vinyl Peel and Stick Floor Tile, Self-Adhesive Wood Plank, 10-Pack (15 Square Feet) - 6 Inch Width, 36 Inch Length, 1.2mm - Light Grey Oak - Easy DIY Nexus Planks for Any Room by Achim Home Decor" src="https://m.media-amazon.com/images/I/41oA9wxGdsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01EO3SINE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vinyl Peel and Stick Floor Tile, Self-Adhesive Wood Plank, 10-Pack (15 Square Feet) - 6 Inch Width, 36 Inch Length, 1.2mm - Light Grey Oak - Easy DIY Nexus Planks for Any Room by Achim Home Decor" src="https://m.media-amazon.com/images/I/41oA9wxGdsL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners, renters, and DIY enthusiasts looking to upgrade their flooring without the hassle of professional installation, the **Vinyl Peel and Stick Floor Tile** by **Achim Home Decor** offers an affordable and stylish solution. Those seeking a quick and durable way to refresh any room with a modern **Light Grey Oak** finish will find these self-adhesive wood planks particularly suitable.
@@ -78,7 +78,7 @@ The **Vinyl Peel and Stick Floor Tile** features a convenient peel-and-stick bac
 
 Constructed from durable **vinyl**, these tiles are resistant to moisture and everyday wear, which helps maintain their pristine look over time. The **Light Grey Oak** finish brings a contemporary and versatile aesthetic that complements various interior styles. Overall, the product offers an excellent balance of practicality, style, and ease of installation, making it a smart choice for anyone wanting to elevate their flooring without professional assistance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01EO3SINE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01EO3SINE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

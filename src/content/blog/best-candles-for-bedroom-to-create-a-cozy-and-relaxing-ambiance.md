@@ -23,10 +23,10 @@ Options range from single-wick to multi-wick candles, each providing different l
 
 
 
-## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Balance + Harmony Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N0RSCBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Balance + Harmony Scented Candle Water Lily Pear Fragrance 50 Hours Burn Time Warm &amp; Decorative Soy Wax Blend" src="https://m.media-amazon.com/images/I/31v3Uel543L._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Balance + Harmony Scented Candle** with **Water Lily Pear Fragrance** is perfect for individuals seeking a calming and refreshing ambiance in their living space. Ideal for those who appreciate subtle yet invigorating scents and desire a decorative piece that complements their home décor. This candle suits anyone who values long-lasting fragrance and eco-friendly materials, such as a **soy wax blend**, for a cleaner burn.
@@ -48,10 +48,10 @@ The **Chesapeake Bay Balance + Harmony Scented Candle** is thoughtfully designed
 
 Additionally, the candle's size and elegant off-white color make it a versatile decorative piece that fits effortlessly into any room. Whether placed on a bedside table, in the living room, or bathroom, it enhances the environment while providing a soothing sensory experience. Its long-lasting burn time ensures users enjoy the calming scent for extended periods without frequent replacements.
 
-## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle</a>
+## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
 
 
 The **Bath & Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented** is perfect for individuals who appreciate a rich, warm ambiance in their living spaces. Ideal for those who enjoy sophisticated fragrances and want to create a cozy, inviting atmosphere, this candle suits anyone looking to enhance their home decor while indulging in a long-lasting, high-quality scent experience.
@@ -74,10 +74,10 @@ The **Bath & Body Works White Barn 3-Wick Candle** features a unique combination
 
 Crafted with attention to detail, the candle’s **black and silver color scheme** adds a modern touch to any setting, making it not only a source of fragrance but also a stylish decorative piece. Its compact dimensions make it versatile for use on desks, shelves, or coffee tables, providing flexibility for users who want to personalize their space with a touch of elegance and scent. Overall, this candle is a premium choice for those looking to combine aesthetics with a powerful aromatic experience.
 
-## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
 
 
 The **Scented Candles Set | Men Candle Set** by **Auelife** is perfect for those looking to enhance their living spaces with a touch of masculine elegance. Ideal for **men** who appreciate subtle yet rich aromas or anyone searching for a thoughtful **gift for dads**, especially around occasions like **Father’s Day**. This set is also great for individuals seeking to enjoy the benefits of **aromatherapy** with scents crafted to evoke comfort and relaxation.
@@ -100,10 +100,10 @@ This **Auelife scented candle set** delivers a variety of **aromatherapy benefit
 
 The **sleek black jar** design adds a modern and masculine touch to any room, making this set not only practical but also a stylish decor piece. Whether you're looking to create a relaxing ambiance or searching for a unique gift for a special man in your life, this set offers versatility and quality. Its balance of rich, smoky aromas and lighter, soothing scents ensures there is something appealing for every mood and occasion.
 
-## <a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles Juicy Watermelon Slice</a>
+## <a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles Juicy Watermelon Slice</a>
 
 
-<a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Refreshing Ambiance" src="https://m.media-amazon.com/images/I/51Maz2LBSqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Refreshing Ambiance" src="https://m.media-amazon.com/images/I/51Maz2LBSqL._SL500_.jpg"/></a>
 
 
 The **Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar** is ideal for anyone looking to enhance their living space with a refreshing and uplifting aroma. Perfect for aromatherapy enthusiasts, home decor lovers, or anyone who enjoys a long-lasting, fruity scent to create a relaxing ambiance. This candle is especially suited for those who appreciate quality craftsmanship, as it is proudly poured in the USA.
@@ -126,10 +126,10 @@ The **Candle-lite Scented Candle** comes in a beautifully designed **18 oz jar**
 
 Beyond its delightful fragrance, this candle offers aromatherapy benefits by uplifting the mood and reducing stress through its invigorating scent profile. It is an excellent choice for enhancing personal spaces such as bedrooms, living rooms, or bathrooms. The candle's long burn time of 110 hours means users can enjoy its refreshing ambiance for weeks on end, making it a cost-effective and enjoyable indulgence for anyone seeking to brighten their environment with quality and style.
 
-## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glade 1-wick Scented Candle Jar Hawaiian Breeze</a>
+## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glade 1-wick Scented Candle Jar Hawaiian Breeze</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
 
 
 The **Glade 1-Wick Scented Candle Jar** in **Hawaiian Breeze** is perfect for individuals looking to create a refreshing and calming atmosphere in their living spaces. Ideal customers include those who enjoy subtle, long-lasting fragrances infused with essential oils to enhance relaxation and mood. Whether you want to freshen up your home, office, or a cozy reading nook, this candle offers an easy and elegant solution.
@@ -152,10 +152,10 @@ The **Glade 1-Wick Scented Candle Jar** features a beautifully designed jar that
 
 Users will appreciate the convenience of having two candles in one pack, ensuring a consistent aromatic experience without frequent repurchases. The candle's gentle flame and subtle scent diffusion create a relaxing environment perfect for unwinding after a busy day or setting a pleasant ambiance for gatherings. Its trusted **Glade** quality assures safety and performance, making it a reliable choice for enhancing your indoor air with delightful fragrance.
 
-## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
+## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
 
 
 The **Vanilla Bean Odor Eliminating Highly Fragranced Candle** is perfect for anyone looking to quickly and effectively eliminate unpleasant odors such as pet smells, smoke, and food aromas. Ideal for pet owners, smokers, and home cooks who want a fresh and inviting environment, this candle not only masks odors but eliminates up to 95% of them. Those who appreciate long-lasting, premium-quality candles will also find this product a great addition to their home ambiance.
@@ -178,10 +178,10 @@ The **Vanilla Bean Odor Eliminating Candle** by **Dianne's Custom Candles** comb
 
 Its **up to 80-hour burn time** means you can enjoy a long-lasting fragrant atmosphere without frequently replacing the candle. Measuring just over 4 inches in height and around 3.4 inches in diameter, this **12-ounce candle** fits conveniently into most candle holders and spaces. Whether used in living rooms, kitchens, or pet areas, it delivers consistent performance and a comforting vanilla scent that soothes the senses and refreshes your home environment.
 
-## <a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
 
 
 The **Fissiworx Vanilla Scented Candle Set 2 Pack** is ideal for individuals seeking a calming and inviting atmosphere in their homes. Perfect for those who appreciate **long-lasting** and **natural soy candles**, this set is great for anyone who wants to eliminate odors, reduce stress, and add a subtle, pleasant vanilla aroma to their living space. It's especially suited for people looking for an elegant and thoughtful **gift for women** or simply to enhance their own home ambiance.
@@ -204,10 +204,10 @@ The **Fissiworx Vanilla Scented Candle Set** features a carefully crafted blend 
 
 With a total weight of 15oz and a burn time of up to **110 hours** per candle, this set offers long-lasting enjoyment and excellent value. The elegant size and design fit seamlessly into any décor style, making these candles both a practical and stylish addition to your home or a thoughtful gift. Whether you want to create a relaxing ambiance after a long day or add a subtle fragrance to your space, these **Fissiworx scented candles** deliver consistent performance and soothing benefits.
 
-## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Pink Sands Scented Classic 22oz Large Jar Single Wick Candle** is ideal for individuals who enjoy creating a calming and inviting atmosphere at home or in their workspace. Perfect for those who appreciate long-lasting fragrances and want a high-quality candle that offers both aesthetic appeal and a soothing scent, this candle suits anyone looking to enhance relaxation and ambiance with minimal effort.
@@ -230,10 +230,10 @@ The **Yankee Candle Pink Sands Scented Classic 22oz Large Jar Candle** features 
 
 Beyond its pleasing scent and elegant appearance, this candle offers the benefit of creating a relaxing and inviting environment effortlessly. Whether you're unwinding after a long day or setting a peaceful mood for guests, the **Pink Sands fragrance** provides a subtle yet uplifting aroma that can transform any room. Its high-quality wax and wick ensure a clean and steady burn, minimizing soot and maximizing enjoyment.
 
-## <a href="https://www.amazon.com/dp/B0CHYWN5W6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Candles For Home Scented Aromatherapy Candles Gifts Set</a>
+## <a href="https://www.amazon.com/dp/B0CHYWN5W6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Candles For Home Scented Aromatherapy Candles Gifts Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHYWN5W6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Candles for Home Scented Aromatherapy Candles Gifts Set for Women, Lavender Candle, 37.8 oz 300 Hour Long Lasting Candles, Stocking Stuffers, Birthday, Valentine, Christmas, Anniversary Present" src="https://m.media-amazon.com/images/I/41LA98V6MQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHYWN5W6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Candles for Home Scented Aromatherapy Candles Gifts Set for Women, Lavender Candle, 37.8 oz 300 Hour Long Lasting Candles, Stocking Stuffers, Birthday, Valentine, Christmas, Anniversary Present" src="https://m.media-amazon.com/images/I/41LA98V6MQL._SL500_.jpg"/></a>
 
 
 The **6 Pack Candles for Home Scented Aromatherapy Candles Gifts Set** is perfect for individuals looking to create a calming and inviting atmosphere in their living space. Ideal for those who appreciate the soothing aroma of **lavender** and want a long-lasting fragrance solution, this set is especially suitable for gift-givers seeking thoughtful presents for **women** on occasions like **birthdays**, **Valentine’s Day**, **Christmas**, or **anniversaries**.
@@ -255,10 +255,10 @@ These **aromatherapy candles** by **PELN** combine both aesthetic appeal and fun
 
 Crafted with quality in mind, the set’s **long-lasting burn time** of **300 hours** offers excellent value, while the elegant **rose color** enhances home decor. Whether used during meditation, bath time, or as part of a romantic setting, these candles serve as a versatile and thoughtful gift option that brings warmth and tranquility to any environment.
 
-## <a href="https://www.amazon.com/dp/B0DP74YCXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aoovoo Scented Candles </a>
+## <a href="https://www.amazon.com/dp/B0DP74YCXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aoovoo Scented Candles </a>
 
 
-<a href="https://www.amazon.com/dp/B0DP74YCXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOVOO Scented Candles - 4PC Candle Set, 36 oz Soy Candles, Soy Candle for Home Scented, Lavender/Vanilla/Eucalyptus/Sage" src="https://m.media-amazon.com/images/I/51k19KIPT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP74YCXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOVOO Scented Candles - 4PC Candle Set, 36 oz Soy Candles, Soy Candle for Home Scented, Lavender/Vanilla/Eucalyptus/Sage" src="https://m.media-amazon.com/images/I/51k19KIPT0L._SL500_.jpg"/></a>
 
 
 The **AOOVOO Scented Candles - 4PC Candle Set** is perfect for individuals looking to enhance their living space with a calming and inviting atmosphere. Ideal for those who appreciate natural, long-lasting fragrances, this set is especially suited for people who enjoy aromatherapy, relaxation, or adding a decorative touch to their home. If you want to fill your home with soothing scents like **Lavender**, **Vanilla**, **Eucalyptus**, and **Sage**, this candle set is an excellent choice.

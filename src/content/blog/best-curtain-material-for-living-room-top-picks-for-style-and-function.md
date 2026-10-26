@@ -23,10 +23,10 @@ These options also help save energy by keeping rooms cool or warm. Jacquard and 
 
 
 
-## <a href="https://www.amazon.com/dp/B0C1S8332K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mysky Home Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0C1S8332K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mysky Home Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1S8332K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MYSKY HOME Linen Curtains for Living Room, Natural Semi Sheer Curtains &amp; Drapes 84 inches Length 2 Panels Set Farmhouse Country Boho Style Back Tab Draperies for Sliding Glass Door, 50" linen"="" src="https://m.media-amazon.com/images/I/41y4oysW+uL._SL500_.jpg" wide,=""/></a>
+<a href="https://www.amazon.com/dp/B0C1S8332K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MYSKY HOME Linen Curtains for Living Room, Natural Semi Sheer Curtains &amp; Drapes 84 inches Length 2 Panels Set Farmhouse Country Boho Style Back Tab Draperies for Sliding Glass Door, 50" linen"="" src="https://m.media-amazon.com/images/I/41y4oysW+uL._SL500_.jpg" wide,=""/></a>
 
 
 The **MYSKY HOME Linen Curtains for Living Room** are ideal for homeowners and renters looking to enhance their interior with a touch of rustic charm and natural elegance. Perfect for those who appreciate **farmhouse, country, or boho style**, these semi-sheer curtains offer a stylish yet functional solution for sliding glass doors or large windows. If you want to add softness and light diffusion while maintaining privacy, this 2-panel set is designed just for you.
@@ -50,10 +50,10 @@ The **MYSKY HOME Linen Curtains** combine both style and practicality. Their nat
 
 Designed with **back tab draperies**, these curtains are simple to install and glide smoothly along your curtain rod. The generous 84-inch length and 50-inch width panels ensure full coverage for larger windows or doors, enhancing the overall aesthetic of your home. Whether your interior follows a rustic farmhouse, country, or bohemian style, these curtains add a cozy, natural texture that complements various decor themes effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0B12J5GRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Natural Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0B12J5GRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Natural Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0B12J5GRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Natural Linen Curtains Semi-Sheer Curtains Nickel Grommet Privacy Added Premium Soft Rich Material Curtain Panels for Living Room(Set of 2, 52 by 84 Inch, Ivory)" src="https://m.media-amazon.com/images/I/41h4+OyexsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B12J5GRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Natural Linen Curtains Semi-Sheer Curtains Nickel Grommet Privacy Added Premium Soft Rich Material Curtain Panels for Living Room(Set of 2, 52 by 84 Inch, Ivory)" src="https://m.media-amazon.com/images/I/41h4+OyexsL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Natural Linen Curtains** are perfect for homeowners and interior enthusiasts looking to enhance their living spaces with a blend of elegance and functionality. Ideal for those who want to add a touch of sophistication while maintaining privacy, these **semi-sheer curtains** suit living rooms, bedrooms, or any area where soft natural light and subtle privacy are desired.
@@ -75,10 +75,10 @@ The **H.VERSAILTEX Natural Linen Curtains** are crafted from high-quality linen 
 
 Measuring **52 by 84 inches**, each panel is designed to fit most standard windows, offering full coverage while enhancing the window's aesthetic appeal. The **ivory color** is versatile and neutral, easily blending with various color schemes and interior styles. These curtains provide an excellent balance between style, function, and ease of maintenance, making them a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0F3332VRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Black Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B0F3332VRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Black Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3332VRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE Black Blackout Curtains for Bedroom Living Room 84 Inches Long 2 Panels, Thermal Insulated Room Darkening Drapes Solid Grommet Top Noise Reduction Light Blocking Halloween Window Treatments" src="https://m.media-amazon.com/images/I/41y1YvYCDoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3332VRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE Black Blackout Curtains for Bedroom Living Room 84 Inches Long 2 Panels, Thermal Insulated Room Darkening Drapes Solid Grommet Top Noise Reduction Light Blocking Halloween Window Treatments" src="https://m.media-amazon.com/images/I/41y1YvYCDoL._SL500_.jpg"/></a>
 
 
 The **MIULEE Black Blackout Curtains** are ideal for individuals seeking to enhance privacy, reduce noise, and block out light in their **bedroom** or **living room**. Perfect for light-sensitive sleepers, shift workers, or anyone looking to create a cozy, darkened environment for relaxation or better sleep quality.
@@ -102,10 +102,10 @@ The **MIULEE Black Blackout Curtains** boast advanced thermal insulation that he
 
 With a sturdy **solid grommet top**, these curtains are effortless to hang and glide smoothly across curtain rods, enhancing user convenience. Their sleek **black color** adds a touch of sophistication to any room while providing practical benefits. Overall, the MIULEE curtains blend functionality with style, making them a valuable addition for anyone looking to improve comfort and ambiance in their home.
 
-## <a href="https://www.amazon.com/dp/B0B9642CDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Linen Blend Textured Living Room Curtains</a>
+## <a href="https://www.amazon.com/dp/B0B9642CDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Linen Blend Textured Living Room Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9642CDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Linen Blend Textured Living Room Curtains, Grommet Top Thick Flax Semi Sheer Vertical Drapes Privacy Assured with Light Filtering for Bedroom, Stone Blue, W55 x L84, 2 Pieces" src="https://m.media-amazon.com/images/I/51bQYbkoc4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9642CDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Linen Blend Textured Living Room Curtains, Grommet Top Thick Flax Semi Sheer Vertical Drapes Privacy Assured with Light Filtering for Bedroom, Stone Blue, W55 x L84, 2 Pieces" src="https://m.media-amazon.com/images/I/51bQYbkoc4L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Linen Blend Textured Living Room Curtains** are ideal for homeowners and renters seeking a stylish yet functional window treatment that balances privacy and natural light. Perfect for those who want to enhance their living room or bedroom ambiance with a soft, modern touch, these curtains suit individuals who appreciate durable, easy-to-maintain fabrics that complement a variety of interior design styles.
@@ -127,10 +127,10 @@ The **NICETOWN Linen Blend Textured Curtains** feature a durable linen blend tha
 
 Beyond their visual appeal, these curtains are designed to be practical and versatile. The **stone blue color** provides a soothing backdrop that complements a wide range of decor styles, from contemporary to rustic. With dimensions tailored to standard windows, they offer an ideal fit that reduces drafts and enhances insulation. Overall, these curtains are a smart choice for anyone looking to combine style, comfort, and functionality in their home.
 
-## <a href="https://www.amazon.com/dp/B07BNR1JHV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glory Rugs Jacquard Luxury Window 2 Panel Set Beige Curtain</a>
+## <a href="https://www.amazon.com/dp/B07BNR1JHV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glory Rugs Jacquard Luxury Window 2 Panel Set Beige Curtain</a>
 
 
-<a href="https://www.amazon.com/dp/B07BNR1JHV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLORY RUGS Jacquard Luxury Window 2 Panel Set Beige Curtain with Attached Valance and Backing Bedroom Living Room Dining 2 Curtains 55x84 inches Each Jana" src="https://m.media-amazon.com/images/I/51v8opkv3ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BNR1JHV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLORY RUGS Jacquard Luxury Window 2 Panel Set Beige Curtain with Attached Valance and Backing Bedroom Living Room Dining 2 Curtains 55x84 inches Each Jana" src="https://m.media-amazon.com/images/I/51v8opkv3ML._SL500_.jpg"/></a>
 
 
 The **GLORY RUGS Jacquard Luxury Window 2 Panel Set** is ideal for homeowners and interior decorators looking to enhance their **bedroom, living room, or dining area** with elegant and functional window treatments. If you want a sophisticated look combined with practical features like attached valances and backing, this set is perfect for you. Those who appreciate a **neutral beige color** that easily blends with various décor styles will find this curtain set especially appealing.
@@ -154,10 +154,10 @@ The **GLORY RUGS Jacquard Luxury Window 2 Panel Set** combines style and functio
 
 With each panel measuring **55x84 inches**, these curtains are designed to fit most standard windows, providing ample coverage without overwhelming the space. The **beige color** is versatile, allowing for easy coordination with existing décor, whether modern or traditional. Overall, this set offers a luxurious yet practical solution for anyone seeking to upgrade their window treatments with a focus on quality and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B015SJ7RYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Gray Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B015SJ7RYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Gray Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B015SJ7RYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Gray Blackout Curtains for Bedroom 84 inches Long - Thermal Drapes Grommet Room Darkening Light Blocking Curtains Window Treatments for Living Room (2 Panels, W52 x L84, Grey)" src="https://m.media-amazon.com/images/I/41HGFudWNtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015SJ7RYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Gray Blackout Curtains for Bedroom 84 inches Long - Thermal Drapes Grommet Room Darkening Light Blocking Curtains Window Treatments for Living Room (2 Panels, W52 x L84, Grey)" src="https://m.media-amazon.com/images/I/41HGFudWNtL._SL500_.jpg"/></a>
 
 
 The **NICETOWN Gray Blackout Curtains** are ideal for individuals seeking to enhance privacy and control natural light in their bedrooms or living rooms. Perfect for light-sensitive sleepers, shift workers, or anyone looking to create a cozy, darkened space, these curtains provide an effective solution to block out unwanted sunlight and reduce noise.
@@ -179,10 +179,10 @@ These **NICETOWN thermal drapes** feature a high-quality blackout fabric designe
 
 Equipped with sturdy **grommet rings**, these curtains are easy to hang and glide smoothly along curtain rods, offering convenience and durability. The neutral **grey color** blends seamlessly with most room color schemes, enhancing the overall aesthetics without overpowering the décor. Overall, the NICETOWN blackout curtains combine functionality and style, making them a practical choice for anyone aiming to improve their living environment.
 
-## <a href="https://www.amazon.com/dp/B08SBYPF14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Blackout Linen Textured Curtains</a>
+## <a href="https://www.amazon.com/dp/B08SBYPF14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miulee Blackout Linen Textured Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B08SBYPF14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 100% Blackout Linen Textured Curtains for Bedroom Solid Thermal Insulated Natural Beige Grommet Room Darkening Curtains &amp; Drapes Luxury Decor for Living Room Nursery 52 x 84 Inch (2 Panels)" src="https://m.media-amazon.com/images/I/41+aE3OKH1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SBYPF14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIULEE 100% Blackout Linen Textured Curtains for Bedroom Solid Thermal Insulated Natural Beige Grommet Room Darkening Curtains &amp; Drapes Luxury Decor for Living Room Nursery 52 x 84 Inch (2 Panels)" src="https://m.media-amazon.com/images/I/41+aE3OKH1L._SL500_.jpg"/></a>
 
 
 The **MIULEE 100% Blackout Linen Textured Curtains** are ideal for homeowners or renters looking to enhance privacy and control natural light in their **bedroom**, **living room**, or **nursery**. These curtains suit individuals who want to combine functionality with elegant, luxury decor while benefiting from energy-saving thermal insulation. If you value room darkening to improve sleep quality or reduce glare, these curtains are a perfect choice.
@@ -206,10 +206,10 @@ These **MIULEE blackout curtains** feature a textured linen fabric that not only
 
 Beyond their visual appeal, the curtains are engineered with **thermal insulation properties** that help regulate indoor temperature, keeping your space cooler in summer and warmer in winter. This feature can contribute to lower energy bills and increased comfort. Additionally, the **100% blackout fabric** guarantees total room darkening, ideal for improving sleep quality, reducing glare on screens, or creating a cozy environment for nurseries and living rooms.
 
-## <a href="https://www.amazon.com/dp/B09N6ZTSLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viagl Bedroom Curtains</a>
+## <a href="https://www.amazon.com/dp/B09N6ZTSLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viagl Bedroom Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09N6ZTSLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VIAGL Bedroom Curtains Absolute Heat Insulation Chenille Vertical Striped Color Window Curtains Living Room Buttonhole Curtains Single Panel (W52xL84, Brown)" src="https://m.media-amazon.com/images/I/51lEp-VD21L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09N6ZTSLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VIAGL Bedroom Curtains Absolute Heat Insulation Chenille Vertical Striped Color Window Curtains Living Room Buttonhole Curtains Single Panel (W52xL84, Brown)" src="https://m.media-amazon.com/images/I/51lEp-VD21L._SL500_.jpg"/></a>
 
 
 The **VIAGL Bedroom Curtains Absolute Heat Insulation Chenille Vertical Striped Color Window Curtains** are ideal for homeowners or renters looking to enhance their living room or bedroom with stylish yet functional window treatments. If you want to improve privacy, reduce heat, and add a touch of elegance to your space, these **single panel, brown buttonhole curtains** are a perfect choice. They cater especially well to those who value both aesthetic appeal and energy efficiency in their home décor.
@@ -232,10 +232,10 @@ The **VIAGL Bedroom Curtains** are crafted from premium **chenille material**, w
 
 These curtains feature a convenient **buttonhole design** which makes installation quick and hassle-free, fitting standard curtain rods without the need for additional hardware. Their dimension of 52 inches in width and 84 inches in length makes them suitable for most windows found in living rooms and bedrooms. While the rich brown color imparts warmth and sophistication, the fabric’s weight and weave ensure privacy while still allowing some natural light to filter in, balancing ambiance with functionality.
 
-## <a href="https://www.amazon.com/dp/B0DM5Z6LFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goldlawn Gold Green Curtains</a>
+## <a href="https://www.amazon.com/dp/B0DM5Z6LFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goldlawn Gold Green Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0DM5Z6LFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GOLDLAWN Gold Green Curtains 84 Inches Long Sage Green Leaves Light Filtering Curtain White Floral Drapes for Living Room Farmhouse Leaf Retro Elegant Window Curtains for Bedroom 2 Panels" src="https://m.media-amazon.com/images/I/51rnQVDfdWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DM5Z6LFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GOLDLAWN Gold Green Curtains 84 Inches Long Sage Green Leaves Light Filtering Curtain White Floral Drapes for Living Room Farmhouse Leaf Retro Elegant Window Curtains for Bedroom 2 Panels" src="https://m.media-amazon.com/images/I/51rnQVDfdWL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and interior enthusiasts looking to enhance their living spaces with a touch of nature-inspired elegance, the **GOLDLAWN Gold Green Curtains** are perfect for those who appreciate a blend of style and functionality. These curtains suit anyone wanting to add a calming, farmhouse aesthetic to their bedroom or living room while benefiting from light filtering and privacy features.
@@ -257,10 +257,10 @@ The **GOLDLAWN Gold Green Curtains** feature a beautifully crafted design that i
 
 These curtains are also designed with practicality in mind. The two 84-inch panels fit most standard windows, offering easy installation and versatility in decorating. Their lightweight construction means they can be effortlessly hung and adjusted, while the durable material ensures they will maintain their elegant appearance through daily use. Overall, they bring both aesthetic charm and functional benefits to any home.
 
-## <a href="https://www.amazon.com/dp/B07H2WPR7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwcn Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B07H2WPR7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwcn Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07H2WPR7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWCN Blackout Curtains – Thermal Insulated, Energy Saving &amp; Noise Reducing Bedroom and Living Room Curtains, Black, W 42x L 63 Inch, Set of 2 Rod Pocket Curtain Panels" src="https://m.media-amazon.com/images/I/41C+87mkrcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H2WPR7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWCN Blackout Curtains – Thermal Insulated, Energy Saving &amp; Noise Reducing Bedroom and Living Room Curtains, Black, W 42x L 63 Inch, Set of 2 Rod Pocket Curtain Panels" src="https://m.media-amazon.com/images/I/41C+87mkrcL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to enhance privacy, reduce energy costs, and improve sleep quality, the **DWCN Blackout Curtains** are perfect for bedrooms and living rooms. If you want to block out sunlight, minimize noise, and maintain a comfortable indoor temperature, these curtains offer a practical and stylish solution.

@@ -22,10 +22,10 @@ French country nightstands and farmhouse-style tables add charm and storage. Man
 
 
 
-## <a href="https://www.amazon.com/dp/B07KQWGPB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair</a>
+## <a href="https://www.amazon.com/dp/B07KQWGPB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B07KQWGPB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair, Beige" src="https://m.media-amazon.com/images/I/415BHpNbizL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KQWGPB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair, Beige" src="https://m.media-amazon.com/images/I/415BHpNbizL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Clare View Outdoor Eucalyptus Wood Single Cushioned Lounge Chair** in **Beige** is ideal for homeowners and outdoor enthusiasts looking to elevate their patio or garden space with a stylish yet comfortable seating option. This chair is perfect for those who appreciate quality craftsmanship and want a durable piece that blends seamlessly with various outdoor decors. If you desire a lounge chair that offers both aesthetic appeal and practical comfort, this item is an excellent choice.
@@ -47,10 +47,10 @@ Crafted by **Ashley Furniture**, this lounge chair features a robust frame made 
 
 Beyond its visual appeal, the chair’s lightweight yet sturdy build allows users to easily move it to different outdoor areas, adapting to changing sunlight or social settings. Its versatile **beige color** acts as a neutral backdrop that pairs well with vibrant outdoor cushions or accessories, making it a flexible addition to any outdoor living space. This combination of durability, comfort, and style ensures that the Signature Design by Ashley Clare View Lounge Chair is a valuable investment for enhancing outdoor relaxation.
 
-## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports** is ideal for individuals who value both style and functionality in their living spaces. Perfect for homeowners, renters, or anyone looking to enhance their living room or bedroom with a practical yet aesthetically pleasing piece, this table caters especially to those who need convenient charging options close at hand without sacrificing design.
@@ -73,10 +73,10 @@ This end table features a thoughtfully designed farmhouse aesthetic that blends 
 
 Additionally, the table’s versatile design complements a wide range of interior styles, from rustic farmhouse to modern chic. The combination of practical charging options and stylish appearance makes it a valuable addition for anyone looking to enhance both the functionality and look of their living space. Whether placed beside a chair or sofa, this end table offers convenience and charm in one elegant package.
 
-## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
+## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 3 Drawer Nightstand** is ideal for individuals seeking a blend of classic style and modern functionality in their bedroom furniture. Perfect for those who appreciate a charming **French Country** aesthetic with practical features like **electrical outlets** and **USB ports**, this nightstand suits anyone looking to enhance convenience and organization beside their bed.
@@ -99,10 +99,10 @@ This nightstand features a charming **French Country design** with a timeless **
 
 Crafted by **Ashley Furniture**, the nightstand balances style with functionality and durability. Its solid build and substantial weight ensure it remains stable beside your bed, while the elegant finish blends well with both traditional and contemporary interiors. This piece is perfect for users who want a practical yet aesthetically pleasing addition to their bedroom that keeps technology and personal items seamlessly integrated.
 
-## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest** in **Sand** is ideal for individuals or families seeking a blend of modern comfort and stylish functionality in their living space. If you want a durable, easy-to-maintain sofa with advanced reclining features, this piece is perfect for those who prioritize relaxation and convenience in their home furniture.
@@ -125,10 +125,10 @@ Crafted by **Ashley Furniture Industries**, this **power reclining sofa** offers
 
 The sofa's standout feature is its **power reclining system** complemented by **adjustable headrests**, enabling users to customize their seating position effortlessly. Whether you want to kick back for a movie night or relax after a long day, the electric controls provide smooth, quiet operation. Additionally, the neutral **sand color** enhances the aesthetic appeal, making it easy to match with various interior themes. Overall, this sofa balances comfort, durability, and style, making it a smart investment for anyone looking to upgrade their living room seating.
 
-## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PT8BGZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets &amp; USB Ports, Cream" src="https://m.media-amazon.com/images/I/41Mp2ZZlwtL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Chair Side End Table with Outlets & USB Ports** in **Cream** is ideal for individuals seeking a stylish yet functional piece of furniture for their living room or bedroom. Perfect for those who value classic French country aesthetics combined with modern convenience, this end table suits homeowners who need easy access to power outlets and USB ports while relaxing or working near their seating area.
@@ -150,10 +150,10 @@ This end table stands out with its seamless blend of traditional style and moder
 
 The inclusion of built-in **electrical outlets and USB ports** is a major benefit for users, allowing effortless charging of smartphones, tablets, and other devices without the need to search for wall sockets. This feature adds significant convenience, especially in living rooms or bedrooms where device usage is frequent. Overall, the **Signature Design by Ashley Realyn Chair Side End Table** combines style, practicality, and quality craftsmanship to meet the needs of modern homeowners.
 
-## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
+## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Altari Modern Sofa** with 2 Accent Pillows in **Light Gray** is ideal for individuals or families seeking a stylish and comfortable seating option that complements contemporary interiors. This sofa is perfect for those who value modern design combined with functional comfort, making it a great choice for living rooms, apartments, or office lounges. If you want a durable piece from a trusted brand that adds a subtle yet sophisticated touch to your space, this sofa fits the bill.
@@ -176,10 +176,10 @@ The **Signature Design by Ashley Altari Modern Sofa** offers a harmonious balanc
 
 With dimensions measuring 85 inches in length, 38 inches in width, and 37 inches in height, this sofa is spacious enough to accommodate multiple people comfortably, making it perfect for family gatherings or casual entertaining. The light gray upholstery complements a wide range of interior color schemes, allowing easy integration into existing decor without overwhelming the space. While its weight suggests it is a substantial piece, this also reflects its robust construction and premium materials used throughout.
 
-## <a href="https://www.amazon.com/dp/B086D2SDMF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley The Man-den Leather Power Reclining Loveseat</a>
+## <a href="https://www.amazon.com/dp/B086D2SDMF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley The Man-den Leather Power Reclining Loveseat</a>
 
 
-<a href="https://www.amazon.com/dp/B086D2SDMF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley The Man-Den Leather Power Reclining Loveseat with Center Console, Adjustable Headrest &amp; Wireless Charging, Gray" src="https://m.media-amazon.com/images/I/31y8b0kPoUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086D2SDMF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley The Man-Den Leather Power Reclining Loveseat with Center Console, Adjustable Headrest &amp; Wireless Charging, Gray" src="https://m.media-amazon.com/images/I/31y8b0kPoUL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley The Man-Den Leather Power Reclining Loveseat** is ideal for individuals or couples seeking a stylish yet highly functional seating solution for their living room or entertainment space. Those who value comfort, modern features, and convenience, such as built-in wireless charging and adjustable headrests, will find this loveseat an excellent choice. It is especially suited for people who enjoy relaxing while watching TV, reading, or spending time with family and friends.
@@ -203,10 +203,10 @@ The **Signature Design by Ashley Man-Den Loveseat** combines comfort and technol
 
 Additionally, the integrated center console serves as a practical storage space for remotes, magazines, or snacks, keeping the area tidy. The innovative wireless charging pad built into the console means users can conveniently charge their smartphones without cluttering the space with cords. Crafted with high-quality grey leather, this loveseat not only offers durability but also adds a modern, sophisticated touch to any room.
 
-## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Lonoke Contemporary Sofa** in **Beige** is ideal for individuals or families seeking a stylish and comfortable centerpiece for their **living room**. This sofa suits those who appreciate modern design coupled with durable construction, making it perfect for both everyday use and entertaining guests. If you desire a piece that complements a variety of décor styles while offering generous seating space, this sofa is an excellent choice.
@@ -229,10 +229,10 @@ This **contemporary sofa** features a sleek yet inviting design that enhances th
 
 In addition to its visual appeal, the sofa’s design prioritizes user comfort, providing a cozy spot for relaxation, reading, or socializing. Whether hosting guests or enjoying quiet family time, this sofa delivers both functionality and elegance. Its contemporary style ensures your living space stays current and inviting, while the quality materials used mean it will withstand everyday wear and tear for years to come.
 
-## <a href="https://www.amazon.com/dp/B017CZ7HM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design - Trinell Queen Panel Footboard</a>
+## <a href="https://www.amazon.com/dp/B017CZ7HM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design - Trinell Queen Panel Footboard</a>
 
 
-<a href="https://www.amazon.com/dp/B017CZ7HM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature DESIGN BY ASHLEY Furniture Signature Design - Trinell Queen Panel Footboard - Component Piece - Brown" src="https://m.media-amazon.com/images/I/416i4gjKbwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B017CZ7HM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature DESIGN BY ASHLEY Furniture Signature Design - Trinell Queen Panel Footboard - Component Piece - Brown" src="https://m.media-amazon.com/images/I/416i4gjKbwL._SL500_.jpg"/></a>
 
 
 The **Signature DESIGN BY ASHLEY Furniture Signature Design - Trinell Queen Panel Footboard** in **brown** is ideal for homeowners or renters looking to enhance their bedroom with a stylish and durable bed component. This footboard is perfect for those who already own or plan to purchase a matching **queen-sized bed frame** from the Ashley Furniture collection and want a cohesive, elegant look. It suits individuals who appreciate quality craftsmanship and want to add a finishing touch to their bedroom décor.
@@ -255,10 +255,10 @@ Crafted by **Ashley Furniture**, this footboard features a sturdy construction d
 
 The practical dimensions of the footboard make it versatile enough to fit comfortably in many bedroom sizes without overwhelming the space. Additionally, the relatively light weight allows for easier handling during setup or relocation. This piece is an excellent choice for anyone looking to upgrade their sleeping area with a trusted brand’s component that blends both elegance and practicality seamlessly.
 
-## <a href="https://www.amazon.com/dp/B0D6GV8JF3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Right-arm Facing Sofa Chaise</a>
+## <a href="https://www.amazon.com/dp/B0D6GV8JF3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Right-arm Facing Sofa Chaise</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6GV8JF3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Right-Arm Facing Sofa Chaise with 4 Toss Pillows, Dark Brown" src="https://m.media-amazon.com/images/I/31G6KeqU7xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6GV8JF3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Right-Arm Facing Sofa Chaise with 4 Toss Pillows, Dark Brown" src="https://m.media-amazon.com/images/I/31G6KeqU7xL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Stonemeade Casual Right-Arm Facing Sofa Chaise** is ideal for individuals or families seeking a stylish yet comfortable seating solution for their living space. Perfect for those who appreciate a blend of modern design and functional comfort, this sofa chaise caters well to people who enjoy lounging, entertaining guests, or simply relaxing after a long day. Its dark brown color and contemporary style make it suitable for a variety of interior décors.

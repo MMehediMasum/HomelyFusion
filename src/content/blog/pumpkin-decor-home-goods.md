@@ -23,10 +23,10 @@ Small glass pumpkin figurines add sparkle to shelves and desks. These home goods
 
 
 
-## <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins Decoration for Fall Home Farmhouse Harvest Thanksgiving Decorative" src="https://m.media-amazon.com/images/I/61kkOXGd3TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins Decoration for Fall Home Farmhouse Harvest Thanksgiving Decorative" src="https://m.media-amazon.com/images/I/61kkOXGd3TL._SL500_.jpg"/></a>
 
 
 The **Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins** are ideal for individuals looking to enhance their **fall home decor** with charming, low-maintenance accents. Perfect for those who appreciate **farmhouse** and **harvest-themed decorations** or want to add a festive touch to their **Thanksgiving** celebrations without the hassle of real pumpkins. These faux pumpkins suit homeowners, event planners, and seasonal decorators seeking durable and reusable decor pieces.
@@ -48,12 +48,12 @@ These **Diahom artificial pumpkins** combine aesthetic appeal with practical des
 
 The lightweight and durable construction ensure that these pumpkins are not only beautiful but also convenient for seasonal use year after year. Their consistent **fall color palette** complements a wide range of autumn decor themes, making them a versatile choice for anyone wanting to celebrate the harvest season with style and ease.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C369SVQH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C369SVQH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C369SVQH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats Set of 2, Autumn Home Decor Low-Profile Kitchen Rugs for Floor - 17x29 and 17x47 Inch" src="https://m.media-amazon.com/images/I/41X5SJJmShL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C369SVQH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats Set of 2, Autumn Home Decor Low-Profile Kitchen Rugs for Floor - 17x29 and 17x47 Inch" src="https://m.media-amazon.com/images/I/41X5SJJmShL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats Set of 2** is ideal for homeowners and renters who want to add a warm, festive touch to their kitchen during the autumn season. These mats are perfect for those looking to combine functionality with seasonal decor, especially individuals who spend a lot of time cooking or standing in the kitchen and desire comfortable, stylish floor protection.
@@ -75,12 +75,12 @@ The **Artoid Mode Orange Hello Pumpkin Fall Kitchen Mats** are designed with bot
 
 Crafted to be lightweight and easy to handle, these kitchen rugs offer convenience when it comes to cleaning and repositioning. The two different sizes in the set allow for flexible placement options, whether in front of the sink, stove, or another high-traffic area. Overall, this set provides an excellent combination of seasonal charm and functional support, making it a great addition for anyone looking to refresh their kitchen decor for autumn.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C369SVQH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C369SVQH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Avoin Colorlife Fall Pumpkin Caramel Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Avoin Colorlife Fall Pumpkin Caramel Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AVOIN colorlife Fall Pumpkin Caramel Throw Pillow Covers, 18 x 18 Inch Seasonal Autumn Thanksgiving Harvest Decoration Soft Plush Faux Fur Jacquard Cushion Case Decoration for Sofa Couch Set of 2" src="https://m.media-amazon.com/images/I/51UhUhQEkFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AVOIN colorlife Fall Pumpkin Caramel Throw Pillow Covers, 18 x 18 Inch Seasonal Autumn Thanksgiving Harvest Decoration Soft Plush Faux Fur Jacquard Cushion Case Decoration for Sofa Couch Set of 2" src="https://m.media-amazon.com/images/I/51UhUhQEkFL._SL500_.jpg"/></a>
 
 
 The **AVOIN colorlife Fall Pumpkin Caramel Throw Pillow Covers** are perfect for individuals looking to add a cozy and festive touch to their home during the autumn season. Ideal for homeowners, renters, or anyone wanting to refresh their living space for **Thanksgiving** and **harvest** celebrations, these pillow covers offer a stylish and comfortable way to enhance sofas, couches, or chairs with seasonal charm.
@@ -102,12 +102,12 @@ The **AVOIN colorlife Fall Pumpkin Caramel Throw Pillow Covers** boast a beautif
 
 With practical dimensions close to standard pillow sizes, these covers fit most 18-inch pillows, offering flexibility in decorating your living space. The set of two allows for a balanced and cohesive look across multiple seating areas. Additionally, the durable fabric ensures these covers withstand regular use throughout the autumn season, making them a worthwhile investment for those seeking to refresh their home decor annually with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DZCP1T9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Pumpkin Crochet Coaster 4 Pack</a>
+## <a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Pumpkin Crochet Coaster 4 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Pumpkin Crochet Coaster 4 Pack, Fall Pumpkin Decor Handmade Knitted Drink Coaster Set, Autumn Decoration Drink Cup Pad Mats for Table Protection, Thanksgiving Home Kitchen Party Table Decor" src="https://m.media-amazon.com/images/I/51apshFkifL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Pumpkin Crochet Coaster 4 Pack, Fall Pumpkin Decor Handmade Knitted Drink Coaster Set, Autumn Decoration Drink Cup Pad Mats for Table Protection, Thanksgiving Home Kitchen Party Table Decor" src="https://m.media-amazon.com/images/I/51apshFkifL._SL500_.jpg"/></a>
 
 
 The **Fall Pumpkin Crochet Coaster 4 Pack** is perfect for individuals who love seasonal home decor and want to add a cozy, autumnal touch to their living space. Ideal for those who enjoy hosting **Thanksgiving** gatherings or simply want to protect their furniture with stylish, handmade accessories, this set is great for anyone looking to combine functionality with festive charm.
@@ -130,12 +130,12 @@ Crafted by **FUTBU**, this **Fall Pumpkin Crochet Coaster** set combines both ae
 
 Beyond just being decorative, these coasters serve as functional pads to shield your furniture from water rings, spills, and heat marks. Their durability means they can be used repeatedly throughout the fall season and beyond, making them a cost-effective and charming addition to your home. Whether for daily use or festive occasions, this set brings a touch of handcrafted elegance to any table setting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F2MVZGSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kajaia Simulated Pumpkin Pillow Plush</a>
+## <a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kajaia Simulated Pumpkin Pillow Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kajaia 2 Pcs Simulated Pumpkin Pillow Plush 11 x 9.5 Inch 3D Cushion Fall Decorations Stuffed Throw Pillows Toy for Thanksgiving Christmas Halloween Bedroom Sofa Couch Supplies (White,Brown)" src="https://m.media-amazon.com/images/I/51gtdfsk+7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kajaia 2 Pcs Simulated Pumpkin Pillow Plush 11 x 9.5 Inch 3D Cushion Fall Decorations Stuffed Throw Pillows Toy for Thanksgiving Christmas Halloween Bedroom Sofa Couch Supplies (White,Brown)" src="https://m.media-amazon.com/images/I/51gtdfsk+7L._SL500_.jpg"/></a>
 
 
 Ideal for those looking to add a cozy and festive touch to their home, the **Kajaia 2 Pcs Simulated Pumpkin Pillow Plush** is perfect for anyone who enjoys seasonal decor. Whether you're preparing for **Thanksgiving**, **Halloween**, or **Christmas**, these plush pillows bring a warm and inviting vibe to your **bedroom**, **sofa**, or **couch**. If you appreciate soft, decorative accents that enhance the fall atmosphere, this set is an excellent choice.
@@ -157,12 +157,12 @@ The **Kajaia Simulated Pumpkin Pillow Plush** set brings a delightful and realis
 
 Designed to complement various spaces, these pillows fit comfortably on sofas, couches, or beds without taking up too much room. The dual-color option in **white** and **brown** allows for versatility in matching existing decor styles. Beyond aesthetics, their plush texture adds an element of comfort, transforming any space into a warm and inviting environment during the fall season.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BFHQ1F8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rustic Tis' The Season Pumpkin Wood Box Sign</a>
+## <a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rustic Tis' The Season Pumpkin Wood Box Sign</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rustic Tis' the Season Pumpkin Wood Box Sign, Farmhouse Retro Fall Artwork Decor, Autumn Harvest Thanksgiving Wooden Square Sign Desk Block Signs Home Shelf Office Decoration 5 x 5 Inches" src="https://m.media-amazon.com/images/I/41WEXB0YUSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rustic Tis' the Season Pumpkin Wood Box Sign, Farmhouse Retro Fall Artwork Decor, Autumn Harvest Thanksgiving Wooden Square Sign Desk Block Signs Home Shelf Office Decoration 5 x 5 Inches" src="https://m.media-amazon.com/images/I/41WEXB0YUSL._SL500_.jpg"/></a>
 
 
 The **Rustic Tis' the Season Pumpkin Wood Box Sign** is perfect for individuals who love to add a touch of **farmhouse charm** and **seasonal decor** to their living or working spaces. Ideal for those who appreciate **retro fall artwork** and want a compact yet impactful piece to celebrate **Autumn, Harvest,** and **Thanksgiving**, this wooden square sign suits both **home shelves** and **office desks**. If you are looking to infuse warmth and festive spirit in a subtle way, this item is designed for you.
@@ -184,12 +184,12 @@ Crafted by **WRSUNT**, this **5 x 5 inches wooden square sign** features a slim 
 
 The **Rustic Tis' the Season Pumpkin Wood Box Sign** not only serves as festive decor but also brings emotional warmth by invoking memories of harvest celebrations and Thanksgiving gatherings. Its lightweight design allows for easy placement anywhere around the home or office, making it a versatile and charming addition to your fall decoration collection. Whether displayed alone or paired with other autumn decor, this sign effectively captures the essence of the season in a compact, stylish form.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CBP5S2GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ueerdand 16 Pcs Fall Decor Assorted Sizes Artificial Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ueerdand 16 Pcs Fall Decor Assorted Sizes Artificial Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins Burlap Faux Foam Pumpkin for Harvest Autumn Season Halloween Thanksgiving Holiday Festive Embellishing and Displaying" src="https://m.media-amazon.com/images/I/51OIo9KyowL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins Burlap Faux Foam Pumpkin for Harvest Autumn Season Halloween Thanksgiving Holiday Festive Embellishing and Displaying" src="https://m.media-amazon.com/images/I/51OIo9KyowL._SL500_.jpg"/></a>
 
 
 The **Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins** are perfect for individuals looking to enhance their **autumn** and **holiday decorations** without the hassle of real pumpkins. Ideal for homeowners, event planners, and craft enthusiasts who want a durable and reusable option for **Halloween**, **Thanksgiving**, or any **harvest season** celebration, these faux pumpkins bring festive charm to any space.
@@ -211,12 +211,12 @@ The **Ueerdand Fall Decor Artificial Pumpkins** feature an assortment of sizes t
 
 Thanks to their **lightweight design** and **mixed colors**, these pumpkins are easy to arrange and complement various autumn-themed decorations. Whether used for **Halloween** parties, **Thanksgiving** dinners, or general fall ambiance, they add a charming and rustic touch to any setting. Their **reusability** makes them a cost-effective and eco-friendly choice for seasonal decorating year after year.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aomoonoa Artificial Pumpkin Decor</a>
+## <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aomoonoa Artificial Pumpkin Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOMOONOA Artificial Pumpkin Decor, Brown and White Decorative Pumpkins, Thanksgiving Resin Pumpkins Figurine Set of 2, Carved Pumpkin Statues for Rustic Fall Tabletop Home Decor, Harvest, Wedding" src="https://m.media-amazon.com/images/I/51iXKfxI5QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOMOONOA Artificial Pumpkin Decor, Brown and White Decorative Pumpkins, Thanksgiving Resin Pumpkins Figurine Set of 2, Carved Pumpkin Statues for Rustic Fall Tabletop Home Decor, Harvest, Wedding" src="https://m.media-amazon.com/images/I/51iXKfxI5QL._SL500_.jpg"/></a>
 
 
 The **AOMOONOA Artificial Pumpkin Decor** is perfect for individuals looking to enhance their **rustic fall tabletop** or **harvest-themed home decor**. Ideal customers include homeowners, event planners, and wedding organizers who want to add a charming and seasonal touch with durable, stylish decorations that don’t require maintenance. This set of two **brown and white decorative resin pumpkins** is especially suited for those seeking elegant yet practical autumn decor pieces.
@@ -238,12 +238,12 @@ The **AOMOONOA Artificial Pumpkin Decor** set stands out with its attention to d
 
 Additionally, the **compact dimensions** make these decorative pumpkins highly versatile, allowing them to be placed on dining tables, mantels, or entryway consoles without overwhelming the space. Their neutral **brown and white colors** blend well with various rustic and farmhouse decor themes, complementing both casual and elegant settings. Whether decorating for **Thanksgiving** or adding a cozy touch to a **wedding**, these pumpkins elevate the ambiance effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BBR81299?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Longwin Mini Crystal Pumpkin Collectible Figurines</a>
+## <a href="https://www.amazon.com/dp/B0BBR81299?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Longwin Mini Crystal Pumpkin Collectible Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBR81299?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LONGWIN Mini Crystal Pumpkin Collectible Figurines Glass Paperweight Tabletop Decorative Ornaments for Fall Harvest Thanksgiving Halloween Home Decor Gold" src="https://m.media-amazon.com/images/I/41yjrPn4F9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBR81299?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LONGWIN Mini Crystal Pumpkin Collectible Figurines Glass Paperweight Tabletop Decorative Ornaments for Fall Harvest Thanksgiving Halloween Home Decor Gold" src="https://m.media-amazon.com/images/I/41yjrPn4F9L._SL500_.jpg"/></a>
 
 
 The **LONGWIN Mini Crystal Pumpkin Collectible Figurines** are perfect for individuals who appreciate elegant and festive home decor. Ideal customers include those looking to enhance their **fall harvest**, **Thanksgiving**, or **Halloween** decorations with a delicate yet eye-catching piece. This item suits collectors of unique ornaments, as well as anyone wanting a stylish and compact tabletop decorative accent.
@@ -266,12 +266,12 @@ The **LONGWIN Mini Crystal Pumpkin** stands out for its exquisite craftsmanship 
 
 Crafted by **LONGSHENG**, this collectible figurine promises durability and a premium feel. Its lightweight nature ensures that it can be easily moved and arranged to suit various displays. Whether used to enhance a festive tablescape or to add a subtle touch of elegance to everyday home decor, this miniature pumpkin offers a blend of beauty and practicality that appeals to discerning buyers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BBR81299?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BBR81299?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09WLVDTFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxpetus 3d Simulated Pumpkin Pillow Plush Pillow Sofa Cushion</a>
+## <a href="https://www.amazon.com/dp/B09WLVDTFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxpetus 3d Simulated Pumpkin Pillow Plush Pillow Sofa Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B09WLVDTFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Maxpetus 3D Simulated Pumpkin Pillow Plush Pillow Sofa Cushion (7.8inch, Brown)" src="https://m.media-amazon.com/images/I/51dqqTOG5lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WLVDTFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Maxpetus 3D Simulated Pumpkin Pillow Plush Pillow Sofa Cushion (7.8inch, Brown)" src="https://m.media-amazon.com/images/I/51dqqTOG5lL._SL500_.jpg"/></a>
 
 
 The **Maxpetus 3D Simulated Pumpkin Pillow Plush Pillow Sofa Cushion (7.8inch, Brown)** is ideal for individuals looking to add a cozy and decorative touch to their living space. Perfect for home decor enthusiasts, seasonal decorators, or anyone who enjoys unique and comfortable cushions, this item combines both style and functionality. Those who appreciate plush, soft accessories that also serve as conversation pieces will find this pillow especially appealing.
@@ -293,7 +293,7 @@ The **Maxpetus 3D Simulated Pumpkin Pillow** stands out with its intricately des
 
 Beyond aesthetics, this pillow serves functional purposes by supporting posture when used as a cushion. Its moderate size of **11.0 inches** in height, width, and length ensures it fits seamlessly into most living spaces without overwhelming the area. The neutral **brown color** allows it to blend effortlessly with various color schemes, making it a versatile piece that can be used year-round or as a seasonal accent.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09WLVDTFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09WLVDTFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

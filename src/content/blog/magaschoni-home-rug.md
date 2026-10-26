@@ -23,10 +23,10 @@ Non-slip backs keep rugs safely in place on different floors. Whether you want a
 
 
 
-## <a href="https://www.amazon.com/dp/B0D72Y21Y1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0D72Y21Y1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0D72Y21Y1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room: Washable Rug Stain Resistant Distressed Vintage Floral Rug Non Slip Low Pile Faux Wool Soft Large Area Rugs for Bedroom Bedside Farmhouse Dining Room Kids Nursery" src="https://m.media-amazon.com/images/I/51Lhivd7K0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D72Y21Y1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8x10 Area Rugs for Living Room: Washable Rug Stain Resistant Distressed Vintage Floral Rug Non Slip Low Pile Faux Wool Soft Large Area Rugs for Bedroom Bedside Farmhouse Dining Room Kids Nursery" src="https://m.media-amazon.com/images/I/51Lhivd7K0L._SL500_.jpg"/></a>
 
 
 The **8x10 Area Rugs for Living Room** are ideal for homeowners and renters seeking a stylish yet practical solution to enhance their living spaces. Perfect for those who want a **washable** and **stain-resistant** rug that combines vintage charm with modern durability, this rug suits families with kids, pet owners, and anyone looking to add a cozy, farmhouse-inspired touch to their bedroom, dining room, or nursery.
@@ -50,10 +50,10 @@ This **8x10 Area Rug** from **palohom** boasts a beautifully crafted **distresse
 
 Additionally, the rug’s **washable** and **stain-resistant** qualities make it highly practical for families with children or pets. The **non-slip backing** enhances safety by minimizing slipping risks on hardwood, tile, or laminate floors. Whether placed bedside or in a nursery, this rug’s blend of aesthetics and function creates a cozy, inviting atmosphere while standing up to everyday wear and tear.
 
-## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" x 7'-6" Area Rug** is perfect for homeowners and interior design enthusiasts looking to add a touch of elegance and comfort to their living spaces. Ideal for those who appreciate a blend of classic and contemporary styles, this rug suits individuals seeking a durable and stylish floor covering that enhances both traditional and modern decor.
@@ -76,10 +76,10 @@ The **Loloi Magnolia Home Gigi Collection area rug** features a sophisticated de
 
 Crafted by **Loloi Rugs**, this area rug combines style and function seamlessly. The generous **5'-3" x 7'-6" dimensions** make it ideal for creating a cozy focal point in living rooms, bedrooms, or dining spaces. Its neutral color palette ensures it complements a wide range of interior styles, from rustic farmhouse to modern minimalist, enhancing the overall ambiance of your home.
 
-## <a href="https://www.amazon.com/dp/B0CHMNLVWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Purecozy Gray Area Rug 5x7</a>
+## <a href="https://www.amazon.com/dp/B0CHMNLVWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Purecozy Gray Area Rug 5x7</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHMNLVWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PureCozy Gray Area Rug 5x7 Machine Washable Vintage Living Room Distressed Non Slip Carpet Traditional Indoor Bedroom Grey Retro Floral Accent Throw Large Rug for Office Kitchen Bathroom Dining Room" src="https://m.media-amazon.com/images/I/51dClPmENZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHMNLVWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PureCozy Gray Area Rug 5x7 Machine Washable Vintage Living Room Distressed Non Slip Carpet Traditional Indoor Bedroom Grey Retro Floral Accent Throw Large Rug for Office Kitchen Bathroom Dining Room" src="https://m.media-amazon.com/images/I/51dClPmENZL._SL500_.jpg"/></a>
 
 
 The **PureCozy Gray Area Rug 5x7** is ideal for homeowners and renters looking to add a touch of vintage charm and comfort to their living spaces. This rug is perfect for those who want a stylish yet practical floor covering that suits various rooms such as the **living room**, **bedroom**, **office**, **kitchen**, **bathroom**, or **dining room**. If you value easy maintenance without sacrificing design, this **machine washable** and **non-slip** rug is a great choice.
@@ -102,10 +102,10 @@ The **PureCozy Gray Area Rug** boasts a **traditional indoor design** that blend
 
 One of the standout features is its **machine washable** fabric, which allows users to maintain cleanliness without hassle. This makes it especially beneficial for busy households or those with children and pets. The **non-slip backing** enhances safety by preventing unwanted movement on smooth surfaces like hardwood or tile floors. Overall, this rug combines aesthetic appeal with practical benefits, making it a valuable addition to any indoor living space.
 
-## <a href="https://www.amazon.com/dp/B0DNJD8DNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hand-tufted Wool Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNJD8DNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hand-tufted Wool Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNJD8DNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hand-Tufted Wool Rug with Scalloped Edges, Light Blue Plaid Pattern, Cozy Soft Area Rug for Living Room, Bedroom, and Nursery, Handmade Modern Accent Rug, 5x8 Ft" src="https://m.media-amazon.com/images/I/51Trsx5mWzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNJD8DNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hand-Tufted Wool Rug with Scalloped Edges, Light Blue Plaid Pattern, Cozy Soft Area Rug for Living Room, Bedroom, and Nursery, Handmade Modern Accent Rug, 5x8 Ft" src="https://m.media-amazon.com/images/I/51Trsx5mWzL._SL500_.jpg"/></a>
 
 
 The **Hand-Tufted Wool Rug with Scalloped Edges** is ideal for individuals looking to enhance the warmth and style of their living spaces such as the **living room, bedroom, or nursery**. Perfect for homeowners and interior enthusiasts who appreciate **handmade craftsmanship** and desire a **soft, cozy** area rug with a modern touch, this rug combines aesthetic appeal with practical comfort.
@@ -129,10 +129,10 @@ The **Hand-Tufted Wool Rug** by **RUG BARN** offers an inviting combination of c
 
 Beyond its aesthetic qualities, this rug also offers practical benefits. Wool is naturally durable, stain-resistant, and insulating, which means this rug helps maintain warmth during colder months while being resilient enough for everyday use in high-traffic areas like living rooms. The **5x8 ft size** is versatile enough to fit various spaces without overwhelming the room, providing a cozy accent that ties together furniture and decor elements seamlessly. Overall, this rug is an excellent investment for anyone wanting a blend of quality, comfort, and style in their home.
 
-## <a href="https://www.amazon.com/dp/B0CT5CJ4MW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CT5CJ4MW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT5CJ4MW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Door Mat Indoor Entrance 2x3 Rug Machine Washable Boho Floral Small Area Rug Non-Slip Low Pile Throw Rugs for Entryway, Kitchen, Front Door Indoor Entrance, Entry, Kids Room (Beige)" src="https://m.media-amazon.com/images/I/51KyndJJzVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT5CJ4MW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Door Mat Indoor Entrance 2x3 Rug Machine Washable Boho Floral Small Area Rug Non-Slip Low Pile Throw Rugs for Entryway, Kitchen, Front Door Indoor Entrance, Entry, Kids Room (Beige)" src="https://m.media-amazon.com/images/I/51KyndJJzVL._SL500_.jpg"/></a>
 
 
 The **Rugcomf Door Mat Indoor Entrance 2x3 Rug** is ideal for homeowners and renters looking to enhance their **entryway** or **kitchen** with a stylish yet functional rug. It is perfect for those who want a low-maintenance, **machine washable** option that combines a **boho floral design** with practicality. Families with kids or pets will particularly benefit from its **non-slip** and **low pile** features, making it safe and easy to clean.
@@ -154,10 +154,10 @@ The **Rugcomf Door Mat** boasts a thoughtfully designed **low pile** surface tha
 
 Measuring 24 inches in width and 36 inches in length with a slim height of 0.35 inches, this rug fits seamlessly into tight spaces while providing ample coverage. The **boho floral design** in a neutral beige tone adds a subtle decorative touch that complements many decor styles without overwhelming the space. Lightweight at just under 0.04 pounds, it is easy to move and reposition as needed, making it a versatile addition to your home.
 
-## <a href="https://www.amazon.com/dp/B0CF5T6XFB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fame Living Green Oushak Rug</a>
+## <a href="https://www.amazon.com/dp/B0CF5T6XFB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fame Living Green Oushak Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF5T6XFB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fame Living Green Oushak Rug, Modern, Vintage, Turkish, Eclectic, Floral, Pastel, Washable, Area Rugs for Living Room, Dining, Bedroom, Nursery, Girls, Boys, 5'9" src="https://m.media-amazon.com/images/I/515MxGeVpML._SL500_.jpg" x8'9""=""/></a>
+<a href="https://www.amazon.com/dp/B0CF5T6XFB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fame Living Green Oushak Rug, Modern, Vintage, Turkish, Eclectic, Floral, Pastel, Washable, Area Rugs for Living Room, Dining, Bedroom, Nursery, Girls, Boys, 5'9" src="https://m.media-amazon.com/images/I/515MxGeVpML._SL500_.jpg" x8'9""=""/></a>
 
 
 The **Fame Living Green Oushak Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of **modern** and **vintage Turkish** charm to their living spaces. Perfect for those who appreciate **eclectic** and **floral pastel designs**, this rug suits a variety of rooms including the **living room, dining area, bedroom, nursery**, or children's rooms for both **girls and boys**. If you want a stylish yet **washable area rug** that blends aesthetics with practicality, this product is a perfect choice.
@@ -179,10 +179,10 @@ The **Fame Living Green Oushak Rug** stands out with its harmonious blend of **f
 
 Designed to fit a variety of interiors, this rug's size and style make it adaptable for both formal and casual settings. The durable construction by **Fame Living** ensures it withstands daily use while retaining its aesthetic appeal. Whether placed under a dining table or in a cozy reading nook, the **Green Oushak Rug** adds warmth and character, enriching your home's overall decor with a timeless, eclectic charm.
 
-## <a href="https://www.amazon.com/dp/B0CLZVQ15F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fame Living Cream Green Oushak Rug</a>
+## <a href="https://www.amazon.com/dp/B0CLZVQ15F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fame Living Cream Green Oushak Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLZVQ15F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Fame Living Cream Green Oushak Rug, Modern, Vintage, Turkish, Eclectic, Floral, Pastel, Washable, Area Rugs for Living Room, Dining, Bedroom, Office, Entryway, Foyer, Playroom, Nursery, 5'x6'9" src="https://m.media-amazon.com/images/I/51JsUVOii1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLZVQ15F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Fame Living Cream Green Oushak Rug, Modern, Vintage, Turkish, Eclectic, Floral, Pastel, Washable, Area Rugs for Living Room, Dining, Bedroom, Office, Entryway, Foyer, Playroom, Nursery, 5'x6'9" src="https://m.media-amazon.com/images/I/51JsUVOii1L._SL500_.jpg"/></a>
 
 
 The **Fame Living Cream Green Oushak Rug** is perfect for individuals seeking a blend of **modern** and **vintage** aesthetics in their home décor. Ideal for those who appreciate **Turkish** craftsmanship and want to add an **eclectic** yet subtle **floral** touch to spaces like the **living room**, **dining area**, or **nursery**. If you need a **washable**, durable, and stylish **area rug** that fits a variety of rooms including the **office** or **entryway**, this 5'x6'9" rug offers a versatile solution.
@@ -204,10 +204,10 @@ The **Fame Living Cream Green Oushak Rug** features a beautifully designed **flo
 
 Beyond aesthetics, this rug is constructed with practicality in mind. The **washable** fabric ensures hassle-free cleaning, making it suitable for high-traffic areas like the **foyer** or **playroom**. Its lightweight 10-pound design allows for easy repositioning, so you can effortlessly change up your décor or clean beneath it. Overall, this rug offers a perfect balance of beauty, comfort, and functionality for a variety of living spaces.
 
-## <a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loloi Rifle Paper Co. Eden Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loloi Rifle Paper Co. Eden Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 7'-6"="" alt="Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/513AtJt-QLL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 7'-6"="" alt="Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/513AtJt-QLL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" x 7'-6" Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and artistic flair to their living spaces. This rug is perfect for those who appreciate fine craftsmanship and want a versatile piece that complements both traditional and contemporary décor styles. If you desire a blend of aesthetic beauty and functional comfort, this area rug is an excellent choice.
@@ -230,10 +230,10 @@ The **Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream Area Rug*
 
 In addition to its visual appeal, the rug's dimensions and slim profile make it highly versatile for different room layouts, from living rooms to bedrooms. The quality manufacturing by **Loloi Rugs** ensures durability and longevity, meaning this rug will maintain its beauty for years to come. Whether you want to add warmth to hardwood floors or soften a tiled area, this area rug delivers both style and comfort with ease.
 
-## <a href="https://www.amazon.com/dp/B0CS3CXBWZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Livebox Washable Rugs 8x10</a>
+## <a href="https://www.amazon.com/dp/B0CS3CXBWZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Livebox Washable Rugs 8x10</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS3CXBWZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIVEBOX Washable Rugs 8x10 for Living Room, Boho Large Bedroom Rug 8x10, Soft Pink Floral Rug Non Slip, Low Pile Indoor Carpet for Girls Room Playroom Nursery, Blush/Pink" src="https://m.media-amazon.com/images/I/51ggoxpZETL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS3CXBWZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIVEBOX Washable Rugs 8x10 for Living Room, Boho Large Bedroom Rug 8x10, Soft Pink Floral Rug Non Slip, Low Pile Indoor Carpet for Girls Room Playroom Nursery, Blush/Pink" src="https://m.media-amazon.com/images/I/51ggoxpZETL._SL500_.jpg"/></a>
 
 
 The **LIVEBOX Washable Rugs 8x10** are ideal for individuals seeking a stylish yet practical addition to their living spaces. Perfect for those who want a blend of comfort and aesthetic appeal, this **soft pink floral rug** is especially suitable for girls' rooms, playrooms, nurseries, or any indoor area that benefits from a cozy, decorative touch. If you value easy maintenance combined with vibrant design, this rug is an excellent choice.
@@ -255,10 +255,10 @@ The **LIVEBOX Washable Rug** stands out with its **durable and washable fabric**
 
 Measuring **8x10 feet** with a low profile of 0.24 inches, this rug fits perfectly in large areas without overwhelming the space. The **low pile** height not only ensures comfort underfoot but also makes it easy to clean, maintaining a fresh look even with regular use. Its lightweight construction allows for effortless moving or repositioning, making it versatile for multiple rooms such as living rooms, bedrooms, or nurseries.
 
-## <a href="https://www.amazon.com/dp/B0CS9R7K1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Floral Living Room Rug</a>
+## <a href="https://www.amazon.com/dp/B0CS9R7K1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Floral Living Room Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS9R7K1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Floral Living Room Rug, 5x7 Rugs for Bedroom Ultra-Thin Soft Washable Dining Room Rug, Non Slip Stain Resistant Boho Low-Pile Throw Carpet for ‎Office (5x7ft,Beige)" src="https://m.media-amazon.com/images/I/51P0L4rWmVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS9R7K1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Floral Living Room Rug, 5x7 Rugs for Bedroom Ultra-Thin Soft Washable Dining Room Rug, Non Slip Stain Resistant Boho Low-Pile Throw Carpet for ‎Office (5x7ft,Beige)" src="https://m.media-amazon.com/images/I/51P0L4rWmVL._SL500_.jpg"/></a>
 
 
 The **Lahome Floral Living Room Rug** in **5x7 size** is ideal for homeowners and renters looking to enhance their **bedroom**, **dining room**, or **office** spaces with a stylish yet functional rug. This product is perfect for individuals who desire a **soft, ultra-thin, and washable carpet** that is easy to maintain and fits well in spaces where slip resistance and stain resistance are important.

@@ -22,10 +22,10 @@ Whether you're seeking relaxation with M&SENSE's Vanilla Sandalwood or aiming to
 
 
 
-## <a href="https://www.amazon.com/dp/B07GH691SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Candle Medium Jar Scented Candle Serenity + Calm</a>
+## <a href="https://www.amazon.com/dp/B07GH691SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Candle Medium Jar Scented Candle Serenity + Calm</a>
 
 
-<a href="https://www.amazon.com/dp/B07GH691SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Candle Medium Jar Scented Candle Serenity + Calm (Lavender Thyme) Home Décor Orange Gifting Idea Burn Time of 50 Hours" src="https://m.media-amazon.com/images/I/311xenIBBzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GH691SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Candle Medium Jar Scented Candle Serenity + Calm (Lavender Thyme) Home Décor Orange Gifting Idea Burn Time of 50 Hours" src="https://m.media-amazon.com/images/I/311xenIBBzL._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Candle Medium Jar Scented Candle Serenity + Calm (Lavender Thyme)** is ideal for individuals seeking a relaxing and soothing ambiance in their living spaces. Perfect for those who appreciate **home décor** that combines both style and function, this candle is also an excellent gifting idea for friends and family who enjoy calming scents and elegant accents in their homes.
@@ -48,12 +48,12 @@ The **Chesapeake Bay Candle Medium Jar Scented Candle** features a well-balanced
 
 With a burn time of approximately 50 hours, this candle offers long-lasting enjoyment without frequent replacements. The compact and lightweight design, weighing just 0.55 pounds, allows for easy placement on shelves, desks, or bedside tables. Additionally, as a product from the reputable **Chesapeake Bay Candle manufacturer**, users can trust in the quality and safety of the candle. Overall, it is a practical and elegant addition to any home or an excellent gifting option for those who value calm and stylish home fragrances.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07GH691SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07GH691SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lulu Candles</a>
+## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lulu Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
 
 
 Ideal for individuals who appreciate a **luxurious home ambiance** and seek a **long-lasting, highly scented candle**, the **Lulu Candles Jasmine, Oud & Sandalwood Luxury Scented Soy Jar Candle** is perfect for those wanting to elevate their space with a sophisticated fragrance. Whether you're a candle enthusiast or someone looking for a thoughtful gift, this hand-poured **9 oz. soy candle** offers an elegant and environmentally friendly option.
@@ -76,12 +76,12 @@ The **Lulu Candles Jasmine, Oud & Sandalwood candle** features a thoughtfully cr
 
 Beyond its appealing scent profile, this candle's **sleek black jar** adds a touch of modern elegance to any room, making it suitable for both personal use and gifting. Its **compact dimensions** allow it to fit perfectly on shelves, desks, or bedside tables, while the lightweight design ensures easy handling. Overall, this candle offers a luxurious sensory experience that enhances relaxation and ambiance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F92DCF8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kedtui Scented Candles Gift Set</a>
+## <a href="https://www.amazon.com/dp/B0F92DCF8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kedtui Scented Candles Gift Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F92DCF8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="kedtui Scented Candles Gift Set, 16 Pack Aromatherapy Candle, Natural Soy Wax Travel Tin Candles for Home Scented, Ideal for Christmas, Birthday, Thanksgiving, Valentines Day Gifts" src="https://m.media-amazon.com/images/I/51IE6EXRlFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F92DCF8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="kedtui Scented Candles Gift Set, 16 Pack Aromatherapy Candle, Natural Soy Wax Travel Tin Candles for Home Scented, Ideal for Christmas, Birthday, Thanksgiving, Valentines Day Gifts" src="https://m.media-amazon.com/images/I/51IE6EXRlFL._SL500_.jpg"/></a>
 
 
 The **kedtui Scented Candles Gift Set** is perfect for individuals who enjoy creating a cozy and relaxing atmosphere at home or on the go. Ideal for those who appreciate **aromatherapy** and natural products, this set is great for gifting during special occasions like **Christmas, Birthdays, Thanksgiving,** and **Valentine's Day**. If you are looking for a versatile, beautifully packaged candle collection that enhances mood and ambiance, this product is designed for you.
@@ -104,12 +104,12 @@ The **kedtui Scented Candles Gift Set** features a collection of 16 beautifully 
 
 Each candle is carefully crafted to provide a gentle yet effective aromatherapy experience. The variety of scents available in the set helps users select the perfect fragrance to match their mood or occasion, enhancing relaxation, focus, or festive ambiance. Whether used during meditation, a relaxing bath, or as a thoughtful gift, these candles bring warmth and comfort while maintaining a natural, toxin-free environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F92DCF8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F92DCF8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
+## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
 
 
 The **Vanilla Bean Odor Eliminating Highly Fragranced Candle** is ideal for individuals seeking an effective and long-lasting solution to neutralize unpleasant odors in their living spaces. Whether you are a pet owner, a smoker, or someone who frequently cooks aromatic meals, this candle is designed to quickly eliminate unwanted smells while adding a warm, inviting fragrance to your home.
@@ -131,12 +131,12 @@ The **Vanilla Bean Odor Eliminating Candle** from **Dianne's Custom Candles** co
 
 With an impressive **burn time of up to 80 hours**, this 12-ounce candle offers extended usage, making it a cost-effective choice for daily odor control and ambiance enhancement. The soothing **Vanilla Bean fragrance** not only masks odors but also creates a relaxing atmosphere, perfect for unwinding after a long day or setting the mood for gatherings. Its compact size fits well in any room, whether it’s a living room, kitchen, or bedroom, ensuring you can enjoy its benefits wherever needed.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Village Candle Spiced Vanilla Apple</a>
+## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Village Candle Spiced Vanilla Apple</a>
 
 
-<a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
 
 
 The **Village Candle Spiced Vanilla Apple** in a **Large Glass Apothecary Jar** is perfect for anyone who loves warm, inviting aromas that evoke cozy autumn days. Ideal for homeowners, candle enthusiasts, or anyone looking to create a comforting atmosphere, this candle combines the sweetness of vanilla with the crispness of spiced apple, making it a great choice for living rooms, bedrooms, or offices.
@@ -159,12 +159,12 @@ The **Village Candle Spiced Vanilla Apple** offers an inviting scent that fills 
 
 Beyond its aromatic benefits, the candle's **ivory glass apothecary jar** adds a touch of elegance and charm to any space. Its sturdy yet stylish design fits well with various interior styles, from rustic to modern. Additionally, the trusted craftsmanship of the **Village Candle** brand guarantees a clean, even burn, ensuring a safe and pleasant experience for all users.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar</a>
+## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
 
 
 The **Glade 1-Wick Scented Candle Jar, Hawaiian Breeze** is perfect for individuals looking to create a refreshing and tropical atmosphere in their homes or offices. Ideal for those who enjoy light, pleasant fragrances infused with essential oils, this candle is great for anyone wanting to eliminate odors while adding a touch of relaxation and ambiance to their space. If you appreciate quality air fresheners that combine scent and style, this product is a great choice.
@@ -187,12 +187,12 @@ The **Glade 1-Wick Scented Candle Jar** in **Hawaiian Breeze** offers a beautifu
 
 Besides providing an inviting scent, this candle adds a decorative touch with its clean and simple design. The single wick allows for controlled burning, which helps the fragrance last longer while maintaining a cozy ambiance. The **2 count** packaging also makes it convenient to keep one candle for daily use and another as a backup or gift. Overall, this candle is a practical and stylish solution for freshening up your living space with the soothing essence of Hawaiian Breeze.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense Natural Soy Candle</a>
+## <a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense Natural Soy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE Natural Soy Candle| Vanilla Sandalwood | 8.82 oz, 50H Burn | Minimalist Scented Candle for Relaxation, Gifting, Home Décor | for Bedroom, Office, Party Medium" src="https://m.media-amazon.com/images/I/312XBT8dfVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE Natural Soy Candle| Vanilla Sandalwood | 8.82 oz, 50H Burn | Minimalist Scented Candle for Relaxation, Gifting, Home Décor | for Bedroom, Office, Party Medium" src="https://m.media-amazon.com/images/I/312XBT8dfVL._SL500_.jpg"/></a>
 
 
 The **M&SENSE Natural Soy Candle | Vanilla Sandalwood** is perfect for individuals seeking a calming and elegant ambiance in their living or working spaces. Ideal customers include those who appreciate minimalist scented candles for relaxation, gifting, or enhancing home décor in bedrooms, offices, or during parties. If you value natural ingredients and a long-lasting burn time, this candle is an excellent choice.
@@ -214,12 +214,12 @@ This **M&SENSE Natural Soy Candle** features a carefully crafted blend of **vani
 
 With its impressive **50-hour burn time**, this candle offers extended enjoyment, making it ideal for long evenings of relaxation or social gatherings. The soothing fragrance helps reduce stress and elevate mood, enhancing overall well-being. Whether you want to create a peaceful environment or present a thoughtful gift, the **M&SENSE Natural Soy Candle | Vanilla Sandalwood** is a versatile and high-quality option.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F3DDM6WZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit</a>
+## <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41cq25ANAyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41cq25ANAyL._SL500_.jpg"/></a>
 
 
 The **Glade 1-Wick Scented Candle Jar** with the delightful blend of **Hawaiian Breeze & Vanilla Passion Fruit** is perfect for individuals who want to create a refreshing and inviting atmosphere in their living spaces. Ideal for those who appreciate subtle yet effective air freshening solutions, this product is great for homeowners, office workers, or anyone looking to uplift their environment with a pleasant fragrance infused with essential oils.
@@ -241,12 +241,12 @@ The **Glade 1-Wick Scented Candle Jar** combines the refreshing scent of **Hawai
 
 This candle’s dual scent profile allows users to enjoy both fruity and floral notes, creating a balanced and uplifting aroma that can help reduce stress and improve mood. Additionally, being a product of **Glade** and **SC Johnson** guarantees quality and reliability, giving users peace of mind in their purchase. Whether used for relaxation, entertaining guests, or masking unwanted odors, this candle provides a versatile and aesthetically pleasing air freshening solution.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yankee Candle Studio Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yankee Candle Studio Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yankee Candle Studio Scented Candle with up to 50 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 10 oz Jar Candle with Room Filling Fragrance, Balsam &amp; Cedar" src="https://m.media-amazon.com/images/I/21j--4N6ylL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yankee Candle Studio Scented Candle with up to 50 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 10 oz Jar Candle with Room Filling Fragrance, Balsam &amp; Cedar" src="https://m.media-amazon.com/images/I/21j--4N6ylL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Studio Scented Candle** with the refreshing **Balsam & Cedar** fragrance is ideal for individuals who appreciate a calming and aromatic ambiance in their homes or offices. Perfect for those who seek a long-lasting and consistent scent experience, this candle suits anyone looking to enhance relaxation, meditation, or simply create a warm environment with a natural, woodsy aroma.
@@ -268,12 +268,12 @@ The **Yankee Candle Studio Scented Candle** stands out with its use of a **premi
 
 Featuring the distinctive **Balsam & Cedar** fragrance, this candle brings the essence of a lush forest indoors, evoking feelings of peace and nature. Its long-lasting burn time of up to **50 hours** ensures that users can enjoy their favorite scent for days on end, making it a cost-effective and practical choice for home fragrance enthusiasts. Overall, this candle combines quality, scent, and design to create an enjoyable sensory experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BLXX9XCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle Mahogany Teakwood</a>
+## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle Mahogany Teakwood</a>
 
 
-<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
 
 
 The **Bath & Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented** is perfect for individuals who appreciate a rich and sophisticated fragrance experience in their living spaces. Ideal for those who enjoy long-lasting, high-quality candles with a warm, masculine scent, this product suits anyone looking to elevate their home ambiance or create a cozy, inviting atmosphere. Whether you are a candle enthusiast or someone seeking a stylish and aromatic addition to your décor, this candle is a great choice.
@@ -296,7 +296,7 @@ The **Mahogany Teakwood High Intensity 3-Wick Candle** by Bath & Body Works is d
 
 Beyond its functional benefits, the candle's sleek **black and silver exterior** adds a touch of elegance and modernity to any room. The blend of mahogany and teakwood notes creates a sophisticated scent profile that appeals to both men and women. Whether used for relaxation, entertaining guests, or as a decorative accent, this candle enhances the sensory experience while complementing your interior style. Overall, it is a premium scented candle that balances aesthetics, fragrance intensity, and quality craftsmanship.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

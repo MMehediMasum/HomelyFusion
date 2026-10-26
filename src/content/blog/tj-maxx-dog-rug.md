@@ -23,10 +23,10 @@ Available in various sizes and designs, they fit seamlessly into any home. Easy 
 
 
 
-## <a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Dog Door Mat for Muddy Paws 30x20, Absorbs Moisture and Dirt, Absorbent Non-Slip Washable Doormat, Quick Dry Chenille Mud Mat for Dogs, Entry Indoor Entryway Carpet for Inside Floor, Grey" src="https://m.media-amazon.com/images/I/61zm8HSZBUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Dog Door Mat for Muddy Paws 30x20, Absorbs Moisture and Dirt, Absorbent Non-Slip Washable Doormat, Quick Dry Chenille Mud Mat for Dogs, Entry Indoor Entryway Carpet for Inside Floor, Grey" src="https://m.media-amazon.com/images/I/61zm8HSZBUL._SL500_.jpg"/></a>
 
 
 The **OLANLY Dog Door Mat for Muddy Paws 30x20** is ideal for pet owners who want to keep their indoor floors clean and dry. If you have a dog that frequently comes in with wet or muddy paws, this mat is designed to absorb moisture and dirt effectively. It is perfect for placing at entryways, helping to maintain a cleaner home environment while providing a comfortable spot for your pet to wipe their paws.
@@ -49,10 +49,10 @@ The **OLANLY Dog Door Mat** features a premium chenille fabric that excels at tr
 
 Besides functionality, the mat is designed with convenience in mind. It is fully **washable**, allowing pet owners to keep it fresh and clean with minimal effort. The compact dimensions make it easy to place in various indoor entryways without taking up excessive space, while the subtle grey color blends seamlessly with most home interiors. Overall, this mat provides an effective and stylish solution to managing muddy paws and protecting your floors.
 
-## <a href="https://www.amazon.com/dp/B0CC8X9W29?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CC8X9W29?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC8X9W29?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry Dog Door Mat for Muddy Paws, Absorbent Dirt Trapper Non Slip Quick Dry Washable Chenille Mat for Mud Dogs, Entry Rug for Indoor and Outdoor (30x20 Inches, Grey)" src="https://m.media-amazon.com/images/I/61XSFKQ63JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC8X9W29?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry Dog Door Mat for Muddy Paws, Absorbent Dirt Trapper Non Slip Quick Dry Washable Chenille Mat for Mud Dogs, Entry Rug for Indoor and Outdoor (30x20 Inches, Grey)" src="https://m.media-amazon.com/images/I/61XSFKQ63JL._SL500_.jpg"/></a>
 
 
 The **Smiry Dog Door Mat for Muddy Paws** is perfect for pet owners who want to keep their homes clean and tidy while managing the mess that comes from their dogs. Ideal for those with active dogs that frequently come inside with muddy or wet paws, this mat is designed to trap dirt and moisture efficiently. Whether you have an indoor or outdoor entryway, this mat suits anyone looking for a durable and easy-to-maintain solution to protect their floors.
@@ -75,10 +75,10 @@ The **Smiry Dog Door Mat** is crafted from soft yet durable chenille fibers that
 
 Additionally, this mat's quick-dry capabilities reduce the chances of mold and bad odors developing, a common problem with many pet mats. Its washable nature means it can be easily cleaned in a washing machine, making maintenance hassle-free. The practical dimensions of 30 by 20 inches provide ample coverage for entryways, while the neutral grey color adds a subtle touch of style without overpowering your existing decor.
 
-## <a href="https://www.amazon.com/dp/B0F21X8P1L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry 2 Piece Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0F21X8P1L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry 2 Piece Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0F21X8P1L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry 2 Piece Dog Door Mat for Muddy Paws, Absorbent Dirt Trapper Non Slip Quick Dry Washable Chenille Mat for Mud Dogs, Entry Rug for Indoor and Outdoor (30x20 Inches, Grey)" src="https://m.media-amazon.com/images/I/61TOXBATnBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F21X8P1L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry 2 Piece Dog Door Mat for Muddy Paws, Absorbent Dirt Trapper Non Slip Quick Dry Washable Chenille Mat for Mud Dogs, Entry Rug for Indoor and Outdoor (30x20 Inches, Grey)" src="https://m.media-amazon.com/images/I/61TOXBATnBL._SL500_.jpg"/></a>
 
 
 The **Smiry 2 Piece Dog Door Mat** is ideal for pet owners who want to keep their homes clean from muddy paws. If you have a dog that frequently comes in from outside, especially in wet or dirty conditions, this **absorbent dirt trapper** mat is perfect for maintaining cleanliness both indoors and outdoors. It suits those looking for a durable, easy-to-clean, and non-slip solution to manage pet messes efficiently.
@@ -101,10 +101,10 @@ The **Smiry Dog Door Mat** features a high-quality chenille surface that excels 
 
 With dimensions of **30 by 20 inches**, this mat provides ample space for dogs of various sizes to wipe their paws effectively. The fact that it comes in a 2-piece set means you can place one mat inside and one outside your door for maximum dirt control. Additionally, the mat is machine washable, making maintenance effortless for busy pet owners who want a practical yet reliable solution to keeping their homes clean and tidy.
 
-## <a href="https://www.amazon.com/dp/B09P9QZ8B8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loobani 2 Packs Extra Large Reusable Dog Mat</a>
+## <a href="https://www.amazon.com/dp/B09P9QZ8B8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loobani 2 Packs Extra Large Reusable Dog Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B09P9QZ8B8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LOOBANI 2 Packs Extra Large Reusable Dog Mat for Floor, Non-Slip Washable Pee Pads for Dogs, Fast Absorbent Pet Whelping Pads, Puppy Playpen Mat for Incontinence, Housebreak, Crate, 36x48in, Gray" src="https://m.media-amazon.com/images/I/51gdWrHiWWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P9QZ8B8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LOOBANI 2 Packs Extra Large Reusable Dog Mat for Floor, Non-Slip Washable Pee Pads for Dogs, Fast Absorbent Pet Whelping Pads, Puppy Playpen Mat for Incontinence, Housebreak, Crate, 36x48in, Gray" src="https://m.media-amazon.com/images/I/51gdWrHiWWL._SL500_.jpg"/></a>
 
 
 The **LOOBANI 2 Packs Extra Large Reusable Dog Mat** is ideal for pet owners who need a reliable and washable solution for managing their dog's incontinence, housebreaking, or playpen area. It is especially suited for those with medium to large dogs who require a fast-absorbing, non-slip surface to keep floors clean and dry. If you want a durable and easy-to-clean mat that can handle frequent use while providing comfort to your pet, this product is a great choice.
@@ -128,10 +128,10 @@ The **LOOBANI Extra Large Reusable Dog Mat** features a well-thought-out design 
 
 Additionally, the **non-slip backing** enhances safety by preventing the mat from sliding on smooth floors, which is crucial when pets are active or moving around. Being washable and reusable also means pet owners can save money and reduce waste compared to disposable pads. Overall, this mat offers a practical and comfortable solution that addresses multiple pet care needs while being easy to maintain.
 
-## <a href="https://www.amazon.com/dp/B0DSH5SXLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Door Mat For Muddy Dog Paws</a>
+## <a href="https://www.amazon.com/dp/B0DSH5SXLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Door Mat For Muddy Dog Paws</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSH5SXLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Door Mat for Muddy Dog Paws 30x20, Ultra Absorbent Chenille Mud Doormat with Paw Print Design, Non-Slip Washable Doormat for Indoor Entryway, Quick-Dry Pet Bed Mats for Dirty Dogs, Grey" src="https://m.media-amazon.com/images/I/61rB01ZxOvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSH5SXLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Door Mat for Muddy Dog Paws 30x20, Ultra Absorbent Chenille Mud Doormat with Paw Print Design, Non-Slip Washable Doormat for Indoor Entryway, Quick-Dry Pet Bed Mats for Dirty Dogs, Grey" src="https://m.media-amazon.com/images/I/61rB01ZxOvL._SL500_.jpg"/></a>
 
 
 The **OLANLY Door Mat for Muddy Dog Paws 30x20** is ideal for pet owners who want to keep their indoor entryways clean and tidy. If you have a dog that frequently tracks mud and dirt into the house, this **ultra absorbent chenille doormat** is perfect for you. It is designed to handle muddy paws effectively while adding a stylish touch with its **paw print design**.
@@ -154,10 +154,10 @@ The **OLANLY Door Mat** features a highly absorbent chenille surface that quickl
 
 Beyond its practical benefits, this doormat is designed for convenience. It is **washable and quick-drying**, so you can easily maintain its cleanliness and freshness without hassle. The lightweight construction and compact size make it simple to move and fit in different spaces, providing an effective solution for pet owners looking to keep their homes clean and welcoming.
 
-## <a href="https://www.amazon.com/dp/B07V824FMH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gorilla Grip Dog Doormat</a>
+## <a href="https://www.amazon.com/dp/B07V824FMH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gorilla Grip Dog Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B07V824FMH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GORILLA GRIP Dog Doormat, Absorbent Doormats for Muddy Dogs Paws, Machine Washable Soakstopper Rugs, Cleaner Floors, US Designed Pet Bed Door Mat, Indoor Entrance Pets Rug, Mats 24x17 Gray" src="https://m.media-amazon.com/images/I/51HdYlhsTuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V824FMH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GORILLA GRIP Dog Doormat, Absorbent Doormats for Muddy Dogs Paws, Machine Washable Soakstopper Rugs, Cleaner Floors, US Designed Pet Bed Door Mat, Indoor Entrance Pets Rug, Mats 24x17 Gray" src="https://m.media-amazon.com/images/I/51HdYlhsTuL._SL500_.jpg"/></a>
 
 
 The **GORILLA GRIP Dog Doormat** is ideal for pet owners who want to keep their homes clean and free from mud and dirt tracked in by their dogs. If you have a furry friend who loves outdoor adventures and often returns with muddy paws, this **absorbent, machine washable doormat** is designed to protect your floors and maintain cleanliness with ease. It’s perfect for indoor entrances and pet bed areas where cleanliness and durability are essential.
@@ -179,10 +179,10 @@ The **GORILLA GRIP Dog Doormat** features a soft yet durable surface that soaks 
 
 Made by **Hills Point Industries, LLC**, this doormat combines functionality with a sleek **grey color** that complements most interiors. Its thin, yet absorbent construction ensures it dries quickly and stays effective in trapping moisture. For pet owners who want a cleaner, more organized space, the **GORILLA GRIP Dog Doormat** offers a practical and stylish solution to everyday muddy paw challenges.
 
-## <a href="https://www.amazon.com/dp/B0F28D8WDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry Dog Door Mat For Muddy Paws</a>
+## <a href="https://www.amazon.com/dp/B0F28D8WDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smiry Dog Door Mat For Muddy Paws</a>
 
 
-<a href="https://www.amazon.com/dp/B0F28D8WDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry Dog Door Mat for Muddy Paws 30x20, Dirt Trapper Non Slip Washable Indoor Doormats, Absorbent Entryway Carpet for Inside Floor, Dark Grey" src="https://m.media-amazon.com/images/I/515CTsS75uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F28D8WDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smiry Dog Door Mat for Muddy Paws 30x20, Dirt Trapper Non Slip Washable Indoor Doormats, Absorbent Entryway Carpet for Inside Floor, Dark Grey" src="https://m.media-amazon.com/images/I/515CTsS75uL._SL500_.jpg"/></a>
 
 
 The **Smiry Dog Door Mat for Muddy Paws 30x20** is ideal for pet owners who want to keep their indoor floors clean and dry. If you have dogs that often come inside with dirty or wet paws, this **non-slip, washable doormat** is designed specifically to trap dirt and moisture, protecting your home’s entryway. It is perfect for anyone looking for an easy-to-maintain, durable solution to manage pet messes.
@@ -205,10 +205,10 @@ The **Smiry Dog Door Mat** features an absorbent surface that efficiently captur
 
 Additionally, this mat is easy to clean, as it is fully **washable** and dries quickly. The size of 30 by 20 inches is ideal for most entryways, offering ample coverage without being bulky. The **dark grey color** not only hides stains effectively but also blends well with modern interior designs, making it both a practical and aesthetic choice for pet owners.
 
-## <a href="https://www.amazon.com/dp/B01BKTAWYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">My Doggy Place Microfiber Dog Mat For Muddy Paws</a>
+## <a href="https://www.amazon.com/dp/B01BKTAWYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">My Doggy Place Microfiber Dog Mat For Muddy Paws</a>
 
 
-<a href="https://www.amazon.com/dp/B01BKTAWYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 36"="" absorbent="" alt="My Doggy Place Microfiber Dog Mat for Muddy Paws, 60" and="" charcoal="" cleaning="" dog="" dryer="" mat,="" non-slip,="" paw="" quick-drying="" runner"="" safe="" src="https://m.media-amazon.com/images/I/41j7BH8qvkL._SL500_.jpg" washer="" x="" x-large=""/></a>
+<a href="https://www.amazon.com/dp/B01BKTAWYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 36"="" absorbent="" alt="My Doggy Place Microfiber Dog Mat for Muddy Paws, 60" and="" charcoal="" cleaning="" dog="" dryer="" mat,="" non-slip,="" paw="" quick-drying="" runner"="" safe="" src="https://m.media-amazon.com/images/I/41j7BH8qvkL._SL500_.jpg" washer="" x="" x-large=""/></a>
 
 
 The **My Doggy Place Microfiber Dog Mat** is ideal for pet owners who want to keep their homes clean and free from muddy paw prints. This **extra-large** and **absorbent** dog paw cleaning mat is perfect for families with active dogs that often come inside with wet or dirty paws, especially after walks or outdoor playtime. If you’re looking for a practical solution to manage muddy paws effortlessly, this mat is designed for you.
@@ -232,10 +232,10 @@ The **My Doggy Place Microfiber Dog Mat** features a thick layer of premium micr
 
 Additionally, this mat is designed for convenience with its **washable and dryer-safe** fabric. Pet owners can easily toss it into the washing machine without worrying about damage, maintaining hygiene effortlessly. The **quick-drying** material helps keep the mat ready for use in no time, preventing unpleasant odors and bacterial buildup. The stylish **charcoal** color not only blends well with home interiors but also helps camouflage dirt, keeping your space looking tidy between washes.
 
-## <a href="https://www.amazon.com/dp/B07PXV5C38?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Best Friends By Sheri Calming Shag Dog Blanket</a>
+## <a href="https://www.amazon.com/dp/B07PXV5C38?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Best Friends By Sheri Calming Shag Dog Blanket</a>
 
 
-<a href="https://www.amazon.com/dp/B07PXV5C38?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 40""="" alt="Best Friends by Sheri Calming Shag Dog Blanket – Ultra Soft Faux Fur Pet Throw, Anxiety-Relief, Lightweight Warm Bed Cover for Dogs and Cats, Machine Washable, Taupe, 30" src="https://m.media-amazon.com/images/I/31mHjYf3cfL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B07PXV5C38?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 40""="" alt="Best Friends by Sheri Calming Shag Dog Blanket – Ultra Soft Faux Fur Pet Throw, Anxiety-Relief, Lightweight Warm Bed Cover for Dogs and Cats, Machine Washable, Taupe, 30" src="https://m.media-amazon.com/images/I/31mHjYf3cfL._SL500_.jpg" x=""/></a>
 
 
 The **Best Friends by Sheri Calming Shag Dog Blanket** is ideal for pet owners seeking a cozy and comforting accessory to help reduce anxiety in their dogs or cats. If you have a furry friend who experiences stress during travel, thunderstorms, or separation, this ultra-soft **faux fur pet throw** is designed to provide soothing warmth and security. Its lightweight design also makes it perfect for everyday use as a bed cover or a favorite resting spot.
@@ -258,10 +258,10 @@ The **Best Friends by Sheri Calming Shag Dog Blanket** features a plush, shaggy 
 
 Additionally, the blanket's **machine washable** feature allows pet owners to keep it fresh and clean with minimal effort, which is essential for maintaining a hygienic environment for pets. The taupe color is both stylish and practical, hiding pet hair and dirt better than lighter shades. Overall, this blanket combines comfort, functionality, and ease of care, making it a valuable addition for any pet owner looking to enhance their pet's well-being.
 
-## <a href="https://www.amazon.com/dp/B07H94QWMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Gone Smart Dirty Dog Doormat</a>
+## <a href="https://www.amazon.com/dp/B07H94QWMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Gone Smart Dirty Dog Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B07H94QWMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Gone Smart Dirty Dog Doormat - Fast Drying Rug with Super Gripper Backing for Clean Floors - Super Absorbent and Machine Washable Mat for Muddy Paws - Mist Grey" src="https://m.media-amazon.com/images/I/516QjjrYRvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H94QWMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Gone Smart Dirty Dog Doormat - Fast Drying Rug with Super Gripper Backing for Clean Floors - Super Absorbent and Machine Washable Mat for Muddy Paws - Mist Grey" src="https://m.media-amazon.com/images/I/516QjjrYRvL._SL500_.jpg"/></a>
 
 
 The **Dog Gone Smart Dirty Dog Doormat** is perfect for pet owners who want to keep their floors clean and dry despite muddy paws. Ideal for households with dogs that frequently come in from outside, this mat is designed to quickly absorb moisture and dirt, making it a must-have for anyone looking to maintain a tidy home environment.

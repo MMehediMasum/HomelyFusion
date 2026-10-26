@@ -23,10 +23,10 @@ Sets of two lamps create balance on nightstands or desks. Modern and rustic styl
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, or **desk** area. Perfect for those who value convenience and modern features like touch controls and multiple charging options, this lamp suits students, professionals, and anyone looking to enhance their space with a compact and versatile lighting fixture.
@@ -49,10 +49,10 @@ The **Fenmzee Bedside Table Lamp** combines modern convenience with classic desi
 
 Crafted with a **wood base** and topped with a **round flaxen fabric shade**, this lamp adds a touch of warmth and elegance to any room. Its compact size ensures it fits neatly on bedside tables or desks, making it ideal for small spaces. Additionally, the **LED bulb included** provides bright, energy-efficient lighting that helps reduce electricity costs while lasting longer than traditional bulbs.
 
-## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
 
 
 The **PARTPHONER Traditional Table Lamp Set of 2** is ideal for those who appreciate a blend of **rustic farmhouse** charm and functional lighting. Perfect for homeowners looking to enhance their **living room**, **bedroom**, or **bedside** with vintage-inspired décor, these lamps complement both classic and modern interiors. If you want to add a warm, inviting glow to your space while maintaining a stylish aesthetic, this set is a great choice.
@@ -74,10 +74,10 @@ The **PARTPHONER table lamps** feature a classic design with an **antique grey f
 
 These lamps are not only stylish but also functional. The set of two allows for symmetrical lighting arrangements, enhancing the overall aesthetic of your room. Their sturdy build ensures they withstand everyday use, while the neutral color complements various décor styles. Whether you're furnishing a rustic farmhouse or adding character to a modern setting, these lamps offer both charm and practicality.
 
-## <a href="https://www.amazon.com/dp/B08F5BNWBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dreamholder Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B08F5BNWBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dreamholder Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08F5BNWBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dreamholder Table Lamp with 3 USB Charging Ports, Modern Desk Lamp with AC Outlet and Phone Stands, Perfect Bedside Lamp for Bedroom, Living Room, Office (Pack of 2), Cream" src="https://m.media-amazon.com/images/I/41CcZ7l4efL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F5BNWBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dreamholder Table Lamp with 3 USB Charging Ports, Modern Desk Lamp with AC Outlet and Phone Stands, Perfect Bedside Lamp for Bedroom, Living Room, Office (Pack of 2), Cream" src="https://m.media-amazon.com/images/I/41CcZ7l4efL._SL500_.jpg"/></a>
 
 
 The **Dreamholder Table Lamp with 3 USB Charging Ports** is ideal for individuals who need a multifunctional lighting solution for their **bedroom, living room, or office**. If you value convenience, modern design, and integrated charging capabilities, this lamp is perfect for those who want to keep their devices powered while enjoying stylish illumination. It suits professionals, students, and anyone looking to declutter their workspace or bedside area with a lamp that combines light and power outlets seamlessly.
@@ -100,10 +100,10 @@ The **Dreamholder Table Lamp** combines functionality and style, making it a sma
 
 With its elegant **linen shade** and compact size, this lamp adds a warm ambiance without occupying much space. The pack of two offers a convenient way to maintain consistent lighting and charging solutions across different rooms. Overall, this lamp is a versatile accessory that caters to tech-savvy users who appreciate both aesthetics and practicality in their home or office lighting.
 
-## <a href="https://www.amazon.com/dp/B08T9CYP4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Touch Control Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B08T9CYP4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Touch Control Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B08T9CYP4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Touch Control Table Lamps with 2 USB &amp; AC Outlet, 3-Way Dimmable Bedside Nightstand Lamps for Bedroom Living Room Nursery, 800 Lumens 5000K Daylight Bulbs Included" src="https://m.media-amazon.com/images/I/51-ClxFmSIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08T9CYP4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Touch Control Table Lamps with 2 USB &amp; AC Outlet, 3-Way Dimmable Bedside Nightstand Lamps for Bedroom Living Room Nursery, 800 Lumens 5000K Daylight Bulbs Included" src="https://m.media-amazon.com/images/I/51-ClxFmSIL._SL500_.jpg"/></a>
 
 
 These **Set of 2 Touch Control Table Lamps** are perfect for anyone looking to enhance their **bedroom, living room, or nursery** with stylish, functional lighting. Ideal for individuals who appreciate modern design combined with practical features such as dimmable settings and built-in USB and AC outlets, these lamps cater especially well to tech-savvy users and those needing convenient charging options at their bedside or workspace.
@@ -126,10 +126,10 @@ These **table lamps** offer a combination of modern aesthetics and versatile fun
 
 With **two 5000K daylight bulbs** included, the lamps deliver bright, clear light that mimics natural daylight, which is ideal for tasks requiring focus or for enhancing the overall mood of any room. The elegant **navy and brushed nickel finish** ensures these lamps not only perform well but also serve as attractive decor pieces. Their **compact size** makes them suitable for various settings, from bedside tables to nursery nightstands, fulfilling both functional and aesthetic needs.
 
-## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
 
 
 Ideal for those seeking to enhance their living spaces with elegant and functional lighting, the **PoKat 23" Modern Ceramic Table Lamp Set of 2** is perfect for homeowners who appreciate a blend of contemporary design and farmhouse charm. This set is especially suited for individuals looking to brighten up their **living room**, **bedroom**, or **nightstand** areas with stylish yet practical lamps that complement a variety of interior décors.
@@ -152,10 +152,10 @@ The **PoKat 23" Modern Ceramic Table Lamp Set** boasts a tasteful combination of
 
 Designed with user convenience in mind, these lamps offer versatile lighting solutions that enhance the ambiance without overpowering the space. The set of two lamps allows for coordinated lighting on either side of a bed or sofa, creating a harmonious and inviting atmosphere. Additionally, the lightweight structure ensures easy repositioning, letting users effortlessly adjust their lighting setup to suit changing needs or preferences.
 
-## <a href="https://www.amazon.com/dp/B0BTCYTJ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">21" Touch Bedside Lamps With Usb &amp; Ac Outlets, 3-way Dimmable Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BTCYTJ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">21" Touch Bedside Lamps With Usb &amp; Ac Outlets, 3-way Dimmable Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTCYTJ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2="" 3-way="" 5000k="" ac="" alt="21" bedroom="" bedside="" bulbs="" dimmable="" for="" gray="" included"="" lamps="" led="" living="" night="" of="" office="" outlets,="" reading,="" room="" set="" shade="" src="https://m.media-amazon.com/images/I/41abkPP6SSL._SL500_.jpg" stands,="" table="" touch="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BTCYTJ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2="" 3-way="" 5000k="" ac="" alt="21" bedroom="" bedside="" bulbs="" dimmable="" for="" gray="" included"="" lamps="" led="" living="" night="" of="" office="" outlets,="" reading,="" room="" set="" shade="" src="https://m.media-amazon.com/images/I/41abkPP6SSL._SL500_.jpg" stands,="" table="" touch="" usb="" with=""/></a>
 
 
 The **21" Touch Bedside Lamps** with **2 USB & AC Outlets** are ideal for individuals looking to combine modern functionality with elegant design in their bedroom, living room, or office space. These lamps are perfect for people who value convenience, such as those who frequently charge devices overnight or need adjustable lighting for reading or working. If you want a stylish, versatile lighting solution that also serves as a power hub, this set is an excellent choice.
@@ -177,10 +177,10 @@ These **bedside lamps** stand out with their intuitive **touch control** that ma
 
 With a sleek **gray linen shade** and durable **matte black base**, these lamps blend aesthetic appeal with practicality. The **5000K LED bulbs** provide crisp, daylight-like illumination that helps reduce eye strain, making them ideal for work or study environments. Additionally, the lamps’ moderate size ensures they fit comfortably on most nightstands or desks, making them a versatile lighting solution for various rooms and purposes.
 
-## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
 
 
 The **Industrial Table Lamps for Bedrooms Set of 2** by **Innqoo** are perfect for individuals seeking stylish yet functional lighting solutions for their **bedrooms**, **living rooms**, or **offices**. Ideal for those who value modern design combined with practical features such as **fully dimmable controls** and integrated **USB A and C ports** along with an **outlet**, these lamps cater to users who want to enhance their workspace or bedside experience with convenience and elegance.
@@ -203,10 +203,10 @@ Featuring a **seeded clear glass shade**, these **Innqoo industrial table lamps*
 
 With dimensions designed to fit on a nightstand, desk, or side table, the lamps’ sturdy build and elegant black finish complement diverse interior styles, especially those favoring an industrial or contemporary look. The thoughtful design enhances functionality without sacrificing style, making these lamps a practical and attractive addition for anyone looking to improve both lighting and charging capabilities in their personal space.
 
-## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
 
 
 The **luckystyle LED Floor Lamp for Living Room** is ideal for individuals seeking a versatile and stylish lighting solution for their **bedroom, office, or kid's room**. This product is perfect for those who value customizable lighting with easy-to-use controls, making it suitable for reading, working, or creating a cozy ambiance. If you want a tall, modern lamp that blends functionality with design, this lamp is an excellent choice.
@@ -230,10 +230,10 @@ The **luckystyle LED Floor Lamp** combines modern technology with user-friendly 
 
 Constructed with a sleek **black pole** and a classic lampshade, the lamp complements diverse décor styles while standing tall at **63 inches**. This design ensures it fits comfortably in a variety of rooms without overwhelming the space. Additionally, the energy-efficient **12W LED bulb** offers bright illumination while keeping electricity costs low, making it an environmentally friendly and economical lighting choice.
 
-## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Bedside Table Lamp With Usb</a>
+## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Bedside Table Lamp With Usb</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
 
 
 The **Touch Bedside Table Lamp with USB** is ideal for individuals seeking a versatile and stylish lighting solution for their **bedroom nightstand**, **desk**, or any small space like a **dorm room**, **nursery**, or **office**. This lamp is perfect for those who value convenience, modern design, and multi-functionality, especially users who want adjustable lighting and easy device charging all in one compact unit.
@@ -256,10 +256,10 @@ This **Dicoool Touch Bedside Table Lamp** boasts a sleek and minimalist design t
 
 Beyond its functional features, the lamp is designed with compactness in mind. Its dimensions of **14 inches in height** and less than 5 inches in width and length make it perfect for limited spaces like dorm rooms, nurseries, or small offices. The combination of a warm **cream color** with a natural wood base adds a cozy yet sophisticated touch, enhancing the ambiance of any room. Lightweight and easy to move, this lamp provides users with both style and practicality in one package.
 
-## <a href="https://www.amazon.com/dp/B0C38TZDZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kakanuo Touch Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C38TZDZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kakanuo Touch Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C38TZDZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kakanuo Touch Table Lamp for Bedroom, Small Bedside Lamp with USB C Charging Port, 3 Way Dimmable Touch Control Nightstand Lamp for Living Room and Office, LED Bulb Included" src="https://m.media-amazon.com/images/I/51Y-vI5QHvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C38TZDZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kakanuo Touch Table Lamp for Bedroom, Small Bedside Lamp with USB C Charging Port, 3 Way Dimmable Touch Control Nightstand Lamp for Living Room and Office, LED Bulb Included" src="https://m.media-amazon.com/images/I/51Y-vI5QHvL._SL500_.jpg"/></a>
 
 
 The **Kakanuo Touch Table Lamp for Bedroom** is an excellent choice for individuals seeking a stylish and functional lighting solution for their **bedside**, **living room**, or **office**. Ideal for those who appreciate modern design combined with convenience, this lamp is perfect for users who want an easy-to-use touch control system and the added benefit of a **USB C charging port** to keep their devices powered throughout the night.

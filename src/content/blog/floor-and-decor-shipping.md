@@ -23,10 +23,10 @@ Shipping times vary based on your location and product availability. You can tra
 
 
 
-## <a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Con-tact Brand Flooradorn Apliques De Vinil Autoadesivos</a>
+## <a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Con-tact Brand Flooradorn Apliques De Vinil Autoadesivos</a>
 
 
-<a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Con-Tact Brand FloorAdorn Apliques de vinil autoadesivos, azulejos decorativos e removíveis, 30,5 x 30,5 cm, cor quadrada, 6 unidades" src="https://m.media-amazon.com/images/I/41MD+4NpawL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Con-Tact Brand FloorAdorn Apliques de vinil autoadesivos, azulejos decorativos e removíveis, 30,5 x 30,5 cm, cor quadrada, 6 unidades" src="https://m.media-amazon.com/images/I/41MD+4NpawL._SL500_.jpg"/></a>
 
 
 The **Con-Tact Brand FloorAdorn Apliques de vinil autoadesivos** are perfect for homeowners, renters, or DIY enthusiasts looking to easily update and decorate their floors without the hassle of permanent installation. Ideal for those who want a quick, stylish, and removable flooring solution, these decorative vinyl tiles offer a practical option for transforming spaces such as kitchens, bathrooms, or living areas.
@@ -49,7 +49,7 @@ The **Con-Tact Brand FloorAdorn Apliques de vinil autoadesivos** feature a self-
 
 Additionally, these **decorative and removable tiles** are manufactured by Kittrich, a trusted name in home décor solutions, ensuring quality and reliability. Their slim profile, measuring just 0.02 inches in height, means they won’t create tripping hazards or interfere with door clearances. Overall, these vinyl appliques provide an excellent balance of style, convenience, and functionality for anyone seeking a temporary yet attractive floor upgrade.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07JWQ8LC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

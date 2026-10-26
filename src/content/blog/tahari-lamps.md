@@ -23,10 +23,10 @@ The lamps often come in sets of two, perfect for bedside tables or end tables. T
 
 
 
-## <a href="https://www.amazon.com/dp/B0D4QWB3DR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vallerico 23.5" Alabaster Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D4QWB3DR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vallerico 23.5" Alabaster Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4QWB3DR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" 3-color="" alabaster="" alt="vallerico 23.5" bedroom,="" bedside="" bulbs="" for="" included"="" lamp="" lamp,="" lamps="" living="" marble="" nightlight,="" nightstand="" of="" ports,="" room="" set="" src="https://m.media-amazon.com/images/I/41NbWFq6ozL._SL500_.jpg" table="" temperatures="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D4QWB3DR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" 3-color="" alabaster="" alt="vallerico 23.5" bedroom,="" bedside="" bulbs="" for="" included"="" lamp="" lamp,="" lamps="" living="" marble="" nightlight,="" nightstand="" of="" ports,="" room="" set="" src="https://m.media-amazon.com/images/I/41NbWFq6ozL._SL500_.jpg" table="" temperatures="" usb="" with=""/></a>
 
 
 The **vallerico 23.5" Alabaster Lamp** set is ideal for individuals seeking a stylish and functional lighting solution for their **living room** or **bedroom**. Perfect for those who value ambiance control and modern convenience, this set of two **nightstand lamps** offers versatility and elegance, making it suitable for homeowners, renters, or anyone looking to enhance their bedside or table lighting experience.
@@ -49,10 +49,10 @@ The **vallerico Alabaster Lamp** set brings together aesthetic appeal and functi
 
 Moreover, the integrated **USB ports** add practicality by allowing users to charge their phones or other devices conveniently at the bedside, eliminating clutter from extra cables or chargers. The included **nightlight** feature provides a soft glow ideal for nighttime use, preventing harsh lighting disruptions. Altogether, this lamp set combines style, convenience, and functionality, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0F13P7T53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">25.6" Alabaster Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F13P7T53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">25.6" Alabaster Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F13P7T53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" 3-color="" alabaster="" alt="25.6" bedroom,="" bedside="" bulbs="" for="" included"="" lamp="" lamp,="" lamps="" living="" marble="" modern="" nightlight,="" nightstand="" of="" ports,="" room="" set="" src="https://m.media-amazon.com/images/I/41vcwi2Gc4L._SL500_.jpg" table="" temperatures="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0F13P7T53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2,="" 3-color="" alabaster="" alt="25.6" bedroom,="" bedside="" bulbs="" for="" included"="" lamp="" lamp,="" lamps="" living="" marble="" modern="" nightlight,="" nightstand="" of="" ports,="" room="" set="" src="https://m.media-amazon.com/images/I/41vcwi2Gc4L._SL500_.jpg" table="" temperatures="" usb="" with=""/></a>
 
 
 The **25.6" Alabaster Lamp** set is ideal for individuals seeking a blend of elegance and functionality in their living spaces. Perfect for those who want to enhance their **living room** or **bedroom** ambiance with a modern touch, this set of two **marble nightstand lamps** suits homeowners, interior decorators, and anyone who values stylish yet practical lighting solutions.
@@ -74,10 +74,10 @@ The **25.6" Alabaster Lamp** set features a sleek marble base combined with a mo
 
 Beyond its visual appeal, the lamps offer practical benefits with integrated **USB ports**, enabling convenient charging of smartphones or tablets without needing extra adapters. This modern feature makes the lamps highly functional for contemporary lifestyles. Additionally, the set comes with **bulbs included**, ensuring hassle-free setup and immediate use. Overall, the combination of style, versatility, and user-friendly features makes this lamp set a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0DN21MGZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brasslism Buffet Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DN21MGZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brasslism Buffet Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN21MGZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BRASSLISM Buffet Lamps Set of 2, 28.5”H Modern Luxury Lamps with Marble Base, Brass Finish and Linen Shade, UL Certified – Elegant Lighting for a Warm Atmosphere in Entryway, Living or Dining Room" src="https://m.media-amazon.com/images/I/41qkaPGnwlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN21MGZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BRASSLISM Buffet Lamps Set of 2, 28.5”H Modern Luxury Lamps with Marble Base, Brass Finish and Linen Shade, UL Certified – Elegant Lighting for a Warm Atmosphere in Entryway, Living or Dining Room" src="https://m.media-amazon.com/images/I/41qkaPGnwlL._SL500_.jpg"/></a>
 
 
 The **BRASSLISM Buffet Lamps Set of 2** is ideal for homeowners and interior enthusiasts seeking to enhance their living spaces with a touch of **modern luxury** and warmth. Perfect for those who want to elevate the ambiance in entryways, living rooms, or dining areas, these lamps blend style with functionality, appealing especially to individuals who appreciate elegant and durable home décor pieces.
@@ -100,10 +100,10 @@ Featuring a height of **28.5 inches**, the BRASSLISM Buffet Lamps provide ample 
 
 The **linen shade** plays a key role in diffusing the light softly, contributing to a cozy and inviting atmosphere. This feature is especially beneficial in social spaces where warm lighting encourages relaxation and comfort. Additionally, the lamps’ **UL certification** guarantees users a safe and reliable product, giving peace of mind alongside aesthetic appeal. Overall, these buffet lamps are an excellent investment for anyone looking to combine elegance with practicality in home lighting.
 
-## <a href="https://www.amazon.com/dp/B0D8WBF9NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Marble Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D8WBF9NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Marble Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8WBF9NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Marble Table Lamps Set of 2: 3-Color Temperatures Alabaster Lamp with Nightlight, Bedside Lamps with USB Ports, Bedroom Lamps for Night Stands End Table Lamps for Living Room, Bulbs Included" src="https://m.media-amazon.com/images/I/41XqtumkP3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8WBF9NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Marble Table Lamps Set of 2: 3-Color Temperatures Alabaster Lamp with Nightlight, Bedside Lamps with USB Ports, Bedroom Lamps for Night Stands End Table Lamps for Living Room, Bulbs Included" src="https://m.media-amazon.com/images/I/41XqtumkP3L._SL500_.jpg"/></a>
 
 
 The **Natural Marble Table Lamps Set of 2** is perfect for individuals seeking elegant and functional lighting solutions for their bedroom or living room. Ideal for those who appreciate stylish décor combined with practical features, these lamps cater to users who want customizable lighting options and the convenience of built-in USB ports for charging devices. If you want to enhance your nightstand or end table with a touch of luxury and versatility, this set is an excellent choice.
@@ -127,10 +127,10 @@ The **Natural Marble Table Lamps Set** combines sophisticated aesthetics with pr
 
 Additionally, these lamps are designed with convenience in mind. The inclusion of **USB ports** means you can charge your devices without cluttering your bedside or living room area with extra cords or chargers. The nightlight feature provides subtle illumination that’s perfect for nighttime use, enhancing safety and comfort without disturbing your rest. Overall, this set offers both style and functionality to elevate your living space.
 
-## <a href="https://www.amazon.com/dp/B07GY3WZT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6201a Elizabeth 27.5" Alabaster Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07GY3WZT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6201a Elizabeth 27.5" Alabaster Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07GY3WZT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alabaster="" alt="JONATHAN Y JYL6201A Elizabeth 27.5" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" contemporary="" desk="" for="" gold="" included,="" lamp="" leaf"="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31IhiOvL0oL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07GY3WZT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alabaster="" alt="JONATHAN Y JYL6201A Elizabeth 27.5" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" contemporary="" desk="" for="" gold="" included,="" lamp="" leaf"="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/31IhiOvL0oL._SL500_.jpg" table="" white=""/></a>
 
 
 The **JONATHAN Y JYL6201A Elizabeth 27.5" Alabaster LED Table Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom**, **living room**, **office**, or **college bookcase**. Those who appreciate a blend of **coastal contemporary design** and practical illumination will find this lamp perfect for enhancing their space with both ambiance and utility. It suits anyone looking to add a touch of elegance with a compact yet striking lamp that includes an energy-efficient **LED bulb**.
@@ -153,10 +153,10 @@ The **JONATHAN Y JYL6201A Elizabeth Table Lamp** features a sleek **27.5-inch he
 
 Designed with convenience in mind, this lamp comes with an **LED bulb included**, ensuring immediate use while also promoting energy efficiency. The lightweight design allows users to easily move the lamp between rooms or positions, enhancing versatility. Whether used on a bedside table, desk, or bookcase, the lamp provides consistent lighting that supports various activities, making it a practical and stylish lighting choice for diverse environments.
 
-## <a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Control Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Touch Control Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Control Table Lamps Set of 2, Modern Ceramic Bedside Lamp with 2 USB Ports 1 AC Outlet, 3-Way Dimmable White Nightstand Lamp with Fabric Shade for Living Room, Bedroom (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/4112ggp+AgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BM3KD4ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Touch Control Table Lamps Set of 2, Modern Ceramic Bedside Lamp with 2 USB Ports 1 AC Outlet, 3-Way Dimmable White Nightstand Lamp with Fabric Shade for Living Room, Bedroom (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/4112ggp+AgL._SL500_.jpg"/></a>
 
 
 The **Touch Control Table Lamps Set of 2** is ideal for individuals looking to enhance their **living room** or **bedroom** ambiance with modern, functional lighting. Perfect for those who appreciate sleek design combined with practical features like **USB ports** and an **AC outlet**, this set is especially suited for tech-savvy users, students, or professionals who need convenient charging options beside their bedside or workspace.
@@ -179,10 +179,10 @@ These **modern ceramic bedside lamps** feature a sleek white design that blends 
 
 The **3-way dimmable** functionality provides flexibility for different lighting needs, whether it’s soft lighting for relaxation or brighter illumination for reading or working. The **fabric shade** diffuses light gently, creating a warm and inviting atmosphere. Additionally, the lamps come with **LED bulbs included**, ensuring energy efficiency and long-lasting performance right out of the box. Overall, this set combines style, functionality, and convenience, making it a smart choice for anyone seeking to upgrade their room’s lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 27.5'' Tall Table Lamps For Living Room Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 27.5'' Tall Table Lamps For Living Room Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 27.5'' Tall Table Lamps for Living Room Set of 2, Ceramic Bedroom Lamps for Night Stands, Modern Bedside Lamps for Bedroom Living Room, Nightstand Lamps for End Table, Hallway, Gold and White" src="https://m.media-amazon.com/images/I/415X5cE+5UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCJZBCLV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PoKat 27.5'' Tall Table Lamps for Living Room Set of 2, Ceramic Bedroom Lamps for Night Stands, Modern Bedside Lamps for Bedroom Living Room, Nightstand Lamps for End Table, Hallway, Gold and White" src="https://m.media-amazon.com/images/I/415X5cE+5UL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking to enhance their living space with stylish and functional lighting, the **PoKat 27.5'' Tall Table Lamps** are perfect for those who want modern bedside or living room lamps that combine aesthetics with practicality. These lamps are especially suited for homeowners or renters looking to add a touch of elegance and warmth to their **bedrooms, living rooms, hallways,** or **end tables**.
@@ -205,10 +205,10 @@ The **PoKat 27.5'' Tall Table Lamps** stand out with their sleek **ceramic const
 
 Designed by **PoKat Lighting**, these lamps blend modern aesthetics with practical features. The set of two lamps makes it simple to achieve a harmonious look on both sides of a bed or on matching end tables. Their neutral colors and elegant form factor mean they seamlessly integrate with a wide range of interior styles, enhancing the ambiance without overpowering the décor.
 
-## <a href="https://www.amazon.com/dp/B0BL144VL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Qimh Gold Table Lamps For Bedroom Set Of 2 With Nightlight</a>
+## <a href="https://www.amazon.com/dp/B0BL144VL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Qimh Gold Table Lamps For Bedroom Set Of 2 With Nightlight</a>
 
 
-<a href="https://www.amazon.com/dp/B0BL144VL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QiMH Gold Table Lamps for Bedroom Set of 2 with Nightlight, Modern Bedside Lamp with 2 USB A+C Charging Port, Clear Nightstand Lamp for Living Room White Shade Home Light Decor(LED Bulbs Included)" src="https://m.media-amazon.com/images/I/41ped1uunLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BL144VL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QiMH Gold Table Lamps for Bedroom Set of 2 with Nightlight, Modern Bedside Lamp with 2 USB A+C Charging Port, Clear Nightstand Lamp for Living Room White Shade Home Light Decor(LED Bulbs Included)" src="https://m.media-amazon.com/images/I/41ped1uunLL._SL500_.jpg"/></a>
 
 
 The **QiMH Gold Table Lamps for Bedroom Set of 2** are ideal for individuals seeking a stylish and functional lighting solution for their **bedroom** or **living room**. Perfect for those who value modern design combined with practical features such as built-in USB charging ports and a clear nightlight, this set is especially suitable for users who want to enhance their space with elegant decor while staying connected with convenient device charging options.
@@ -230,10 +230,10 @@ The **QiMH Gold Table Lamps** feature a modern aesthetic with a sophisticated br
 
 Additionally, the lamps come equipped with clear nightlight functionality, which creates a soft glow ideal for nighttime visibility without disturbing sleep. The included LED bulbs ensure energy efficiency and longevity, meaning users enjoy bright illumination with minimal maintenance. Their substantial dimensions make these lamps a prominent décor piece while delivering sufficient light coverage for reading or relaxing.
 
-## <a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Alabaster Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Alabaster Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Alabaster Table Lamp,Living Room Lamps Set of 2,Nightstand Lamp with Night Light,Lamps for Living Room With Linen Fabric Shade,Bedside Lamp with Usb A+C Ports for Bedroom,Hotel(Bulb Included)" src="https://m.media-amazon.com/images/I/415wOVci0NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6K3SDKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Natural Alabaster Table Lamp,Living Room Lamps Set of 2,Nightstand Lamp with Night Light,Lamps for Living Room With Linen Fabric Shade,Bedside Lamp with Usb A+C Ports for Bedroom,Hotel(Bulb Included)" src="https://m.media-amazon.com/images/I/415wOVci0NL._SL500_.jpg"/></a>
 
 
 The **Natural Alabaster Table Lamp** set is perfect for those looking to enhance their **living room** or **bedroom** ambiance with a blend of elegance and functionality. Ideal for homeowners, hotel decorators, and anyone who appreciates stylish lighting solutions, this lamp set combines natural materials with modern convenience, making it a great buy for individuals who want both aesthetic appeal and practical features in their lighting.
@@ -257,10 +257,10 @@ Crafted by **Scenekoy**, this **Natural Alabaster Table Lamp** set stands out fo
 
 Beyond aesthetics, the lamps offer practical benefits such as integrated **USB A+C ports**, allowing users to conveniently charge smartphones, tablets, or other devices without needing additional adapters or cluttering the space with cables. The included bulbs further add to the convenience, making these lamps a complete lighting solution that balances style with utility, fitting perfectly in homes, hotels, or any space that values both design and functionality.
 
-## <a href="https://www.amazon.com/dp/B0D7GWWN6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 27" Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D7GWWN6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 27" Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7GWWN6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2="" alt="PORTRES 27" bedroom="" bedside="" ceramic="" end="" for="" gold="" green="" lamp="" lamps="" lamps"="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/418xDyNBzQL._SL500_.jpg" table="" tall=""/></a>
+<a href="https://www.amazon.com/dp/B0D7GWWN6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2="" alt="PORTRES 27" bedroom="" bedside="" ceramic="" end="" for="" gold="" green="" lamp="" lamps="" lamps"="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/418xDyNBzQL._SL500_.jpg" table="" tall=""/></a>
 
 
 The **PORTRES 27" Modern Ceramic Table Lamp Set of 2** is ideal for individuals looking to elevate their **living room** or **bedroom décor** with stylish and functional lighting. Perfect for homeowners, interior design enthusiasts, or anyone seeking a chic **green and gold bedside lamp** to complement their nightstand or tall end table, this set offers both aesthetic appeal and practical illumination.

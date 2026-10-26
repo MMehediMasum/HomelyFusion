@@ -23,10 +23,10 @@ Vintage art featuring Edgar Allan Poe quotes enriches the room with literary mys
 
 
 
-## <a href="https://www.amazon.com/dp/B0D7RL7SBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gothic Home Decor Fake Crow Light Holder</a>
+## <a href="https://www.amazon.com/dp/B0D7RL7SBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gothic Home Decor Fake Crow Light Holder</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7RL7SBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gothic Home Decor Fake Crow Light Holder Halloween Decorations Indoor Raven Lamp Tealight Candle Holder Resin Statue Black" src="https://m.media-amazon.com/images/I/41OqdjZIWrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7RL7SBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gothic Home Decor Fake Crow Light Holder Halloween Decorations Indoor Raven Lamp Tealight Candle Holder Resin Statue Black" src="https://m.media-amazon.com/images/I/41OqdjZIWrL._SL500_.jpg"/></a>
 
 
 Ideal for fans of **gothic aesthetics** and those looking to enhance their **Halloween decorations**, the **Gothic Home Decor Fake Crow Light Holder** is perfect for individuals who appreciate unique, thematic home accents. Whether you're decorating for a spooky season or want to add a touch of eerie charm to your indoor space, this **resin raven lamp** appeals to collectors and enthusiasts of dark, mysterious decor.
@@ -49,10 +49,10 @@ The **Gothic Home Decor Fake Crow Light Holder** stands out with its intricately
 
 Beyond its visual appeal, this item serves a functional purpose as a **tealight candle holder**, casting soft, flickering light that brings warmth and depth to any room. Its manageable size and lightweight design offer versatility, allowing users to easily incorporate it into various indoor settings such as living rooms, bedrooms, or entryways. Overall, this piece combines style and practicality, making it a valuable addition for anyone looking to enrich their home with gothic charm.
 
-## <a href="https://www.amazon.com/dp/B07ZD4P926?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edgar Allan Poe Quote Dictionary Art Wall Decor</a>
+## <a href="https://www.amazon.com/dp/B07ZD4P926?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edgar Allan Poe Quote Dictionary Art Wall Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZD4P926?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edgar Allan Poe Quote 8x10 Dictionary Art Wall Decor Picture - Upcycled Vintage Retro Decoration for Home, Office, Apartment, Living Room, Bedroom, Bathroom - Gift for Poetry Fans" src="https://m.media-amazon.com/images/I/61BpxbrMHIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZD4P926?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edgar Allan Poe Quote 8x10 Dictionary Art Wall Decor Picture - Upcycled Vintage Retro Decoration for Home, Office, Apartment, Living Room, Bedroom, Bathroom - Gift for Poetry Fans" src="https://m.media-amazon.com/images/I/61BpxbrMHIL._SL500_.jpg"/></a>
 
 
 The **Edgar Allan Poe Quote 8x10 Dictionary Art Wall Decor Picture** is perfect for **poetry fans**, literature enthusiasts, and anyone looking to add a touch of **vintage retro style** to their **home, office, or apartment**. This unique piece appeals to those who appreciate classic literary quotes and want to showcase their love for Edgar Allan Poe in a stylish and meaningful way. Ideal for decorating spaces such as the **living room, bedroom, or bathroom**, it also makes an excellent gift for friends or family who cherish poetry.
@@ -74,10 +74,10 @@ This **dictionary art wall decor** combines the allure of Edgar Allan Poe's time
 
 Beyond its visual appeal, this wall decor offers meaningful inspiration through Poe’s words, providing a daily reminder of literary beauty and depth. Crafted by **YELLOWBIRD ART & DESIGN**, it reflects both artistic quality and environmental consciousness by utilizing upcycled materials. Whether used to enhance a personal sanctuary or given as a thoughtful gift, this piece enriches spaces with culture and character.
 
-## <a href="https://www.amazon.com/dp/B0FB97N7D9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesua Halloween Decorations Indoor - Set Of 3 Wall-mounted Creepy Skeleton Hands</a>
+## <a href="https://www.amazon.com/dp/B0FB97N7D9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesua Halloween Decorations Indoor - Set Of 3 Wall-mounted Creepy Skeleton Hands</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB97N7D9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zesua Halloween Decorations Indoor - Set of 3 Wall-Mounted Creepy Skeleton Hands for Gothic Home Decor - Life-Size Spooky Reaching Hands for Home Party Living Room Indoor Outdoor Halloween Decor" src="https://m.media-amazon.com/images/I/41wxG3ZbioL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB97N7D9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zesua Halloween Decorations Indoor - Set of 3 Wall-Mounted Creepy Skeleton Hands for Gothic Home Decor - Life-Size Spooky Reaching Hands for Home Party Living Room Indoor Outdoor Halloween Decor" src="https://m.media-amazon.com/images/I/41wxG3ZbioL._SL500_.jpg"/></a>
 
 
 The **Zesua Halloween Decorations Indoor** set is perfect for individuals who love to create an immersive and spooky atmosphere for their **Halloween parties** or gothic-themed home decor. If you are someone who enjoys enhancing your living space with eerie, life-size accents that grab attention, these **creepy skeleton hands** are an ideal choice. Whether you want to add a chilling touch to your indoor or outdoor areas, this set of three wall-mounted hands is designed for those who appreciate unique and dramatic **Halloween decorations**.
@@ -99,10 +99,10 @@ The **Zesua Halloween Decorations Indoor** set features three life-size skeleton
 
 Crafted by the trusted **Zesua** brand, these skeleton hands are built to last and withstand the elements if used outdoors. Their creepy reaching pose evokes a chilling atmosphere perfect for Halloween enthusiasts who want to impress guests with attention-grabbing decor. Whether you are decorating for a themed party or simply want to add a haunting touch to your home, these skeleton hands combine style and functionality, making your Halloween celebration unforgettable.
 
-## <a href="https://www.amazon.com/dp/B0C8T92RLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skeleton Candle Halloween Decorations</a>
+## <a href="https://www.amazon.com/dp/B0C8T92RLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skeleton Candle Halloween Decorations</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8T92RLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skeleton Candle Halloween Decorations Indoor, Gothic Vintage Fall Home Decor for Farmhouse Room Apartment Table Desk, Gag Birthday White Elephant Gifts Witchy Gifts for Women Men Friends" src="https://m.media-amazon.com/images/I/41i0zYq5EdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8T92RLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skeleton Candle Halloween Decorations Indoor, Gothic Vintage Fall Home Decor for Farmhouse Room Apartment Table Desk, Gag Birthday White Elephant Gifts Witchy Gifts for Women Men Friends" src="https://m.media-amazon.com/images/I/41i0zYq5EdL._SL500_.jpg"/></a>
 
 
 The **Skeleton Candle Halloween Decorations Indoor** is perfect for individuals who love to infuse their living spaces with a touch of **gothic vintage** charm, especially during the fall season. Ideal for those who appreciate unique **farmhouse decor**, this candle is a great choice for apartment dwellers, homeowners, and anyone looking to add a spooky yet stylish accent to their table or desk. It also serves as a fun and quirky gift option for friends and family who enjoy **witchy gifts** or themed birthday presents.
@@ -125,10 +125,10 @@ The **Skeleton Candle** stands out with its intricate design that blends **Hallo
 
 Beyond its visual appeal, this candle serves as an excellent conversation starter and a unique gift option. Whether you’re decorating your own home or searching for a memorable present for friends who enjoy quirky and thematic items, this candle delivers both charm and personality. Its design evokes a witchy vibe that resonates well with fans of alternative and vintage styles, making it a standout addition to any collection of seasonal or gothic decorations.
 
-## <a href="https://www.amazon.com/dp/B08XW89Q2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Newman House Studio Halloween Statues No-evil Skeleton Collectible-figurines</a>
+## <a href="https://www.amazon.com/dp/B08XW89Q2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Newman House Studio Halloween Statues No-evil Skeleton Collectible-figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B08XW89Q2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Newman House Studio Halloween Statues No-Evil Skeleton Collectible-Figurines - Realistic Skull Decorations See Speak Hear No Evil Home Decor Set of 3, 2.3L x 4W x 4.3H inch" src="https://m.media-amazon.com/images/I/41tHVX-7bwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08XW89Q2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Newman House Studio Halloween Statues No-Evil Skeleton Collectible-Figurines - Realistic Skull Decorations See Speak Hear No Evil Home Decor Set of 3, 2.3L x 4W x 4.3H inch" src="https://m.media-amazon.com/images/I/41tHVX-7bwL._SL500_.jpg"/></a>
 
 
 The **Newman House Studio Halloween Statues No-Evil Skeleton Collectible-Figurines** are perfect for individuals who love unique and spooky home decor, especially during the Halloween season. These figurines are ideal for collectors of skeleton-themed decorations, fans of realistic skull designs, or anyone looking to add a touch of eerie charm to their living space. If you appreciate detailed craftsmanship and want to embrace the classic "See Speak Hear No Evil" motif, this set of 3 statues is made for you.
@@ -150,10 +150,10 @@ The **Newman House Studio Halloween Statues** offer an impressive blend of artis
 
 Besides their aesthetic appeal, these collectible figurines bring a meaningful touch to your decor. The "See Speak Hear No Evil" theme encourages a playful yet philosophical reflection on morality, which can be a conversation starter among guests. Their durable build ensures they remain intact year after year, making them a worthy investment for your seasonal decorations or year-round gothic-inspired interior. Overall, this set adds both visual interest and symbolic depth to any home environment.
 
-## <a href="https://www.amazon.com/dp/B08FMS32P5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Thribartlive Raven On Skull Halloween Home Decor</a>
+## <a href="https://www.amazon.com/dp/B08FMS32P5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Thribartlive Raven On Skull Halloween Home Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B08FMS32P5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ThriBartLive Raven On Skull Halloween Home Decor - Gothic Crow On Skull Statue, Bird Perching On Skeleton Figurine, Macabre Ossuary Sculpture" src="https://m.media-amazon.com/images/I/41qTBaEx+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08FMS32P5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ThriBartLive Raven On Skull Halloween Home Decor - Gothic Crow On Skull Statue, Bird Perching On Skeleton Figurine, Macabre Ossuary Sculpture" src="https://m.media-amazon.com/images/I/41qTBaEx+LL._SL500_.jpg"/></a>
 
 
 The **ThriBartLive Raven On Skull Halloween Home Decor** is perfect for those who appreciate **gothic** and **macabre aesthetics**. Ideal customers include **Halloween enthusiasts**, **collectors of unique home decor**, and anyone looking to add a **dark, mysterious vibe** to their living space. This piece suits people who enjoy **artistic skeleton figurines** and want to make a bold statement with their decorations.
@@ -175,10 +175,10 @@ The **ThriBartLive Raven On Skull** statue offers a striking blend of **artistry
 
 Crafted by **ThriBartLive**, this piece promises quality and attention to detail. The gothic design not only serves as a seasonal decoration but also as a year-round conversation starter for fans of the **macabre**. Whether placed on a mantel, bookshelf, or desk, it adds an element of dark elegance and intrigue to any environment.
 
-## <a href="https://www.amazon.com/dp/B0CRZ3NKCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bbto Boho Skull Wall Decor</a>
+## <a href="https://www.amazon.com/dp/B0CRZ3NKCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bbto Boho Skull Wall Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRZ3NKCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BBTO 6 Pcs Boho Skull Wall Decor Moon Stars Sun Wall Decor Hanging Gothic Wooden Minimalist Wall Pediments for Home Bedroom Living Room Farmhouse Bathroom Decorations" src="https://m.media-amazon.com/images/I/51ZuFqFkbmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRZ3NKCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BBTO 6 Pcs Boho Skull Wall Decor Moon Stars Sun Wall Decor Hanging Gothic Wooden Minimalist Wall Pediments for Home Bedroom Living Room Farmhouse Bathroom Decorations" src="https://m.media-amazon.com/images/I/51ZuFqFkbmL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate a blend of **bohemian** and **gothic aesthetics**, the **BBTO 6 Pcs Boho Skull Wall Decor** is perfect for individuals looking to add a unique and minimalist touch to their **home, bedroom, living room, farmhouse, or bathroom**. If you enjoy distinctive **wooden wall pediments** featuring symbolic elements like the **moon, stars, sun, and skulls**, this decorative set will suit your style and enhance your living space.
@@ -201,10 +201,10 @@ The **BBTO 6 Pcs Boho Skull Wall Decor** offers a distinctive collection of wood
 
 Beyond aesthetics, these wall decorations bring a sense of personality and thematic coherence to interiors that lean towards **boho, gothic, or minimalist styles**. The lightweight nature of the items simplifies installation, while the wooden material adds a warm, organic texture to any room. Whether placed in a living room, bedroom, or even a farmhouse-style bathroom, the set elevates the environment by combining artistry with meaningful symbolism.
 
-## <a href="https://www.amazon.com/dp/B0CCQM2SQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Huwena 6 Pcs Goth Room Decor</a>
+## <a href="https://www.amazon.com/dp/B0CCQM2SQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Huwena 6 Pcs Goth Room Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCQM2SQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Huwena 6 Pcs Goth Room Decor Gothic Wall Decor, Moon Stars Sun Phases Skull Snake Pattern, Boho Art Minimalist Wooden Farmhouse Rustic Home Decoration" src="https://m.media-amazon.com/images/I/51o91eXywXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCQM2SQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Huwena 6 Pcs Goth Room Decor Gothic Wall Decor, Moon Stars Sun Phases Skull Snake Pattern, Boho Art Minimalist Wooden Farmhouse Rustic Home Decoration" src="https://m.media-amazon.com/images/I/51o91eXywXL._SL500_.jpg"/></a>
 
 
 The **Huwena 6 Pcs Goth Room Decor** is perfect for individuals who appreciate **boho** and **minimalist** aesthetics with a gothic twist. If you are looking to add a unique touch to your living space, especially if you enjoy themes involving **moon phases**, **skulls**, and **rustic farmhouse** vibes, this set is an ideal choice. It suits those who want to express their personality through **artistic wooden wall decorations** that blend gothic and rustic styles seamlessly.
@@ -227,10 +227,10 @@ The **Huwena 6 Pcs Goth Room Decor** set offers a thoughtfully curated selection
 
 Crafted with durability and style in mind, the **black wooden material** complements a variety of interior designs, from **boho** to **farmhouse**. The lightweight nature and manageable dimensions make installation straightforward, allowing you to transform your living space quickly. This decor set is especially beneficial for those who want to personalize their environment with meaningful and eye-catching artwork that reflects their unique taste.
 
-## <a href="https://www.amazon.com/dp/B0D4TH1KSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fotn Witchy Hand Book Stand Halloween Decor Bookends</a>
+## <a href="https://www.amazon.com/dp/B0D4TH1KSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fotn Witchy Hand Book Stand Halloween Decor Bookends</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4TH1KSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FOTN Witchy Hand Book Stand Halloween Decor Bookends,Gothic Home Decor Bookends for Shelves,Horror Resin Ghost Hand Bookshelf Decoration,for Study Office Home Halloween Decorations (Black)" src="https://m.media-amazon.com/images/I/516TdSMLVsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4TH1KSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FOTN Witchy Hand Book Stand Halloween Decor Bookends,Gothic Home Decor Bookends for Shelves,Horror Resin Ghost Hand Bookshelf Decoration,for Study Office Home Halloween Decorations (Black)" src="https://m.media-amazon.com/images/I/516TdSMLVsL._SL500_.jpg"/></a>
 
 
 Ideal for lovers of **Halloween decor** and fans of **gothic aesthetics**, the **FOTN Witchy Hand Book Stand** is perfect for anyone looking to add a spooky yet stylish touch to their **study, office, or home shelves**. If you enjoy unique and eerie decorations that double as functional bookends, this item is tailored for you.
@@ -253,10 +253,10 @@ The **FOTN Witchy Hand Book Stand** boasts a uniquely eerie design featuring gho
 
 Designed with attention to detail, these bookends blend seamlessly into **Halloween decorations** or any gothic-inspired space. Their sturdy build ensures durability, while the compact size means they won't overwhelm your shelf. Whether you're organizing your favorite horror novels or showcasing your collection of spellbooks, this book stand offers both stability and style.
 
-## <a href="https://www.amazon.com/dp/B0BYMD6K9R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ella &amp; Emma Wall Mounted Coffin-shaped Key Holder</a>
+## <a href="https://www.amazon.com/dp/B0BYMD6K9R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ella &amp; Emma Wall Mounted Coffin-shaped Key Holder</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYMD6K9R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ella &amp; Emma Wall Mounted Coffin-Shaped Key Holder - Planchette/Hamsa Hand Key Holder, Gothic Home Decor Wall Hanger with Hook -Spooky Halloween Decor for Home - 2 Pieces (Planchette)" src="https://m.media-amazon.com/images/I/41r68XMTyQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYMD6K9R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ella &amp; Emma Wall Mounted Coffin-Shaped Key Holder - Planchette/Hamsa Hand Key Holder, Gothic Home Decor Wall Hanger with Hook -Spooky Halloween Decor for Home - 2 Pieces (Planchette)" src="https://m.media-amazon.com/images/I/41r68XMTyQL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate unique and **gothic home decor**, the **Ella & Emma Wall Mounted Coffin-Shaped Key Holder** is perfect for individuals looking to add a spooky yet stylish touch to their living space. This product is especially suited for fans of **Halloween-themed decorations** or those who enjoy **planchette** and **Hamsa hand motifs** in their home accessories. If you want a functional key holder that doubles as an eye-catching statement piece, this item is a great choice.

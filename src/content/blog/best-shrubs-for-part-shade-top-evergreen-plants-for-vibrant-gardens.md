@@ -23,10 +23,10 @@ Shrubs like October Magic Dawn Camellia and Purple Pixie Loropetalum bring vibra
 
 
 
-## <a href="https://www.amazon.com/dp/B015X1V3SS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">October Magic Dawn Camellia</a>
+## <a href="https://www.amazon.com/dp/B015X1V3SS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">October Magic Dawn Camellia</a>
 
 
-<a href="https://www.amazon.com/dp/B015X1V3SS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="October Magic Dawn Camellia (2.5 Quart) Flowering Evergreen Shrub with Pink and White Blooms - Full Sun to Part Shade Live Outdoor Plant - Southern Living Plants" src="https://m.media-amazon.com/images/I/51CcmtR-VLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015X1V3SS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="October Magic Dawn Camellia (2.5 Quart) Flowering Evergreen Shrub with Pink and White Blooms - Full Sun to Part Shade Live Outdoor Plant - Southern Living Plants" src="https://m.media-amazon.com/images/I/51CcmtR-VLL._SL500_.jpg"/></a>
 
 
 The **October Magic Dawn Camellia (2.5 Quart)** is an ideal choice for garden enthusiasts and homeowners seeking a vibrant, low-maintenance **flowering evergreen shrub**. Perfect for those who want to add a splash of **pink and white blooms** to their outdoor space, this plant thrives in **full sun to part shade** conditions, making it suitable for various climates and garden locations.
@@ -48,10 +48,10 @@ The **October Magic Dawn Camellia** stands out with its striking **pink and whit
 
 Designed by the **Southern Living Plant Collection**, this plant is bred for durability and beauty. The ability to grow in **full sun to part shade** gives gardeners flexibility in placement, while the robust growth habit ensures it will thrive with minimal fuss. Whether you're a novice gardener or an experienced landscaper, the **October Magic Dawn Camellia** delivers both aesthetic charm and dependable performance.
 
-## <a href="https://www.amazon.com/dp/B084DVW32R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Parsoni Juniper</a>
+## <a href="https://www.amazon.com/dp/B084DVW32R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Parsoni Juniper</a>
 
 
-<a href="https://www.amazon.com/dp/B084DVW32R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Parsoni Juniper (2.5 Quart) Low-Growing Evergreen Shrub with Grayish Blue-Green Foliage - Live Outdoor Full Sun to Part Shade Plant" src="https://m.media-amazon.com/images/I/31D1NlTzTfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084DVW32R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Parsoni Juniper (2.5 Quart) Low-Growing Evergreen Shrub with Grayish Blue-Green Foliage - Live Outdoor Full Sun to Part Shade Plant" src="https://m.media-amazon.com/images/I/31D1NlTzTfL._SL500_.jpg"/></a>
 
 
 Ideal for gardening enthusiasts and homeowners looking to enhance their outdoor space with a low-maintenance, visually appealing shrub, the **Parsoni Juniper (2.5 Quart)** is perfect for those who want a hardy, evergreen plant that thrives in both full sun and part shade. This plant suits individuals who appreciate year-round greenery and want to add texture and color with its distinctive **grayish blue-green foliage**.
@@ -75,10 +75,10 @@ The **Parsoni Juniper** stands out with its **resilient nature** and adaptabilit
 
 Beyond aesthetics, the shrub’s evergreen nature provides consistent greenery throughout the year, offering year-round visual interest and enhancing curb appeal. Its **grayish blue-green foliage** adds a cool-toned contrast against other plants, creating depth and diversity in garden compositions. Moreover, the plant's low maintenance requirements make it a practical option for both novice and experienced gardeners seeking long-lasting beauty with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B015X1VC7U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Golden Euonymus</a>
+## <a href="https://www.amazon.com/dp/B015X1VC7U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Golden Euonymus</a>
 
 
-<a href="https://www.amazon.com/dp/B015X1VC7U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Golden Euonymus (2.5 Gallon) Green and Yellow Variegated Evergreen Shrub - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/418b968+VLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015X1VC7U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Golden Euonymus (2.5 Gallon) Green and Yellow Variegated Evergreen Shrub - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/418b968+VLL._SL500_.jpg"/></a>
 
 
 The **Golden Euonymus (2.5 Gallon)** is an ideal choice for gardeners and landscapers looking to add a vibrant splash of color to their outdoor spaces. Perfect for those who want a low-maintenance yet visually striking evergreen shrub, this plant thrives in both **full sun to part shade** environments. Whether you’re a homeowner aiming to enhance your garden’s curb appeal or a professional landscaper seeking reliable, hardy greenery, this **green and yellow variegated shrub** offers versatility and beauty.
@@ -101,10 +101,10 @@ The **Golden Euonymus** stands out with its striking variegated leaves that blen
 
 Additionally, the plant’s adaptability to both **full sun and part shade** conditions allows for flexible placement options, accommodating a wide range of landscaping needs. This resilience also contributes to its ease of care, making it suitable for both novice and experienced gardeners. Delivered as a healthy live plant from **Plants by Mail**, it ensures a strong start in your outdoor space, promising growth and vibrancy with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B06XCYKG5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mountain Snow Pieris</a>
+## <a href="https://www.amazon.com/dp/B06XCYKG5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mountain Snow Pieris</a>
 
 
-<a href="https://www.amazon.com/dp/B06XCYKG5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mountain Snow Pieris (2 Gallon) Blooming Evergreen Shrub with White Flowers - Part Shade to Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41k85+vlD4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XCYKG5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mountain Snow Pieris (2 Gallon) Blooming Evergreen Shrub with White Flowers - Part Shade to Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41k85+vlD4L._SL500_.jpg"/></a>
 
 
 The **Mountain Snow Pieris (2 Gallon)** is ideal for gardening enthusiasts and homeowners looking to enhance their outdoor spaces with a low-maintenance, visually appealing evergreen shrub. Perfect for those who want to add year-round greenery combined with seasonal white blooms, this plant thrives in **part shade to shade** environments, making it suitable for shaded garden corners or under taller trees. If you seek a plant that brings both texture and color without demanding excessive sunlight, this shrub is an excellent choice.
@@ -127,10 +127,10 @@ The **Mountain Snow Pieris** showcases lush green foliage that remains vibrant t
 
 Additionally, the shrub’s compact dimensions (28 inches in height and 10 inches in width) allow it to be used in a variety of garden designs, from borders to container planting. With its moderate weight and manageable size, it is suitable for both novice and experienced gardeners. As part of the trusted **Southern Living Plant Collection**, buyers can expect a quality plant that will enhance their outdoor living spaces with minimal maintenance and maximum visual impact.
 
-## <a href="https://www.amazon.com/dp/B0C542P5R9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blooming &amp; Beautiful Marvel Mahonia</a>
+## <a href="https://www.amazon.com/dp/B0C542P5R9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blooming &amp; Beautiful Marvel Mahonia</a>
 
 
-<a href="https://www.amazon.com/dp/B0C542P5R9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blooming &amp; Beautiful - Marvel Mahonia - 3 gal - Southern Living - Evergreen Shrub - Fragrant Yellow Flowers - Fall Berries - Shade-Loving -Zones 6-9 - Mahonia 'Marvel' PP24079-3 Gallon Pot" src="https://m.media-amazon.com/images/I/51zttM+mhfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C542P5R9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blooming &amp; Beautiful - Marvel Mahonia - 3 gal - Southern Living - Evergreen Shrub - Fragrant Yellow Flowers - Fall Berries - Shade-Loving -Zones 6-9 - Mahonia 'Marvel' PP24079-3 Gallon Pot" src="https://m.media-amazon.com/images/I/51zttM+mhfL._SL500_.jpg"/></a>
 
 
 The **Blooming & Beautiful - Marvel Mahonia** is ideal for gardeners and landscapers seeking an **evergreen shrub** that thrives in **shade-loving** environments. Perfect for zones **6-9**, this plant is suited for those who want to add year-round interest and color to shaded garden areas with minimal maintenance. If you desire a shrub that offers both **fragrant yellow flowers** and attractive **fall berries**, this **3-gallon Mahonia 'Marvel'** is an excellent choice.
@@ -154,10 +154,10 @@ The **Marvel Mahonia** by **Blooming & Beautiful** features vibrant **fragrant y
 
 This shrub’s adaptability to zones **6 through 9** makes it a versatile choice for a variety of climates, while its tolerance for shade expands planting options in areas with limited sunlight. The **3-gallon pot** size offers a robust start for gardeners, ensuring quicker establishment and growth. Whether used as a standalone specimen or incorporated into a mixed shrub border, the **Marvel Mahonia** combines aesthetic appeal with practical benefits, making it a valuable addition to many gardens.
 
-## <a href="https://www.amazon.com/dp/B0B18VM72M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plants By Mail Scentamazing Gardenia</a>
+## <a href="https://www.amazon.com/dp/B0B18VM72M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plants By Mail Scentamazing Gardenia</a>
 
 
-<a href="https://www.amazon.com/dp/B0B18VM72M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plants by Mail Scentamazing Gardenia (2 Gallon) Blooming Evergreen Shrub with White Fragrant Flowers - Full Sun to Part Shade Live Outdoor Plant/Bush" src="https://m.media-amazon.com/images/I/51JbdZOOYCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B18VM72M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plants by Mail Scentamazing Gardenia (2 Gallon) Blooming Evergreen Shrub with White Fragrant Flowers - Full Sun to Part Shade Live Outdoor Plant/Bush" src="https://m.media-amazon.com/images/I/51JbdZOOYCL._SL500_.jpg"/></a>
 
 
 The **Plants by Mail Scentamazing Gardenia (2 Gallon)** is ideal for gardening enthusiasts and homeowners looking to add a touch of elegance and fragrance to their outdoor spaces. This **blooming evergreen shrub** with **white fragrant flowers** thrives in **full sun to part shade**, making it perfect for a variety of climates and garden setups. If you want a low-maintenance, visually stunning plant that also offers delightful scents, this is the perfect choice for you.
@@ -180,10 +180,10 @@ This **2 gallon Gardenia shrub** by **Plants by Mail** is designed to provide bo
 
 The compact size of the shrub allows it to fit well in smaller garden spaces, patios, or even large containers. Delivered live and healthy, it reduces the initial hassle of starting from seeds or cuttings. Gardenia’s natural resilience combined with its elegant appearance makes it a valuable addition for those who appreciate both form and function in their garden plants. Overall, this shrub offers a blend of beauty, fragrance, and practicality for outdoor gardening enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09KVFX4YK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plants By Mail Yuletide Camellia</a>
+## <a href="https://www.amazon.com/dp/B09KVFX4YK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plants By Mail Yuletide Camellia</a>
 
 
-<a href="https://www.amazon.com/dp/B09KVFX4YK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plants by Mail Yuletide Camellia (2.4 Gallon) Blooming Evergreen Shrub with Red Flowers - Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41WciquVe3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KVFX4YK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plants by Mail Yuletide Camellia (2.4 Gallon) Blooming Evergreen Shrub with Red Flowers - Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41WciquVe3L._SL500_.jpg"/></a>
 
 
 The **Plants by Mail Yuletide Camellia (2.4 Gallon)** is ideal for garden enthusiasts and homeowners looking to add a vibrant splash of color and evergreen beauty to their outdoor spaces. Perfect for those who want a low-maintenance yet visually striking shrub that thrives in part shade, this plant is especially suited for individuals who appreciate seasonal blooms and year-round greenery. If you are seeking a reliable and attractive outdoor plant to enhance your garden or patio, this blooming shrub is an excellent choice.
@@ -206,10 +206,10 @@ The **Yuletide Camellia** from Plants by Mail features striking red blooms that 
 
 This blooming shrub’s manageable size and weight make it ideal for both seasoned gardeners and beginners. Whether planted in a garden bed or a large outdoor container, it provides easy adaptability to various outdoor settings. The robust growth and seasonal flowering also contribute to enhancing the overall aesthetics and curb appeal of your home, making the Plants by Mail Yuletide Camellia a valuable addition to your landscaping efforts.
 
-## <a href="https://www.amazon.com/dp/B07JQ47DL6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Emerald Green Arborvitae</a>
+## <a href="https://www.amazon.com/dp/B07JQ47DL6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Emerald Green Arborvitae</a>
 
 
-<a href="https://www.amazon.com/dp/B07JQ47DL6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Emerald Green Arborvitae (2.5 Quart) Evergreen Shrub/Tree with Green Foliage - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/317D7FbNwDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JQ47DL6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Emerald Green Arborvitae (2.5 Quart) Evergreen Shrub/Tree with Green Foliage - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/317D7FbNwDL._SL500_.jpg"/></a>
 
 
 The **Emerald Green Arborvitae (2.5 Quart)** is ideal for homeowners and gardeners looking to add a versatile and attractive evergreen shrub or tree to their outdoor space. Perfect for those who want a low-maintenance plant that thrives in both **full sun to part shade**, this shrub is excellent for creating privacy screens, hedges, or simply enhancing the garden's greenery. If you desire a durable and visually appealing plant with **green foliage** that stays vibrant year-round, this item is a great choice.
@@ -232,10 +232,10 @@ The **Emerald Green Arborvitae** boasts a compact dimension of 36 inches in heig
 
 Additionally, this shrub is relatively low maintenance, requiring minimal watering once established, which benefits busy gardeners or those new to plant care. Its dense growth habit makes it ideal for privacy hedges or decorative borders, contributing both functional and visual benefits to your outdoor space. Manufactured by **Plants by Mail**, this shrub guarantees quality and healthy growth, ensuring you receive a robust plant ready to enhance your garden's beauty.
 
-## <a href="https://www.amazon.com/dp/B075MMNSWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elaeagnus X Ebbingei</a>
+## <a href="https://www.amazon.com/dp/B075MMNSWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elaeagnus X Ebbingei</a>
 
 
-<a href="https://www.amazon.com/dp/B075MMNSWX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Elaeagnus x Ebbingei (2.5 Gallon) Evergreen Shrub - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41RVdf1+XVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075MMNSWX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Elaeagnus x Ebbingei (2.5 Gallon) Evergreen Shrub - Full Sun to Part Shade Live Outdoor Plant" src="https://m.media-amazon.com/images/I/41RVdf1+XVL._SL500_.jpg"/></a>
 
 
 The **Elaeagnus x Ebbingei (2.5 Gallon) Evergreen Shrub** is ideal for gardeners and homeowners looking to add a durable, low-maintenance, and attractive plant to their outdoor spaces. This shrub thrives in both **full sun and part shade**, making it perfect for a variety of climates and garden conditions. If you want a reliable evergreen that offers year-round greenery and privacy screening, this plant is an excellent choice.
@@ -258,10 +258,10 @@ The **Elaeagnus x Ebbingei** is a robust evergreen shrub that brings both beauty
 
 With a manageable size and lightweight nature, this shrub is convenient for gardeners of all skill levels. Its hardy nature means less frequent watering and maintenance, allowing you to enjoy a lush, vibrant garden without the constant upkeep. Additionally, the plant's evergreen status guarantees that your outdoor area remains lively and green throughout the seasons, making it a valuable addition to any landscape design.
 
-## <a href="https://www.amazon.com/dp/B0CBW58FZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Purple Pixie Loropetalum</a>
+## <a href="https://www.amazon.com/dp/B0CBW58FZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Purple Pixie Loropetalum</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBW58FZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Purple Pixie Loropetalum (1.5 Gallon) Low-Growing/Weeping Evergreen Shrub with Purple Foliage and Pink Blooms - Full Sun to Part Shade Live Outdoor Plant - Southern Living Plants" src="https://m.media-amazon.com/images/I/51zDiwcBOyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBW58FZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Purple Pixie Loropetalum (1.5 Gallon) Low-Growing/Weeping Evergreen Shrub with Purple Foliage and Pink Blooms - Full Sun to Part Shade Live Outdoor Plant - Southern Living Plants" src="https://m.media-amazon.com/images/I/51zDiwcBOyL._SL500_.jpg"/></a>
 
 
 The **Purple Pixie Loropetalum** is an excellent choice for garden enthusiasts and homeowners looking to add vibrant color and texture to their outdoor spaces. Ideal for those who want a **low-growing, evergreen shrub** with striking **purple foliage** and delicate **pink blooms**, this plant thrives in areas with **full sun to part shade**. If you are seeking a hardy, visually appealing shrub that requires minimal maintenance, this **Southern Living Plants** offering is perfect for your garden or landscape.

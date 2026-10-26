@@ -23,10 +23,10 @@ Using dimmable lights lets you adjust brightness for reading or resting. Smart l
 
 
 
-## <a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
 
 
 The **KSIPZE 100ft LED Strip Lights** are perfect for individuals looking to enhance their living spaces with vibrant and customizable lighting. Ideal customers include home décor enthusiasts, tech-savvy users who enjoy smart home integrations, and anyone wanting to create a dynamic atmosphere in bedrooms, gaming rooms, or entertainment areas.
@@ -49,10 +49,10 @@ The **KSIPZE 100ft LED Strip Lights** boast an impressive length of 100 feet, pr
 
 Equipped with **Bluetooth connectivity** and smart app control, these LED lights offer seamless integration with smartphones, allowing users to adjust colors, brightness, and lighting patterns remotely. The **music sync feature** enhances entertainment experiences by synchronizing light changes with audio beats, making it ideal for parties or relaxing environments. Overall, this product combines versatility, convenience, and aesthetic appeal for a superior home lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0DCG68L33?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Humiieye Northern Lights Projector</a>
+## <a href="https://www.amazon.com/dp/B0DCG68L33?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Humiieye Northern Lights Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCG68L33?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUMIIEYE Northern Lights Projector, 16 Light Color Aurora Night Light Projector for Bedroom, Remote Galaxy Light Projector, Dimmable Mood Lighting with Memory Function for Playroom Kids Teen Girl Gift" src="https://m.media-amazon.com/images/I/41kB-enw71L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCG68L33?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUMIIEYE Northern Lights Projector, 16 Light Color Aurora Night Light Projector for Bedroom, Remote Galaxy Light Projector, Dimmable Mood Lighting with Memory Function for Playroom Kids Teen Girl Gift" src="https://m.media-amazon.com/images/I/41kB-enw71L._SL500_.jpg"/></a>
 
 
 The **HUMIIEYE Northern Lights Projector** is perfect for anyone looking to enhance their living space with a soothing and visually captivating atmosphere. Ideal for **bedrooms, playrooms, and teens’ rooms**, this projector is a great gift for kids, teens, or anyone who enjoys relaxing under a colorful, aurora-inspired light show. If you want to create a calming environment with customizable lighting effects, this device is designed just for you.
@@ -76,10 +76,10 @@ The **HUMIIEYE Northern Lights Projector** offers an immersive visual experience
 
 Another standout feature is the **memory function**, which ensures your favorite lighting settings are saved and restored whenever you turn the device back on. This adds convenience and makes the projector user-friendly for all ages, especially kids and teens. Its compact **white gold design** is both stylish and unobtrusive, making it an excellent addition to any bedroom or playroom décor while enhancing the mood with beautiful, dimmable lighting.
 
-## <a href="https://www.amazon.com/dp/B07SM6G1PD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thausdas Night Light</a>
+## <a href="https://www.amazon.com/dp/B07SM6G1PD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thausdas Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07SM6G1PD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="THAUSDAS Night Light, Dimmable Touch Lamp for Bedroom, Portable Table Bedside Lamp, 5 Brightness 13 RGB Colors, Night Lights for Baby Nursery Bathroom" src="https://m.media-amazon.com/images/I/41NrMYOEUrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SM6G1PD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="THAUSDAS Night Light, Dimmable Touch Lamp for Bedroom, Portable Table Bedside Lamp, 5 Brightness 13 RGB Colors, Night Lights for Baby Nursery Bathroom" src="https://m.media-amazon.com/images/I/41NrMYOEUrL._SL500_.jpg"/></a>
 
 
 The **THAUSDAS Night Light** is ideal for individuals seeking a versatile and customizable lighting solution for their **bedroom**, **baby nursery**, or **bathroom**. It is perfect for parents who want a gentle, soothing light for their babies, as well as anyone who prefers a portable and dimmable touch lamp to create the perfect ambiance.
@@ -101,10 +101,10 @@ The **THAUSDAS Night Light** features an intuitive **dimmable touch lamp** that 
 
 Its **portable and compact design** makes it an excellent bedside accessory or a practical light source for travel. Weighing just under half a pound and with small dimensions, it fits comfortably on tables or shelves without taking up much space. The lamp’s adaptability for use in **bedrooms, nurseries, and bathrooms** makes it a versatile choice for anyone looking to improve their lighting environment with a stylish and functional touch lamp.
 
-## <a href="https://www.amazon.com/dp/B0CJ4Z6Z7Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neroupe Sunset Lamp Projector</a>
+## <a href="https://www.amazon.com/dp/B0CJ4Z6Z7Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neroupe Sunset Lamp Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ4Z6Z7Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Neroupe Sunset Lamp Projector with APP &amp; Button Control, 360 Degree Rotation Multiple Colors Changing LED Lamp Night Light, Sunset Light for Bedroom Decor/Party/Christmas Gifts/Tiktok Live/Room Decor" src="https://m.media-amazon.com/images/I/5128M2P-aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ4Z6Z7Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Neroupe Sunset Lamp Projector with APP &amp; Button Control, 360 Degree Rotation Multiple Colors Changing LED Lamp Night Light, Sunset Light for Bedroom Decor/Party/Christmas Gifts/Tiktok Live/Room Decor" src="https://m.media-amazon.com/images/I/5128M2P-aAL._SL500_.jpg"/></a>
 
 
 The **Neroupe Sunset Lamp Projector** is perfect for individuals looking to enhance their living space with a warm, ambient glow. Ideal for bedroom decor enthusiasts, party hosts, content creators on platforms like TikTok, and anyone seeking a versatile LED night light, this lamp offers an immersive lighting experience with its customizable features. If you want to transform your room's atmosphere effortlessly, this product is designed for you.
@@ -127,10 +127,10 @@ Featuring a **360-degree rotation**, the Neroupe Sunset Lamp Projector allows us
 
 The multiple color-changing LED technology not only brightens up rooms but also sets the mood for various occasions—from relaxing evenings to lively parties. Its warm and rich hues add depth and character to any setting, making it a versatile piece for both daily use and special events. As a product from **Neroupe Lamp**, it promises durability and consistent performance, ensuring that users can enjoy its benefits for an extended period. Overall, the Neroupe Sunset Lamp Projector combines functionality with aesthetic appeal, making it a valuable addition to any home or studio.
 
-## <a href="https://www.amazon.com/dp/B0C2MHG632?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Leeleberd Led Lights For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0C2MHG632?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Leeleberd Led Lights For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2MHG632?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Leeleberd Led Lights for Bedroom 100 ft (2 Rolls of 50ft) Music Sync Color Changing RGB Led Strip Lights with Remote App Control Bluetooth Led Strip, Lights for Room Home Kitchen Party Decor" src="https://m.media-amazon.com/images/I/51Li3YPLUwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2MHG632?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Leeleberd Led Lights for Bedroom 100 ft (2 Rolls of 50ft) Music Sync Color Changing RGB Led Strip Lights with Remote App Control Bluetooth Led Strip, Lights for Room Home Kitchen Party Decor" src="https://m.media-amazon.com/images/I/51Li3YPLUwL._SL500_.jpg"/></a>
 
 
 The **Leeleberd LED Lights for Bedroom 100 ft** are ideal for individuals looking to enhance their living spaces with vibrant and customizable lighting. Whether you are a party host, a home decor enthusiast, or someone who enjoys a dynamic ambiance in your bedroom, kitchen, or any room, these **RGB LED strip lights** offer an excellent solution. Perfect for tech-savvy users who appreciate easy control through a remote or app, these lights are suitable for anyone wanting to add a splash of color and excitement to their environment.
@@ -153,10 +153,10 @@ The **Leeleberd LED Lights** boast an impressive length of 100 feet split into t
 
 With both **remote and app control**, adjusting settings is effortless and user-friendly. The Bluetooth connectivity ensures that you can customize brightness, color, and effects directly from your smartphone, adding convenience to your lighting experience. These features make the Leeleberd LED strip lights not only decorative but also functional, helping users transform their rooms with mood-enhancing light effects tailored to their preferences.
 
-## <a href="https://www.amazon.com/dp/B0BDRSG2BT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projection</a>
+## <a href="https://www.amazon.com/dp/B0BDRSG2BT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projection</a>
 
 
-<a href="https://www.amazon.com/dp/B0BDRSG2BT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projection, Not Only 21 Colors Sunset Lights, 180 Degree Rotation Led Light, Push Button Switch &amp; APP Control Projector for Party Bedroom Decor" src="https://m.media-amazon.com/images/I/41xHhR3aQwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BDRSG2BT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projection, Not Only 21 Colors Sunset Lights, 180 Degree Rotation Led Light, Push Button Switch &amp; APP Control Projector for Party Bedroom Decor" src="https://m.media-amazon.com/images/I/41xHhR3aQwL._SL500_.jpg"/></a>
 
 
 The **Tsrarey Sunset Lamp Projection** is ideal for individuals looking to enhance their living space with vibrant and customizable lighting. Whether you are a party enthusiast, a bedroom decor lover, or someone who enjoys ambient lighting, this lamp offers a versatile solution. Its combination of easy controls and multicolor options makes it perfect for those seeking to create a warm, inviting atmosphere.
@@ -178,10 +178,10 @@ The **Tsrarey Sunset Lamp Projection** features an impressive **21 color spectru
 
 Equipped with both a **push button switch** and **APP control**, this lamp offers convenience and modern functionality. Users can easily switch colors or adjust brightness without interrupting their activities. Its compact dimensions and lightweight build mean it fits seamlessly into any room without occupying much space, making it a practical and stylish addition to your home decor.
 
-## <a href="https://www.amazon.com/dp/B0932M1666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tenmiro Led Lights For Bedroom 100ft Music Sync Color Changing Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B0932M1666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tenmiro Led Lights For Bedroom 100ft Music Sync Color Changing Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0932M1666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tenmiro Led Lights for Bedroom 100ft (2 Rolls of 50ft) Music Sync Color Changing Strip Lights with Remote and App Control RGB Strip, for Room Home Party Decoration" src="https://m.media-amazon.com/images/I/512dWohZADL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0932M1666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tenmiro Led Lights for Bedroom 100ft (2 Rolls of 50ft) Music Sync Color Changing Strip Lights with Remote and App Control RGB Strip, for Room Home Party Decoration" src="https://m.media-amazon.com/images/I/512dWohZADL._SL500_.jpg"/></a>
 
 
 The **Tenmiro LED Lights for Bedroom 100ft** are ideal for individuals looking to enhance their living spaces with vibrant and customizable lighting. Perfect for **homeowners, party organizers, gamers, and tech enthusiasts**, these strip lights offer an easy and effective way to create an immersive atmosphere that suits any mood or occasion. If you want to add a splash of color and dynamic lighting effects to your room, this product is an excellent choice.
@@ -203,10 +203,10 @@ The **Tenmiro LED Lights** feature advanced **RGB color-changing technology** co
 
 Measuring a total of 100ft in length with two rolls of 50ft each, these lights provide ample coverage to decorate bedrooms, living rooms, or entertainment areas. The lightweight and slim design make them unobtrusive while adding a modern aesthetic. Additionally, the simple installation process ensures even beginners can set up the strips quickly, transforming any space with minimal effort. Overall, the **Tenmiro LED Lights** combine style, functionality, and convenience to enhance your home or party decor.
 
-## <a href="https://www.amazon.com/dp/B0CQQXVTXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Galaxy Projector Star Projector</a>
+## <a href="https://www.amazon.com/dp/B0CQQXVTXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Galaxy Projector Star Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQQXVTXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Galaxy Projector Star Projector, Northern Lights Projector with Remote Control, Adjustable Color, Brightness and Movement Speed, Night Light Projector for Adults, Bedroom, Living Room" src="https://m.media-amazon.com/images/I/51LQQn5yEAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQQXVTXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Galaxy Projector Star Projector, Northern Lights Projector with Remote Control, Adjustable Color, Brightness and Movement Speed, Night Light Projector for Adults, Bedroom, Living Room" src="https://m.media-amazon.com/images/I/51LQQn5yEAL._SL500_.jpg"/></a>
 
 
 The **Galaxy Projector Star Projector** is perfect for individuals who want to create a soothing and visually captivating atmosphere in their space. Ideal for adults looking to enhance their **bedroom** or **living room** ambiance, this device is also great for those who enjoy stargazing indoors or want a calming night light with customizable effects. If you appreciate a blend of relaxation and aesthetic appeal, this **northern lights projector** is an excellent choice.
@@ -229,10 +229,10 @@ The **Galaxy Projector Star Projector** by SUNFUCAN offers a unique combination 
 
 Equipped with a handy **remote control**, this projector puts convenience at the forefront, enabling users to adjust settings without interrupting their comfort. The vivid projections of **northern lights** and stars transform any indoor space into a magical environment, enhancing mood and ambiance. While it works best in darker rooms, this projector serves as both a functional **night light** and a stylish decorative piece, making it a versatile addition to your home.
 
-## <a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xebkor Sunset Lamp Projector</a>
+## <a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xebkor Sunset Lamp Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XEBKOR Sunset Lamp Projector Multicolor Changing LED Projection Lamp,Switch Button and APP Control 360 Degree Rotation Sunlight Lamp for Bedroom, Photography, Party, Tiktok Live, Room Decor" src="https://m.media-amazon.com/images/I/41Bx1ZuloBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XEBKOR Sunset Lamp Projector Multicolor Changing LED Projection Lamp,Switch Button and APP Control 360 Degree Rotation Sunlight Lamp for Bedroom, Photography, Party, Tiktok Live, Room Decor" src="https://m.media-amazon.com/images/I/41Bx1ZuloBL._SL500_.jpg"/></a>
 
 
 The **XEBKOR Sunset Lamp Projector** is ideal for individuals looking to enhance their living spaces with vibrant and dynamic lighting effects. Whether you're a **photographer** seeking creative lighting, a **content creator** hosting TikTok lives, or someone who wants to add a warm and colorful ambiance to their **bedroom** or **party** environment, this lamp offers an easy and versatile solution.
@@ -255,10 +255,10 @@ The **XEBKOR Sunset Lamp Projector** features a versatile **multicolor LED light
 
 Control options include both a physical **switch button** and an intuitive **APP control**, offering users flexibility in how they adjust the lighting settings. This makes it simple to customize colors, brightness, and rotation speed to suit different occasions, whether it’s a relaxing evening in the **bedroom** or a lively **party** setting. The lamp's compact size ensures it fits neatly into any space, adding aesthetic value without taking up too much room.
 
-## <a href="https://www.amazon.com/dp/B0CGJPKG2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jiawen Galaxy Projector Light</a>
+## <a href="https://www.amazon.com/dp/B0CGJPKG2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jiawen Galaxy Projector Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGJPKG2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JIAWEN Galaxy Projector Light for Bedroom - 16 Color LED Star Night Light with 30 Modes, Northern Lights Aurora &amp; Ocean Wave Projector for Kids Adults, Home Theater, Ceiling Decor" src="https://m.media-amazon.com/images/I/51vQ0USZWTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGJPKG2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JIAWEN Galaxy Projector Light for Bedroom - 16 Color LED Star Night Light with 30 Modes, Northern Lights Aurora &amp; Ocean Wave Projector for Kids Adults, Home Theater, Ceiling Decor" src="https://m.media-amazon.com/images/I/51vQ0USZWTL._SL500_.jpg"/></a>
 
 
 The **JIAWEN Galaxy Projector Light** is perfect for anyone looking to transform their bedroom or living space into a mesmerizing starry night scene. Ideal for both **kids and adults**, this projector suits those who enjoy immersive home theater experiences, want to create a calming ambiance for relaxation, or simply wish to add a unique ceiling decor element to their room.

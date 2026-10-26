@@ -23,10 +23,10 @@ Non-slip rugs keep kids safe during active play. Bright, fluffy rugs like Ophani
 
 
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** is an ideal choice for anyone looking to add a touch of comfort and style to their home, especially those with **kids, dorm residents, or nursery rooms**. If you want a **soft, fluffy, and machine washable rug** that is both practical and aesthetically pleasing, this rug is designed just for you.
@@ -48,10 +48,10 @@ The **OLANLY Area Rug** features a plush shaggy pile that adds a luxurious feel 
 
 Designed with a neutral **grey color**, this rug complements a wide range of interior styles from modern to traditional. The **1.5-inch height** of the pile adds warmth and coziness, making it an inviting addition to bedrooms, dorm rooms, or nurseries. Lightweight and easy to handle, the rug can be repositioned or stored conveniently as needed, enhancing its usability across different spaces.
 
-## <a href="https://www.amazon.com/dp/B08HCY4RYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Kids Play Rugs</a>
+## <a href="https://www.amazon.com/dp/B08HCY4RYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Kids Play Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B08HCY4RYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set - Durable Carpet Playmat Rug - City Pretend Play - Toddler Car Track Rug" src="https://m.media-amazon.com/images/I/61UaUXcpm3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HCY4RYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set - Durable Carpet Playmat Rug - City Pretend Play - Toddler Car Track Rug" src="https://m.media-amazon.com/images/I/61UaUXcpm3L._SL500_.jpg"/></a>
 
 
 The **JOYIN Kids Play Rugs - 12 Pull-Back Vehicle Set** is perfect for parents and caregivers looking to engage toddlers and young children in imaginative play. This product is ideal for those who want a durable and interactive **carpet playmat rug** that promotes creativity and motor skill development through city-themed pretend play.
@@ -74,10 +74,10 @@ The **JOYIN Kids Play Rugs** offer a unique combination of a playmat and pull-ba
 
 Measuring **31.5 inches wide by 58.5 inches long**, this playmat provides a spacious area for multiple children to play together, promoting social interaction and cooperative play. The included pull-back vehicles add an exciting element of movement, making the play experience more dynamic and engaging. Its lightweight design makes it easy for parents to move and store the rug when not in use, adding convenience to functionality.
 
-## <a href="https://www.amazon.com/dp/B0852WRDRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Pink Rug</a>
+## <a href="https://www.amazon.com/dp/B0852WRDRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Pink Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0852WRDRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Pink Rug for Bedroom Girls, Kids Fluffy Kawaii Fuzzy Furry Shag Area Rug, Cute Plush Soft Shaggy Bedside Indoor Floor 4x6 Carpet for Teen Nursery Dorm Home Room Decor Aesthetic" src="https://m.media-amazon.com/images/I/51cnb2UmrlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0852WRDRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Pink Rug for Bedroom Girls, Kids Fluffy Kawaii Fuzzy Furry Shag Area Rug, Cute Plush Soft Shaggy Bedside Indoor Floor 4x6 Carpet for Teen Nursery Dorm Home Room Decor Aesthetic" src="https://m.media-amazon.com/images/I/51cnb2UmrlL._SL500_.jpg"/></a>
 
 
 The **Ophanie Pink Rug** is perfect for anyone looking to add a touch of cozy charm to a girl's bedroom, nursery, or dorm room. Ideal for parents decorating their child's space or teens wanting a cute and soft area rug, this **fluffy kawaii fuzzy shag carpet** brings both comfort and style. If you seek a plush and aesthetic floor covering that brightens up indoor spaces, this rug is a great choice.
@@ -100,10 +100,10 @@ The **Ophanie Pink Rug** features a super soft and fuzzy shaggy texture that ins
 
 Crafted by **Ophanie**, the rug combines quality and aesthetic appeal, making it a practical decorative element. The thick shag pile not only feels luxurious but also offers noise reduction and insulation benefits, contributing to a cozy and inviting indoor environment. Whether used in a nursery or dorm room, this rug supports both comfort and style needs effectively.
 
-## <a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Kids Educational Rug</a>
+## <a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homore Kids Educational Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Kids Educational Rug, Kids Collection Area Rug for Learning Alphabet, Numbers, Colors, Season and Animal Words, Playmat for Classroom Playroom, 4x6 Feet" src="https://m.media-amazon.com/images/I/618slIavJLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZ4D49ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMORE Kids Educational Rug, Kids Collection Area Rug for Learning Alphabet, Numbers, Colors, Season and Animal Words, Playmat for Classroom Playroom, 4x6 Feet" src="https://m.media-amazon.com/images/I/618slIavJLL._SL500_.jpg"/></a>
 
 
 The **HOMORE Kids Educational Rug** is ideal for parents, teachers, and caregivers looking to create an engaging and interactive learning environment for young children. This rug is perfect for classrooms, playrooms, or any space where children aged 2 to 7 can benefit from a colorful and educational playmat that encourages early literacy, numeracy, and cognitive development.
@@ -126,10 +126,10 @@ The **HOMORE Kids Educational Rug** is designed to combine fun and learning by p
 
 Crafted by the trusted brand **HOMORE**, this rug is made with durable materials that withstand daily use in both classroom and home settings. Its size and lightweight nature make it practical for various activities, from group play sessions to individual learning moments. Overall, the rug encourages interactive play that helps children build foundational skills in a comfortable and inviting space.
 
-## <a href="https://www.amazon.com/dp/B072883CSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Carpet Playmat Rug City Life</a>
+## <a href="https://www.amazon.com/dp/B072883CSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Carpet Playmat Rug City Life</a>
 
 
-<a href="https://www.amazon.com/dp/B072883CSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Carpet Playmat Rug City Life Great for Playing with Cars and Toys - Play Learn and Have Fun Safely - Kids Baby Children Educational Road Traffic Play Mat for Bedroom Play Room Game Safe Area" src="https://m.media-amazon.com/images/I/51GpLmoKLOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072883CSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Carpet Playmat Rug City Life Great for Playing with Cars and Toys - Play Learn and Have Fun Safely - Kids Baby Children Educational Road Traffic Play Mat for Bedroom Play Room Game Safe Area" src="https://m.media-amazon.com/images/I/51GpLmoKLOL._SL500_.jpg"/></a>
 
 
 Ideal for parents seeking a safe, engaging, and educational play area for their children, the **Kids Carpet Playmat Rug City Life** is perfect for babies, toddlers, and young kids who love playing with cars and toys. This colorful and interactive play mat encourages imaginative play while providing a comfortable and secure space in bedrooms or playrooms.
@@ -153,10 +153,10 @@ The **Kids Carpet Playmat Rug City Life** features an engaging city-themed road 
 
 Constructed by the reputable **Angels** brand, this playmat is designed with children’s safety in mind. Although the mat is thin, it offers a soft and clean surface ideal for playrooms and bedrooms. The lightweight nature of the rug makes it easy for parents to move or clean as needed. Overall, this playmat combines fun, learning, and safety, making it an excellent addition to any child’s play environment.
 
-## <a href="https://www.amazon.com/dp/B0DPQKN2HX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Comeet Modern Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0DPQKN2HX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Comeet Modern Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPQKN2HX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Comeet Modern Washable Rug, 4x6 feet Ombre Area Rug for Living Room, Indoor Non Slip Carpet for Bedroom Girls, Print Distressed Abstract Rugs for Dining Room Home Office Nursery Dorm Kids Room Decor" src="https://m.media-amazon.com/images/I/61xvIDBdwgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPQKN2HX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Comeet Modern Washable Rug, 4x6 feet Ombre Area Rug for Living Room, Indoor Non Slip Carpet for Bedroom Girls, Print Distressed Abstract Rugs for Dining Room Home Office Nursery Dorm Kids Room Decor" src="https://m.media-amazon.com/images/I/61xvIDBdwgL._SL500_.jpg"/></a>
 
 
 The **Comeet Modern Washable Rug** is ideal for individuals seeking a stylish yet practical addition to their living spaces. Perfect for homeowners, renters, and parents who want an easy-to-clean, durable rug that adds a pop of color and contemporary design to bedrooms, living rooms, or nurseries. This rug suits anyone looking for a versatile, non-slip carpet that combines both function and aesthetic appeal.
@@ -178,10 +178,10 @@ The **Comeet Modern Washable Rug** stands out due to its blend of style and prac
 
 Designed with a distressed abstract ombre pattern in bold red and blue hues, this rug brings a contemporary flair to any room, whether it's a living room, bedroom, or nursery. The compact 4x6 feet size makes it adaptable to various spaces without overwhelming the room, while the durable material ensures it withstands daily wear and tear. Overall, this rug offers a perfect balance of aesthetic appeal and functional benefits for modern home decor.
 
-## <a href="https://www.amazon.com/dp/B085C9LRJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amdrebio Light Pink Round Rug 4ft</a>
+## <a href="https://www.amazon.com/dp/B085C9LRJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amdrebio Light Pink Round Rug 4ft</a>
 
 
-<a href="https://www.amazon.com/dp/B085C9LRJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amdrebio Light Pink Round Rug 4Ft for Girls Bedroom, Fluffy Circle Area Rugs for Kids Room Decor Aesthetic, Cute Shag Fuzzy Carpet for Nursery, Preppy Dorm, Classroom, Playroom, Teen, Baby, Washable" src="https://m.media-amazon.com/images/I/51-geH8SGTS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085C9LRJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amdrebio Light Pink Round Rug 4Ft for Girls Bedroom, Fluffy Circle Area Rugs for Kids Room Decor Aesthetic, Cute Shag Fuzzy Carpet for Nursery, Preppy Dorm, Classroom, Playroom, Teen, Baby, Washable" src="https://m.media-amazon.com/images/I/51-geH8SGTS._SL500_.jpg"/></a>
 
 
 The **Amdrebio Light Pink Round Rug 4Ft** is perfect for parents and caregivers looking to add a soft, stylish touch to a **girl's bedroom** or nursery. Ideal for those who want a cozy, fluffy carpet that enhances the aesthetic of kids’ rooms, playrooms, or dorms, this rug suits anyone aiming to create a warm and inviting space for children or teens.
@@ -203,10 +203,10 @@ This **Amdrebio Light Pink Round Rug** features a plush, shaggy texture that cre
 
 Beyond aesthetics, this rug is designed with practicality in mind. The washable fabric allows parents to keep the rug clean and fresh with minimal effort, which is essential in environments prone to spills and dirt. Its lightweight and manageable size make it easy to move or reposition as needed, providing flexibility in room arrangement. Overall, this rug balances charm, comfort, and convenience, making it a smart choice for anyone looking to upgrade their child's living space.
 
-## <a href="https://www.amazon.com/dp/B0D6YVXR4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Soft Rug For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D6YVXR4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Soft Rug For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6YVXR4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Soft Rug for Bedroom, 5x7 Ft Green and White Area Rug Classic Checkered Shaggy Anti-Skid High Pile Soft Fluffy Rug Fuzzy Carpet for Living Room Bedroom Kids Room Nursery, Dorm Home Decor" src="https://m.media-amazon.com/images/I/51p2lt2cWeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6YVXR4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Soft Rug for Bedroom, 5x7 Ft Green and White Area Rug Classic Checkered Shaggy Anti-Skid High Pile Soft Fluffy Rug Fuzzy Carpet for Living Room Bedroom Kids Room Nursery, Dorm Home Decor" src="https://m.media-amazon.com/images/I/51p2lt2cWeL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to add a touch of comfort and style to their living spaces, the **Super Soft Rug for Bedroom** is perfect for homeowners, renters, and dorm residents who want a cozy, decorative, and functional area rug. This rug suits anyone seeking a **soft, fluffy, and high-pile carpet** that enhances the look of bedrooms, living rooms, kids' rooms, or nurseries while providing a safe, anti-skid surface.
@@ -228,10 +228,10 @@ The **Super Soft Rug for Bedroom** by TOOHUB combines both function and style th
 
 Measuring 5x7 feet, this rug is versatile enough to fit medium-sized spaces without overwhelming the room. The fluffy texture not only provides warmth but also absorbs sound, contributing to a quieter and more comfortable environment. Its easy-to-clean material ensures that maintaining its softness and vibrant colors is hassle-free, making it a practical yet stylish addition to any home or dorm decor.
 
-## <a href="https://www.amazon.com/dp/B0C6G4S4X5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fluffy 4x6 Area Rugs For Girls Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0C6G4S4X5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fluffy 4x6 Area Rugs For Girls Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6G4S4X5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fluffy 4x6 Area Rugs for Girls Bedoom, Rainbow Soft Washable Shag Carpet for Kids Room, Nursery, Dorm Decor, Colorful Cute Plush Fuzzy Rugs for Baby Toddler" src="https://m.media-amazon.com/images/I/517fGV9h-kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6G4S4X5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fluffy 4x6 Area Rugs for Girls Bedoom, Rainbow Soft Washable Shag Carpet for Kids Room, Nursery, Dorm Decor, Colorful Cute Plush Fuzzy Rugs for Baby Toddler" src="https://m.media-amazon.com/images/I/517fGV9h-kL._SL500_.jpg"/></a>
 
 
 The **Fluffy 4x6 Area Rugs for Girls Bedroom** by **KICHOWUA** is perfect for parents looking to add a cozy, colorful touch to their child's room. Ideal for families with toddlers, babies, or young kids, this **rainbow soft washable shag carpet** brightens up nurseries, dorms, and play areas while providing a comfortable surface for little ones to play on.
@@ -254,10 +254,10 @@ The **KICHOWUA Fluffy 4x6 Area Rug** stands out with its luxurious **2-inch pile
 
 Crafted with durability in mind, this shag carpet withstands the energetic activities common in children’s spaces. The **easy-to-clean material** supports busy households, while the **large 4x6 size** comfortably fits nursery floors, playrooms, or dorm rooms. Overall, it’s a practical and adorable addition that combines functionality with vibrant style, making it a great choice for anyone seeking a cozy and cheerful flooring option for kids.
 
-## <a href="https://www.amazon.com/dp/B0CR9W4KV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CR9W4KV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR9W4KV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Area Rug 5x7 Kids Washable Indoor Floor Cover Non Slip Modern Soft Rug Living Room Diamond Carpet for Nursery Playroom Bedroom Classroom Circus on Cream" src="https://m.media-amazon.com/images/I/51JwZR23DkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR9W4KV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Area Rug 5x7 Kids Washable Indoor Floor Cover Non Slip Modern Soft Rug Living Room Diamond Carpet for Nursery Playroom Bedroom Classroom Circus on Cream" src="https://m.media-amazon.com/images/I/51JwZR23DkL._SL500_.jpg"/></a>
 
 
 The **jinchan Area Rug 5x7** is perfect for parents and caregivers looking to enhance the comfort and safety of children's spaces such as nurseries, playrooms, bedrooms, or classrooms. Ideal for those who want a stylish yet functional floor covering that is easy to maintain and designed with kids in mind, this rug combines modern aesthetics with practical features.

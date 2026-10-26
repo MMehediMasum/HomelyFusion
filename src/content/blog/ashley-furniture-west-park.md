@@ -20,10 +20,10 @@ The collection also includes coffee tables, console tables, and buffet cabinets 
 
 
 
-## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
+## <a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Chair Side End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKTN85G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKTN85G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports, Antique Cream &amp; Brown" src="https://m.media-amazon.com/images/I/41-0+sex9PL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table with Outlets and USB Ports** is ideal for individuals seeking a stylish yet functional piece of furniture to enhance their living space. Perfect for those who appreciate a blend of rustic charm and modern convenience, this **antique cream & brown** side table suits homeowners, renters, or anyone looking to add extra storage and charging options in their living room or bedroom.
@@ -46,10 +46,10 @@ The **Signature Design by Ashley Bolanburg Farmhouse Chair Side End Table** stan
 
 Constructed with a sturdy frame and finished in a warm **whitewash farmhouse style**, this piece complements a variety of interiors, from rustic to contemporary. Its compact size ensures it fits well beside most chairs and sofas without overwhelming the space. Additionally, the table offers surface space for lamps, books, or decorative items, enhancing both function and style in any room.
 
-## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
+## <a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 3 Drawer Nightstand</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07KGMVC9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 3 Drawer Nightstand with Electrical Outlets &amp; USB Ports, 27.75" chipped="" src="https://m.media-amazon.com/images/I/41fiqa7BqIL._SL500_.jpg" tall,="" white"=""/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 3 Drawer Nightstand** is ideal for those who appreciate a blend of classic style and modern functionality in their bedroom furniture. Perfect for individuals seeking a compact yet spacious storage solution with convenient access to power, this nightstand caters to tech-savvy users and lovers of rustic, French country decor. If you want to keep your essentials organized while charging devices easily, this piece is designed for you.
@@ -72,10 +72,10 @@ The **Realyn French Country Nightstand** stands out for its combination of rusti
 
 Crafted by **Ashley Furniture**, this nightstand boasts a durable build and a classic chipped white finish that adds a touch of vintage elegance to any room. Its compact yet functional design fits well beside most beds without overwhelming the space. Whether you prefer a farmhouse aesthetic or a subtle country look, this piece enhances your bedroom's ambiance while offering everyday usability.
 
-## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
+## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser** in **Chipped White** is ideal for individuals seeking a stylish and functional storage solution that complements a rustic or farmhouse-inspired decor. Perfect for homeowners or renters who appreciate classic design with a modern twist, this dresser fits well in bedrooms, guest rooms, or even living spaces where extra storage is needed. Those who value quality craftsmanship and a spacious yet elegant piece will find this dresser particularly appealing.
@@ -98,10 +98,10 @@ The **Signature Design by Ashley Realyn Dresser** showcases a beautiful French c
 
 Crafted by **Ashley Furniture**, this dresser combines style with durability. The sturdy construction guarantees long-lasting use, supporting daily wear and tear without compromising its visual appeal. Additionally, the subtle cream color blends seamlessly with various color schemes, providing flexibility for future redecorating or room changes. Overall, this dresser is a practical and attractive solution for anyone looking to enhance their living space with a timeless piece of furniture.
 
-## <a href="https://www.amazon.com/dp/B07KGMWB9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Bookcase With Drawer</a>
+## <a href="https://www.amazon.com/dp/B07KGMWB9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Bookcase With Drawer</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMWB9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 75" bookcase="" chipped="" drawer,="" src="https://m.media-amazon.com/images/I/41q5Rv0oSmL._SL500_.jpg" white"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B07KGMWB9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 75" bookcase="" chipped="" drawer,="" src="https://m.media-amazon.com/images/I/41q5Rv0oSmL._SL500_.jpg" white"="" with=""/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 75" Bookcase with Drawer, Chipped White** is ideal for individuals looking to add a touch of rustic charm and practical storage to their living space. Whether you are a homeowner wanting to showcase books and décor or someone seeking an elegant yet functional furniture piece, this bookcase is perfect for those who appreciate a blend of style and utility in their home furnishings.
@@ -124,10 +124,10 @@ The **Signature Design by Ashley Realyn Bookcase** features a tall and slim prof
 
 Crafted with quality materials by **Ashley Furniture**, this bookcase not only serves as a functional storage unit but also as an eye-catching accent piece. Its combination of brown and white tones allows it to blend seamlessly with a variety of interior palettes, making it versatile for different rooms such as living rooms, bedrooms, or home offices. The drawer enhances practicality by keeping clutter out of sight, contributing to a clean and organized environment.
 
-## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn Casual Cottage Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07MH34QX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MH34QX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn Casual Cottage Coffee Table, Antique White &amp; Brown" src="https://m.media-amazon.com/images/I/41bUHfUs7CL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn Casual Cottage Coffee Table** in **Antique White & Brown** is ideal for homeowners and renters looking to add a charming, rustic touch to their living room. Perfect for those who appreciate a blend of traditional and casual styles, this coffee table suits individuals who need a functional centerpiece that complements cottage or farmhouse décor. If you value both aesthetics and practicality in your furniture, this piece is a great choice.
@@ -149,10 +149,10 @@ The **Realyn Casual Cottage Coffee Table** boasts a charming design that highlig
 
 Additionally, its height of **20 inches** provides ergonomic convenience, making it easy to reach items without straining. The table’s weight contributes to its solid presence, reducing the risk of accidental movement. Overall, this coffee table is a smart investment for those seeking a blend of style, function, and quality in their living room furniture.
 
-## <a href="https://www.amazon.com/dp/B087KW6HDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Havalance Farmhouse Left Pier Cabinet</a>
+## <a href="https://www.amazon.com/dp/B087KW6HDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Havalance Farmhouse Left Pier Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B087KW6HDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Havalance Farmhouse Left Pier Cabinet, Modern Bookcase, Vintage White" src="https://m.media-amazon.com/images/I/31-aa2oDHSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087KW6HDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Havalance Farmhouse Left Pier Cabinet, Modern Bookcase, Vintage White" src="https://m.media-amazon.com/images/I/31-aa2oDHSL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Havalance Farmhouse Left Pier Cabinet** is ideal for individuals seeking a stylish and functional storage solution that complements a modern farmhouse or vintage-inspired decor. Perfect for homeowners or renters who want to enhance their living space with a versatile bookcase that offers ample storage without overwhelming the room. Those who appreciate a blend of rustic charm and contemporary design will find this piece particularly appealing.
@@ -175,10 +175,10 @@ The **Havalance Farmhouse Left Pier Cabinet** boasts a thoughtfully crafted desi
 
 Beyond its visual appeal, this cabinet is built to last, thanks to the high-quality materials and construction standards upheld by **Signature Design by Ashley**. Whether used to showcase books, decorative items, or everyday essentials, this piece enhances organization and adds character to any space. Its versatility makes it a practical choice for living rooms, bedrooms, or even home offices, providing both style and utility.
 
-## <a href="https://www.amazon.com/dp/B07DKQS31H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Square Two Tone End Table</a>
+## <a href="https://www.amazon.com/dp/B07DKQS31H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Bolanburg Farmhouse Square Two Tone End Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07DKQS31H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Square Two Tone End Table, Antique Cream" src="https://m.media-amazon.com/images/I/41U6gDlxBQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DKQS31H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Bolanburg Farmhouse Square Two Tone End Table, Antique Cream" src="https://m.media-amazon.com/images/I/41U6gDlxBQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Bolanburg Farmhouse Square Two Tone End Table** in **Antique Cream** is ideal for homeowners and interior enthusiasts looking to enhance their living spaces with a blend of rustic charm and modern functionality. This piece is perfect for those who appreciate **farmhouse-style furniture** that offers both aesthetic appeal and practical use in compact living areas or cozy corners.
@@ -201,10 +201,10 @@ Crafted by **Ashley Furniture Industries**, this end table boasts a charming **f
 
 Beyond its visual appeal, the end table offers practical benefits such as easy mobility due to its manageable weight and thoughtful dimensions. This allows users to effortlessly change room layouts or create cozy reading nooks. The combination of style, functionality, and quality craftsmanship makes the **Signature Design by Ashley Bolanburg Farmhouse Square Two Tone End Table** a valuable addition to any home seeking a rustic yet refined touch.
 
-## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
+## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers** in **Chipped White** is ideal for individuals seeking a stylish yet functional storage solution for their bedroom or living space. Perfect for those who appreciate a blend of rustic charm and modern design, this piece suits homeowners looking to add a touch of French country elegance while maximizing storage capacity.
@@ -226,10 +226,10 @@ The **Signature Design by Ashley Realyn Chest of Drawers** features five generou
 
 Constructed by **Ashley Furniture**, this chest combines style with durability, ensuring it will maintain its appeal over time. The solid build and quality materials support heavy use, while the elegant design elevates the room’s décor. Whether storing clothes, accessories, or household items, users benefit from both the practical storage capacity and the charming visual appeal of this French country piece.
 
-## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
+## <a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Semi-circle Console Table</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBND4BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBND4BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Semi-Circle Console Table, White &amp; Brown" src="https://m.media-amazon.com/images/I/41--6QWDlVL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Semi-Circle Console Table** in **White & Brown** is ideal for homeowners and interior enthusiasts looking to add a touch of rustic charm and elegant design to their living spaces. Perfect for those who appreciate a blend of classic French country style and modern functionality, this console table is suited for entryways, living rooms, or hallways where style and space-saving are priorities.
@@ -253,10 +253,10 @@ The **Signature Design by Ashley Realyn French Country Semi-Circle Console Table
 
 With dimensions designed to balance presence and practicality, this table serves as an excellent spot for decorative items, lighting, or essentials like keys and mail. Its lightweight nature allows easy repositioning within rooms, making it versatile for various layouts. While it does not provide extensive storage, its charm and functional surface make it an ideal accent piece for anyone seeking to enhance their home with a stylish yet practical console table.
 
-## <a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
+## <a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server** in **Chipped White** is ideal for homeowners and interior enthusiasts seeking a blend of rustic charm and practical storage for their dining space. This piece is perfect for those who appreciate the **French country aesthetic** and want to add a timeless, distressed look to their home while enhancing functionality.

@@ -23,10 +23,10 @@ Smart lamps like ROOTRO and OIYN provide adjustable colors and brightness with e
 
 
 
-## <a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ksipze 100ft Led Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ksipze 100ft Led Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
 
 
 The **KSIPZE 100ft LED Strip Lights** are ideal for individuals looking to enhance their living spaces with vibrant, customizable lighting. Whether you are a music lover, a home décor enthusiast, or someone who enjoys creating a dynamic ambiance in your bedroom or any room, these LED lights offer the perfect solution for flexible and smart lighting control.
@@ -49,10 +49,10 @@ The **KSIPZE 100ft LED Strip Lights** boast a rich set of features designed to t
 
 Additionally, the **flexible strip design** allows for easy installation in various locations, from bedrooms to living rooms, enhancing the overall aesthetic with vibrant multicolor lighting. The combination of a long **100ft strip** and smart control options makes it a practical choice for both small and large spaces, enabling users to create the perfect ambiance effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xebkor Sunset Lamp Projector</a>
+## <a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xebkor Sunset Lamp Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XEBKOR Sunset Lamp Projector Multicolor Changing LED Projection Lamp,Switch Button and APP Control 360 Degree Rotation Sunlight Lamp for Bedroom, Photography, Party, Tiktok Live, Room Decor" src="https://m.media-amazon.com/images/I/41Bx1ZuloBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRN3SF9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XEBKOR Sunset Lamp Projector Multicolor Changing LED Projection Lamp,Switch Button and APP Control 360 Degree Rotation Sunlight Lamp for Bedroom, Photography, Party, Tiktok Live, Room Decor" src="https://m.media-amazon.com/images/I/41Bx1ZuloBL._SL500_.jpg"/></a>
 
 
 The **XEBKOR Sunset Lamp Projector Multicolor Changing LED Projection Lamp** is ideal for individuals looking to enhance the ambiance of their living space, whether it’s a bedroom, party setting, or a creative photography backdrop. This lamp is perfect for content creators on platforms like **Tiktok Live**, as well as anyone who appreciates dynamic and colorful room decor with easy control options. If you want to add a warm, 360-degree rotating sunlight effect with both manual and app control, this product is tailored for you.
@@ -74,10 +74,10 @@ The **XEBKOR Sunset Lamp Projector** features a multicolor LED system that can c
 
 Control options are a major highlight, with both a physical switch button and an intuitive APP interface that allow users to toggle colors, adjust brightness, and manage rotation speed remotely. This dual control system makes the lamp accessible and user-friendly for all ages. Additionally, its compact size means it fits neatly on desks, shelves, or bedside tables without occupying much space, making it a versatile addition to any room decor.
 
-## <a href="https://www.amazon.com/dp/B0D4DJ6BRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Daybetter Led Strip Lights 130ft</a>
+## <a href="https://www.amazon.com/dp/B0D4DJ6BRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Daybetter Led Strip Lights 130ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4DJ6BRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DAYBETTER LED Strip Lights 130ft Lights Strip for Bedroom, Desk, Indoor Room Bedroom Brithday Gifts RGB Decor with Remote and 24V Power Supply" src="https://m.media-amazon.com/images/I/51gaeeRCNTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4DJ6BRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DAYBETTER LED Strip Lights 130ft Lights Strip for Bedroom, Desk, Indoor Room Bedroom Brithday Gifts RGB Decor with Remote and 24V Power Supply" src="https://m.media-amazon.com/images/I/51gaeeRCNTL._SL500_.jpg"/></a>
 
 
 The **DAYBETTER LED Strip Lights 130ft** are perfect for individuals looking to enhance their **indoor spaces** such as bedrooms, desks, or any room that could benefit from vibrant, customizable lighting. Ideal for those who enjoy **RGB decor**, want to create a cozy ambiance, or are searching for a unique **birthday gift**, these lights offer flexibility and style for both personal and decorative use.
@@ -100,10 +100,10 @@ The **DAYBETTER LED Strip Lights** come with a generous 130ft length, making the
 
 Powered by a reliable **24V power supply**, these lights deliver consistent brightness without flickering or dimming issues. The flexible design and simple installation process mean users can easily adapt the strips around furniture, walls, or ceilings to create eye-catching patterns and accents. Whether used as a decorative element or functional lighting, the DAYBETTER LED Strip Lights combine convenience, style, and performance for an enhanced indoor experience.
 
-## <a href="https://www.amazon.com/dp/B0DG92NWYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mubarek Crystal Light Projector</a>
+## <a href="https://www.amazon.com/dp/B0DG92NWYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mubarek Crystal Light Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG92NWYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mubarek Crystal Light Projector for Bedroom, 216 Modes Mood Lighting for Bedroom, Remote&amp;USB Control Kids Room Lights for Bedroom, Ambient Lighting Projector Lights for Room Decor for Teen Girls Gifts" src="https://m.media-amazon.com/images/I/51PNJhndaCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG92NWYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mubarek Crystal Light Projector for Bedroom, 216 Modes Mood Lighting for Bedroom, Remote&amp;USB Control Kids Room Lights for Bedroom, Ambient Lighting Projector Lights for Room Decor for Teen Girls Gifts" src="https://m.media-amazon.com/images/I/51PNJhndaCL._SL500_.jpg"/></a>
 
 
 The **Mubarek Crystal Light Projector for Bedroom** is perfect for individuals looking to enhance their living space with vibrant and customizable lighting. Ideal for **teen girls**, kids, or anyone wanting to add a calming and decorative ambiance to their **bedroom or personal space**, this projector offers a versatile lighting experience that suits various moods and occasions.
@@ -126,10 +126,10 @@ The **Mubarek Crystal Light Projector** stands out with its extensive range of *
 
 Designed with a compact and lightweight form factor, this projector fits comfortably in small spaces such as bedside tables or shelves without cluttering the area. The **bright yellow hue** not only energizes the room but also complements a wide range of décor styles, making it a charming addition to teen girls’ bedrooms or children's rooms. Its ambient lighting capabilities not only beautify the space but also create a cozy atmosphere ideal for relaxation, study, or sleep.
 
-## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rootro Touch Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rootro Touch Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
 
 
 The **ROOTRO Touch Bedside Table Lamp** is an ideal choice for individuals seeking a compact yet versatile lighting solution for their bedroom or living room. Perfect for those who appreciate a **sleek design** combined with modern features, this lamp suits users wanting customizable lighting options without sacrificing style. Whether you are a student, professional, or someone who enjoys ambient lighting, this **multi-color smart nightstand lamp** offers both functionality and aesthetic appeal.
@@ -152,10 +152,10 @@ The **ROOTRO Touch Bedside Table Lamp** features a modern and minimalistic desig
 
 Beyond aesthetics, the lamp’s **warm white LED lights** provide a soothing glow ideal for bedtime reading or creating a relaxing environment. Its lightweight construction ensures easy portability, so you can move it between rooms or take it with you when traveling. Overall, the ROOTRO lamp combines style, functionality, and versatility, making it an excellent addition to any modern home or as a thoughtful gift.
 
-## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
 
 
 The **luckystyle LED Floor Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their **living room**, **bedroom**, **office**, or **kid's room**. This lamp is perfect for those who want customizable lighting with ease of control, whether through a **foot switch** or a **remote**, making it suitable for users who value convenience and modern technology in home decor.
@@ -177,10 +177,10 @@ The **luckystyle LED Floor Lamp** stands out with its combination of modern aest
 
 Designed with a tall, slender **black pole** and a classic lampshade, this lamp seamlessly fits into various decor themes, from contemporary to traditional. Its energy-efficient **12W LED bulb** not only saves electricity but also reduces the need for frequent bulb replacements. Overall, the **luckystyle LED Floor Lamp** provides a perfect blend of style, functionality, and energy savings, making it a smart investment for enhancing any living space.
 
-## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
 
 
 The **OIYN Smart RGBICW LED Corner Floor Lamp** is perfect for individuals looking to elevate their home ambiance with customizable lighting. Ideal for **living rooms, bedrooms, and gaming rooms**, this lamp suits tech-savvy users, gamers, and anyone who enjoys dynamic, mood-enhancing illumination that can be controlled with ease.
@@ -203,10 +203,10 @@ The **OIYN Smart RGBICW LED Corner Floor Lamp** boasts an impressive feature set
 
 Additionally, the lamp's **music sync** capability adds a dynamic layer of entertainment by pulsating colors in rhythm with your favorite songs. Its dual control options—via an intuitive **app** or a handy **remote**—make it simple to adjust settings without interrupting your relaxation or gaming session. Overall, this lamp offers both aesthetic appeal and functional versatility, making it a valuable addition to modern smart homes.
 
-## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miortior Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miortior Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
 
 
 The **Miortior Corner Floor Lamp** is perfect for individuals seeking a versatile and stylish lighting solution for their **living rooms**, **bedrooms**, or **gaming rooms**. Ideal for tech enthusiasts and those who appreciate customizable ambiance, this lamp caters to users who want to enhance their space with dynamic lighting effects controlled easily via an app or remote.
@@ -229,10 +229,10 @@ The **Miortior Corner Floor Lamp** stands out with its ability to fill any corne
 
 Beyond aesthetics, the lamp’s **music sync feature** adds an immersive layer to entertainment setups, synchronizing light effects with beats to create a dynamic atmosphere. The **timer setting** is another practical benefit, allowing users to automate lighting schedules to save energy and enhance convenience. With a weight under two pounds, this lamp is easy to move and position, making it a versatile lighting solution for diverse environments.
 
-## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamp With Shelves</a>
+## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamp With Shelves</a>
 
 
-<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
 
 
 The **SUNMORY Floor Lamp with Shelves** is ideal for individuals looking to combine stylish lighting with practical storage solutions. Perfect for those who want to enhance their **living room** or **bedroom** ambiance while keeping books or decorative items neatly displayed, this lamp suits homeowners, renters, and anyone who appreciates modern design with multifunctionality.
@@ -255,10 +255,10 @@ The **SUNMORY Floor Lamp with Shelves** combines lighting and storage in a sleek
 
 Beyond illumination, this lamp serves as a functional **corner display bookshelf**, providing practical storage space for books, plants, or decorative items. This dual-purpose design helps reduce clutter and adds visual interest to any room. Crafted by the reputable **SUNMORY** brand, it promises durability and style, making it a valuable addition to modern homes seeking both form and function.
 
-## <a href="https://www.amazon.com/dp/B096WZXKZP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Govee Smart Led Light Bars</a>
+## <a href="https://www.amazon.com/dp/B096WZXKZP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Govee Smart Led Light Bars</a>
 
 
-<a href="https://www.amazon.com/dp/B096WZXKZP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Govee Smart LED Light Bars, Work with Alexa and Google Assistant, RGBICWW WiFi TV Backlights with Scene and Music Modes for Gaming, Pictures, PC, Room Decoration" src="https://m.media-amazon.com/images/I/41OT0d7tktL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096WZXKZP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Govee Smart LED Light Bars, Work with Alexa and Google Assistant, RGBICWW WiFi TV Backlights with Scene and Music Modes for Gaming, Pictures, PC, Room Decoration" src="https://m.media-amazon.com/images/I/41OT0d7tktL._SL500_.jpg"/></a>
 
 
 The **Govee Smart LED Light Bars** are perfect for tech enthusiasts and home decorators who want to enhance their living space with customizable lighting. Ideal for gamers, movie lovers, and anyone looking to create an immersive atmosphere, these light bars work seamlessly with **Alexa** and **Google Assistant** for easy voice control. If you want to transform your TV backlighting or add dynamic lighting effects to your room, this product is an excellent choice.

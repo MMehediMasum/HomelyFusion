@@ -23,10 +23,10 @@ The collection includes vintage, boho, and modern styles to match diverse decor 
 
 
 
-## <a href="https://www.amazon.com/dp/B0C9V8ZHT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gertmenian Indoor Boho Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0C9V8ZHT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gertmenian Indoor Boho Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9V8ZHT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gertmenian Indoor Boho Area Rug - 8x10 Large, Non Slip, Super Strong, Ideal for High Traffic Areas in Bedroom, Living Room, Kitchen - Cullen, Cream/Multi, 28548" src="https://m.media-amazon.com/images/I/61AfSClVl7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9V8ZHT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gertmenian Indoor Boho Area Rug - 8x10 Large, Non Slip, Super Strong, Ideal for High Traffic Areas in Bedroom, Living Room, Kitchen - Cullen, Cream/Multi, 28548" src="https://m.media-amazon.com/images/I/61AfSClVl7L._SL500_.jpg"/></a>
 
 
 The **Gertmenian Indoor Boho Area Rug - 8x10 Large** is perfect for homeowners and renters who want to enhance their living spaces with a stylish yet functional rug. Ideal for those seeking durability and aesthetic appeal in high traffic areas such as bedrooms, living rooms, and kitchens, this rug offers a balance of beauty and resilience. If you value both design and practicality, this rug is an excellent choice.
@@ -48,10 +48,10 @@ The **Gertmenian Indoor Boho Area Rug** boasts a robust design with a height of 
 
 This rug’s lightweight nature, weighing just under **12 pounds**, allows for easy repositioning and maintenance. The sturdy materials ensure long-lasting performance in busy areas like kitchens and living rooms, where durability is critical. Its aesthetic appeal combined with practical features makes it a valuable addition to any home looking for both style and substance in their floor coverings.
 
-## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
 
 
 The **zesthome 8x10 Area Rug** in vibrant **orange** is perfect for homeowners and renters looking to add a touch of vintage charm and warmth to their living spaces. Ideal for those who want a large, **stain-resistant**, and easy-to-maintain rug that complements both modern and classic home decor styles, this rug suits living rooms, bedrooms, or any high-traffic area.
@@ -75,10 +75,10 @@ The **zesthome 8x10 Area Rug** features a durable construction with a **non-slip
 
 With its **vintage large area rug** aesthetic, this piece brings a warm, inviting ambiance to your home. The **stain-resistant** properties help maintain the rug's appearance even in high-traffic zones, ensuring longevity and sustained beauty. Overall, this rug blends functionality with style, making it a valuable addition for anyone looking to enhance their home decor with ease and durability.
 
-## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" x 7'-6" Area Rug** is an excellent choice for homeowners and interior enthusiasts looking to enhance their living spaces with a touch of modern farmhouse elegance. Ideal for those who appreciate stylish yet durable home decor, this rug suits anyone wanting to add warmth and a sophisticated color palette to their rooms, especially in areas like living rooms, bedrooms, or entryways.
@@ -100,10 +100,10 @@ The **Loloi Magnolia Home Gigi Collection GIG-01 Area Rug** features a refined b
 
 Designed with both aesthetics and usability in mind, this area rug fits perfectly in various home settings, whether under a coffee table or as a centerpiece in a bedroom. The elegant pattern inspired by Joanna Gaines’ signature style adds a layer of sophistication without overpowering existing decor. By choosing this rug, users not only enhance their interior’s visual appeal but also enjoy a cozy, welcoming environment that stands the test of time.
 
-## <a href="https://www.amazon.com/dp/B0CGR125QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugsure Washable Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CGR125QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugsure Washable Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGR125QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Rust, 5' x 7')" src="https://m.media-amazon.com/images/I/51tB0D9BbXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGR125QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Rust, 5' x 7')" src="https://m.media-amazon.com/images/I/51tB0D9BbXL._SL500_.jpg"/></a>
 
 
 The **RUGSURE Washable Area Rugs** are ideal for homeowners and renters looking to add a stylish yet practical touch to their **living room, bedroom, kids room, or nursery**. This rug is perfect for families with **pets and children** who need a durable, **stain and water resistant** floor covering that is also easy to clean and maintain.
@@ -126,10 +126,10 @@ The **RUGSURE Washable Area Rug** stands out for its combination of convenience 
 
 Moreover, the **non-slip backing** enhances safety by preventing unwanted slips and falls, which is particularly important in homes with children or elderly residents. The vintage tribal design in a warm rust hue adds a decorative element that complements various décor styles, while the size and thin profile make it versatile for different spaces without overwhelming the room.
 
-## <a href="https://www.amazon.com/dp/B0771CZY8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10 Trace Collection</a>
+## <a href="https://www.amazon.com/dp/B0771CZY8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10 Trace Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B0771CZY8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Trace Collection - Large - Blue &amp; Ivory, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (TRC103B)" src="https://m.media-amazon.com/images/I/61SAYC4I7xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0771CZY8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Trace Collection - Large - Blue &amp; Ivory, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (TRC103B)" src="https://m.media-amazon.com/images/I/61SAYC4I7xL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 8x10 - Trace Collection** is perfect for homeowners and interior enthusiasts looking to add a touch of elegance and warmth to their **living room, bedroom, office, or dining space**. Ideal for those who appreciate high-quality, **handmade wool rugs** with a classic yet contemporary design, this rug suits anyone aiming to enhance their home's aesthetic while ensuring durability and comfort.
@@ -152,10 +152,10 @@ Crafted by **Safavieh**, this **handmade wool rug** showcases exceptional qualit
 
 Beyond its visual appeal, the rug’s wool composition offers natural durability and resilience, making it resistant to stains and wear. This makes it suitable for high-traffic areas like dining rooms and offices, while also providing a soft surface for living rooms and bedrooms. Investing in this rug means benefiting from a balance of luxury, practicality, and lasting beauty that enhances your home environment.
 
-## <a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Polly Collection Pol-12 Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Polly Collection Pol-12 Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3'-9"="" accent="" alt="Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" rug"="" src="https://m.media-amazon.com/images/I/510oh4bwkNL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3'-9"="" accent="" alt="Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" rug"="" src="https://m.media-amazon.com/images/I/510oh4bwkNL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" x 3'-9" Accent Rug** is ideal for homeowners and interior design enthusiasts looking to add a subtle yet elegant touch to their living spaces. Perfect for those who appreciate a blend of modern and classic styles, this rug suits small to medium-sized areas such as entryways, bedrooms, or cozy seating nooks. If you want a lightweight, visually appealing rug that complements neutral color palettes, this item is an excellent choice.
@@ -176,10 +176,10 @@ The **Loloi Chris Loves Julia Polly Collection POL-12 Accent Rug** stands out wi
 
 Made by **Loloi Rugs**, this accent rug promises high-quality craftsmanship and durability. The neutral color palette works well with various interior design themes, from contemporary to farmhouse styles, offering users flexibility in styling their spaces. Overall, this rug combines aesthetic appeal with functional design, making it a valuable addition to any home seeking subtle elegance and comfort.
 
-## <a href="https://www.amazon.com/dp/B09CLSYZJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Margot Collection Mat-03 Ocean/spice Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09CLSYZJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Margot Collection Mat-03 Ocean/spice Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09CLSYZJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 11'-6"="" alt="Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" area="" area"="" bedroom,="" clean="" dining="" easy="" for="" large="" living="" no-shed="" patterned="" room,="" rug="" rug,="" src="https://m.media-amazon.com/images/I/51MKkAWnA4L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B09CLSYZJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 11'-6"="" alt="Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" area="" area"="" bedroom,="" clean="" dining="" easy="" for="" large="" living="" no-shed="" patterned="" room,="" rug="" rug,="" src="https://m.media-amazon.com/images/I/51MKkAWnA4L._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" x 11'-6" Area Rug** is ideal for homeowners and interior designers looking to enhance large living spaces such as living rooms, bedrooms, or dining areas with a stylish and durable rug. Those who value a combination of aesthetic appeal and practical functionality, especially in busy households, will appreciate this no-shed, easy-clean rug with a large patterned design.
@@ -201,10 +201,10 @@ Crafted by **Loloi Rugs**, this area rug blends functionality with design throug
 
 The rug's **easy-clean**Loloi Margot Collection MAT-03 area rug is a perfect blend of durability, beauty, and practicality for those wanting to elevate their home décor effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0F44RVKT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Ryder Collection Ryd-02 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0F44RVKT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Ryder Collection Ryd-02 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F44RVKT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Ryder Collection RYD-02 Stone/Ivory 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51y3dAPVWCL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F44RVKT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Ryder Collection RYD-02 Stone/Ivory 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51y3dAPVWCL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Ryder Collection RYD-02 Stone/Ivory 5'-0" x 7'-6" Area Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of elegance and warmth to their living spaces. If you appreciate a blend of classic and contemporary design with neutral tones, this rug fits perfectly in your home, especially in living rooms, bedrooms, or dining areas seeking a subtle yet stylish upgrade.
@@ -225,10 +225,10 @@ This **area rug** features a refined blend of **stone and ivory hues** that brin
 
 Made by **Loloi Rugs**, this rug combines quality craftsmanship with durable materials, making it a long-lasting addition to your interior. The neutral tones allow for easy integration with various color schemes and furniture styles, enhancing the overall harmony of your living space while protecting floors and adding warmth underfoot.
 
-## <a href="https://www.amazon.com/dp/B0DG3QGL35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Monty Collection Mot-03 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DG3QGL35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Monty Collection Mot-03 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG3QGL35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .50"="" 13',="" alt="Loloi Amber Lewis Monty Collection MOT-03 Ivory/Beige 9'-2" area="" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51ltpoPImQL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DG3QGL35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .50"="" 13',="" alt="Loloi Amber Lewis Monty Collection MOT-03 Ivory/Beige 9'-2" area="" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51ltpoPImQL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Amber Lewis Monty Collection MOT-03 Ivory/Beige 9'-2" x 13'** area rug is ideal for homeowners and interior designers seeking a sophisticated, neutral-toned floor covering that effortlessly blends with various décor styles. This rug suits those who want to add warmth and texture to large living spaces, dining rooms, or bedrooms while maintaining an elegant and inviting atmosphere.
@@ -250,10 +250,10 @@ The **Loloi Amber Lewis Monty Collection MOT-03** rug features a subtle yet styl
 
 Crafted by **Loloi Rugs**, this area rug ensures quality and longevity, making it a practical investment for high-traffic zones. The neutral tones not only brighten the room but also allow for versatile styling with various furniture and accent colors, creating a harmonious and inviting environment for family and guests alike.
 
-## <a href="https://www.amazon.com/dp/B0DBYYYFDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amoami-area Rug 8x10 Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DBYYYFDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amoami-area Rug 8x10 Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBYYYFDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AMOAMI-Area Rug 8X10 Rugs for Living Room-Vintage Soft Blue Rugs for Bedroom-Non Slip Carpet-Washable Rug for Dining Room Living Room Bedroom Office Under Table" src="https://m.media-amazon.com/images/I/51uv5F91XqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBYYYFDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AMOAMI-Area Rug 8X10 Rugs for Living Room-Vintage Soft Blue Rugs for Bedroom-Non Slip Carpet-Washable Rug for Dining Room Living Room Bedroom Office Under Table" src="https://m.media-amazon.com/images/I/51uv5F91XqL._SL500_.jpg"/></a>
 
 
 The **AMOAMI-Area Rug 8X10** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet functional floor covering. Perfect for those who want a versatile, **washable rug** that can fit comfortably in the **living room**, **bedroom**, **dining room**, or even the **office**, this rug suits individuals who appreciate a blend of vintage aesthetics and practical design. If you need a **non-slip carpet** that offers both comfort and safety, this product is a great choice.

@@ -23,10 +23,10 @@ Colors like sage green, taupe grey, or white blend with many kitchen styles. Som
 
 
 
-## <a href="https://www.amazon.com/dp/B0C6HW47RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains</a>
+## <a href="https://www.amazon.com/dp/B0C6HW47RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6HW47RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains, Faux Linen Textured Small Cafe Curtains, Light Filtering Short Window Curtains for Bathroom Basement, 30x36 inch, 2PCS" src="https://m.media-amazon.com/images/I/41Ona7Z6ESL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6HW47RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains, Faux Linen Textured Small Cafe Curtains, Light Filtering Short Window Curtains for Bathroom Basement, 30x36 inch, 2PCS" src="https://m.media-amazon.com/images/I/41Ona7Z6ESL._SL500_.jpg"/></a>
 
 
 The **Chyhomenyc 2 Panels White Kitchen Curtains** are ideal for homeowners or renters looking to enhance their kitchen, bathroom, or basement windows with a stylish yet functional window treatment. Perfect for those who prefer a light and airy atmosphere, these curtains offer a subtle blend of privacy and natural light filtering, making them a great choice for small windows or casual cafe-style décor.
@@ -50,10 +50,10 @@ The **Chyhomenyc White Kitchen Curtains** feature a beautifully textured faux li
 
 These curtains are designed with convenience in mind, offered as a pair of panels that measure 30x36 inches, perfect for tiered or cafe-style window treatments. Their lightweight construction means they are easy to hang, remove, and wash, which is ideal for busy households. The subtle texture and simple design make them versatile, ensuring they complement a range of interior styles from modern to rustic without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B09SBD7T1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Halloween Short Curtains</a>
+## <a href="https://www.amazon.com/dp/B09SBD7T1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Halloween Short Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09SBD7T1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Halloween Short Curtains 36 inches Long, Black Out RV Bunk Panels, Kitchen Window Curtains Over Sink, Thermal Insulating Blackout Drapes/Draperies for Small Window (2 Panels, 42 inches Wide)" src="https://m.media-amazon.com/images/I/417VUJT27+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SBD7T1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Halloween Short Curtains 36 inches Long, Black Out RV Bunk Panels, Kitchen Window Curtains Over Sink, Thermal Insulating Blackout Drapes/Draperies for Small Window (2 Panels, 42 inches Wide)" src="https://m.media-amazon.com/images/I/417VUJT27+L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Halloween Short Curtains** are perfect for individuals seeking stylish yet functional window treatments for small windows such as RV bunks, kitchen sinks, or compact spaces. Ideal for those who want to combine festive decor with practical benefits like thermal insulation and blackout capabilities, these curtains cater especially well to RV owners, apartment dwellers, and homeowners with limited window sizes.
@@ -77,10 +77,10 @@ The **NICETOWN Halloween Short Curtains** are crafted with high-quality blackout
 
 Designed with both functionality and style in mind, these curtains provide a sleek black finish that enhances seasonal Halloween themes or adds a modern touch to everyday spaces. The lightweight fabric allows for easy installation and maintenance, making them a convenient choice for renters or anyone looking to quickly update their window treatments. Overall, the **NICETOWN Thermal Insulating Blackout Drapes** offer a blend of aesthetic appeal and practical benefits, making them a valuable addition to any small window setting.
 
-## <a href="https://www.amazon.com/dp/B09KMT2P5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8pcs No Drill Curtain Rod Brackets</a>
+## <a href="https://www.amazon.com/dp/B09KMT2P5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8pcs No Drill Curtain Rod Brackets</a>
 
 
-<a href="https://www.amazon.com/dp/B09KMT2P5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8PCS No Drill Curtain Rod Brackets No Drilling Self Adhesive Curtain Rod Holder Hooks Nail Free Adjustable Curtain Rod Hooks Curtain Hangers for Bathroom Kitchen Home Bathroom and Hotel (Transparent)" src="https://m.media-amazon.com/images/I/41DkquV2sKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KMT2P5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8PCS No Drill Curtain Rod Brackets No Drilling Self Adhesive Curtain Rod Holder Hooks Nail Free Adjustable Curtain Rod Hooks Curtain Hangers for Bathroom Kitchen Home Bathroom and Hotel (Transparent)" src="https://m.media-amazon.com/images/I/41DkquV2sKL._SL500_.jpg"/></a>
 
 
 Ideal for renters, homeowners, and anyone seeking a hassle-free window treatment solution, the **8PCS No Drill Curtain Rod Brackets** are perfect for those who want to avoid damaging walls or surfaces. These **self-adhesive curtain rod holder hooks** are especially useful in spaces like bathrooms, kitchens, and hotel rooms where drilling is either prohibited or undesirable.
@@ -104,10 +104,10 @@ The **Codoule 8PCS No Drill Curtain Rod Brackets** feature an innovative **self-
 
 Users benefit from the convenience and damage-free installation, especially in rental properties or spaces where permanent modifications are restricted. The brackets’ compact size ensures they do not take up excessive space, making them ideal for smaller areas like bathrooms or kitchens. While designed to hold standard curtain rods firmly, they provide a flexible, nail-free solution that enhances both aesthetics and functionality in any home or commercial setting.
 
-## <a href="https://www.amazon.com/dp/B0CHRL5C67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecloud Leia 36 Inch Sheer Curtains Sage Green Tiers</a>
+## <a href="https://www.amazon.com/dp/B0CHRL5C67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecloud Leia 36 Inch Sheer Curtains Sage Green Tiers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHRL5C67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lecloud Leia 36 Inch Sheer Curtains Sage Green Tiers for Kitchen 2 Pieces, Double Rod Pockets Window Living Room Curtain for Small Window, Jacquard Leaves Voile Bathroom/Bedroom Drapes, 38x36 Inches" src="https://m.media-amazon.com/images/I/51cC8wV66wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHRL5C67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lecloud Leia 36 Inch Sheer Curtains Sage Green Tiers for Kitchen 2 Pieces, Double Rod Pockets Window Living Room Curtain for Small Window, Jacquard Leaves Voile Bathroom/Bedroom Drapes, 38x36 Inches" src="https://m.media-amazon.com/images/I/51cC8wV66wL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to enhance their living spaces with a touch of elegance and natural charm, the **Lecloud Leia 36 Inch Sheer Curtains** in **Sage Green** are perfect for those who want lightweight, stylish window treatments. These curtains suit individuals seeking a balance between privacy and natural light, making them especially suitable for kitchens, bathrooms, bedrooms, or any small window area.
@@ -130,10 +130,10 @@ The **Lecloud Leia Sheer Curtains** feature a delicate **jacquard leaves voile**
 
 Designed with **double rod pockets**, these curtains offer easy installation and flexibility, allowing users to layer with other curtains or blinds if desired. Their compact size suits small windows perfectly, providing an elegant solution without overwhelming the space. Overall, these curtains combine style, functionality, and subtle charm, making them a valuable addition to any home looking to enhance window decor with a natural touch.
 
-## <a href="https://www.amazon.com/dp/B07Y4TJ2F5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Linen Kitchen Curtains</a>
+## <a href="https://www.amazon.com/dp/B07Y4TJ2F5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Linen Kitchen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y4TJ2F5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Linen Kitchen Curtains 24 Inch Length Striped Tier Curtains Ticking Stripe Small Drapes for Living Room Bathroom Cafe Small Window Farmhouse Rustic Pinstripe Rod Pocket 2 Panels Taupe Grey" src="https://m.media-amazon.com/images/I/51WWLEOyxUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Y4TJ2F5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Linen Kitchen Curtains 24 Inch Length Striped Tier Curtains Ticking Stripe Small Drapes for Living Room Bathroom Cafe Small Window Farmhouse Rustic Pinstripe Rod Pocket 2 Panels Taupe Grey" src="https://m.media-amazon.com/images/I/51WWLEOyxUL._SL500_.jpg"/></a>
 
 
 The **jinchan Linen Kitchen Curtains 24 Inch Length** are ideal for homeowners or renters looking to add a touch of **farmhouse rustic charm** to their small windows. Perfect for kitchens, bathrooms, cafes, or any cozy living space, these curtains suit those who appreciate a blend of style and functionality in a compact size. If you want to enhance your room’s ambiance with **striped taupe grey linen drapes** that offer privacy without sacrificing natural light, this product is a great fit.
@@ -156,10 +156,10 @@ The **jinchan Linen Kitchen Curtains** feature a classic **pinstripe ticking pat
 
 Additionally, the **rod pocket design** ensures easy installation and a smooth, gathered look that enhances window aesthetics without complicated hardware. The two-panel set offers versatility in managing light and privacy, making them suitable for different times of day and varying privacy needs. Overall, these curtains bring a blend of practicality and style, perfect for users wanting to subtly elevate their small spaces.
 
-## <a href="https://www.amazon.com/dp/B01NAOM85J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Kitchen Blackout Short Curtain Panels</a>
+## <a href="https://www.amazon.com/dp/B01NAOM85J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Kitchen Blackout Short Curtain Panels</a>
 
 
-<a href="https://www.amazon.com/dp/B01NAOM85J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Kitchen Blackout Short Curtain Panels for Bedroom, 45 Inch Long Thermal Insulated Grommet Top Blackout Draperies and Drapes (2 Panels, W42 x L45 -Inch, Grey)" src="https://m.media-amazon.com/images/I/41lYSbT00IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01NAOM85J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Kitchen Blackout Short Curtain Panels for Bedroom, 45 Inch Long Thermal Insulated Grommet Top Blackout Draperies and Drapes (2 Panels, W42 x L45 -Inch, Grey)" src="https://m.media-amazon.com/images/I/41lYSbT00IL._SL500_.jpg"/></a>
 
 
 The **NICETOWN Grey Kitchen Blackout Short Curtain Panels** are ideal for homeowners or renters looking to enhance privacy and light control in smaller spaces such as kitchens or bedrooms. These panels are perfect for those who want to combine style with functionality, especially individuals who prefer a modern look with the added benefit of thermal insulation.
@@ -182,10 +182,10 @@ The **NICETOWN Grey Kitchen Blackout Short Curtain Panels** measure 42 inches in
 
 These panels not only provide practical benefits but also add a modern touch with their sleek **grey color** and clean design. The blackout feature ensures that unwanted light is effectively blocked, which is especially useful for bedrooms, nurseries, or kitchens where light control is essential. Overall, these curtains offer a balanced combination of style, comfort, and energy savings for any home setting.
 
-## <a href="https://www.amazon.com/dp/B0F13MDQHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Youngstex Short Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0F13MDQHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Youngstex Short Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0F13MDQHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YoungsTex Short Linen Curtains 40 Inches Long for Kitchen Window Over Sink, Small Semi Sheer Drapes Light Filtering Rustic with Bronze Grommet for Cafe Bathroom Window, 42 x 40 Inch, 2 Panels" src="https://m.media-amazon.com/images/I/41F9WXj59XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F13MDQHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YoungsTex Short Linen Curtains 40 Inches Long for Kitchen Window Over Sink, Small Semi Sheer Drapes Light Filtering Rustic with Bronze Grommet for Cafe Bathroom Window, 42 x 40 Inch, 2 Panels" src="https://m.media-amazon.com/images/I/41F9WXj59XL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to enhance their kitchen or small bathroom windows, the **YoungsTex Short Linen Curtains** are perfect for those who appreciate a blend of style and functionality. These semi-sheer drapes are especially suitable for individuals seeking light-filtering window treatments that add a rustic yet elegant touch to their space without overwhelming it.
@@ -208,10 +208,10 @@ The **YoungsTex Short Linen Curtains** are thoughtfully designed to fit smaller 
 
 Featuring a stylish **bronze grommet** top, these curtains are easy to hang and slide effortlessly, making them a practical choice for busy households. The natural linen color and rustic texture add a subtle charm that pairs well with various decor themes, enhancing the overall aesthetic without overpowering the space. This combination of form and function makes the **YoungsTex Short Linen Curtains** an excellent choice for anyone wanting to brighten and personalize their small windows with ease.
 
-## <a href="https://www.amazon.com/dp/B0C2QBJC4M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains</a>
+## <a href="https://www.amazon.com/dp/B0C2QBJC4M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2QBJC4M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains Over Sink Boho Farmhouse Flower Leaf Small Window Treatment Sage Green Cafe Short Curtains for Bathroom Tier Drapes 27.5x39 inch" src="https://m.media-amazon.com/images/I/51sEwCjK+oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2QBJC4M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains Over Sink Boho Farmhouse Flower Leaf Small Window Treatment Sage Green Cafe Short Curtains for Bathroom Tier Drapes 27.5x39 inch" src="https://m.media-amazon.com/images/I/51sEwCjK+oL._SL500_.jpg"/></a>
 
 
 The **oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains** are perfect for individuals looking to enhance their kitchen or bathroom windows with a touch of natural elegance. Ideal for homeowners or renters who appreciate **boho farmhouse** aesthetics and desire a refreshing yet subtle design, these **small window treatments** fit perfectly over sinks or smaller windows, adding charm without overpowering the space. Those seeking a balance between functionality and style will find these **tier drapes** especially appealing.
@@ -234,10 +234,10 @@ The **oolygoo Eucalyptus Botanical Leaves Floral Kitchen Window Curtains** stand
 
 Crafted by **oolygoo**, these curtains offer both aesthetic appeal and practical benefits. The lightweight fabric allows natural light to filter through gently, creating a soft ambiance while still offering a degree of privacy. Their tier design ensures that they cover the lower portion of the window, which is ideal for kitchen sinks or bathrooms where privacy is desired without blocking the entire window. Additionally, the easy-care material simplifies maintenance, making them suitable for everyday living environments.
 
-## <a href="https://www.amazon.com/dp/B0CXJ7MT3L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Linen Pinch Pleated Kitchen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0CXJ7MT3L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jinchan Linen Pinch Pleated Kitchen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXJ7MT3L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Linen Pinch Pleated Kitchen Curtains 36 Inch 2 Panels, Natural Linen Tier Curtains Back Tab Beige Farmhouse Cafe, Light Filtering Small Window Drapes for Bathroom Laundry Room Beige" src="https://m.media-amazon.com/images/I/51u0BG-Nu-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXJ7MT3L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="jinchan Linen Pinch Pleated Kitchen Curtains 36 Inch 2 Panels, Natural Linen Tier Curtains Back Tab Beige Farmhouse Cafe, Light Filtering Small Window Drapes for Bathroom Laundry Room Beige" src="https://m.media-amazon.com/images/I/51u0BG-Nu-L._SL500_.jpg"/></a>
 
 
 The **jinchan Linen Pinch Pleated Kitchen Curtains** are ideal for homeowners and renters who want to enhance small spaces like kitchens, bathrooms, or laundry rooms with a touch of natural elegance. If you're looking for stylish yet functional window treatments that allow soft light to filter through while maintaining privacy, these **36-inch beige linen curtains** are an excellent choice.
@@ -261,10 +261,10 @@ The **jinchan Linen Pinch Pleated Kitchen Curtains** are crafted from high-quali
 
 With a convenient back tab design, these curtains are easy to hang and move along standard rods, making installation hassle-free. Their compact dimensions, measuring **36 inches in length and 26 inches in width**, make them particularly suited for small windows in areas like bathrooms, kitchens, or laundry rooms. The natural beige tone blends seamlessly with various decor styles, enhancing the overall aesthetic without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B0DMDWK6X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owenie Bob 2 Panels Sage Green Kitchen Curtains Sets</a>
+## <a href="https://www.amazon.com/dp/B0DMDWK6X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owenie Bob 2 Panels Sage Green Kitchen Curtains Sets</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMDWK6X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWENIE Bob 2 Panels Sage Green Kitchen Curtains Sets for Windows 36 Inch Length, Faux Linen Textured Short Cafe Curtains Tiers for Kitchen, Rod Pocket Small Window Drapes for Bathroom, 30Wx36L Inch" src="https://m.media-amazon.com/images/I/41zf7cUHRIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMDWK6X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWENIE Bob 2 Panels Sage Green Kitchen Curtains Sets for Windows 36 Inch Length, Faux Linen Textured Short Cafe Curtains Tiers for Kitchen, Rod Pocket Small Window Drapes for Bathroom, 30Wx36L Inch" src="https://m.media-amazon.com/images/I/41zf7cUHRIL._SL500_.jpg"/></a>
 
 
 The **OWENIE Bob 2 Panels Sage Green Kitchen Curtains Sets** are ideal for homeowners or renters looking to add a touch of elegance and privacy to small windows, especially in kitchens or bathrooms. If you want stylish, functional window treatments that offer a fresh, natural look without overwhelming your space, these **36 inch faux linen textured cafe curtains** are perfect for you.

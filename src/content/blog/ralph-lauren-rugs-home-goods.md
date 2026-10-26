@@ -23,10 +23,10 @@ Smaller accent rugs from Loloi Chris Loves Julia and SAFAVIEH Natura provide coz
 
 
 
-## <a href="https://www.amazon.com/dp/B081V18612?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Teagan Collection Tea-03 Ivory/sand Area Rug</a>
+## <a href="https://www.amazon.com/dp/B081V18612?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Teagan Collection Tea-03 Ivory/sand Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B081V18612?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'-6"="" alt="Loloi Teagan Collection TEA-03 Ivory/Sand 7'-11" area="" area"="" bedroom,="" dining="" for="" high-traffic="" home="" large,="" living="" neutral="" office,="" room,="" rug,="" soft="" src="https://m.media-amazon.com/images/I/51AZwsdAVtL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B081V18612?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'-6"="" alt="Loloi Teagan Collection TEA-03 Ivory/Sand 7'-11" area="" area"="" bedroom,="" dining="" for="" high-traffic="" home="" large,="" living="" neutral="" office,="" room,="" rug,="" soft="" src="https://m.media-amazon.com/images/I/51AZwsdAVtL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Teagan Collection TEA-03 Ivory/Sand Area Rug** is an excellent choice for homeowners looking to enhance their living spaces with a stylish yet practical floor covering. Ideal for those who want a **large, soft neutral rug** that complements various decor styles, this rug is perfect for high-traffic areas such as the **living room, bedroom, home office,** and **dining area**. If you value durability combined with elegant design, this rug is tailored for you.
@@ -50,10 +50,10 @@ The **Loloi Teagan Collection TEA-03** rug features a subtle yet elegant **Ivory
 
 Constructed by **Loloi II**, a trusted manufacturer, this rug combines style with functionality. Its neutral tones allow it to blend effortlessly with various decor styles, from contemporary to traditional. Whether placed in a **living room, home office, bedroom,** or **dining area,** this rug provides a cozy foundation that ties the room together while withstanding daily use.
 
-## <a href="https://www.amazon.com/dp/B082PJZ6R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10</a>
+## <a href="https://www.amazon.com/dp/B082PJZ6R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10</a>
 
 
-<a href="https://www.amazon.com/dp/B082PJZ6R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Evoke Collection - Large - Ivory &amp; Taupe, Oriental Distressed Design, Non-Shedding &amp; Easy Cleaning, Ideal for Living Room, Bedroom, Office, Dining Space (EVK256E)" src="https://m.media-amazon.com/images/I/51m87sH1CeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082PJZ6R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Evoke Collection - Large - Ivory &amp; Taupe, Oriental Distressed Design, Non-Shedding &amp; Easy Cleaning, Ideal for Living Room, Bedroom, Office, Dining Space (EVK256E)" src="https://m.media-amazon.com/images/I/51m87sH1CeL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 8x10** from the **Evoke Collection** is perfect for homeowners and interior decorators looking to add a touch of elegance and comfort to their **living room**, **bedroom**, **office**, or **dining space**. Ideal for those who want a stylish yet practical rug, this piece suits individuals seeking a blend of classic oriental design with modern durability and easy maintenance.
@@ -75,10 +75,10 @@ The **SAFAVIEH Area Rug** stands out with its timeless **Ivory and Taupe color p
 
 Beyond its visual appeal, this rug is designed for practicality. The **non-shedding** feature keeps the area clean and reduces allergens, which is particularly beneficial for families and pet owners. Additionally, the easy cleaning capability ensures that the rug maintains its beauty with minimal effort, making it a smart investment for busy lifestyles. The robust construction and optimal weight provide stability, preventing unwanted movement and contributing to a safer environment.
 
-## <a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Polly Collection Pol-12 Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Polly Collection Pol-12 Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3'-9"="" accent="" alt="Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" rug"="" src="https://m.media-amazon.com/images/I/510oh4bwkNL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CRLSZ1BK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3'-9"="" accent="" alt="Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" rug"="" src="https://m.media-amazon.com/images/I/510oh4bwkNL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Chris Loves Julia Polly Collection POL-12 Cream/Sand 2'-3" x 3'-9" Accent Rug** is ideal for homeowners and interior design enthusiasts looking to add a subtle yet sophisticated touch to small spaces. This rug is perfect for accentuating areas such as entryways, reading nooks, or under small furniture pieces, especially for those who appreciate a neutral color palette with a blend of **cream** and **sand** tones. If you're seeking a lightweight, stylish accent rug that complements various decor styles, this item is an excellent choice.
@@ -99,10 +99,10 @@ The **Loloi Chris Loves Julia Polly Collection POL-12 Accent Rug** features a re
 
 Beyond its aesthetic appeal, this rug offers practical benefits, including being easy to handle and maintain due to its manageable weight. The trusted craftsmanship of **Loloi Rugs** ensures that the rug is durable and made with attention to detail, making it a worthwhile addition to your home decor collection. Whether placed in a cozy corner or as an accent piece in a hallway, this rug elevates the ambiance with its timeless color scheme and quality design.
 
-## <a href="https://www.amazon.com/dp/B0771CZY8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10 - Trace Collection</a>
+## <a href="https://www.amazon.com/dp/B0771CZY8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug 8x10 - Trace Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B0771CZY8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Trace Collection - Large - Blue &amp; Ivory, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (TRC103B)" src="https://m.media-amazon.com/images/I/61SAYC4I7xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0771CZY8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Trace Collection - Large - Blue &amp; Ivory, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (TRC103B)" src="https://m.media-amazon.com/images/I/61SAYC4I7xL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 8x10 - Trace Collection** is perfect for those looking to add a touch of elegance and comfort to their living spaces. Ideal for homeowners, interior designers, or anyone wanting to enhance their **living room**, **bedroom**, **office**, or **dining area**, this rug blends style with functionality. If you appreciate quality craftsmanship and want a durable yet beautiful floor covering, this handmade wool rug is an excellent choice.
@@ -124,10 +124,10 @@ The **SAFAVIEH Trace Collection rug** features a meticulous handmade design usin
 
 Beyond its visual appeal, this rug provides practical benefits such as added insulation and noise reduction, making your home more comfortable and inviting. The 1.0-inch pile height offers a plush feel that is gentle on bare feet and adds a cozy layer to hardwood, tile, or laminate flooring. Crafted by the reputable brand **SAFAVIEH**, this area rug is a smart investment for those who value both style and quality in their home decor.
 
-## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Gigi Collection Gig-01 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CW4J5SJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51PBVBPJknL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Gigi Collection GIG-01 Grey/Ivory 5'-3" x 7'-6" Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and subtle sophistication to their living spaces. This rug suits those who appreciate a blend of modern and rustic aesthetics, especially fans of Joanna Gaines' signature style. If you want a durable yet stylish floor covering that complements neutral tones and enhances room decor, this rug is a perfect choice.
@@ -148,10 +148,10 @@ The **Loloi Magnolia Home Gigi Collection Rug** showcases a thoughtfully designe
 
 Constructed by **Loloi Rugs**, this area rug emphasizes durability without sacrificing style. The low pile height ensures that it remains easy to vacuum and maintain, making it practical for busy households. Additionally, the rug’s design reflects Joanna Gaines' aesthetic, combining modern simplicity with rustic warmth, offering an inviting atmosphere for guests and family alike.
 
-## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zesthome 8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5MJMPVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="zesthome 8x10 Area Rugs for Living Room,Non-Slip Backing Washable Rugs,Vintage Large Area Rug，Stain Resistant Home Decor Rug (Orange,8'x10')" src="https://m.media-amazon.com/images/I/51BtyXUmCXL._SL500_.jpg"/></a>
 
 
 The **zesthome 8x10 Area Rug** in vibrant **Orange** is ideal for homeowners and renters looking to enhance their living room with a stylish yet practical floor covering. If you want a rug that combines a **vintage aesthetic** with modern functionality, such as being **stain resistant** and **washable**, this rug is perfect for you. It's especially suited for those who prioritize both comfort and safety, thanks to its **non-slip backing**, making it a great choice for families with children or pets.
@@ -174,10 +174,10 @@ Featuring a substantial size of **8 feet by 10 feet**, the **zesthome area rug**
 
 Beyond aesthetics, the rug is crafted with practicality in mind. The **non-slip backing** enhances safety by preventing unwanted slips and slides, which is essential in high-traffic areas or homes with kids and pets. Moreover, the **stain resistant and washable fabric** allows for easy maintenance, ensuring the rug remains a fresh and inviting part of your living space for years to come. This combination of style, comfort, and durability makes the zesthome 8x10 area rug a smart investment for anyone seeking both function and flair in their home décor.
 
-## <a href="https://www.amazon.com/dp/B073HCBT3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Natura Collection Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B073HCBT3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Natura Collection Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B073HCBT3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Natura Collection Accent Rug - 2' x 3', Ivory, Handmade Wool, Ideal for High Traffic Areas in Entryway, Living Room, Bedroom (NAT620A)" src="https://m.media-amazon.com/images/I/51YObsNOBxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073HCBT3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Natura Collection Accent Rug - 2' x 3', Ivory, Handmade Wool, Ideal for High Traffic Areas in Entryway, Living Room, Bedroom (NAT620A)" src="https://m.media-amazon.com/images/I/51YObsNOBxL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Natura Collection Accent Rug** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet durable floor covering. Ideal for individuals who want a high-quality, **handmade wool rug** that can withstand **high traffic areas** such as entryways, living rooms, or bedrooms, this rug combines functionality with aesthetic appeal. If you appreciate natural materials and want a subtle, elegant touch of ivory color in your home décor, this rug is an excellent choice.
@@ -199,10 +199,10 @@ The **SAFAVIEH Natura Collection Accent Rug** measures **24 inches in width and 
 
 Additionally, the rug’s **ivory color** brings a sophisticated and airy feel to the space, enhancing light and creating a welcoming atmosphere. Its handmade construction by **Safavieh** guarantees attention to detail and quality craftsmanship. This accent rug not only beautifies your home but also stands up to daily use, making it a smart investment for those seeking both style and practicality.
 
-## <a href="https://www.amazon.com/dp/B0F41LB6K1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Pace Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0F41LB6K1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Pace Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F41LB6K1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'="" alt="Loloi Magnolia Home by Joanna Gaines Pace Collection PAC-06 Forrest/Natural 7'-10" area="" rug"="" src="https://m.media-amazon.com/images/I/51UaBrkxgDL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F41LB6K1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'="" alt="Loloi Magnolia Home by Joanna Gaines Pace Collection PAC-06 Forrest/Natural 7'-10" area="" rug"="" src="https://m.media-amazon.com/images/I/51UaBrkxgDL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Pace Collection PAC-06 Forrest/Natural 7'-10" x 10' Area Rug** is ideal for homeowners and interior enthusiasts looking to enhance their living spaces with a stylish yet functional floor covering. This rug is perfect for those who appreciate a blend of rustic charm and modern design, especially fans of Joanna Gaines' signature aesthetic. It suits medium to large rooms where durability and visual appeal are equally important.
@@ -225,10 +225,10 @@ The **Loloi Magnolia Home Pace Collection PAC-06** rug features a thoughtfully s
 
 Additionally, the rug's design reflects Joanna Gaines' iconic rustic yet modern aesthetic, making it a versatile choice for various interior themes from farmhouse to contemporary. The balance of color and durability makes it a practical investment, as it not only elevates the decor but also offers comfort underfoot and noise reduction in larger spaces. Overall, this area rug is a smart choice for anyone wanting to blend beauty with function in their home.
 
-## <a href="https://www.amazon.com/dp/B09CLSYZJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Margot Collection Mat-03 Ocean/spice Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09CLSYZJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Margot Collection Mat-03 Ocean/spice Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09CLSYZJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 11'-6"="" alt="Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" area="" area"="" bedroom,="" clean="" dining="" easy="" for="" large="" living="" no-shed="" patterned="" room,="" rug="" rug,="" src="https://m.media-amazon.com/images/I/51MKkAWnA4L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B09CLSYZJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 11'-6"="" alt="Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" area="" area"="" bedroom,="" clean="" dining="" easy="" for="" large="" living="" no-shed="" patterned="" room,="" rug="" rug,="" src="https://m.media-amazon.com/images/I/51MKkAWnA4L._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Margot Collection MAT-03 Ocean/Spice 8'-6" x 11'-6" Area Rug** is perfect for homeowners and interior enthusiasts looking to elevate their living space with a stylish, durable, and easy-to-maintain rug. Ideal for those who want a large, patterned area rug that complements both modern and traditional decor in areas such as the **living room**, **bedroom**, or **dining area**, this rug combines aesthetic appeal with practical functionality.
@@ -250,10 +250,10 @@ The **Loloi Margot Collection MAT-03** area rug features a bold, large pattern t
 
 Additionally, the rug’s **easy clean** surface means spills and dirt can be managed effortlessly, making it ideal for busy households or dining areas. The harmonious blend of **Ocean** and **Spice** colors introduces a versatile aesthetic that complements a variety of interior styles, from coastal to contemporary. Overall, this rug not only elevates the look of your home but also provides practical benefits that enhance everyday living.
 
-## <a href="https://www.amazon.com/dp/B0B998DYK1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Humphrey Collection Hum-02 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B998DYK1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Humphrey Collection Hum-02 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B998DYK1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Loloi Chris Loves Julia Humphrey Collection HUM-02 Ivory/Multi 8'-3'' x 11'-3'' .38" area="" cloudpile"="" feat.="" height,="" pile="" rug="" src="https://m.media-amazon.com/images/I/51ZsJV5yl0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B998DYK1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Loloi Chris Loves Julia Humphrey Collection HUM-02 Ivory/Multi 8'-3'' x 11'-3'' .38" area="" cloudpile"="" feat.="" height,="" pile="" rug="" src="https://m.media-amazon.com/images/I/51ZsJV5yl0L._SL500_.jpg"/></a>
 
 
 The **Loloi Chris Loves Julia Humphrey Collection HUM-02 Ivory/Multi Area Rug** is perfect for homeowners and interior design enthusiasts looking to add a touch of elegance and comfort to their living spaces. Ideal for those who appreciate a blend of modern and classic styles, this rug suits both contemporary and traditional decor. If you want a durable, plush rug that enhances your room’s aesthetic while providing a soft underfoot experience, this item is an excellent choice.

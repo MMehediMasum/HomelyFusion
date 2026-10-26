@@ -23,10 +23,10 @@ Some mortars are designed for specific surfaces, like glass tiles or heavy concr
 
 
 
-## <a href="https://www.amazon.com/dp/B0039RV442?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
+## <a href="https://www.amazon.com/dp/B0039RV442?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
 
 
-<a href="https://www.amazon.com/dp/B0039RV442?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT" src="https://m.media-amazon.com/images/I/5135nnAMjHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0039RV442?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT" src="https://m.media-amazon.com/images/I/5135nnAMjHL._SL500_.jpg"/></a>
 
 
 The **CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT** is ideal for DIY enthusiasts, professional tile installers, and homeowners looking for a reliable and convenient solution for small to medium tile projects. If you need a pre-mixed mortar that saves time and effort without sacrificing quality, this product is designed for you.
@@ -49,12 +49,12 @@ The **SimpleSet Pre-Mixed Thin-Set Mortar** offers the convenience of being pre-
 
 Additionally, the gray color of the mortar helps to create a seamless look beneath various tile styles, making your finished project look clean and professional. Being produced by the reputable **CUSTOM BLDG PRODUCTS** brand, users can trust in the quality and reliability of this product for their tile setting needs. Overall, this pre-mixed thin-set mortar is a practical choice for anyone seeking efficiency and quality in tile installation.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0039RV442?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0039RV442?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001AZL25G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
+## <a href="https://www.amazon.com/dp/B001AZL25G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
 
 
-<a href="https://www.amazon.com/dp/B001AZL25G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT" src="https://m.media-amazon.com/images/I/41tm27ilt6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001AZL25G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT" src="https://m.media-amazon.com/images/I/41tm27ilt6L._SL500_.jpg"/></a>
 
 
 The **CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT** is ideal for both DIY enthusiasts and professional contractors who need a reliable, ready-to-use adhesive for tile installation. If you are looking for a convenient, mess-free solution to bond tiles securely without mixing powders or dealing with complicated preparation, this product is designed for you. Its compact size and pre-mixed formula make it especially suitable for small to medium projects or touch-ups.
@@ -77,12 +77,12 @@ The **SimpleSet Pre-Mixed Thin-Set Mortar** features a ready-to-use gray mortar 
 
 This mortar’s smooth texture allows for quick and efficient application, enabling users to achieve precise tile placement and alignment. Its lightweight and portable nature means you can easily carry it around for various projects, whether you are repairing a backsplash or installing new tiles in a small bathroom. Overall, it offers convenience and reliability, making it a smart choice for those who want hassle-free tile bonding without compromising on quality.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001AZL25G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001AZL25G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07Q2K3B99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fun Express Mortarboard Stand Ups</a>
+## <a href="https://www.amazon.com/dp/B07Q2K3B99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fun Express Mortarboard Stand Ups</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q2K3B99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fun Express - Mortarboard Stand Ups (3pc) for Graduation - Party Decor - Large Decor - Floor Stand Ups - Graduation - 3 Pieces" src="https://m.media-amazon.com/images/I/41JjZC1RlVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q2K3B99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fun Express - Mortarboard Stand Ups (3pc) for Graduation - Party Decor - Large Decor - Floor Stand Ups - Graduation - 3 Pieces" src="https://m.media-amazon.com/images/I/41JjZC1RlVL._SL500_.jpg"/></a>
 
 
 Ideal for event planners, teachers, and families looking to celebrate graduation milestones, the **Fun Express - Mortarboard Stand Ups (3pc)** are perfect for adding a festive and memorable touch to any graduation party. These large, eye-catching decorations are especially suited for those who want to create a vibrant and celebratory atmosphere with minimal effort.
@@ -105,12 +105,12 @@ The **Fun Express Mortarboard Stand Ups** offer a visually impressive way to cel
 
 Crafted by **Oriental Trading Company**, these stand ups are made from durable materials that hold up well during the party. Their sleek **black color** and traditional mortarboard design instantly convey the spirit of achievement and success, enhancing photo opportunities and making the event feel more special. Easy to set up and reposition, they provide convenience without sacrificing style.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07Q2K3B99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07Q2K3B99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001AQ24QG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products 25lb Ap Thin Set Mortar</a>
+## <a href="https://www.amazon.com/dp/B001AQ24QG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products 25lb Ap Thin Set Mortar</a>
 
 
-<a href="https://www.amazon.com/dp/B001AQ24QG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BUILDING PRODUCTS Custom BLDG Products 25Lb AP Thin Set Mortar Custom BLDG Products MTSG25 25Lb AP Thin Set Mortar" src="https://m.media-amazon.com/images/I/51tepwV+OnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001AQ24QG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BUILDING PRODUCTS Custom BLDG Products 25Lb AP Thin Set Mortar Custom BLDG Products MTSG25 25Lb AP Thin Set Mortar" src="https://m.media-amazon.com/images/I/51tepwV+OnL._SL500_.jpg"/></a>
 
 
 The **CUSTOM BUILDING PRODUCTS Custom BLDG Products 25Lb AP Thin Set Mortar** is ideal for professional contractors and DIY enthusiasts who require a reliable adhesive for tile installation. If you are looking to achieve strong, durable bonds on floors or walls, especially with ceramic or porcelain tiles, this thin set mortar offers an excellent solution. It is perfect for users who value quality and consistency in their building materials.
@@ -132,12 +132,12 @@ The **25Lb AP Thin Set Mortar** by **Custom Building Products** features a balan
 
 Additionally, this mortar supports a variety of tiling projects, making it versatile for different applications. Its ease of use reduces installation time, which is a significant benefit for contractors aiming to complete projects efficiently. Overall, the **Custom BLDG Products MTSG25 Thin Set Mortar** combines durability, reliability, and convenience, making it a valuable addition to any tiling project toolkit.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001AQ24QG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001AQ24QG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001LQU6BU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quikrete Construction Grade Mortar Mix</a>
+## <a href="https://www.amazon.com/dp/B001LQU6BU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quikrete Construction Grade Mortar Mix</a>
 
 
-<a href="https://www.amazon.com/dp/B001LQU6BU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QUIKRETE Construction Grade Mortar Mix of Masonry Cement and Graded Sand for Laying Brick, Concrete Units, and Stone, 10 Pounds" src="https://m.media-amazon.com/images/I/41iTZLOifKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001LQU6BU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QUIKRETE Construction Grade Mortar Mix of Masonry Cement and Graded Sand for Laying Brick, Concrete Units, and Stone, 10 Pounds" src="https://m.media-amazon.com/images/I/41iTZLOifKL._SL500_.jpg"/></a>
 
 
 The **QUIKRETE Construction Grade Mortar Mix** is ideal for homeowners, contractors, and masonry professionals who need a reliable and durable material for laying **brick**, **concrete units**, and **stone**. If you are looking for a high-quality mortar mix that ensures strong adhesion and long-lasting results, this product is an excellent choice for both small-scale repairs and larger construction projects.
@@ -160,12 +160,12 @@ The **QUIKRETE Construction Grade Mortar Mix** features a carefully formulated b
 
 In addition to ease of use, this mortar mix provides superior **bonding strength** that helps masonry units adhere securely to each other, increasing the overall stability and longevity of walls, walkways, and other structures. Its versatility allows it to be used in a variety of applications, from repairing damaged bricks to constructing new stone features. By choosing this product, users benefit from a trusted brand known for quality and reliability in construction materials.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001LQU6BU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001LQU6BU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07DZSL5SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mapei Adesilex-p10</a>
+## <a href="https://www.amazon.com/dp/B07DZSL5SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mapei Adesilex-p10</a>
 
 
-<a href="https://www.amazon.com/dp/B07DZSL5SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mapei Adesilex-P10 Premium Mosaic &amp; Glass Tile Mortar" src="https://m.media-amazon.com/images/I/51idGbjEPSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DZSL5SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mapei Adesilex-P10 Premium Mosaic &amp; Glass Tile Mortar" src="https://m.media-amazon.com/images/I/51idGbjEPSL._SL500_.jpg"/></a>
 
 
 The **Mapei Adesilex-P10 Premium Mosaic & Glass Tile Mortar** is ideal for professional tilers and DIY enthusiasts who require a high-quality adhesive specifically designed for installing delicate **mosaic** and **glass tiles**. This product is perfect for projects demanding superior bonding strength and a bright white finish that enhances the appearance of translucent and light-colored tiles.
@@ -188,12 +188,12 @@ The **Adesilex-P10 Premium Mosaic & Glass Tile Mortar** features a bright white 
 
 Thanks to its thin dimensions and controlled thickness, this mortar is perfect for creating sleek, professional-grade tile installations that last. The product's formulation from the reputable **Mapei** brand guarantees high performance and durability, making it a reliable choice for both residential and commercial projects. Overall, the **Adesilex-P10** mortar enhances the aesthetics and longevity of mosaic and glass tile surfaces, delivering superior results for users who demand quality and precision.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07DZSL5SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07DZSL5SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
+## <a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Bldg Products Simpleset Pre-mixed Thin-set Mortar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT (Pack of 2)" src="https://m.media-amazon.com/images/I/51kcrFQejBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT (Pack of 2)" src="https://m.media-amazon.com/images/I/51kcrFQejBL._SL500_.jpg"/></a>
 
 
 The **CUSTOM BLDG PRODUCTS SimpleSet Pre-Mixed Thin-Set Mortar 1 QT (Pack of 2)** is ideal for DIY enthusiasts, professional contractors, and anyone looking for a convenient and reliable adhesive solution for tile installation. If you need a ready-to-use, high-quality mortar for small tiling projects or repairs, this product is designed to save you time and effort without compromising on performance.
@@ -215,12 +215,12 @@ The **SimpleSet Pre-Mixed Thin-Set Mortar** by **CUSTOM BLDG PRODUCTS** offers a
 
 This mortar is designed for versatility, adhering well to a variety of substrates including concrete, drywall, and plywood. This makes it a practical choice for a wide range of tiling projects, from kitchen backsplashes to bathroom floors. The pre-mixed nature also reduces mess and waste, as you can apply exactly what you need without mixing excess material. Overall, the **CUSTOM SimpleSet Thin-Set Mortar** is a smart solution for anyone seeking a reliable, easy-to-use, and efficient adhesive product for tile installation tasks.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DC7PK9XT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000FCCYZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quikrete Mortar Repair</a>
+## <a href="https://www.amazon.com/dp/B000FCCYZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quikrete Mortar Repair</a>
 
 
-<a href="https://www.amazon.com/dp/B000FCCYZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QUIKRETE CO 8620-05 Mortar Repair, 5.5 oz" src="https://m.media-amazon.com/images/I/11QsxJgOMyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FCCYZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QUIKRETE CO 8620-05 Mortar Repair, 5.5 oz" src="https://m.media-amazon.com/images/I/11QsxJgOMyL._SL500_.jpg"/></a>
 
 
 The **QUIKRETE CO 8620-05 Mortar Repair, 5.5 oz.** is ideal for homeowners, DIY enthusiasts, and professionals looking to fix cracks and holes in mortar quickly and efficiently. If you need a reliable solution to restore the structural integrity and appearance of your brick or stone surfaces, this product is perfect for you.
@@ -243,12 +243,12 @@ The **QUIKRETE CO 8620-05 Mortar Repair** comes in a convenient 5.5 oz. tube, ma
 
 Manufactured by **QUIKRETE CO**, this mortar repair product offers excellent durability and resistance to weather conditions, ensuring that your repairs stand the test of time. Its compact dimensions and lightweight design make it simple to handle, store, and transport, making it a practical choice for both small home repairs and professional touch-ups.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000FCCYZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000FCCYZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01M1VBB7U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Devil Concrete &amp; Mortar Repair</a>
+## <a href="https://www.amazon.com/dp/B01M1VBB7U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Devil Concrete &amp; Mortar Repair</a>
 
 
-<a href="https://www.amazon.com/dp/B01M1VBB7U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Red Devil 0646 Concrete &amp; Mortar Repair (2 Pack)" src="https://m.media-amazon.com/images/I/41g9pl-DnEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M1VBB7U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Red Devil 0646 Concrete &amp; Mortar Repair (2 Pack)" src="https://m.media-amazon.com/images/I/41g9pl-DnEL._SL500_.jpg"/></a>
 
 
 The **Red Devil 0646 Concrete & Mortar Repair (2 Pack)** is ideal for homeowners, contractors, and DIY enthusiasts who need a reliable solution for fixing cracks and holes in concrete or mortar surfaces. If you are looking for an easy-to-use product that provides durable and long-lasting repairs, this item is perfect for you.
@@ -270,12 +270,12 @@ The **Red Devil 0646 Concrete & Mortar Repair** is designed to provide a smooth 
 
 Additionally, the repair compound dries quickly and resists shrinking and cracking, ensuring a professional-looking repair that lasts. With the backing of the **Red Devil brand**, users can trust the quality and effectiveness of this product in restoring the integrity of concrete and mortar surfaces around their home or job site.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01M1VBB7U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01M1VBB7U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B007PRYE6W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Building Products Simpleset Gray Thin-set Mortar</a>
+## <a href="https://www.amazon.com/dp/B007PRYE6W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Building Products Simpleset Gray Thin-set Mortar</a>
 
 
-<a href="https://www.amazon.com/dp/B007PRYE6W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Custom Building Products SimpleSet Gray Thin-Set Mortar 1 qt." src="https://m.media-amazon.com/images/I/51-KJdjVdjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007PRYE6W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Custom Building Products SimpleSet Gray Thin-Set Mortar 1 qt." src="https://m.media-amazon.com/images/I/51-KJdjVdjL._SL500_.jpg"/></a>
 
 
 The **Custom Building Products SimpleSet Gray Thin-Set Mortar 1 qt.** is an excellent choice for homeowners, DIY enthusiasts, and professional contractors who need a reliable and easy-to-use mortar for tile installations. Ideal for small to medium projects, this product suits those looking for a pre-mixed, ready-to-use solution to bond ceramic, porcelain, or stone tiles efficiently. If you want a quality thin-set mortar that offers convenience without sacrificing performance, this product is a smart buy.
@@ -298,7 +298,7 @@ The **SimpleSet Gray Thin-Set Mortar** by **Custom Building Products** is design
 
 Beyond convenience, this thin-set mortar offers strong bonding properties that ensure tiles adhere firmly to surfaces such as cement backer boards or concrete floors. Its versatility makes it suitable for ceramic, porcelain, and natural stone tiles, providing flexibility for various design projects. The compact 1 qt. size is perfect for those who don't want to purchase large quantities, reducing waste and storage needs. Overall, it offers a balance of performance and practicality for small to medium tile jobs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B007PRYE6W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B007PRYE6W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

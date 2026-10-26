@@ -23,10 +23,10 @@ Metal, glass, and vintage styles suit various themes and events. Bulk packs are 
 
 
 
-## <a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Romadedi Gold Candlestick Holders Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Romadedi Gold Candlestick Holders Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Candlestick Holders Taper Candle Holders, Romadedi Gold Candle Stick Candle Holder for Table Centerpiece, Wedding Reception, Festive Christmas Mantel Decoration or Home Decor, Set of 2" src="https://m.media-amazon.com/images/I/31CcBXFs0KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Candlestick Holders Taper Candle Holders, Romadedi Gold Candle Stick Candle Holder for Table Centerpiece, Wedding Reception, Festive Christmas Mantel Decoration or Home Decor, Set of 2" src="https://m.media-amazon.com/images/I/31CcBXFs0KL._SL500_.jpg"/></a>
 
 
 The **Candlestick Holders Taper Candle Holders** by **Romadedi** are ideal for individuals looking to enhance their **home decor** or event settings with elegant and stylish accents. Whether you're planning a **wedding reception**, festive **Christmas mantel decoration**, or simply want a sophisticated **table centerpiece**, this set of two gold candle holders offers a perfect blend of functionality and aesthetic appeal for those who appreciate fine details in their living or event spaces.
@@ -48,12 +48,12 @@ The **Romadedi Gold Candle Stick Candle Holder** set features a sleek and compac
 
 Each holder is crafted with attention to detail, reflecting the quality and reliability associated with the **Romadedi** brand. Their versatility allows users to incorporate them seamlessly into various decorative themes, from traditional weddings to modern festive settings. This combination of style and practicality makes these candle holders a valuable addition to any decor enthusiast’s collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BQQZD7M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tunyet Candlestick Holders 6pcs</a>
+## <a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tunyet Candlestick Holders 6pcs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tunyet Candlestick Holders 6PCS, Metal Taper Candle Holder, Gold Candle Holders for Pillar Candles, Candle Holder for Halloween Decorations" src="https://m.media-amazon.com/images/I/31b+dMycjwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tunyet Candlestick Holders 6PCS, Metal Taper Candle Holder, Gold Candle Holders for Pillar Candles, Candle Holder for Halloween Decorations" src="https://m.media-amazon.com/images/I/31b+dMycjwL._SL500_.jpg"/></a>
 
 
 The **Tunyet Candlestick Holders 6PCS** are perfect for individuals who enjoy elegant home decor and seasonal decorations, especially those who appreciate a touch of sophistication during events like **Halloween**. If you are looking to enhance your living space or create a warm, inviting atmosphere with **gold candle holders** designed for both **pillar candles** and **taper candles**, this set is an ideal choice. Homeowners, event planners, and decor enthusiasts will find these holders a stylish and practical addition.
@@ -75,12 +75,12 @@ The **Tunyet Candlestick Holders** feature a sturdy **metal build** that guarant
 
 Beyond their functional use, these candle holders serve as decorative accents that elevate the style of your space. The classic gold finish complements both traditional and festive themes, enhancing the overall atmosphere. Additionally, the set of six offers versatility, enabling users to arrange them creatively for intimate dinners, holiday celebrations, or everyday elegance. Their compact and stable design ensures safety and convenience, making them a valuable addition to any candle lover’s collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJK4PGK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gold Votive Candle Holders Set Of 36</a>
+## <a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gold Votive Candle Holders Set Of 36</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gold Votive Candle Holders Set of 36, Glass Tea Light Candle Holders Bulk for Centerpiece Table, Home, Wedding Decor, and Party Decoration-Gold Mercury Glass Votives" src="https://m.media-amazon.com/images/I/51iigFvD1fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gold Votive Candle Holders Set of 36, Glass Tea Light Candle Holders Bulk for Centerpiece Table, Home, Wedding Decor, and Party Decoration-Gold Mercury Glass Votives" src="https://m.media-amazon.com/images/I/51iigFvD1fL._SL500_.jpg"/></a>
 
 
 The **Gold Votive Candle Holders Set of 36** is perfect for individuals looking to elevate their home ambiance, event planners seeking elegant centerpiece solutions, and couples planning weddings who want a touch of sophisticated decor. Those who appreciate decorative versatility and want to create a warm, inviting atmosphere at parties or special occasions will find this set ideal.
@@ -103,12 +103,12 @@ The **Gold Votive Candle Holders** feature a refined mercury glass coating that 
 
 Additionally, the set of 36 holders provides excellent value for bulk decorating needs, ideal for weddings, parties, or seasonal home accents. The lightweight yet sturdy construction ensures they can be positioned securely on tables or shelves without risk of tipping. Overall, these holders blend aesthetic appeal with functional design, enhancing any space with a sophisticated golden glow.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F1LJLZTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tifanso Taper Candle Stick Holder - 3pcs Brass Gold Pillar Tall Candlestick Holders</a>
+## <a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tifanso Taper Candle Stick Holder - 3pcs Brass Gold Pillar Tall Candlestick Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tifanso Taper Candle Stick Holder - 3PCS Brass Gold Pillar Tall Candlestick Holders Metal Vintage Decor Dinner Table Dining Room Centerpieces Decorations for Wedding Fireplace Mantel Housewarming Gift" src="https://m.media-amazon.com/images/I/31LEeT56wKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tifanso Taper Candle Stick Holder - 3PCS Brass Gold Pillar Tall Candlestick Holders Metal Vintage Decor Dinner Table Dining Room Centerpieces Decorations for Wedding Fireplace Mantel Housewarming Gift" src="https://m.media-amazon.com/images/I/31LEeT56wKL._SL500_.jpg"/></a>
 
 
 The **Tifanso Taper Candle Stick Holder** set is ideal for individuals who appreciate elegant and vintage home decor. Perfect for those looking to enhance their dining room ambiance, wedding centerpieces, or fireplace mantel with a touch of classic charm. If you enjoy hosting dinners or want a stylish housewarming gift, this set of three brass gold candlestick holders is an excellent choice.
@@ -130,12 +130,12 @@ The **Tifanso Taper Candle Stick Holder** set stands out with its elegant brass 
 
 Additionally, the compact size and lightweight nature of these candlestick holders provide flexibility in placement and arrangement. Whether used as wedding centerpieces or placed on a fireplace mantel, they add a vintage charm that complements various decorating styles. Their versatility also makes them a thoughtful and tasteful housewarming gift for friends and family who appreciate classic home accents.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F62ZDSJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vintage Candlestick Candle Holders Brass</a>
+## <a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vintage Candlestick Candle Holders Brass</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vintage Candlestick Candle Holders Brass - Romadedi Taper Gold Candle Stick Victorian Style for Table Centerpiece Wedding Festive Christmas Mantel Decoration or Home Decor Set of 2" src="https://m.media-amazon.com/images/I/41ogR2qnxXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vintage Candlestick Candle Holders Brass - Romadedi Taper Gold Candle Stick Victorian Style for Table Centerpiece Wedding Festive Christmas Mantel Decoration or Home Decor Set of 2" src="https://m.media-amazon.com/images/I/41ogR2qnxXL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate classic elegance and timeless décor, the **Vintage Candlestick Candle Holders Brass** by **Romadedi** are perfect for anyone looking to add a touch of Victorian charm to their living space. Whether you are planning a **wedding centerpiece**, enhancing your **festive Christmas mantel**, or simply elevating your **home decor**, this set of two gold taper candle holders suits individuals who value both style and craftsmanship.
@@ -157,12 +157,12 @@ The **Romadedi Vintage Candlestick Candle Holders** are crafted with attention t
 
 Thanks to the sturdy brass material, these candle holders offer both durability and a timeless aesthetic. Users benefit from their versatility, as they can easily be integrated into different décor themes—from traditional to modern. Whether placed as a centerpiece on a dining table or displayed on a mantel, these candle holders enhance the atmosphere with a warm, inviting glow.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CNLX2V7T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">30 Pack Clear Glass Votive Candle Holders</a>
+## <a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">30 Pack Clear Glass Votive Candle Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="30 Pack Clear Glass Votive Candle Holders, Vintage Candle Holder Bulk, Tealight Candle Holders for Table Centerpieces, Home, Bridal Shower, Birthday, Christmas, Thanksgiving Party Table Decor" src="https://m.media-amazon.com/images/I/615E4U+jssL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="30 Pack Clear Glass Votive Candle Holders, Vintage Candle Holder Bulk, Tealight Candle Holders for Table Centerpieces, Home, Bridal Shower, Birthday, Christmas, Thanksgiving Party Table Decor" src="https://m.media-amazon.com/images/I/615E4U+jssL._SL500_.jpg"/></a>
 
 
 The **30 Pack Clear Glass Votive Candle Holders** by **Hlukana** are perfect for individuals who enjoy elegant and versatile decor for special occasions or everyday ambiance. Ideal for event planners, brides-to-be, or homeowners looking to add a touch of vintage charm, these **tealight candle holders** enhance table centerpieces at bridal showers, birthdays, Christmas, Thanksgiving parties, and other celebrations. If you want a bulk set that combines style and practicality, this item is an excellent choice.
@@ -184,12 +184,12 @@ These **vintage candle holders** are crafted from clear glass that beautifully s
 
 The bulk pack of 30 holders is especially beneficial for those hosting larger gatherings or looking to decorate multiple areas simultaneously. Their sturdy glass construction not only adds a touch of sophistication but also ensures they can be reused for many occasions to come, offering great value for money. Overall, these candle holders provide a perfect blend of style, functionality, and quantity for customers seeking to enhance their decorative lighting effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D5B2X2QJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F849NTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Silifine Set Of 24 Frosted White Glass Votive Candle Holders</a>
+## <a href="https://www.amazon.com/dp/B0F849NTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Silifine Set Of 24 Frosted White Glass Votive Candle Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B0F849NTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SiliFine Set of 24 Frosted White Glass Votive Candle Holders Frosted Votive Candle Holders Bulk Wedding Party Birthday Centerpieces Spa Supplies Home Decorations" src="https://m.media-amazon.com/images/I/31roAx5wm6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F849NTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SiliFine Set of 24 Frosted White Glass Votive Candle Holders Frosted Votive Candle Holders Bulk Wedding Party Birthday Centerpieces Spa Supplies Home Decorations" src="https://m.media-amazon.com/images/I/31roAx5wm6L._SL500_.jpg"/></a>
 
 
 The **SiliFine Set of 24 Frosted White Glass Votive Candle Holders** is perfect for individuals planning weddings, parties, or special events, as well as those looking to enhance their home or spa ambiance with elegant lighting. Ideal customers include event planners, homeowners, and spa owners who want a stylish and cohesive centerpiece solution in bulk.
@@ -211,12 +211,12 @@ The **SiliFine Frosted Votive Candle Holders** feature a sleek and subtle white 
 
 Designed for bulk use, this set of 24 holders meets the needs of large events or businesses looking to maintain consistent decor throughout their venue. The sturdy glass construction ensures that each holder is durable enough for repeated use, making them a cost-effective choice for those who frequently host gatherings or run spa facilities. Overall, these candle holders combine style, functionality, and versatility to elevate any environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F849NTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F849NTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Iron Plate Candle Holder - Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Iron Plate Candle Holder - Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" (4="" 0.2"="" alt="Black Iron Plate Candle Holder- Set of 4 |3.8" candle="" candles,="" cones,="" d="" decorative="" elegant="" for="" h|="" incense="" iron="" led="" pcs)"="" pillar="" plate,="" spa,="" src="https://m.media-amazon.com/images/I/41McXVSzGGL._SL500_.jpg" stand="" wax="" weddings="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" (4="" 0.2"="" alt="Black Iron Plate Candle Holder- Set of 4 |3.8" candle="" candles,="" cones,="" d="" decorative="" elegant="" for="" h|="" incense="" iron="" led="" pcs)"="" pillar="" plate,="" spa,="" src="https://m.media-amazon.com/images/I/41McXVSzGGL._SL500_.jpg" stand="" wax="" weddings="" x=""/></a>
 
 
 The **Black Iron Plate Candle Holder - Set of 4** is ideal for individuals seeking a stylish and durable way to display their **LED and wax candles**, as well as incense cones. Perfect for those who enjoy creating a calming ambiance at home, hosting elegant events like weddings, or enhancing spa environments, this set combines functionality with decorative appeal. If you value both aesthetics and practicality in your candle accessories, this iron plate set is a great choice.
@@ -240,12 +240,12 @@ The **Black Iron Plate Candle Holder** set by **saiguomi** offers a sleek and st
 
 Additionally, these candle plates are versatile enough to accommodate a range of candle types, from delicate LED candles to traditional wax pillars. This flexibility makes them a valuable addition for anyone who enjoys frequent candle use or hosting events that require subtle lighting. Their elegant black finish complements both contemporary and classic décor styles, making them suitable for various settings, including spas and weddings where ambiance plays a crucial role.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZGJ7V29?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C59GB5RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kate Aspen Double Sided Vintage Rose Gold Pink Fluted Glass Candlestick Holders</a>
+## <a href="https://www.amazon.com/dp/B0C59GB5RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kate Aspen Double Sided Vintage Rose Gold Pink Fluted Glass Candlestick Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B0C59GB5RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kate Aspen Doube Sided Vintage Rose Gold Pink Fluted Glass Candlestick Holders, Pillar Candle, Tealight &amp; Votive Candle Holders (Set of 6, 3 Sizes), Dining Table Decor, Shelf Decor, Centerpiece" src="https://m.media-amazon.com/images/I/51A0WOjJCuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C59GB5RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kate Aspen Doube Sided Vintage Rose Gold Pink Fluted Glass Candlestick Holders, Pillar Candle, Tealight &amp; Votive Candle Holders (Set of 6, 3 Sizes), Dining Table Decor, Shelf Decor, Centerpiece" src="https://m.media-amazon.com/images/I/51A0WOjJCuL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to elevate their home ambiance with elegant and functional decor, the **Kate Aspen Double Sided Vintage Rose Gold Pink Fluted Glass Candlestick Holders** are perfect for individuals who appreciate vintage-inspired design combined with modern versatility. Whether you're decorating your dining table, shelf, or creating a stunning centerpiece, this set suits homeowners, event planners, and gift seekers alike.
@@ -267,12 +267,12 @@ The **Kate Aspen Double Sided Vintage Rose Gold Pink Fluted Glass Candlestick Ho
 
 With a set comprising six holders in three different sizes, users can customize their displays to suit various occasions or spaces. Whether arranging a formal dining table setting or accenting a casual living room shelf, these holders provide flexibility and style. Additionally, their compatibility with multiple candle types—pillar, tealight, and votive—means you can easily switch up the lighting mood to match your preference or event theme.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C59GB5RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C59GB5RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B075X39KW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stonebriar 12 Hour Long Burning Unscented Wax Filled Votive Holders</a>
+## <a href="https://www.amazon.com/dp/B075X39KW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stonebriar 12 Hour Long Burning Unscented Wax Filled Votive Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B075X39KW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stonebriar 12 Hour Long Burning Unscented Wax Filled Votive Holders, 48 Pack, White" src="https://m.media-amazon.com/images/I/31mQxQiA8WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075X39KW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stonebriar 12 Hour Long Burning Unscented Wax Filled Votive Holders, 48 Pack, White" src="https://m.media-amazon.com/images/I/31mQxQiA8WL._SL500_.jpg"/></a>
 
 
 The **Stonebriar 12 Hour Long Burning Unscented Wax Filled Votive Holders** are ideal for individuals seeking reliable, long-lasting candles without any added fragrance. Perfect for event planners, home decorators, or anyone who prefers a clean, neutral ambiance, these votive holders offer a practical solution for both everyday use and special occasions.
@@ -294,7 +294,7 @@ The **Stonebriar votive holders** are crafted by **CKK Home Decor** with attenti
 
 Moreover, the generous pack size of 48 candles offers exceptional value and convenience, especially for those who frequently use votive candles. Their elegant white color allows them to blend seamlessly with any decorative theme, whether formal or casual. Overall, these votive holders combine functionality with aesthetic appeal, making them a versatile addition to any candle collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B075X39KW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B075X39KW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

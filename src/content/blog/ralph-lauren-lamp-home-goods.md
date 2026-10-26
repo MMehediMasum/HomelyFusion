@@ -23,10 +23,10 @@ From the vibrant red lantern to the sleek ceramic and metal combinations, these 
 
 
 
-## <a href="https://www.amazon.com/dp/B00H84J85E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Lantern 20" Classic Porcelain Jar Lamp</a>
+## <a href="https://www.amazon.com/dp/B00H84J85E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Lantern 20" Classic Porcelain Jar Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B00H84J85E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" alt="Red Lantern 20" blue="" classic="" jar="" lamp"="" porcelain="" src="https://m.media-amazon.com/images/I/3194bIrmZKL._SL500_.jpg" white=""/></a>
+<a href="https://www.amazon.com/dp/B00H84J85E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" alt="Red Lantern 20" blue="" classic="" jar="" lamp"="" porcelain="" src="https://m.media-amazon.com/images/I/3194bIrmZKL._SL500_.jpg" white=""/></a>
 
 
 The **Red Lantern 20" Classic Blue & White Porcelain Jar Lamp** is ideal for individuals who appreciate elegant home décor with a touch of traditional craftsmanship. Perfect for those looking to enhance their living spaces with a statement piece that combines functionality and artistic design, this lamp suits homeowners, interior designers, and collectors of fine porcelain items. If you want a lamp that not only illuminates but also adds cultural charm to your room, this item is an excellent choice.
@@ -49,10 +49,10 @@ Crafted by **Oriental Furniture**, the **Red Lantern 20" Classic Blue & White Po
 
 Beyond its aesthetic appeal, this lamp provides functional benefits such as ease of placement due to its moderate weight of 6.5 pounds. The durable porcelain build ensures longevity, while the timeless color combination allows it to seamlessly blend with both contemporary and vintage décor. Whether used as a bedside lamp or a feature piece in a living room, it offers both illumination and style, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B07RHC298B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1072a-set2 Set Of 2 Table Lamps Jennifer</a>
+## <a href="https://www.amazon.com/dp/B07RHC298B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1072a-set2 Set Of 2 Table Lamps Jennifer</a>
 
 
-<a href="https://www.amazon.com/dp/B07RHC298B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps Jennifer 25.25" bedroom="" bedside="" blue="" bookcase,="" ceramic="" college="" cottage="" desk="" for="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/417JmwLUVHL._SL500_.jpg" table="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07RHC298B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps Jennifer 25.25" bedroom="" bedside="" blue="" bookcase,="" ceramic="" college="" cottage="" desk="" for="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/417JmwLUVHL._SL500_.jpg" table="" white"=""/></a>
 
 
 The **JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps** is ideal for individuals seeking stylish and functional lighting solutions for their **bedroom**, **living room**, **office**, or **college dorm**. Perfect for those who appreciate a blend of **ceramic and metal craftsmanship** in a classic **blue and white** color scheme, these lamps suit users wanting a reliable, elegant lighting option for their **bedside tables**, **desks**, or **bookcases**.
@@ -74,10 +74,10 @@ The **JONATHAN Y JYL1072A-SET2 Table Lamps** feature a harmonious combination of
 
 Beyond their aesthetic appeal, these lamps provide the practical benefit of **energy-efficient LED lighting**, which not only reduces power consumption but also extends the lifespan of the bulbs. The set includes two lamps, allowing users to create a cohesive and well-lit environment with minimal effort. Whether placed on bedside tables or desks, these lamps enhance both ambiance and functionality.
 
-## <a href="https://www.amazon.com/dp/B0C2VT9TJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Venus Mushroom Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C2VT9TJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Venus Mushroom Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2VT9TJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Venus Mushroom Table Lamp - Modern Lamp for Living Room, Bedroom Side/End Table - Dimmable, Unique Side Table LED Lamp Shade for Office, Reading - Brass/Gold, 14" src="https://m.media-amazon.com/images/I/31um5dRAeEL._SL500_.jpg" tall"=""/></a>
+<a href="https://www.amazon.com/dp/B0C2VT9TJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Venus Mushroom Table Lamp - Modern Lamp for Living Room, Bedroom Side/End Table - Dimmable, Unique Side Table LED Lamp Shade for Office, Reading - Brass/Gold, 14" src="https://m.media-amazon.com/images/I/31um5dRAeEL._SL500_.jpg" tall"=""/></a>
 
 
 The **Brightech Venus Mushroom Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom side**, or **end table**. If you want a modern, dimmable lamp that enhances your space with a unique LED lampshade and a sleek **brass/gold finish**, this lamp is perfect for office workers, readers, and anyone who values both aesthetics and practicality in their lighting fixtures.
@@ -100,10 +100,10 @@ The **Brightech Venus Mushroom Table Lamp** stands out with its modern and sleek
 
 Beyond aesthetics, the **brass finish** lends a sophisticated look that complements contemporary and minimalist interiors. The energy-efficient LED technology not only provides bright, clear light but also ensures longevity and lower power consumption, making this lamp an eco-friendly choice. Whether used in an office, living room, or bedroom, this lamp merges style with practicality, enhancing any environment it graces.
 
-## <a href="https://www.amazon.com/dp/B0CHHFKWPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Seraph</a>
+## <a href="https://www.amazon.com/dp/B0CHHFKWPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Seraph</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHHFKWPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Seraph - Cordless LED Table Lamp with Dimmer, Built-in Rechargeable Battery, 3-Level Brightness, Patio Table Lamp, Bedside Night Lamp, Ambient Light for Restaurant, Antique Brass" src="https://m.media-amazon.com/images/I/21dmvN8q98L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHHFKWPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Seraph - Cordless LED Table Lamp with Dimmer, Built-in Rechargeable Battery, 3-Level Brightness, Patio Table Lamp, Bedside Night Lamp, Ambient Light for Restaurant, Antique Brass" src="https://m.media-amazon.com/images/I/21dmvN8q98L._SL500_.jpg"/></a>
 
 
 The **O’Bright Seraph - Cordless LED Table Lamp** is ideal for individuals seeking a versatile and stylish lighting solution. Perfect for those who want a portable, adjustable, and elegant lamp for their **bedside**, **patio**, or **ambient lighting** needs in restaurants or home settings. If you value convenience, design, and customizable brightness levels, this lamp is a great choice.
@@ -125,10 +125,10 @@ The **O’Bright Seraph LED Table Lamp** features a cordless design powered by a
 
 Its **antique brass finish** adds a touch of sophistication and blends seamlessly with various interior designs, making it a functional yet decorative piece. The lamp’s compact size ensures it fits comfortably on bedside tables or restaurant tables without taking up much space. Overall, the **O’Bright Seraph** combines convenience, style, and functionality, making it an excellent choice for anyone looking to enhance their living or dining environment with a versatile lighting solution.
 
-## <a href="https://www.amazon.com/dp/B07HZZF394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3043a Cleo 21.5" Ceramic/metal Ginger Jar Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07HZZF394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3043a Cleo 21.5" Ceramic/metal Ginger Jar Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07HZZF394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3043A Cleo 21.5" bedroom,="" bookcase,="" ceramic="" coffee="" college="" contemporary,transitional="" dorm,="" for="" ginger="" jar="" lamp="" led="" living="" metal="" navy"="" office,="" room,="" src="https://m.media-amazon.com/images/I/41krIxQyJHL._SL500_.jpg" table="" table,="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07HZZF394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3043A Cleo 21.5" bedroom,="" bookcase,="" ceramic="" coffee="" college="" contemporary,transitional="" dorm,="" for="" ginger="" jar="" lamp="" led="" living="" metal="" navy"="" office,="" room,="" src="https://m.media-amazon.com/images/I/41krIxQyJHL._SL500_.jpg" table="" table,="" white=""/></a>
 
 
 The **JONATHAN Y JYL3043A Cleo 21.5" Ceramic/Metal Ginger Jar LED Table Lamp** is ideal for individuals seeking a stylish and functional lighting solution that blends seamlessly with both **contemporary** and **transitional** decor. Perfect for homeowners looking to enhance their **bedroom**, **living room**, or **office** spaces, as well as college students wanting a chic yet practical lamp for their **dorm** or **bookcase**. Its elegant design and versatile color scheme make it a great choice for anyone wanting to add a touch of sophistication to their environment.
@@ -152,10 +152,10 @@ The **JONATHAN Y JYL3043A Cleo Table Lamp** features a beautiful ginger jar shap
 
 Equipped with **energy-efficient LED lighting**, this lamp provides bright, consistent light while reducing electricity consumption. Users will appreciate the soft yet clear illumination perfect for reading, working, or relaxing. Additionally, its lightweight design allows for easy repositioning, making it versatile for different room setups. Whether placed on a coffee table, bookcase, or office desk, this lamp enhances ambiance and functionality simultaneously.
 
-## <a href="https://www.amazon.com/dp/B07BF2VBWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3009a Grace 24" Floral Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF2VBWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3009a Grace 24" Floral Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF2VBWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3009A Grace 24" bedroom="" bedside="" bookcase="" bulb="" classic="" college="" cottage="" desk="" floral="" for="" included,="" lamp="" led="" living="" multicolor"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41KnEfZS8ZL._SL500_.jpg" table=""/></a>
+<a href="https://www.amazon.com/dp/B07BF2VBWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3009A Grace 24" bedroom="" bedside="" bookcase="" bulb="" classic="" college="" cottage="" desk="" floral="" for="" included,="" lamp="" led="" living="" multicolor"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41KnEfZS8ZL._SL500_.jpg" table=""/></a>
 
 
 The **JONATHAN Y JYL3009A Grace 24" Floral LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom, living room, office, or college bookcase**. This lamp is perfect for those who appreciate a classic cottage aesthetic combined with modern LED technology, making it a great choice for students, professionals, or anyone wanting to enhance their space with a multicolor, eye-catching bedside or desk lamp.
@@ -178,10 +178,10 @@ The **JONATHAN Y JYL3009A Grace Table Lamp** features a beautiful floral pattern
 
 Equipped with an energy-efficient **LED bulb**, this lamp provides bright illumination while reducing electricity consumption. The sturdy yet lightweight design ensures it is easy to place and move around, making it perfect for a variety of settings such as bedside tables, study desks, or office workspaces. Overall, this lamp combines style, efficiency, and versatility for a well-rounded lighting accessory.
 
-## <a href="https://www.amazon.com/dp/B08X1QKKWM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Lighting Collection Eugenie Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B08X1QKKWM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Lighting Collection Eugenie Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08X1QKKWM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Lighting Collection Eugenie Modern Contemporary Antique White Glass Gourd 27-inchBedroom Living Room Home Office Desk Nightstand Table Lamp (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41d0bXqVdoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08X1QKKWM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Lighting Collection Eugenie Modern Contemporary Antique White Glass Gourd 27-inchBedroom Living Room Home Office Desk Nightstand Table Lamp (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41d0bXqVdoL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Lighting Collection Eugenie Modern Contemporary Antique White Glass Gourd Table Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom, living room, home office, or nightstand**. If you appreciate a blend of modern and antique aesthetics with practical LED lighting, this lamp is perfect for enhancing your interior décor while providing efficient illumination.
@@ -203,10 +203,10 @@ The **SAFAVIEH Eugenie Table Lamp** stands out with its distinctive glass gourd 
 
 Designed by **Safavieh**, this lamp is crafted to be both decorative and functional. The antique white color adds a subtle elegance that brightens any room while maintaining a neutral tone that fits well with various color palettes. Its lightweight construction makes it easy to reposition, allowing users to adapt their lighting setup as needed. Overall, this lamp combines aesthetic appeal with practical features, making it a valuable addition to any home or office environment.
 
-## <a href="https://www.amazon.com/dp/B07BF1TF54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl4026a Julian 29" Ceramic Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF1TF54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl4026a Julian 29" Ceramic Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF1TF54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL4026A Julian 29" bedroom="" bedside="" bookcase="" bulb="" ceramic="" college="" desk="" for="" gold"="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/315fyS4q7vL._SL500_.jpg" table="" traditional="" transitional="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07BF1TF54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL4026A Julian 29" bedroom="" bedside="" bookcase="" bulb="" ceramic="" college="" desk="" for="" gold"="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/315fyS4q7vL._SL500_.jpg" table="" traditional="" transitional="" white=""/></a>
 
 
 The **JONATHAN Y JYL4026A Julian 29" Ceramic LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom, living room, office, or college dorm**. This lamp is perfect for those who appreciate a blend of **traditional and transitional design** and want a reliable light source with modern LED technology included.
@@ -228,10 +228,10 @@ The **JONATHAN Y JYL4026A Julian Table Lamp** features a beautifully crafted cer
 
 This lamp’s **traditional transitional style** makes it adaptable to both classic and contemporary interiors, while its sturdy construction offers durability and stability. Whether placed on a nightstand, desk, or bookcase, this lamp enhances the ambiance of your space with both function and style, making it a smart choice for anyone looking to upgrade their lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0875T8J36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005a-set2 Set Of 2 Table Lamps Penelope 22"</a>
+## <a href="https://www.amazon.com/dp/B0875T8J36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005a-set2 Set Of 2 Table Lamps Penelope 22"</a>
 
 
-<a href="https://www.amazon.com/dp/B0875T8J36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope 22" bedroom,="" blue="" bookcase,="" chinoiserie="" classic,cottage,traditional,for="" coffee="" college="" dorm,="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/314nO6wAaUL._SL500_.jpg" table,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B0875T8J36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope 22" bedroom,="" blue="" bookcase,="" chinoiserie="" classic,cottage,traditional,for="" coffee="" college="" dorm,="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/314nO6wAaUL._SL500_.jpg" table,="" white"=""/></a>
 
 
 The **JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope** is perfect for individuals seeking elegant and functional lighting solutions for their **bedroom, living room, office, college dorm, coffee table**, or **bookcase**. Ideal for those who appreciate a blend of **classic, cottage, and traditional** styles, these lamps suit homeowners and renters alike who want to add a touch of sophistication and charm to their interiors.
@@ -254,10 +254,10 @@ The **JONATHAN Y JYL3005A-SET2 table lamps** stand out for their exquisite **Chi
 
 Beyond their aesthetic value, these lamps offer practical benefits such as easy mobility and versatility in placement. Whether used in a cozy bedroom or a busy office, the set provides ample illumination while complementing various decor styles. The dual lamp set also allows for symmetrical lighting arrangements, enhancing the overall harmony of the space.
 
-## <a href="https://www.amazon.com/dp/B09NFDGBR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine Mid Century Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B09NFDGBR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine Mid Century Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09NFDGBR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE Mid Century Table Lamp, Bedside Lamp with Pull Chain Switch, Solid Wood &amp; Metal Pole, Modern Nightstand Table Lamp for Living Room, Bedroom, Office, Frosted Bronze &amp; Wood Finish" src="https://m.media-amazon.com/images/I/31SC37UhnDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NFDGBR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE Mid Century Table Lamp, Bedside Lamp with Pull Chain Switch, Solid Wood &amp; Metal Pole, Modern Nightstand Table Lamp for Living Room, Bedroom, Office, Frosted Bronze &amp; Wood Finish" src="https://m.media-amazon.com/images/I/31SC37UhnDL._SL500_.jpg"/></a>
 
 
 The **EDISHINE Mid Century Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, or **office**. This lamp is perfect for those who appreciate a blend of **modern design** with a touch of **mid-century elegance**, especially buyers who want a compact and easy-to-use lamp featuring a **pull chain switch** for convenience.

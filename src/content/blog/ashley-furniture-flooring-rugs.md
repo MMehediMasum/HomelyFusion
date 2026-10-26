@@ -23,10 +23,10 @@ The Farrendale Geometric Rug offers mid-century modern flair with its blue and r
 
 
 
-## <a href="https://www.amazon.com/dp/B09593WMD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Wraylen Rug</a>
+## <a href="https://www.amazon.com/dp/B09593WMD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Wraylen Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09593WMD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Wraylen 8 x 10 Low Pile Boho Abstract Rug, Orange &amp; Blue" src="https://m.media-amazon.com/images/I/51sEdPvjesL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09593WMD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Wraylen 8 x 10 Low Pile Boho Abstract Rug, Orange &amp; Blue" src="https://m.media-amazon.com/images/I/51sEdPvjesL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Wraylen 8 x 10 Low Pile Boho Abstract Rug** is ideal for homeowners and interior enthusiasts looking to add a vibrant yet subtle touch of style to their living spaces. Perfect for those who appreciate a blend of modern and bohemian aesthetics, this rug is suited for both contemporary apartments and cozy family rooms seeking a splash of color and pattern. If you want to elevate your décor with an easy-to-maintain, visually appealing floor covering, this rug is a great choice.
@@ -49,10 +49,10 @@ The **Signature Design by Ashley Wraylen Rug** stands out with its beautiful fus
 
 Crafted by **Ashley Furniture Industries**, the rug promises quality craftsmanship and durability. The lightweight design simplifies rearranging and cleaning, while the color palette complements a wide range of interior styles, from eclectic to modern farmhouse. Overall, this rug provides an excellent balance of aesthetic appeal and functional benefits, making it a smart addition to enhance your home environment.
 
-## <a href="https://www.amazon.com/dp/B0BN725RZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Barkham Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BN725RZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Barkham Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BN725RZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Barkham Transitional Machine Washable 8x10 Area Rug, Light Gray &amp; Blue" src="https://m.media-amazon.com/images/I/5174-DHevvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BN725RZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Barkham Transitional Machine Washable 8x10 Area Rug, Light Gray &amp; Blue" src="https://m.media-amazon.com/images/I/5174-DHevvL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Barkham Transitional Machine Washable 8x10 Area Rug** in **Light Gray & Blue** is ideal for homeowners or renters looking to enhance their living space with a stylish yet practical floor covering. This rug suits those who appreciate both aesthetic appeal and easy maintenance, especially individuals with busy lifestyles or families with children and pets who need a durable and washable solution.
@@ -75,10 +75,10 @@ The **Signature Design by Ashley Barkham Area Rug** features a sleek and subtle 
 
 Measuring approximately **8 by 10 feet**, this rug provides ample coverage for living rooms, bedrooms, or dining areas. The thin profile ensures it lays flat and minimizes tripping hazards, although it may not provide extra padding underfoot. Crafted by **Ashley Furniture Industries**, this rug reflects quality craftsmanship and durability. Overall, this area rug is an excellent choice for anyone seeking a blend of style, practicality, and ease of care in their floor decor.
 
-## <a href="https://www.amazon.com/dp/B0FGH75SL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Farrendale Mid-century Modern Indoor Geometric Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0FGH75SL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Farrendale Mid-century Modern Indoor Geometric Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGH75SL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Farrendale Mid-Century Modern Indoor Geometric Washable 8 x 10 Area Rug, Blue &amp; Red" src="https://m.media-amazon.com/images/I/41Xlx-2NNBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGH75SL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Farrendale Mid-Century Modern Indoor Geometric Washable 8 x 10 Area Rug, Blue &amp; Red" src="https://m.media-amazon.com/images/I/41Xlx-2NNBL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Farrendale Mid-Century Modern Indoor Geometric Washable 8 x 10 Area Rug** in **Blue & Red** is ideal for homeowners and renters who want to add a stylish yet functional touch to their living spaces. If you appreciate **mid-century modern design** and need a durable, easy-to-maintain rug that complements contemporary decor, this rug is perfect for you. It works well in living rooms, bedrooms, or home offices, especially for those who want a bold geometric pattern without sacrificing comfort or practicality.
@@ -100,10 +100,10 @@ This **area rug** stands out with its **geometric pattern** that merges the time
 
 Additionally, the lightweight design facilitates easy installation and rearrangement, which is ideal for those who like to refresh their interior layouts frequently. The combination of durable materials and trusted craftsmanship from **Ashley Furniture Industries** ensures that this rug not only beautifies your space but also withstands daily wear and tear, offering long-term value to its users.
 
-## <a href="https://www.amazon.com/dp/B0959BL22P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Gizela Contemporary Striped Design Rug</a>
+## <a href="https://www.amazon.com/dp/B0959BL22P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Gizela Contemporary Striped Design Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0959BL22P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Gizela Contemporary 8 x 10 High Pile Striped Design Rug, Ivory, Gray &amp; Beige" src="https://m.media-amazon.com/images/I/51XbHhM6BsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0959BL22P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Gizela Contemporary 8 x 10 High Pile Striped Design Rug, Ivory, Gray &amp; Beige" src="https://m.media-amazon.com/images/I/51XbHhM6BsL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Gizela Contemporary 8 x 10 High Pile Striped Design Rug** in **Ivory, Gray & Beige** is ideal for homeowners and interior enthusiasts looking to add a touch of modern elegance and comfort to their living spaces. This rug suits those who appreciate a combination of style and functionality, especially in medium to large rooms where a soft, inviting floor covering is desired.
@@ -125,10 +125,10 @@ The **high pile striped design** of this rug creates a luxurious texture that ad
 
 Measuring **8 x 10 feet**, the rug is spacious enough to anchor seating areas or define spaces in open floor plans. The plush texture offers comfort, making it ideal for living rooms, bedrooms, or any area where you want a cozy atmosphere. Additionally, the quality craftsmanship from **Signature Design by Ashley** ensures durability and long-lasting beauty, making it a practical and stylish investment for your home.
 
-## <a href="https://www.amazon.com/dp/B0837L288Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karalee Tribal Rug</a>
+## <a href="https://www.amazon.com/dp/B0837L288Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karalee Tribal Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0837L288Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karalee Tribal 5 x 7 Medium Pile Rug with Geometric Design, Ivory &amp; Brown" src="https://m.media-amazon.com/images/I/61jUdH2iM0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0837L288Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karalee Tribal 5 x 7 Medium Pile Rug with Geometric Design, Ivory &amp; Brown" src="https://m.media-amazon.com/images/I/61jUdH2iM0L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Karalee Tribal 5 x 7 Medium Pile Rug** is ideal for homeowners and interior decorators looking to add a stylish yet cozy touch to living rooms, bedrooms, or entryways. If you appreciate a blend of contemporary and traditional aesthetics, this **ivory and brown geometric design rug** offers a perfect balance of visual appeal and comfort, making it a great choice for anyone wanting to enhance their home décor with a durable and elegant floor covering.
@@ -150,10 +150,10 @@ The **Signature Design by Ashley Karalee Tribal Rug** stands out with its visual
 
 Measuring over 5 by 7 feet, this rug covers a substantial area, helping to define rooms and create cozy zones without overpowering your décor. The ivory and brown tones work harmoniously to brighten spaces while grounding the room's aesthetic, allowing for versatile placement in various interior styles. Whether placed in a living room, bedroom, or hallway, this rug offers both comfort and an artistic touch that enhances the overall ambiance.
 
-## <a href="https://www.amazon.com/dp/B075841RF1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Jacinth Rug</a>
+## <a href="https://www.amazon.com/dp/B075841RF1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Jacinth Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B075841RF1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Jacinth Modern 8 x 10 Medium Pile Rug with Overlapping Wave Design, Brown, Beige &amp; Cream" src="https://m.media-amazon.com/images/I/51VrDJqRrTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075841RF1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Jacinth Modern 8 x 10 Medium Pile Rug with Overlapping Wave Design, Brown, Beige &amp; Cream" src="https://m.media-amazon.com/images/I/51VrDJqRrTL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Jacinth Modern 8 x 10 Medium Pile Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of contemporary elegance to their living spaces. If you desire a stylish yet durable rug that complements modern décor with neutral tones, this **brown, beige, and cream** overlapping wave design rug is perfect for you. It suits those who want both comfort underfoot and an eye-catching centerpiece for their rooms.
@@ -175,10 +175,10 @@ Crafted by **Ashley Furniture**, this rug features a sophisticated overlapping w
 
 With dimensions measuring 8 by 10 feet, the rug is well-suited to cover large floor areas, protecting your surfaces and enhancing comfort. Its construction ensures durability, allowing it to withstand everyday use while retaining its aesthetic appeal. Whether placed under a coffee table, in a seating area, or beneath a dining set, this rug offers both functional benefits and a contemporary design statement that elevates any home environment.
 
-## <a href="https://www.amazon.com/dp/B095974646?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Wyscott Contemporary Marble Abstract Design Rug</a>
+## <a href="https://www.amazon.com/dp/B095974646?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Wyscott Contemporary Marble Abstract Design Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B095974646?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Wyscott Contemporary 5 x 7 High Pile Marble Abstract Design Rug, Beige, Gray &amp; Black" src="https://m.media-amazon.com/images/I/51uCdpQvzCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095974646?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Wyscott Contemporary 5 x 7 High Pile Marble Abstract Design Rug, Beige, Gray &amp; Black" src="https://m.media-amazon.com/images/I/51uCdpQvzCL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Wyscott Contemporary 5 x 7 High Pile Marble Abstract Design Rug** in **Beige, Gray & Black** is ideal for homeowners and interior enthusiasts looking to add a touch of modern elegance and comfort to their living spaces. This rug is perfect for those who appreciate contemporary design and want a durable yet stylish floor covering that complements a variety of décor styles. Its size and color palette make it suitable for living rooms, bedrooms, or office spaces seeking a subtle yet sophisticated statement piece.
@@ -200,10 +200,10 @@ The **Signature Design by Ashley Wyscott Rug** features a high pile that adds si
 
 Beyond aesthetics, this rug’s quality construction by **Ashley Furniture Industries** ensures durability and resilience, even in high-traffic areas. The substantial size offers ample coverage, making it suitable for medium to large rooms, while its weight helps it stay firmly in place, reducing the risk of slips or bunching. Overall, this rug blends functionality with contemporary style, enhancing both the look and feel of any room it graces.
 
-## <a href="https://www.amazon.com/dp/B09BDGKGNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Ivygail Modern High Pile Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09BDGKGNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Ivygail Modern High Pile Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDGKGNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Ivygail Modern High Pile 7'6' x 9'6' Area Rug, Gray" src="https://m.media-amazon.com/images/I/41l45Aqq5YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDGKGNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Ivygail Modern High Pile 7'6' x 9'6' Area Rug, Gray" src="https://m.media-amazon.com/images/I/41l45Aqq5YL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Ivygail Modern High Pile Area Rug** in **Gray** is ideal for homeowners and interior design enthusiasts looking to add a touch of warmth and elegance to their living spaces. If you want a rug that combines modern style with plush comfort and can effortlessly complement a variety of decor styles, this **7'6" x 9'6"** rug is a perfect choice.
@@ -226,10 +226,10 @@ The **Signature Design by Ashley Ivygail Rug** features a luxurious high pile th
 
 Crafted by **Ashley Furniture Industries**, this area rug balances aesthetics with durability. Its weight of **28.5 pounds** ensures stability on the floor while remaining manageable for repositioning or cleaning. The soft texture of the high pile is perfect for those who value comfort and style, making it an excellent addition to spaces where relaxation is key. Overall, this rug delivers both functional benefits and timeless design appeal.
 
-## <a href="https://www.amazon.com/dp/B0BN7FLN4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Mauville Contemporary 5x8 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BN7FLN4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Mauville Contemporary 5x8 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BN7FLN4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Mauville Contemporary 5x8 Area Rug, Light Brown &amp; Blue" src="https://m.media-amazon.com/images/I/51sRbj+DFaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BN7FLN4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Mauville Contemporary 5x8 Area Rug, Light Brown &amp; Blue" src="https://m.media-amazon.com/images/I/51sRbj+DFaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Mauville Contemporary 5x8 Area Rug** in **Light Brown & Blue** is perfect for homeowners and interior design enthusiasts looking to add a subtle yet stylish touch to their living spaces. Ideal for those who want a blend of modern and classic aesthetics, this rug suits living rooms, bedrooms, or offices where comfort and design matter. If you appreciate quality craftsmanship and a rug that complements a variety of decor themes, this item is an excellent choice.
@@ -251,10 +251,10 @@ This **contemporary area rug** features a well-balanced design that incorporates
 
 Constructed by **Ashley Furniture Industries**, this rug promises both quality and longevity. Its lightweight nature makes it simple to reposition or clean, adding convenience for busy households. Overall, the **Signature Design by Ashley Mauville Rug** combines aesthetic appeal with practical functionality, making it a valuable addition to any home looking for a subtle yet elegant floor covering.
 
-## <a href="https://www.amazon.com/dp/B09BDGCGD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Faelyn Area Rug</a>
+## <a href="https://www.amazon.com/dp/B09BDGCGD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Faelyn Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDGCGD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Faelyn Contemporary Circle High Pile 5 x 7'3' Area Rug, Gray &amp; Beige" src="https://m.media-amazon.com/images/I/51AF0AdCIwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDGCGD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Faelyn Contemporary Circle High Pile 5 x 7'3' Area Rug, Gray &amp; Beige" src="https://m.media-amazon.com/images/I/51AF0AdCIwL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Faelyn Contemporary Circle High Pile Area Rug** in **Gray & Beige** is ideal for homeowners and interior design enthusiasts looking to add a touch of modern elegance and comfort to their living spaces. This rug is perfect for those who want a stylish yet functional floor covering that enhances the ambiance of bedrooms, living rooms, or offices. If you appreciate a plush texture combined with contemporary design, this rug is a great choice.

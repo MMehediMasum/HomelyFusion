@@ -23,10 +23,10 @@ Whether you prefer a 16 x 26, 12 x 20, or 12 x 16 size, Tahari has you covered. 
 
 
 
-## <a href="https://www.amazon.com/dp/B0150IDTGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
+## <a href="https://www.amazon.com/dp/B0150IDTGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
 
 
-<a href="https://www.amazon.com/dp/B0150IDTGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 16 X 26 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/41E5eqhLzwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0150IDTGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 16 X 26 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/41E5eqhLzwL._SL500_.jpg"/></a>
 
 
 The **ComfyDown 95% Feather 5% Down, 16 X 26 Rectangle Decorative Pillow Insert** is ideal for individuals looking to upgrade their home décor with a high-quality, comfortable pillow insert. Perfect for those who value both style and comfort, this pillow insert is designed for people wanting to enhance the look and feel of their existing pillow shams or decorative pillows. If you prefer a plush yet supportive fill that maintains shape and offers durability, this product is an excellent choice.
@@ -49,10 +49,10 @@ This **pillow insert** features a blend of 95% feather and 5% down, offering a b
 
 The insert’s design allows it to retain shape and resist flattening, which enhances the aesthetic appeal of any room. Its neutral **Branco color** complements a variety of interior styles, from modern to classic. Users benefit from a decorative pillow that not only looks elegant but also adds comfort and support when used for lounging or resting. Overall, this pillow insert is a practical and stylish addition to your home décor essentials.
 
-## <a href="https://www.amazon.com/dp/B013ISE6JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
+## <a href="https://www.amazon.com/dp/B013ISE6JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
 
 
-<a href="https://www.amazon.com/dp/B013ISE6JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 12 X 20 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/4142HECSTML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013ISE6JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 12 X 20 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/4142HECSTML._SL500_.jpg"/></a>
 
 
 The **ComfyDown 95% Feather 5% Down, 12 X 20 Rectangle Decorative Pillow Insert** is ideal for anyone looking to enhance their home decor with a plush, high-quality pillow insert. Perfect for homeowners, interior designers, or anyone who values comfort and durability in their decorative pillows, this product offers a luxurious feel while maintaining excellent support. If you want to refresh your living space or bedroom with stylish and comfortable pillows, this insert is a smart choice.
@@ -75,10 +75,10 @@ The **ComfyDown pillow insert** stands out with its premium feather and down ble
 
 Additionally, the lightweight nature of the insert makes it easy to move and adjust, catering to dynamic home environments. While the feather content provides excellent cushioning, users should be mindful of potential allergies and maintenance needs like fluffing to retain its shape. Overall, this pillow insert delivers a blend of elegance, comfort, and practicality, making it a valuable addition to your home decor collection.
 
-## <a href="https://www.amazon.com/dp/B013ISDTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
+## <a href="https://www.amazon.com/dp/B013ISDTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comfydown Rectangle Decorative Pillow Insert</a>
 
 
-<a href="https://www.amazon.com/dp/B013ISDTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 12 X 16 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/41IrNiMAKoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013ISDTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ComfyDown 95% Feather 5% Down, 12 X 16 Rectangle Decorative Pillow Insert, Sham Stuffer - MADE IN USA" src="https://m.media-amazon.com/images/I/41IrNiMAKoL._SL500_.jpg"/></a>
 
 
 The **ComfyDown 95% Feather 5% Down, 12 X 16 Rectangle Decorative Pillow Insert** is ideal for homeowners and interior decorators seeking a high-quality, comfortable filler for decorative shams. Those who want to upgrade their living space with plush, supportive pillows that maintain shape while offering softness will find this pillow insert a perfect choice. It is especially suitable for individuals who value products made in the USA and prefer natural feather and down filling for durability and comfort.

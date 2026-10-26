@@ -23,10 +23,10 @@ Lamps with dimming features allow you to change brightness for different tasks. 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp** from **Seaside village** is ideal for individuals who require a bright, adjustable, and eye-friendly lighting solution. Whether you are a professional working in an **office**, a crafter involved in detailed tasks like **lash extension**, or someone seeking a modern, functional light for your **living room**, this lamp provides versatility and convenience. Its dual-head design and dimmable feature make it perfect for users who want to customize their lighting environment to suit different activities.
@@ -51,10 +51,10 @@ The **LED Floor Lamp** is thoughtfully designed with two adjustable heads mounte
 
 Moreover, the dimmable feature allows users to easily adjust the light intensity, creating a comfortable environment that reduces eye fatigue during long hours of use. The sleek black finish and modern aesthetic make it a stylish addition to any room, while its eye-caring technology safeguards against harsh glare, ensuring a pleasant and safe lighting experience. Overall, this floor lamp combines functionality, comfort, and style, making it a versatile lighting solution for a variety of settings.
 
-## <a href="https://www.amazon.com/dp/B0C14D5CX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marctronic Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C14D5CX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marctronic Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C14D5CX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="marctronic Floor Lamp, 18W 1800LM Super Bright LED Floor Lamp with Remote &amp; Works with Smart Plug, Dimmable Timing Eye Caring Reading Lamps Floor Standing for Living Room Bedroom Office" src="https://m.media-amazon.com/images/I/51pZd4xqoDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C14D5CX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="marctronic Floor Lamp, 18W 1800LM Super Bright LED Floor Lamp with Remote &amp; Works with Smart Plug, Dimmable Timing Eye Caring Reading Lamps Floor Standing for Living Room Bedroom Office" src="https://m.media-amazon.com/images/I/51pZd4xqoDL._SL500_.jpg"/></a>
 
 
 The **marctronic Floor Lamp** is ideal for individuals seeking a versatile and energy-efficient lighting solution for their **living room**, **bedroom**, or **office**. Perfect for avid readers, remote workers, or anyone looking to enhance their space with bright, adjustable light, this lamp caters to those who value convenience, modern technology, and eye comfort in their lighting fixtures.
@@ -78,10 +78,10 @@ The **marctronic Floor Lamp** boasts a powerful 18W LED light output delivering 
 
 Moreover, this lamp's compatibility with **smart plugs** means it can integrate seamlessly into your smart home setup, allowing control via voice commands or smartphone apps. The design prioritizes eye care, reducing strain during prolonged use, which is especially beneficial for readers and professionals. With its elegant black finish and floor-standing build, it fits well into various interiors while providing dependable, adjustable lighting.
 
-## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
 
 
 The **Lepro LED Desk Lamp** is ideal for individuals who need a versatile and reliable lighting solution for their workspace. Whether you are a student, a professional working from home, or a hobbyist engaged in detailed tasks like crafting, sewing, or reading, this lamp offers the perfect balance of brightness and color options to suit your needs.
@@ -103,10 +103,10 @@ The **Lepro LED Desk Lamp** features a sleek metal construction measuring **15.1
 
 Designed with both functionality and style in mind, the lamp is lightweight yet sturdy, weighing only **1.85 pounds**. Its dimmable feature and multiple color modes support better focus and reduce eye fatigue, making it perfect for long hours at your desk. Additionally, its endorsement by **Forbes** as a top task lamp adds an extra layer of trust and credibility, ensuring you are investing in a product that combines quality, durability, and efficient performance.
 
-## <a href="https://www.amazon.com/dp/B0BKT611XR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BKT611XR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKT611XR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Desk Lamp, 800LM LED for Home Office, 12W Reading for Desk, Eye-Caring Light, Touch Table Gooseneck Lamp, 50 Lighting Modes, Bright for Bedroom, Study (Black)" src="https://m.media-amazon.com/images/I/31-NplFJYPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKT611XR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Desk Lamp, 800LM LED for Home Office, 12W Reading for Desk, Eye-Caring Light, Touch Table Gooseneck Lamp, 50 Lighting Modes, Bright for Bedroom, Study (Black)" src="https://m.media-amazon.com/images/I/31-NplFJYPL._SL500_.jpg"/></a>
 
 
 The **LEPOWER Desk Lamp** is ideal for individuals seeking a versatile and efficient lighting solution for their **home office**, study area, or bedroom. Whether you are a student, professional, or avid reader, this lamp offers adjustable brightness and eye-caring technology to reduce strain during extended use. If you need a compact yet powerful **LED desk lamp** with multiple lighting modes, this product is designed to meet those needs effectively.
@@ -131,10 +131,10 @@ The **LEPOWER Desk Lamp** features an impressive **800 lumens** brightness outpu
 
 Additionally, the lamp’s **flexible gooseneck** allows users to easily adjust the direction of light, providing targeted illumination exactly where it is needed. This flexibility combined with the lamp’s compact dimensions (height of approximately 12.2 inches and width of 6.7 inches) makes it a practical addition to any workspace or study area. The sleek **black finish** adds a modern aesthetic that blends well with most decor styles. Overall, the LEPOWER Desk Lamp balances functionality, comfort, and style, making it a valuable lighting tool for diverse daily activities.
 
-## <a href="https://www.amazon.com/dp/B0F42QBY9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rtrevlo Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F42QBY9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rtrevlo Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F42QBY9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rtrevlo LED Floor Lamp with Remote, 24W 2400LM Dimmable Standing Light with Double Heads and Adjustable Gooseneck, Modern Tall Lamp for Bedroom, Office, Living Room, Eyelash Extensions &amp; Crafting" src="https://m.media-amazon.com/images/I/41lAl56p83L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F42QBY9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rtrevlo LED Floor Lamp with Remote, 24W 2400LM Dimmable Standing Light with Double Heads and Adjustable Gooseneck, Modern Tall Lamp for Bedroom, Office, Living Room, Eyelash Extensions &amp; Crafting" src="https://m.media-amazon.com/images/I/41lAl56p83L._SL500_.jpg"/></a>
 
 
 The **Rtrevlo LED Floor Lamp with Remote** is ideal for individuals seeking a versatile and modern lighting solution for their **bedroom**, **office**, or **living room**. It is perfect for those who require adjustable lighting for tasks such as **eyelash extensions** or **crafting**, thanks to its dual heads and flexible gooseneck design. If you want a bright, dimmable, and easy-to-control lamp, this product is a great choice.
@@ -156,10 +156,10 @@ The **Rtrevlo LED Floor Lamp** boasts a powerful **24W LED light output** with 2
 
 Additionally, the lamp's **remote control** adds a layer of convenience, enabling easy switching between modes and brightness levels without interrupting your workflow or relaxation. The sleek, **modern design** and sturdy build make it a stylish and practical addition to any room, whether for professional use or home ambiance. Overall, this lamp combines functionality with aesthetic appeal to meet the needs of diverse users.
 
-## <a href="https://www.amazon.com/dp/B0742GZ9FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Verilux Smartlight Full Spectrum Led Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0742GZ9FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Verilux Smartlight Full Spectrum Led Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0742GZ9FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Verilux SmartLight Full Spectrum LED Modern Floor Lamp with Adjustable Brightness, Flexible Gooseneck and Easy Controls - Reduces Eye Strain and Fatigue - Ideal for Reading, Artists, Craft (White)" src="https://m.media-amazon.com/images/I/21Mk7X9hu8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0742GZ9FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Verilux SmartLight Full Spectrum LED Modern Floor Lamp with Adjustable Brightness, Flexible Gooseneck and Easy Controls - Reduces Eye Strain and Fatigue - Ideal for Reading, Artists, Craft (White)" src="https://m.media-amazon.com/images/I/21Mk7X9hu8L._SL500_.jpg"/></a>
 
 
 The **Verilux SmartLight Full Spectrum LED Modern Floor Lamp** is perfect for individuals who spend long hours reading, crafting, or working on detailed artistic projects. Ideal for **students, artists, crafters, and professionals** who require precise and adjustable lighting to reduce **eye strain** and enhance focus, this lamp is designed to improve comfort and productivity in any well-lit space.
@@ -182,10 +182,10 @@ The **Verilux SmartLight** features a full spectrum LED that mimics natural dayl
 
 Its **flexible gooseneck** design offers exceptional versatility, allowing users to direct light exactly where it’s needed. This adaptability enhances user comfort and helps create an ergonomic workspace or creative area. Additionally, the lamp’s minimalist and modern aesthetic, combined with easy-to-use controls, ensures it not only performs well but also looks great in any setting, making it a valuable addition to homes, studios, or offices.
 
-## <a href="https://www.amazon.com/dp/B0C5M53FGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C5M53FGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5M53FGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 18W Super Bright Floor Lamp for Living Room, Adjustable Stepless Colors &amp; Brightness Gooseneck Standing Lamp, Eye Caring Reading Light with Remote&amp; Touch Control for Bedroom Office" src="https://m.media-amazon.com/images/I/41iuqc-JRIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5M53FGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 18W Super Bright Floor Lamp for Living Room, Adjustable Stepless Colors &amp; Brightness Gooseneck Standing Lamp, Eye Caring Reading Light with Remote&amp; Touch Control for Bedroom Office" src="https://m.media-amazon.com/images/I/41iuqc-JRIL._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp, 18W Super Bright Floor Lamp** by Aisutha is ideal for individuals seeking a versatile and eye-friendly lighting solution for their **living room, bedroom, or office**. This lamp is perfect for avid readers, remote workers, or anyone who needs customizable lighting that can adapt to various tasks and moods.
@@ -207,10 +207,10 @@ This **18W super bright floor lamp** stands out with its ability to provide a wi
 
 The lamp’s **gooseneck standing design** offers excellent flexibility, allowing users to direct light exactly where it is needed. Combined with its intuitive remote and touch controls, it provides a seamless user experience without the hassle of manual adjustments. Compact yet sturdy, its dimensions and weight make it a practical addition to any room, enhancing both functionality and aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0C7YSHCKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C7YSHCKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7YSHCKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech LED Desk lamp with Clamp, Eye-Caring Clip Lights for Home Office, 3 Colors Full Brightness, Flexible Gooseneck USB Adapter Table Lamp, Black" src="https://m.media-amazon.com/images/I/31-555vvW6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7YSHCKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech LED Desk lamp with Clamp, Eye-Caring Clip Lights for Home Office, 3 Colors Full Brightness, Flexible Gooseneck USB Adapter Table Lamp, Black" src="https://m.media-amazon.com/images/I/31-555vvW6L._SL500_.jpg"/></a>
 
 
 The **ShineTech LED Desk Lamp with Clamp** is ideal for students, professionals, and anyone working or reading at home or in an office setting who needs adjustable, eye-friendly lighting. If you require a versatile lighting solution that can easily be clamped onto desks or shelves and offers multiple brightness levels and color temperatures, this lamp is designed to meet your needs.
@@ -233,10 +233,10 @@ The **ShineTech LED Desk Lamp** stands out with its **3CCT in One** feature, off
 
 The lamp’s **flexible gooseneck** allows users to direct light exactly where needed, enhancing productivity and comfort. The **USB adapter** provides easy compatibility with modern devices, eliminating the need for bulky power cords. Additionally, the **clamp design** frees up valuable desk space and offers secure attachment, making it an excellent choice for compact workspaces.
 
-## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
 
 
 The **O’Bright Dimmable LED Pharmacy Floor Lamp** is ideal for individuals who require precise and adjustable lighting for detailed tasks such as **reading, sewing, and crafting**. Whether you are a hobbyist, professional artist, or someone who values high-quality illumination in your workspace, this lamp offers the versatility and brightness needed to enhance your productivity and reduce eye strain.
@@ -259,10 +259,10 @@ The **O’Bright Dimmable LED Pharmacy Floor Lamp** features a powerful yet ener
 
 In addition to its functional advantages, the lamp’s **adjustable height** ensures ergonomic comfort, reducing the risk of neck or eye strain during extended use. The **antique brass (gold) finish** enhances the aesthetic appeal, making it a beautiful addition to any creative or professional workspace. Being **ETL listed**, this lamp meets rigorous safety standards, offering peace of mind alongside superior performance.
 
-## <a href="https://www.amazon.com/dp/B0CKL4RBY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yikuneng Dimmable Led Floor Lamp </a>
+## <a href="https://www.amazon.com/dp/B0CKL4RBY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yikuneng Dimmable Led Floor Lamp </a>
 
 
-<a href="https://www.amazon.com/dp/B0CKL4RBY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yikuneng Dimmable LED Floor Lamp, Super Bright Reading Lamps Floor Standing lamp with Remote &amp; Touch Control, Stepless Dimming &amp; 2700K-6500K Color Temperature, for Living Room Bedroom Office, Black" src="https://m.media-amazon.com/images/I/41elOl-dN6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKL4RBY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yikuneng Dimmable LED Floor Lamp, Super Bright Reading Lamps Floor Standing lamp with Remote &amp; Touch Control, Stepless Dimming &amp; 2700K-6500K Color Temperature, for Living Room Bedroom Office, Black" src="https://m.media-amazon.com/images/I/41elOl-dN6L._SL500_.jpg"/></a>
 
 
 The **Yikuneng Dimmable LED Floor Lamp** is ideal for individuals seeking a versatile and efficient lighting solution for their **living room, bedroom, or office**. If you value customizable brightness and color temperature for activities such as reading, working, or relaxing, this floor lamp is designed to meet your needs. Users who prefer convenient control options like remote and touch controls will find this lamp particularly appealing.

@@ -23,10 +23,10 @@ For those who prefer a touch of vintage charm, options with amber stripe glass s
 
 
 
-## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
 
 
 The **Modern Floor Lamp Simple Design with White Shade** is perfect for individuals looking to enhance their living space with a sleek and functional lighting solution. Ideal for homeowners, renters, or office workers who need a stylish yet practical lamp for their **living room**, **bedroom**, **office**, **dining room**, or **kitchen**, this lamp suits those who appreciate minimalist design and convenience.
@@ -49,10 +49,10 @@ This **Modern Floor Lamp** features a simple yet elegant design, highlighted by 
 
 The built-in **foot pedal switch** offers hands-free convenience, allowing users to easily switch the lamp on or off without bending down. This feature is especially beneficial in settings where quick access to lighting is needed, such as offices or living areas. Additionally, the durable **black pole** construction ensures long-lasting use, while the lamp’s lightweight design makes it simple to move around and reposition as needed to suit changing lighting requirements.
 
-## <a href="https://www.amazon.com/dp/B086ZLGLV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rottogoon Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B086ZLGLV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rottogoon Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B086ZLGLV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROTTOGOON Floor Lamp for Living Room with 3 Color Temperatures LED Bulb, Standing Lamp Tall Industrial Floor Lamp Reading for Bedroom, Office (9W LED Bulb, Beige Lampshade Included) -Black" src="https://m.media-amazon.com/images/I/416VJ0TYmiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086ZLGLV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROTTOGOON Floor Lamp for Living Room with 3 Color Temperatures LED Bulb, Standing Lamp Tall Industrial Floor Lamp Reading for Bedroom, Office (9W LED Bulb, Beige Lampshade Included) -Black" src="https://m.media-amazon.com/images/I/416VJ0TYmiL._SL500_.jpg"/></a>
 
 
 The **ROTTOGOON Floor Lamp** is perfect for individuals seeking a stylish and functional lighting solution for their **living room, bedroom, or office**. Ideal for readers and those who appreciate adjustable lighting, this floor lamp offers versatile illumination options to enhance any space.
@@ -74,10 +74,10 @@ The **ROTTOGOON Floor Lamp** features a thoughtfully designed industrial style t
 
 With its compact size—measuring just under 5 inches in height and a width of approximately 12 inches—this lamp fits comfortably in smaller spaces without overwhelming the room. The **beige lampshade** softens the light, creating a cozy atmosphere while the black finish gives it a sleek, contemporary appearance. Overall, this floor lamp combines functionality with aesthetic appeal, making it a practical addition to any living area, bedroom, or office setup.
 
-## <a href="https://www.amazon.com/dp/B0F9PHKQJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lamsu Glass Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0F9PHKQJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lamsu Glass Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9PHKQJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LAMSU Glass Floor Lamps for Living Room, Vintage Gold Standing Lamp with LED Bulb, Amber Stripe Glass Shade, Foot Switch, Mid Century Modern Brass Tall Corner Lamp for Bedroom Office Reading Room" src="https://m.media-amazon.com/images/I/410yqk6VPNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9PHKQJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LAMSU Glass Floor Lamps for Living Room, Vintage Gold Standing Lamp with LED Bulb, Amber Stripe Glass Shade, Foot Switch, Mid Century Modern Brass Tall Corner Lamp for Bedroom Office Reading Room" src="https://m.media-amazon.com/images/I/410yqk6VPNL._SL500_.jpg"/></a>
 
 
 The **LAMSU Glass Floor Lamps for Living Room** are ideal for individuals seeking to enhance their home or office ambiance with a blend of vintage charm and modern functionality. Perfect for those who appreciate **mid-century modern design** and desire a stylish yet practical lighting solution for spaces such as bedrooms, reading rooms, or offices. If you want a lamp that offers both aesthetic appeal and energy-efficient lighting, this standing lamp is an excellent choice.
@@ -100,10 +100,10 @@ The **LAMSU Glass Floor Lamp** features a striking **vintage gold brass frame** 
 
 Equipped with an **energy-saving LED bulb**, this lamp provides bright illumination while minimizing electricity consumption. The **foot switch** adds convenience, allowing users to easily control the lamp without interrupting their activities. Standing at 65 inches tall, it effectively lights up corners and reading areas, improving visibility and comfort for reading or working. Overall, the LAMSU Glass Floor Lamp combines style, functionality, and efficiency, making it a valuable addition to any living or working space.
 
-## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
 
 
 The **luckystyle LED Floor Lamp** is an excellent choice for individuals seeking a versatile and stylish lighting solution for their **living room, bedroom, office, or kid's room**. Ideal for those who want adjustable brightness and customizable color temperature, this lamp suits users who appreciate both functionality and modern design in their home or workspace. If you value convenience and ambiance control, this lamp is perfect for you.
@@ -125,10 +125,10 @@ The **luckystyle LED Floor Lamp** stands out with its tall and elegant design, m
 
 Equipped with a **12W LED bulb**, the lamp is not only energy-efficient but also provides ample illumination without harsh glare. The black pole and lampshade add a touch of sophistication, blending seamlessly into various room decors. Whether you need a cozy ambiance for relaxation or bright light for detailed tasks, this lamp adjusts to your needs, making it a practical and stylish addition to any room.
 
-## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamp With Shelves</a>
+## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamp With Shelves</a>
 
 
-<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
 
 
 The **SUNMORY Floor Lamp with Shelves** is ideal for individuals seeking a stylish and functional lighting solution that also offers storage. Perfect for those who want to maximize space in their **living room** or **bedroom**, this modern floor lamp combines illumination with convenient shelving, making it suitable for book lovers, students, or anyone looking to enhance their room's aesthetic while keeping essentials within reach.
@@ -152,10 +152,10 @@ The **SUNMORY Floor Lamp with Shelves** features a well-thought-out design that 
 
 Additionally, the integrated **corner display bookshelf** offers a practical solution for organizing books, plants, or decorative items without occupying extra floor space. The lamp’s sleek **black finish** and narrow footprint make it an excellent choice for modern interiors, especially in tight spaces where both style and functionality are crucial. Overall, this lamp is a smart investment for those looking to combine lighting with storage in a contemporary package.
 
-## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Arc Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Arc Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
 
 
 The **SUNMORY Arc Floor Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, or **office**. This modern floor lamp is perfect for those who appreciate contemporary design combined with practical features like adjustable lighting and a hanging lampshade that adds a unique aesthetic touch to any space.
@@ -178,10 +178,10 @@ The **SUNMORY Arc Floor Lamp** stands out with its modern arc design and a pract
 
 Built with durable metal and finished in a sleek black color, this lamp adds a sophisticated touch to any room without overwhelming the decor. Its tall and slim profile fits well in various spaces, offering efficient lighting while maintaining a minimal footprint. Overall, the **SUNMORY Arc Floor Lamp** provides a balance of style, flexibility, and functionality for modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B0F5HCKYGR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">68" Rustic Farmhouse Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0F5HCKYGR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">68" Rustic Farmhouse Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5HCKYGR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="68" bedroom="" cottage="" country="" dimmable,="" drum="" farmhouse="" floor="" for="" lamp="" living="" reading="" resin="" room"="" room,="" rustic="" shade="" src="https://m.media-amazon.com/images/I/41FMNCRVofL._SL500_.jpg" standing="" stepless="" tall="" tree="" trunk="" washed="" white="" wicker="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0F5HCKYGR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="68" bedroom="" cottage="" country="" dimmable,="" drum="" farmhouse="" floor="" for="" lamp="" living="" reading="" resin="" room"="" room,="" rustic="" shade="" src="https://m.media-amazon.com/images/I/41FMNCRVofL._SL500_.jpg" standing="" stepless="" tall="" tree="" trunk="" washed="" white="" wicker="" with=""/></a>
 
 
 The **68" Rustic Farmhouse Floor Lamp** is perfect for those who appreciate a blend of country charm and modern functionality. Ideal for homeowners looking to enhance their living room, bedroom, or reading room with a cozy yet stylish lighting solution, this lamp suits individuals who favor rustic, farmhouse, or cottage decor styles. If you want a tall, elegant floor lamp that brings warm ambiance and adjustable lighting to your space, this item is an excellent choice.
@@ -204,10 +204,10 @@ The **Karjoefar 68" Rustic Farmhouse Floor Lamp** stands out with its beautifull
 
 Beyond its charming appearance, this floor lamp features a **stepless dimmable function**, allowing users to easily adjust the brightness to their liking without harsh increments. This makes it incredibly versatile, providing soft ambient lighting for unwinding or brighter illumination for tasks such as reading or working. Its tall stature ensures the light spreads evenly across a wide area, making it both a functional and decorative addition to your home.
 
-## <a href="https://www.amazon.com/dp/B0C854449J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ziisee Industrial Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C854449J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ziisee Industrial Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C854449J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ziisee Industrial Floor Lamp with Glass Shade - Black, LED Bulbs, Foot Pedal Switch, Easy Assembly" src="https://m.media-amazon.com/images/I/41hHhLaz0mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C854449J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ziisee Industrial Floor Lamp with Glass Shade - Black, LED Bulbs, Foot Pedal Switch, Easy Assembly" src="https://m.media-amazon.com/images/I/41hHhLaz0mL._SL500_.jpg"/></a>
 
 
 The **Ziisee Industrial Floor Lamp with Glass Shade** is ideal for individuals seeking a stylish yet functional lighting solution for their living room, office, or studio. Perfect for those who appreciate a blend of modern industrial design and practicality, this lamp caters to homeowners, interior designers, and professionals who want to enhance their space with efficient and elegant lighting.
@@ -231,10 +231,10 @@ The **Ziisee Industrial Floor Lamp** stands out with its sleek black frame and t
 
 Functionality is further elevated by the **foot pedal switch**, allowing users to turn the lamp on or off effortlessly, which is especially beneficial for those with limited mobility or when hands are occupied. Additionally, the **easy assembly** means users can set up the lamp quickly and start enjoying its benefits without professional help. Overall, this floor lamp combines style, convenience, and energy efficiency to meet the needs of modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
 
 
 The **SUNMORY Floor Lamps for Living Room** is ideal for individuals seeking a stylish and functional lighting solution to enhance their living spaces. Perfect for homeowners, office workers, and students who need adjustable brightness and modern design, this lamp suits anyone looking to brighten up bedrooms, offices, or living rooms with ease and elegance.
@@ -257,10 +257,10 @@ The **SUNMORY Floor Lamp** stands out with its impressive **32W power and 3000 l
 
 Designed with modern aesthetics in mind, this **69-inch tall standing lamp** fits neatly into corners, making it an excellent choice for rooms where space is a concern. Its slim profile and elegant black finish bring a sophisticated touch to bedrooms and offices alike. Additionally, the durable build and lightweight design make it easy to move and position as needed, offering both flexibility and style.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their living spaces. Perfect for those who want to enhance the ambiance of their **living room**, **bedroom**, **office**, or **dining room**, this lamp suits homeowners and renters alike who appreciate modern design combined with practical features such as dimmability and energy efficiency. If you value both aesthetics and versatility in your lighting, this product is a great choice.

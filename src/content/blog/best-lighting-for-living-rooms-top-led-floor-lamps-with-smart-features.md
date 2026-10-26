@@ -23,10 +23,10 @@ Products such as the luckystyle LED Floor Lamp with remote control or the SUNMOR
 
 
 
-## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
 
 
 The **luckystyle LED Floor Lamp** is ideal for individuals looking to enhance the ambiance and functionality of their living space. Whether you are a homeowner, a student, or a professional working from home, this **dimmable standing lamp** offers adjustable lighting suited for the **living room, bedroom, office, or kid’s room**. Its sleek design with a **black pole** and lampshade fits well with modern decor, making it a great choice for those who want style combined with practicality.
@@ -49,10 +49,10 @@ The **luckystyle LED Floor Lamp** features a tall and elegant black pole with a 
 
 Designed with energy efficiency in mind, the **12W LED bulb** offers bright illumination while consuming minimal power, helping users save on electricity bills. The lamp’s slim footprint makes it ideal for rooms with limited space, and its sturdy build ensures long-lasting use. Whether used in a kid’s room for gentle night lighting or in an office for focused work light, this lamp balances functionality with style, making it a valuable addition to any home or workspace.
 
-## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamp With Shelves</a>
+## <a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamp With Shelves</a>
 
 
-<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Z36X6B4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves, Modern Square Standing Lamp with 3 Color Temperature Bulb, Corner Display Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41WESEJ8flL._SL500_.jpg"/></a>
 
 
 The **SUNMORY Floor Lamp with Shelves** is ideal for individuals looking to combine stylish lighting with functional storage. Perfect for those who want to enhance their **living room** or **bedroom** ambiance while keeping books or decorative items within easy reach, this lamp suits modern homeowners and apartment dwellers seeking both utility and design in a single piece.
@@ -75,10 +75,10 @@ The **SUNMORY Floor Lamp with Shelves** stands out due to its elegant black fini
 
 Beyond its aesthetic appeal, this lamp maximizes space efficiency by combining illumination with storage. Its slim footprint means it fits neatly in corners without overwhelming the room, making it especially suitable for smaller apartments or cozy living areas. The combination of functionality and style makes the SUNMORY Floor Lamp a versatile addition that enhances both the visual and practical aspects of your home environment.
 
-## <a href="https://www.amazon.com/dp/B0CZ7KLVPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CZ7KLVPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ7KLVPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp, 2 Pack LED Corner Lamp with App/Remote/Button Control, Smart RGB Floor Lamp with 16 Million DIY Colors &amp; 68+ Scene, Music Sync for Living Room, Bedroom, Gaming Room" src="https://m.media-amazon.com/images/I/41TVtRA33OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ7KLVPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp, 2 Pack LED Corner Lamp with App/Remote/Button Control, Smart RGB Floor Lamp with 16 Million DIY Colors &amp; 68+ Scene, Music Sync for Living Room, Bedroom, Gaming Room" src="https://m.media-amazon.com/images/I/41TVtRA33OL._SL500_.jpg"/></a>
 
 
 The **Miortior Corner Floor Lamp, 2 Pack LED Corner Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their **living room, bedroom, or gaming room**. If you want to create customized ambiance with smart control options and vibrant colors, this product is perfect for tech-savvy users and home decorators who appreciate both functionality and aesthetic appeal.
@@ -101,10 +101,10 @@ The **Miortior Corner Floor Lamp** stands out with its advanced lighting technol
 
 Additionally, the inclusion of a **music sync** feature allows the lamp to pulsate and change colors in rhythm with audio, elevating entertainment experiences during parties or quiet evenings. The slim design maximizes space efficiency while providing ample brightness through energy-saving LEDs. Overall, this lamp combines style, technology, and convenience, making it a valuable addition to modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksipze 100ft Led Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B09V366BDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V366BDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSIPZE 100ft Led Strip Lights RGB Music Sync Color Changing Bluetooth Led Lights with Smart App Control Remote Led Lights for Bedroom Room Lighting Flexible Home Décor" src="https://m.media-amazon.com/images/I/51i9juHmzQL._SL500_.jpg"/></a>
 
 
 The **KSIPZE 100ft Led Strip Lights** are perfect for individuals looking to enhance their living spaces with vibrant, customizable lighting. Ideal for homeowners, renters, or anyone interested in flexible **home décor** solutions, these **RGB music sync color changing Bluetooth LED lights** provide an immersive lighting experience controlled easily through a smart app or remote. Whether you want to create a cozy bedroom ambiance or add dynamic mood lighting to any room, this product suits tech-savvy users and creative decorators alike.
@@ -127,10 +127,10 @@ The **KSIPZE 100ft Led Strip Lights** come equipped with advanced features such 
 
 Additionally, the strips’ flexible design and lightweight construction mean they can be installed almost anywhere—from bedrooms to living rooms or entertainment spaces—without hassle. The broad 100ft length covers expansive areas, ensuring consistent illumination and a stunning visual impact. Overall, this product combines functionality and style, making it a versatile addition for anyone seeking dynamic and customizable indoor lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
 
 
 The **SUNMORY Floor Lamps for Living Room** is ideal for individuals seeking a versatile and modern lighting solution for their **bedroom, office, or living area**. If you want a lamp that offers bright illumination with easy control and sleek design, this **69-inch tall standing lamp** is perfect for enhancing your space’s ambiance and functionality.
@@ -152,10 +152,10 @@ The **SUNMORY Floor Lamp** features a powerful **32W LED bulb** that outputs an 
 
 Designed with modern aesthetics in mind, the lamp’s sleek black finish and tall **69-inch stature** make it a stylish addition to any living room, bedroom, or office. Its torchiere style directs light upward to create a warm, ambient glow while effectively illuminating the entire space. Lightweight at just under 9 pounds, it is easy to move and place in corners or other strategic locations to maximize lighting efficiency.
 
-## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Arc Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Arc Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
 
 
 The **SUNMORY Arc Floor Lamp** is perfect for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, or **office**. Ideal customers include those who appreciate modern design and need adjustable lighting options to create the perfect ambiance for reading, working, or relaxing.
@@ -178,10 +178,10 @@ The **SUNMORY Arc Floor Lamp** stands out with its sleek **metal frame** and an 
 
 Measuring **50 inches in height** and designed with a slim footprint, this lamp fits effortlessly into various room layouts without overwhelming the space. The sturdy build ensures durability while the modern black finish adds a sophisticated touch to any décor. Whether placed in a cozy bedroom corner or beside a desk in an office, the SUNMORY Arc Floor Lamp combines style and practicality to elevate any living or working area.
 
-## <a href="https://www.amazon.com/dp/B0CSJRZS97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0CSJRZS97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSJRZS97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41zX5rYfW1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSJRZS97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41zX5rYfW1L._SL500_.jpg"/></a>
 
 
 The **MCGOR 10inch Under Cabinet Lighting** is ideal for homeowners and renters looking to enhance visibility and ambiance in areas such as kitchens, closets, and stairways. If you want an easy-to-install, wireless lighting solution that activates with motion and offers adjustable brightness, this product is perfect for you. It’s especially beneficial for those seeking energy-efficient, rechargeable lighting without the hassle of wiring.
@@ -205,10 +205,10 @@ The **MCGOR 10inch Under Cabinet Lighting** combines practicality with modern de
 
 This lighting solution offers **five dimmable brightness levels**, giving users control over the ambiance and functionality of their space. The **warm white light** emitted by the lights provides a comfortable glow ideal for kitchens, closets, or stairs, enhancing safety and visibility without harsh glare. With a slim profile and lightweight design, these lights fit unobtrusively in almost any setting, delivering both style and function in one compact package.
 
-## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
 
 
 The **OIYN Smart RGBICW LED Corner Floor Lamp** is perfect for tech-savvy individuals who want to elevate their living spaces with customizable and dynamic lighting. Ideal for those who enjoy immersive gaming setups, ambient bedroom lighting, or vibrant living room décor, this lamp caters to users seeking both aesthetic appeal and smart functionality in one sleek design.
@@ -231,10 +231,10 @@ The **OIYN Smart RGBICW LED Corner Floor Lamp** combines advanced lighting techn
 
 Designed with convenience in mind, this lamp supports control through both an intuitive **app** and a traditional **remote control**, offering flexibility for different user preferences. Its slim and elegant profile, measuring **7.09 inches in height and width** and extending to **55.12 inches in length**, fits neatly into corners without overwhelming the space. Overall, the lamp enhances any room’s atmosphere while delivering smart, customizable lighting solutions for modern living.
 
-## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
+## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
 
 
 The **Modern Floor Lamp Simple Design with White Shade** is ideal for individuals looking to enhance their living space with a sleek and functional lighting solution. Perfect for those who appreciate minimalist aesthetics and need versatile lighting options in areas such as the **living room, bedroom, office, dining room,** or **kitchen**, this lamp suits homeowners, renters, and professionals who value both style and practicality.
@@ -257,10 +257,10 @@ This floor lamp features a sturdy **black pole** and a clean **white shade**, de
 
 Constructed by **Ambimall**, this lamp combines quality and style at an affordable price point. The lightweight design means you can effortlessly reposition it as needed, while the minimalist aesthetic ensures it complements various interior design themes. Although it does not include a bulb, this allows users to customize the lighting intensity and color temperature to best suit their preferences and needs, making it a versatile addition to any room.
 
-## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
+## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
 
 
-<a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
 
 
 The **Govee RGBIC Floor Lamp Basic** is perfect for tech-savvy individuals and home decorators looking to enhance their living spaces with customizable and smart lighting. Ideal for users who want to combine functionality with modern aesthetics, this floor lamp suits bedrooms, living rooms, or entertainment areas where mood lighting and smart home integration are valued. If you appreciate vibrant colors and seamless control through voice assistants like Alexa, this lamp is designed for you.

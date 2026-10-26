@@ -23,10 +23,10 @@ These peel-and-stick tiles provide a marble look without the hefty price tag. Fo
 
 
 
-## <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops X Chris Loves Julia Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops X Chris Loves Julia Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles, FP4421" src="https://m.media-amazon.com/images/I/41rI-dJTCOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles, FP4421" src="https://m.media-amazon.com/images/I/41rI-dJTCOL._SL500_.jpg"/></a>
 
 
 The **FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey & White Marble Peel & Stick Floor Tiles** are ideal for homeowners and renters looking to easily upgrade their flooring without the hassle of traditional installation. Perfect for those who want a stylish, budget-friendly, and temporary solution to enhance spaces like kitchens, bathrooms, or laundry rooms, these tiles offer a quick and effective way to refresh any room.
@@ -49,12 +49,12 @@ These peel and stick floor tiles feature a stunning **grey and white marble patt
 
 Beyond their visual appeal, the tiles are crafted to be water-resistant and durable enough to withstand everyday wear, making them practical for moisture-prone areas like kitchens and bathrooms. Weighing just over **6 pounds** for a set, they are easy to transport and install, while the trusted **FloorPops** brand ensures quality and performance. Overall, these tiles provide an excellent balance of style, convenience, and functionality for anyone wanting to refresh their floors with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01HCVG0SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive 12-inch Vinyl Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B01HCVG0SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive 12-inch Vinyl Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B01HCVG0SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" charcoal="" decor"="" dining="" diy="" flooring="" for="" grey="" home="" kitchen,="" pattern="" peel="" room,="" src="https://m.media-amazon.com/images/I/61w4baA1PtL._SL500_.jpg" stick,="" wood="" x=""/></a>
+<a href="https://www.amazon.com/dp/B01HCVG0SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" charcoal="" decor"="" dining="" diy="" flooring="" for="" grey="" home="" kitchen,="" pattern="" peel="" room,="" src="https://m.media-amazon.com/images/I/61w4baA1PtL._SL500_.jpg" stick,="" wood="" x=""/></a>
 
 
 The **Nexus Self Adhesive 12-Inch Vinyl Floor Tiles** are perfect for homeowners and renters looking to quickly and affordably upgrade their living spaces. Ideal for those who want a stylish, easy-to-install flooring solution without the hassle of professional installation, these tiles are especially suitable for kitchens, dining rooms, bedrooms, and bathrooms. DIY enthusiasts and anyone seeking a durable, water-resistant, and attractive flooring option will find these **peel & stick vinyl tiles** an excellent choice.
@@ -77,12 +77,12 @@ The **Nexus Self Adhesive Vinyl Floor Tiles** feature a highly realistic **charc
 
 Thanks to the **durable vinyl construction**, these tiles offer resistance to moisture and daily wear, making them ideal for areas prone to spills such as kitchens and bathrooms. Their lightweight nature and manageable size also make replacement or repairs simple and convenient. Overall, these tiles deliver a balance of practicality, style, and affordability, making them a smart choice for anyone looking to enhance their home flooring effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01HCVG0SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01HCVG0SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CHML98RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ultra Soft Rug For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CHML98RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ultra Soft Rug For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHML98RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5X8 Ultra Soft Rug for Living Room, 5X8 Fluffy Shag Area Rug for Bedroom, Modern Shaggy Carpets Fuzzy Rug for Teens Dorm Nursery Home Decor Aesthetic, Upgrade Anti-Skid Durable, Grey" src="https://m.media-amazon.com/images/I/51eENJtD19L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHML98RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5X8 Ultra Soft Rug for Living Room, 5X8 Fluffy Shag Area Rug for Bedroom, Modern Shaggy Carpets Fuzzy Rug for Teens Dorm Nursery Home Decor Aesthetic, Upgrade Anti-Skid Durable, Grey" src="https://m.media-amazon.com/images/I/51eENJtD19L._SL500_.jpg"/></a>
 
 
 The **5X8 Ultra Soft Rug for Living Room** is perfect for anyone looking to add a touch of warmth and comfort to their living spaces. Ideal customers include homeowners, teens decorating their dorm rooms, or parents wanting a cozy and safe area for their nursery. This rug is especially suited for those who appreciate modern aesthetics combined with practical features like durability and anti-skid backing.
@@ -105,12 +105,12 @@ Crafted by **Fairblink**, this shaggy carpet boasts a plush height of 1.77 inche
 
 The **anti-skid backing** is a crucial feature for safety, particularly in homes with children or pets, as it prevents slipping on hardwood or tile floors. Additionally, its lightweight design, weighing just 5 pounds, allows for effortless relocation and cleaning. Overall, this shag area rug combines modern style with functional benefits, making it a valuable addition to any home environment seeking both comfort and durability.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CHML98RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CHML98RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hugsandtails Pet Carpet Protector</a>
+## <a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hugsandtails Pet Carpet Protector</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HugsandTails Pet Carpet Protector - Doorway Damage Deterrent and Scratch-Stopper for Cats, Dogs, and Pets, Heavy-Duty PVC Runner, Cut to Fit, Clear, 15 Inches x 48 Inches, Made in The USA" src="https://m.media-amazon.com/images/I/31qdcosf15L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HugsandTails Pet Carpet Protector - Doorway Damage Deterrent and Scratch-Stopper for Cats, Dogs, and Pets, Heavy-Duty PVC Runner, Cut to Fit, Clear, 15 Inches x 48 Inches, Made in The USA" src="https://m.media-amazon.com/images/I/31qdcosf15L._SL500_.jpg"/></a>
 
 
 The **HugsandTails Pet Carpet Protector** is ideal for pet owners who want to safeguard their doorways and carpets from damage caused by their furry friends. Whether you have playful cats or energetic dogs that tend to scratch or chew at carpet edges, this heavy-duty, clear PVC runner is designed to provide a durable barrier that keeps your home looking pristine. It's perfect for anyone seeking a simple yet effective solution to protect flooring without compromising on aesthetics.
@@ -134,12 +134,12 @@ The **HugsandTails Pet Carpet Protector** features a heavy-duty **PVC runner** t
 
 Beyond its protective qualities, this carpet protector is also incredibly user-friendly. It is lightweight and easy to install without professional help, saving you time and effort. Additionally, the material is simple to clean, making it an excellent choice for busy households with active pets. Overall, this product combines durability, convenience, and aesthetic appeal to keep your home safe from pet-related damage.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CHZ99PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Furkit Vinyl Floor Mat</a>
+## <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Furkit Vinyl Floor Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FURKIT Vinyl Floor Mat for Home, Black Waterproof Area Mat for Under Dining Room Table, Sturdy Plastic Rug Protector for Kitchen, Living Room, Yard, Garage, Large Baby Play Mat (3'×5')" src="https://m.media-amazon.com/images/I/41oJmbVqlAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FURKIT Vinyl Floor Mat for Home, Black Waterproof Area Mat for Under Dining Room Table, Sturdy Plastic Rug Protector for Kitchen, Living Room, Yard, Garage, Large Baby Play Mat (3'×5')" src="https://m.media-amazon.com/images/I/41oJmbVqlAL._SL500_.jpg"/></a>
 
 
 The **FURKIT Vinyl Floor Mat** is ideal for homeowners and parents looking for a durable and practical solution to protect their floors. Whether you want to safeguard your **kitchen**, **living room**, or **garage** floors, or need a sturdy play area for your baby, this **waterproof area mat** offers excellent protection and versatility. It’s especially suitable for those who require a large, easy-to-clean mat that can handle spills, dirt, and heavy use.
@@ -162,12 +162,12 @@ The **FURKIT Vinyl Floor Mat** features a sleek black design that complements va
 
 With dimensions of **36 inches by 60 inches** and a slim profile, this mat fits well in multiple rooms, including the kitchen, living room, and even the garage. It serves as an effective barrier that maintains the cleanliness and condition of flooring surfaces, extending their lifespan. The large size also means it can be used as a safe, clean play mat for babies, giving parents peace of mind while their little ones explore and play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
+## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
 
 
 The **smabee Interlocking Carpet Shaggy Soft EVA Foam Mats** are ideal for parents and caregivers looking to create a safe, comfortable play area for children. These mats are perfect for use in kids' rooms, playrooms, or any home space where a soft, protective floor covering is needed. If you want a versatile, easy-to-clean, and cushioned surface that enhances your child's playtime experience, this product is a great choice.
@@ -191,12 +191,12 @@ The **smabee Interlocking Carpet Shaggy Soft EVA Foam Mats** combine functionali
 
 Designed with safety and ease of use in mind, these mats provide a cushioned barrier against hard floors, helping to reduce the risk of injury during play. The **protective floor tiles** are also lightweight and easy to clean, which means parents can maintain a hygienic environment effortlessly. Overall, the smabee mats offer an excellent balance of comfort, safety, and aesthetic appeal, making them a smart investment for families with young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B013A4ATCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balancefrom Puzzle Exercise Mat</a>
+## <a href="https://www.amazon.com/dp/B013A4ATCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balancefrom Puzzle Exercise Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B013A4ATCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BalanceFrom Puzzle Exercise Mat, 6-Pc Interlocking Foam Tiles, 1/2” Thick, 24 Sq Ft, Black - Training Floor Mats for Workouts - Home Gym Accessories and Equipment" src="https://m.media-amazon.com/images/I/510eduZrpFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013A4ATCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BalanceFrom Puzzle Exercise Mat, 6-Pc Interlocking Foam Tiles, 1/2” Thick, 24 Sq Ft, Black - Training Floor Mats for Workouts - Home Gym Accessories and Equipment" src="https://m.media-amazon.com/images/I/510eduZrpFL._SL500_.jpg"/></a>
 
 
 The **BalanceFrom Puzzle Exercise Mat** is ideal for fitness enthusiasts, home gym owners, and anyone looking to create a comfortable and safe workout space. Whether you are into yoga, weightlifting, or general fitness routines, these **interlocking foam tiles** provide an excellent solution for protecting floors and enhancing exercise comfort. If you want a durable and easy-to-install mat that fits various workout needs, this product is for you.
@@ -218,12 +218,12 @@ The **BalanceFrom Puzzle Exercise Mat** features a set of six interlocking foam 
 
 One of the key benefits of these **training floor mats** is their versatility. The interlocking design allows users to easily expand or reduce the mat size according to their space and workout needs. This adaptability makes it an excellent choice for a variety of activities, from yoga and Pilates to weight training and cardio workouts. Moreover, the lightweight nature of the tiles means you can quickly set up or relocate your workout space without hassle.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B013A4ATCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B013A4ATCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat </a>
+## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat </a>
 
 
-<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
 
 
 The **Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat** is perfect for individuals looking to enhance the comfort and safety of their living or working spaces. Ideal customers include parents seeking a safe play area for babies, fitness enthusiasts who need cushioned flooring for exercise, and event organizers wanting quick and attractive flooring solutions for trade shows or dance studios. Its versatile design suits **home playrooms**, **basements**, **apartments**, and more.
@@ -247,12 +247,12 @@ The **Sorbus Wood Grain Floor Tiles** combine functionality with style, offering
 
 Additionally, the **wood grain pine color** adds a warm and natural look to any environment, blending seamlessly with home décor or professional settings. The 3/8-inch thickness balances cushion and stability, ensuring durability while maintaining comfort. Perfect for families, fitness enthusiasts, and event planners alike, these mats offer a versatile and user-friendly flooring option that enhances safety and aesthetics.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07BKNFVLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Resilia Low-pile Carpet Runner</a>
+## <a href="https://www.amazon.com/dp/B07BKNFVLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Resilia Low-pile Carpet Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B07BKNFVLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RESILIA Low-Pile Carpet Runner - Non Slip Carpet &amp; Rug Protection, Washable Clear Vinyl Floor Runners, 27 Inches Wide x 6 Feet Long, Made in The USA" src="https://m.media-amazon.com/images/I/41kXEHTIXkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BKNFVLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RESILIA Low-Pile Carpet Runner - Non Slip Carpet &amp; Rug Protection, Washable Clear Vinyl Floor Runners, 27 Inches Wide x 6 Feet Long, Made in The USA" src="https://m.media-amazon.com/images/I/41kXEHTIXkL._SL500_.jpg"/></a>
 
 
 The **RESILIA Low-Pile Carpet Runner** is ideal for homeowners and renters looking to protect their floors and carpets from wear and tear while maintaining a clean, slip-resistant surface. This product is perfect for those who want an easy-to-clean, durable solution to safeguard high-traffic areas such as hallways, stairs, and entryways without sacrificing aesthetic appeal.
@@ -276,12 +276,12 @@ The **RESILIA Low-Pile Carpet Runner** features a slim profile with a height of 
 
 Additionally, the **non-slip backing** enhances safety by preventing the runner from sliding on hardwood, tile, or carpeted surfaces. With its substantial width of 27 inches and length of 6 feet, it covers a generous area, making it suitable for most hallways and staircases. Being **Made in the USA** adds an assurance of quality and reliability, making this carpet runner a practical and smart investment for maintaining the longevity and appearance of your floors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07BKNFVLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07BKNFVLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Resilia Black Plastic Floor Runner</a>
+## <a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Resilia Black Plastic Floor Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RESILIA Black Plastic Floor Runner - Embossed Wide Rib Waterproof Vinyl, Heavy Duty Protector Mat for Indoor Hardwood, Hard Floors, Garage, Entryway, Kitchen, &amp; Outdoor Use, 27” x 6’, Made in The USA" src="https://m.media-amazon.com/images/I/41rII0Y2CNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RESILIA Black Plastic Floor Runner - Embossed Wide Rib Waterproof Vinyl, Heavy Duty Protector Mat for Indoor Hardwood, Hard Floors, Garage, Entryway, Kitchen, &amp; Outdoor Use, 27” x 6’, Made in The USA" src="https://m.media-amazon.com/images/I/41rII0Y2CNL._SL500_.jpg"/></a>
 
 
 The **RESILIA Black Plastic Floor Runner** is ideal for homeowners and business owners seeking a durable, protective mat to safeguard indoor hardwood, hard floors, garages, entryways, kitchens, and even outdoor areas. If you want a reliable solution to prevent floor damage from heavy foot traffic, spills, or equipment, this heavy-duty floor runner is a perfect choice. It is especially suitable for those who prioritize quality, easy maintenance, and versatility in floor protection.
@@ -303,7 +303,7 @@ The **RESILIA Black Plastic Floor Runner** offers exceptional protection with it
 
 With its substantial length and width, this floor runner covers a wide area, effectively protecting your floors from scratches, dirt, and wear caused by foot traffic or moving equipment. Additionally, its low-profile design allows easy placement under furniture or appliances without causing obstruction. Being made in the USA, the mat reflects a high standard of manufacturing quality, giving users peace of mind regarding its durability and performance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07BKQYJZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

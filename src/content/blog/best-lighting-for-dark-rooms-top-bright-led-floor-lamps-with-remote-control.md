@@ -23,10 +23,10 @@ Ceiling corner lights and wall sconces add extra illumination without taking flo
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
 
 
 The **SUNMORY Floor Lamps for Living Room** are ideal for individuals seeking a stylish and functional lighting solution for their **bedroom, office, or living space**. Those who desire a **super bright**, energy-efficient lamp with convenient features like **remote control** and **stepless dimmable settings** will find this floor lamp an excellent choice.
@@ -49,10 +49,10 @@ The **SUNMORY Floor Lamp** features a powerful **32W LED light** that emits an i
 
 Designed to be both functional and aesthetically pleasing, this **69-inch tall modern torchiere lamp** fits neatly into corners, maximizing floor space. Its sleek black finish complements various interior styles, while the lightweight design makes it easy to relocate when needed. Overall, the SUNMORY floor lamp is a practical lighting solution combining brightness, style, and user-friendly features for a variety of settings.
 
-## <a href="https://www.amazon.com/dp/B09Y1KR51C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haultop Corner Light With Switch</a>
+## <a href="https://www.amazon.com/dp/B09Y1KR51C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haultop Corner Light With Switch</a>
 
 
-<a href="https://www.amazon.com/dp/B09Y1KR51C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="haultop Corner Light with Switch, Ceiling Corner Lights for Living Room, Plug in Ceiling Light for Dark Area, Lamp for Bedroom, Kids Room, Triangle Shape" src="https://m.media-amazon.com/images/I/41RzkCOLQyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Y1KR51C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="haultop Corner Light with Switch, Ceiling Corner Lights for Living Room, Plug in Ceiling Light for Dark Area, Lamp for Bedroom, Kids Room, Triangle Shape" src="https://m.media-amazon.com/images/I/41RzkCOLQyL._SL500_.jpg"/></a>
 
 
 The **haultop Corner Light with Switch** is ideal for homeowners and renters looking to brighten up dark corners in their living spaces without complicated installation. Perfect for those who want a simple, plug-in lighting solution for areas such as the **living room**, **bedroom**, or **kids’ rooms**, this light is especially suited for individuals seeking both functionality and modern design in a compact form.
@@ -75,10 +75,10 @@ The **haultop Corner Light** features a clever design that perfectly fits into c
 
 With dimensions of approximately **11.61 inches in height** and **16.14 inches in length**, this ceiling light offers ample coverage to brighten up smaller, darker areas without overwhelming the space. Its stylish triangle shape not only serves a practical purpose but also adds a subtle decorative element to the room. Whether used in a **kids’ room** for bedtime reading or in a living room corner to add ambient lighting, this lamp provides a versatile and user-friendly lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
 
 
 The **Keepsmile Smart RGB LED Corner Floor Lamp** is perfect for tech-savvy individuals and home decor enthusiasts looking to enhance their living spaces with customizable and vibrant lighting. Ideal for those who want an easy-to-control, modern lighting solution that adds ambiance to bedrooms, living rooms, or entertainment areas. If you appreciate smart home integration and enjoy setting the mood with colorful lighting, this lamp is an excellent choice.
@@ -102,10 +102,10 @@ The **Keepsmile Smart RGB LED Corner Floor Lamp** stands out with its extensive 
 
 Designed with a sleek black finish and a slim profile, this floor lamp fits seamlessly into corners, making it a smart choice for rooms with limited space. The height of 59 inches ensures it provides ample illumination while maintaining a modern aesthetic. Additionally, the smart features enable users to schedule lighting changes or adjust brightness levels effortlessly, enhancing convenience and energy efficiency. Overall, this lamp combines style, technology, and functionality to elevate any living environment.
 
-## <a href="https://www.amazon.com/dp/B09TTLKHRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nukanu Floor Lamp With Remote Control</a>
+## <a href="https://www.amazon.com/dp/B09TTLKHRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nukanu Floor Lamp With Remote Control</a>
 
 
-<a href="https://www.amazon.com/dp/B09TTLKHRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nukanu Floor Lamp with Remote Control,Bright Floor Lamps for Living Room/Bedroom/Office, Stepless Adjustable 3000K-6000K Colors and 10-100% Brightness,Standing Light with Foot Switch (Black)" src="https://m.media-amazon.com/images/I/31ik69iVS7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TTLKHRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nukanu Floor Lamp with Remote Control,Bright Floor Lamps for Living Room/Bedroom/Office, Stepless Adjustable 3000K-6000K Colors and 10-100% Brightness,Standing Light with Foot Switch (Black)" src="https://m.media-amazon.com/images/I/31ik69iVS7L._SL500_.jpg"/></a>
 
 
 The **Nukanu Floor Lamp with Remote Control** is ideal for individuals seeking a versatile and modern lighting solution for their **living room**, **bedroom**, or **office**. If you want an adjustable lamp that offers customizable brightness and color temperature to create the perfect ambiance, this floor lamp is designed for you. Whether you work late, enjoy reading, or need mood lighting for relaxation, this lamp meets diverse lighting needs with convenience.
@@ -127,10 +127,10 @@ The **Nukanu Floor Lamp** features an impressive **stepless dimming function**, 
 
 Equipped with a **remote control** and a convenient **foot switch**, this floor lamp offers effortless operation. Users can easily change settings without interrupting their workflow or relaxing moments. The lamp's sleek **black finish** and slim profile measuring 8 inches in width and length make it a stylish yet unobtrusive addition to any room. Standing at 66.2 inches tall, it provides ample light coverage, brightening up spaces efficiently while complementing contemporary interiors.
 
-## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
 
 
 The **OIYN Smart RGBICW LED Corner Floor Lamp** is perfect for tech-savvy individuals who want to enhance their living spaces with customizable and dynamic lighting. Ideal customers include gamers, home decorators, and anyone looking to create immersive ambient lighting in their **living rooms**, **bedrooms**, or **gaming rooms**. Those who appreciate smart home integration and desire control via an app or remote will find this lamp especially appealing.
@@ -154,10 +154,10 @@ The **OIYN Smart RGBICW LED Corner Floor Lamp** stands out with its advanced lig
 
 Designed with modern aesthetics in mind, the lamp’s slender and tall structure fits perfectly into corners, making it a space-efficient addition to any room. Its **black finish** complements various décor styles, from minimalist to contemporary. Overall, this lamp not only enhances the visual appeal of your space but also provides functional lighting tailored to your lifestyle, whether you're gaming, relaxing, or entertaining guests.
 
-## <a href="https://www.amazon.com/dp/B0D745J7XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightown 2 Pack Floor Can Lights</a>
+## <a href="https://www.amazon.com/dp/B0D745J7XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightown 2 Pack Floor Can Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0D745J7XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightown 2 Pack Floor Can Lights - 6000K LED Up Lights with Remote and Timer, 3 Color Temperatures and Dimmable Uplighting Spotlights for Dark Corner Sofa House Plant Wall Artwork Indoor" src="https://m.media-amazon.com/images/I/41RxRAXQ9oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D745J7XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightown 2 Pack Floor Can Lights - 6000K LED Up Lights with Remote and Timer, 3 Color Temperatures and Dimmable Uplighting Spotlights for Dark Corner Sofa House Plant Wall Artwork Indoor" src="https://m.media-amazon.com/images/I/41RxRAXQ9oL._SL500_.jpg"/></a>
 
 
 The **Brightown 2 Pack Floor Can Lights** are ideal for homeowners and interior decorators looking to enhance dim or dark areas in their living spaces. If you want to highlight your **sofa corners, house plants, or wall artwork** with customizable lighting, these **LED uplighting spotlights** provide an efficient and stylish solution. Perfect for those who value versatility and convenience, especially with features like a remote control and timer settings.
@@ -180,10 +180,10 @@ The **Brightown Floor Can Lights** feature a versatile design that combines func
 
 Additionally, the inclusion of a **remote control and timer** simplifies usage, enabling users to set schedules or adjust lighting from across the room. The compact size and modern black finish ensure these lights fit unobtrusively into most indoor environments. Overall, the Brightown uplights offer a practical and stylish lighting upgrade that enhances ambiance while providing easy-to-use features for everyday convenience.
 
-## <a href="https://www.amazon.com/dp/B0D5YF2K2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Combuh Led Battery Operated Light</a>
+## <a href="https://www.amazon.com/dp/B0D5YF2K2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Combuh Led Battery Operated Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5YF2K2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Combuh LED Battery Operated Light No Wiring, Rechargeable Motion Sensor Ceiling Lights with Remote Dimmable 3 Colors, Waterproof Magnetic Cordless Lights for Closet Shower Hallway Shed, 7.48Inch" src="https://m.media-amazon.com/images/I/41HF6IX78rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5YF2K2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Combuh LED Battery Operated Light No Wiring, Rechargeable Motion Sensor Ceiling Lights with Remote Dimmable 3 Colors, Waterproof Magnetic Cordless Lights for Closet Shower Hallway Shed, 7.48Inch" src="https://m.media-amazon.com/images/I/41HF6IX78rL._SL500_.jpg"/></a>
 
 
 The **Combuh LED Battery Operated Light** is ideal for homeowners and renters looking for an easy-to-install, versatile lighting solution without the need for complicated wiring. Perfect for those who want to enhance dim or dark spaces such as closets, showers, hallways, or sheds, this light is especially suited for anyone seeking convenience, energy efficiency, and modern features like motion sensing and remote control. If you want a waterproof, cordless lighting option that can be easily repositioned, this product is a great choice.
@@ -208,10 +208,10 @@ The **Combuh LED Light** stands out with its combination of convenience and func
 
 Additionally, the **waterproof** and **magnetic cordless** features make this light extremely versatile. It can be safely used in damp environments like showers or basements, while the magnetic base allows for effortless repositioning without any tools. The slim profile and lightweight design ensure it fits discreetly in confined spaces such as closets or sheds. Overall, this product offers a perfect blend of practical features and easy installation for anyone looking to brighten up their home or workspace efficiently.
 
-## <a href="https://www.amazon.com/dp/B0FBF9HBRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Popoiron Rechargeable Led Wall Sconces</a>
+## <a href="https://www.amazon.com/dp/B0FBF9HBRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Popoiron Rechargeable Led Wall Sconces</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBF9HBRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PopoIron Rechargeable LED Wall Sconces for Bedroom,Wall Lights with Remote Control and Touch,360° Rotation,3 Colors Temperatures Dimmable Black Wall Lamps for Living Room with 15 RGB Colors,2 Pack" src="https://m.media-amazon.com/images/I/41sOqL4X6BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBF9HBRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PopoIron Rechargeable LED Wall Sconces for Bedroom,Wall Lights with Remote Control and Touch,360° Rotation,3 Colors Temperatures Dimmable Black Wall Lamps for Living Room with 15 RGB Colors,2 Pack" src="https://m.media-amazon.com/images/I/41sOqL4X6BL._SL500_.jpg"/></a>
 
 
 The **PopoIron Rechargeable LED Wall Sconces** are ideal for individuals seeking versatile and stylish lighting solutions for their **bedroom** or **living room**. Perfect for those who want easy control with a **remote** and **touch functionality**, these sconces are great for users looking to customize ambiance with adjustable color temperatures and vibrant RGB lighting options. If you value convenience combined with modern design and energy efficiency, this product is a perfect fit.
@@ -235,10 +235,10 @@ The **PopoIron Rechargeable LED Wall Sconces** offer an innovative lighting expe
 
 Additionally, the option to choose from 15 RGB colors transforms any space with vibrant hues, perfect for creating unique atmospheres in living rooms or bedrooms. The dual control system — via remote or touch — adds convenience, allowing users to make adjustments effortlessly. Its sleek black finish and compact design complement a variety of interior styles without overwhelming the space. Overall, these wall sconces provide a blend of style, flexibility, and user-friendly features that elevate home lighting.
 
-## <a href="https://www.amazon.com/dp/B0925LXDSG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projector</a>
+## <a href="https://www.amazon.com/dp/B0925LXDSG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0925LXDSG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projector,180 Degree Rotation Sun Projection Light Led Night Light Floor Lamp with USB Port,Sunset Lamps for Photography Party Bedroom Decor,Christmas Gifts for Women" src="https://m.media-amazon.com/images/I/31Dk3WMBdCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0925LXDSG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projector,180 Degree Rotation Sun Projection Light Led Night Light Floor Lamp with USB Port,Sunset Lamps for Photography Party Bedroom Decor,Christmas Gifts for Women" src="https://m.media-amazon.com/images/I/31Dk3WMBdCL._SL500_.jpg"/></a>
 
 
 The **Tsrarey Sunset Lamp Projector** is ideal for individuals looking to enhance their living spaces with ambient lighting. Whether you're a photography enthusiast, someone who enjoys hosting parties, or simply want to add a cozy touch to your bedroom or living room, this **sunset projection light** offers a unique and soothing atmosphere. It is especially perfect for those seeking versatile lighting solutions with modern features like USB connectivity and adjustable rotation.
@@ -260,10 +260,10 @@ The **Tsrarey Sunset Lamp Projector** features an innovative **180-degree rotati
 
 Designed with both aesthetics and practicality in mind, this lamp produces a warm **sunset red glow** that instantly transforms any space into a relaxing retreat or festive party environment. Its lightweight and compact dimensions make it easy to move and position, whether on the floor, a desk, or a shelf. The **Tsrarey Sunset Lamp Projector** not only enhances photography with its captivating lighting but also serves as an ideal gift choice for women who appreciate stylish and functional home decor.
 
-## <a href="https://www.amazon.com/dp/B0CSJRZS97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0CSJRZS97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSJRZS97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41zX5rYfW1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSJRZS97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41zX5rYfW1L._SL500_.jpg"/></a>
 
 
 The **MCGOR 10inch Under Cabinet Lighting** is perfect for homeowners and renters looking to enhance visibility in dark spaces such as kitchens, closets, and stairways. Ideal for those who want a sleek, wireless lighting solution with easy installation and motion detection, this product suits anyone seeking convenience and energy efficiency without the hassle of wiring.

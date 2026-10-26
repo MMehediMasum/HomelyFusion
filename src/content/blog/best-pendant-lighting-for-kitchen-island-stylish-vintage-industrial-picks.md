@@ -23,10 +23,10 @@ Both lights use E27 bulbs, making it easy to find replacements. These pendant la
 
 
 
-## <a href="https://www.amazon.com/dp/B09B3LYXY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tokius 3-flammig Pendelleuchte Vintage Industrial Hängelampe</a>
+## <a href="https://www.amazon.com/dp/B09B3LYXY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tokius 3-flammig Pendelleuchte Vintage Industrial Hängelampe</a>
 
 
-<a href="https://www.amazon.com/dp/B09B3LYXY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOKIUS 3-flammig Pendelleuchte Vintage Industrial Hängelampe mit Geometrischem Design E27 Lampe aus Eisen Käfig Lampenschirm Schwarz Hängeleuchte für Esstisch Küche (Pendellampe, Balken)" src="https://m.media-amazon.com/images/I/41nDa2VTzTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09B3LYXY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOKIUS 3-flammig Pendelleuchte Vintage Industrial Hängelampe mit Geometrischem Design E27 Lampe aus Eisen Käfig Lampenschirm Schwarz Hängeleuchte für Esstisch Küche (Pendellampe, Balken)" src="https://m.media-amazon.com/images/I/41nDa2VTzTL._SL500_.jpg"/></a>
 
 
 The **TOKIUS 3-flammig Pendelleuchte Vintage Industrial Hängelampe** is perfect for individuals looking to enhance their living spaces with a touch of vintage and industrial charm. Ideal customers include homeowners, interior designers, and anyone seeking a stylish yet functional lighting solution for areas like the dining room, kitchen, or loft-style apartments. This pendant light suits those who appreciate geometric designs and durable materials such as iron.
@@ -49,10 +49,10 @@ The **TOKIUS 3-flammig Pendelleuchte** boasts a distinctive geometric design tha
 
 With its robust iron construction, this pendant lamp ensures durability and long-term use. The dimensions are thoughtfully designed to fit well over tables or counters, creating a focal point that enhances the room’s ambiance. Its sleek black finish complements various interior styles, making it a versatile lighting option for those seeking both style and function in their home lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0015FNVJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nordlux Pendelleuchte Cafe</a>
+## <a href="https://www.amazon.com/dp/B0015FNVJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nordlux Pendelleuchte Cafe</a>
 
 
-<a href="https://www.amazon.com/dp/B0015FNVJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nordlux Pendelleuchte Cafe 15 40W E27 opal weiß 39553001" src="https://m.media-amazon.com/images/I/21yR4ul4bmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0015FNVJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nordlux Pendelleuchte Cafe 15 40W E27 opal weiß 39553001" src="https://m.media-amazon.com/images/I/21yR4ul4bmL._SL500_.jpg"/></a>
 
 
 The **Nordlux Pendelleuchte Cafe 15 40W E27 opal weiß 39553001** is ideal for individuals seeking a stylish yet functional lighting solution for their home or workspace. Perfect for those who appreciate modern design combined with efficient illumination, this pendant light suits living rooms, kitchens, cafes, or offices aiming to create a cozy and inviting atmosphere. It is particularly suitable for buyers who want a versatile lighting fixture that blends seamlessly with various interior styles.

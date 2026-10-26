@@ -23,10 +23,10 @@ Warranties often cover manufacturing defects, ensuring your home décor remains 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DJC3D871?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights White Metal Dome Shade Wooden Base Adjustable Task Reading Light Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DJC3D871?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights White Metal Dome Shade Wooden Base Adjustable Task Reading Light Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJC3D871?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | White Metal Dome Shade Wooden Base Adjustable Task Reading Light Floor Lamp | Floor Lamps, Home Décor &amp; Improvement Essential | Included LED Bulb" src="https://m.media-amazon.com/images/I/21EmWPob6zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJC3D871?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | White Metal Dome Shade Wooden Base Adjustable Task Reading Light Floor Lamp | Floor Lamps, Home Décor &amp; Improvement Essential | Included LED Bulb" src="https://m.media-amazon.com/images/I/21EmWPob6zL._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a stylish yet functional lighting solution, the **ValueLights White Metal Dome Shade Wooden Base Adjustable Task Reading Light Floor Lamp** is perfect for readers, students, and home office workers. This lamp is designed for individuals who value both aesthetics and practicality in their **home décor** and lighting essentials.
@@ -47,12 +47,12 @@ The **ValueLights floor lamp** features a sleek **white metal dome shade** that 
 
 Included with the lamp is an **energy-efficient LED bulb**, which not only lowers electricity consumption but also delivers bright, consistent light. Its compact size makes it ideal for various settings, from living rooms to study areas, complementing diverse interior styles while improving your lighting experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJC3D871?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJC3D871?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B009T4EEEQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Minisun Modern Antique Brass Adjustable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B009T4EEEQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Minisun Modern Antique Brass Adjustable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B009T4EEEQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MiniSun | Modern Antique Brass Adjustable Floor Lamp | Floor Lamps &amp; Torchieres, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/11Z8dBnq3AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B009T4EEEQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MiniSun | Modern Antique Brass Adjustable Floor Lamp | Floor Lamps &amp; Torchieres, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/11Z8dBnq3AL._SL500_.jpg"/></a>
 
 
 The **MiniSun Modern Antique Brass Adjustable Floor Lamp** is perfect for individuals looking to enhance their living space with a blend of classic charm and modern functionality. Ideal for homeowners, interior decorators, and anyone seeking a stylish yet practical lighting solution, this lamp caters to those who appreciate quality home décor and need adjustable lighting for various activities.
@@ -73,12 +73,12 @@ The **MiniSun Modern Antique Brass Adjustable Floor Lamp** boasts a sophisticate
 
 Beyond its functional benefits, this lamp serves as a decorative accent piece that elevates home décor. The combination of modern adjustability with a timeless finish makes it a versatile addition to various interior designs, from traditional to contemporary. Users will appreciate how this floor lamp seamlessly merges style with practicality, enhancing both the look and utility of their living spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B009T4EEEQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B009T4EEEQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B93J71XH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hibay Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B93J71XH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hibay Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B93J71XH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HiBay LED Floor Lamp Dimmable, Industrial Rustic Farmhouse Floor Light for Living Room Bedroom, Standing Tree Lamps Room Decor, 3 x 8W 800LM LED Bulbs Included" src="https://m.media-amazon.com/images/I/41tY1KFihOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B93J71XH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HiBay LED Floor Lamp Dimmable, Industrial Rustic Farmhouse Floor Light for Living Room Bedroom, Standing Tree Lamps Room Decor, 3 x 8W 800LM LED Bulbs Included" src="https://m.media-amazon.com/images/I/41tY1KFihOL._SL500_.jpg"/></a>
 
 
 The **HiBay LED Floor Lamp Dimmable** is perfect for individuals seeking a stylish yet functional lighting solution for their **living room** or **bedroom**. Ideal for those who appreciate an **industrial rustic farmhouse** aesthetic, this lamp is suited for anyone wanting to enhance their space with a warm, inviting ambiance and adjustable brightness to fit various moods and activities.
@@ -100,12 +100,12 @@ The **HiBay LED Floor Lamp** features a unique standing tree design that blends 
 
 Crafted by **HiBay**, this floor lamp measures approximately **18.7 inches in height** and weighs just over **10 pounds**, offering a compact yet substantial presence in your room. The black finish and robust build quality make it a durable and stylish addition to any living space, delivering both aesthetic appeal and functional lighting for reading, relaxing, or entertaining guests.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B93J71XH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B93J71XH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iparts Expert Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iparts Expert Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="IPARTS EXPERT Floor Lamps for Living Room, Modern LED Standing Lamp Reading Light 3 Color Temperatures Adjustable Bedside Lamps for Bedroom Living Room Office Decor" src="https://m.media-amazon.com/images/I/31M-PFAd+JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="IPARTS EXPERT Floor Lamps for Living Room, Modern LED Standing Lamp Reading Light 3 Color Temperatures Adjustable Bedside Lamps for Bedroom Living Room Office Decor" src="https://m.media-amazon.com/images/I/31M-PFAd+JL._SL500_.jpg"/></a>
 
 
 The **IPARTS EXPERT Floor Lamps** are perfect for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, or **office**. Ideal for avid readers, home office workers, or anyone who values adjustable lighting with modern design, this lamp offers versatility and convenience to enhance any space.
@@ -127,12 +127,12 @@ The **IPARTS EXPERT Floor Lamp** integrates advanced LED technology with a moder
 
 Built with energy efficiency in mind, this lamp uses only 12 watts of power while still providing ample brightness. Its tall and slim profile fits seamlessly into various spaces without overwhelming the room, making it a practical choice for those looking to combine function with style. Whether placed beside a bed, next to a sofa, or near a desk, this lamp serves as both a decorative piece and a reliable source of lighting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BPP7KBLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Traditional Grey Wood Candlestick Floor Lamp Base</a>
+## <a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Traditional Grey Wood Candlestick Floor Lamp Base</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Traditional Grey Wood Candlestick Floor Lamp Base for Living Room | Floor Lamps, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/11oGzKaoW3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Traditional Grey Wood Candlestick Floor Lamp Base for Living Room | Floor Lamps, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/11oGzKaoW3L._SL500_.jpg"/></a>
 
 
 The **ValueLights Traditional Grey Wood Candlestick Floor Lamp Base** is ideal for homeowners and interior enthusiasts looking to add a touch of classic elegance to their living room. If you appreciate timeless design combined with functional lighting, this floor lamp base is perfect for enhancing your **home décor** and creating a warm, inviting ambiance. It suits those who want a sturdy, stylish foundation for their floor lamps that complements various interior styles.
@@ -154,12 +154,12 @@ The **ValueLights Traditional Grey Wood Candlestick Floor Lamp Base** stands out
 
 Beyond its visual appeal, this lamp base offers practical benefits. Its sturdy build guarantees stability, reducing the risk of tipping over, which is especially important in households with pets or children. Additionally, the compatibility with various lamp shades allows users to customize the lighting atmosphere to their preference, whether for reading, relaxing, or entertaining guests. Overall, this floor lamp base by **ValueLights** is a valuable addition for anyone seeking to improve their home décor with a blend of style and functionality.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DHDCKZ9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Green Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Green Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Green Floor Lamp,Vintage Floor Lamps for Living Room,Retro Tall Standing Lamp for Bedroom,Study,Girl's Room,Office,Apartment,Home Decor,Pretty Lamps Floor,Mid Century,Mushroom Lampshade,E27 Bulb Base" src="https://m.media-amazon.com/images/I/41aHCQVUnLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Green Floor Lamp,Vintage Floor Lamps for Living Room,Retro Tall Standing Lamp for Bedroom,Study,Girl's Room,Office,Apartment,Home Decor,Pretty Lamps Floor,Mid Century,Mushroom Lampshade,E27 Bulb Base" src="https://m.media-amazon.com/images/I/41aHCQVUnLL._SL500_.jpg"/></a>
 
 
 The **Green Floor Lamp** by **YLTLINK** is perfect for individuals looking to enhance their living spaces with a touch of vintage charm. Ideal for those who appreciate **mid-century** design elements and need versatile lighting solutions, this lamp suits users decorating their **living rooms, bedrooms, studies, or offices**. If you want a stylish yet functional piece that doubles as home decor, this retro tall standing lamp with a **mushroom lampshade** is an excellent choice.
@@ -182,12 +182,12 @@ The **Green Floor Lamp** features a tall and slim profile, standing at nearly 5 
 
 With its standard **E27 bulb base**, this lamp offers compatibility with a wide range of bulbs, from energy-efficient LEDs to warmer incandescent bulbs, allowing users to customize their lighting experience. Its versatile design fits seamlessly into multiple settings, whether placed in a **girl's room, apartment, or office**. Overall, the **YLTLINK Green Floor Lamp** is a practical and stylish lighting solution that enhances both the functionality and decor of your home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DZHJT9ZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Grey Wood Tripod Floor Lamp Base</a>
+## <a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Grey Wood Tripod Floor Lamp Base</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Grey Wood Tripod Floor Lamp Base Free Standing Living Room Light | Floor Lamps, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/21ULR0fMZnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Grey Wood Tripod Floor Lamp Base Free Standing Living Room Light | Floor Lamps, Home Décor &amp; Improvement Essential" src="https://m.media-amazon.com/images/I/21ULR0fMZnL._SL500_.jpg"/></a>
 
 
 The **ValueLights Grey Wood Tripod Floor Lamp Base** is ideal for individuals seeking a stylish yet functional lighting solution for their living spaces. Perfect for homeowners, interior designers, and anyone looking to enhance their **home décor** with a modern touch, this floor lamp base is suitable for those who value both aesthetics and practicality in their lighting fixtures.
@@ -210,12 +210,12 @@ The **ValueLights Grey Wood Tripod Floor Lamp Base** features a robust and styli
 
 Designed with both form and function in mind, this free-standing lamp base provides users the flexibility to position the light exactly where it is needed without the constraints of wall installation. The sturdy construction guarantees stability, making it safe for households with pets or children. Overall, this lamp base serves as both a practical lighting solution and a tasteful piece of **home décor** that can effortlessly elevate the style of any living space.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJC2DWBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Natural Metal 2 Way Standing Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Valuelights Natural Metal 2 Way Standing Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Natural Metal 2 Way Standing Floor Lamp | Floor Lamps &amp; Torchieres, Home Décor &amp; Improvement Essential | Includes Bulb" src="https://m.media-amazon.com/images/I/11ko2cL+dlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Natural Metal 2 Way Standing Floor Lamp | Floor Lamps &amp; Torchieres, Home Décor &amp; Improvement Essential | Includes Bulb" src="https://m.media-amazon.com/images/I/11ko2cL+dlL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a stylish and functional lighting solution, the **ValueLights Natural Metal 2 Way Standing Floor Lamp** is perfect for enhancing both living rooms and workspaces. Those who value a blend of modern design and practical illumination will find this floor lamp an excellent addition to their home décor and improvement essentials.
@@ -237,12 +237,12 @@ The **ValueLights Natural Metal 2 Way Standing Floor Lamp** features a dual ligh
 
 With dimensions thoughtfully designed for both stability and compactness, this floor lamp fits seamlessly into corners or beside furniture without overwhelming the space. Including a bulb with the purchase eliminates the hassle of finding a compatible light source, making setup quick and convenient. Overall, this lamp is a practical and stylish lighting solution that meets the needs of those looking to improve their home's ambiance and functionality.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DGQSMQNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Wooden 3 Tier Shelf Floor Lamp With Fabric Cylinder Lampshade</a>
+## <a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Natural Wooden 3 Tier Shelf Floor Lamp With Fabric Cylinder Lampshade</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Natural Wooden 3 Tier Shelf Floor Lamp with Fabric Cylinder Lampshade Living Room Light | Floor Lamps, Home Décor &amp; Improvement Essential | Included LED Bulb" src="https://m.media-amazon.com/images/I/21tT98C9sHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ValueLights | Natural Wooden 3 Tier Shelf Floor Lamp with Fabric Cylinder Lampshade Living Room Light | Floor Lamps, Home Décor &amp; Improvement Essential | Included LED Bulb" src="https://m.media-amazon.com/images/I/21tT98C9sHL._SL500_.jpg"/></a>
 
 
 The **ValueLights Natural Wooden 3 Tier Shelf Floor Lamp** is ideal for individuals seeking a blend of functionality and style in their living spaces. Perfect for homeowners, renters, or interior design enthusiasts who want to enhance their room ambiance while adding practical storage solutions, this floor lamp suits those who appreciate natural wood aesthetics combined with modern lighting.
@@ -264,12 +264,12 @@ The **ValueLights 3 Tier Shelf Floor Lamp** stands out with its unique combinati
 
 Equipped with an included **energy-efficient LED bulb**, this lamp ensures bright yet soft lighting that enhances room ambiance without increasing electricity costs. The **fabric cylinder lampshade** helps diffuse the light evenly, creating a comfortable environment for reading, relaxing, or entertaining guests. Overall, this floor lamp serves as a stylish and practical addition to any home improvement or décor setup.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJC1GM3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Polished Chrome Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Polished Chrome Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Polished Chrome Floor Lamp with Clear Acrylic Decor Three Tier Waterfall Design | 150cm x 32cm | Inline Foot Switch by Happy Homewares" src="https://m.media-amazon.com/images/I/21bz4BeWS7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Polished Chrome Floor Lamp with Clear Acrylic Decor Three Tier Waterfall Design | 150cm x 32cm | Inline Foot Switch by Happy Homewares" src="https://m.media-amazon.com/images/I/21bz4BeWS7L._SL500_.jpg"/></a>
 
 
 The **Modern Polished Chrome Floor Lamp with Clear Acrylic Decor Three Tier Waterfall Design** by **Happy Homewares** is ideal for individuals seeking a stylish and contemporary lighting solution for their living spaces. Perfect for homeowners, interior designers, and anyone looking to enhance their room’s ambiance with a sleek, modern touch, this floor lamp combines aesthetic appeal with practical functionality. Its elegant design and polished chrome finish make it suitable for modern apartments, offices, and cozy reading nooks.
@@ -292,7 +292,7 @@ Featuring a sleek **polished chrome finish** and a distinctive **three tier wate
 
 The inclusion of an **inline foot switch** enhances user convenience by enabling effortless control of lighting without bending or reaching for a switch. Additionally, the lamp’s lightweight construction ensures easy relocation, allowing users to adjust their room’s lighting layout as needed. Overall, the **Modern Polished Chrome Floor Lamp** by **Happy Homewares** is a sophisticated and functional addition to any contemporary living space.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DY5CW5HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

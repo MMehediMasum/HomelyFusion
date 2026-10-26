@@ -23,10 +23,10 @@ Soft, low-pile textures create a cozy feel underfoot without trapping too much d
 
 
 
-## <a href="https://www.amazon.com/dp/B0DDTSS7SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10x12 Area Rug Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DDTSS7SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10x12 Area Rug Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDTSS7SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10x12 Area Rug Living Room: Washable Large Abstract Modern Soft Rugs Stain Resistant Indoor Floor Non Slip Accent Carpet for Bedroom Nursery Playroom Office Dining Room Dorm Home House- Gray Gold" src="https://m.media-amazon.com/images/I/51rGVxu392L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDTSS7SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10x12 Area Rug Living Room: Washable Large Abstract Modern Soft Rugs Stain Resistant Indoor Floor Non Slip Accent Carpet for Bedroom Nursery Playroom Office Dining Room Dorm Home House- Gray Gold" src="https://m.media-amazon.com/images/I/51rGVxu392L._SL500_.jpg"/></a>
 
 
 The **10x12 Area Rug Living Room** by **LOONGRUG** is ideal for homeowners and renters looking to enhance their indoor spaces with a stylish yet practical floor covering. Perfect for those who want a **washable**, **stain-resistant**, and **non-slip** rug, it suits families with children, pet owners, or anyone seeking a durable and easy-to-maintain accent carpet for areas like the **bedroom**, **nursery**, **playroom**, **office**, or **dining room**. Its modern abstract design in **gray gold** tones also appeals to individuals wanting to add a contemporary touch to their home décor.
@@ -49,10 +49,10 @@ The **LOONGRUG 10x12 Area Rug** stands out with its combination of functionality
 
 Beyond its practical qualities, the rug’s **abstract gray gold** design adds a sophisticated and modern flair to any room. Its generous **10x12 feet** size makes it perfect for defining living areas or creating cozy zones within large spaces. Lightweight yet durable, this area rug balances comfort and convenience, making it an excellent choice for anyone looking to enhance their home’s ambiance while enjoying easy upkeep.
 
-## <a href="https://www.amazon.com/dp/B0DRV5PLJJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10x12 Area Rug Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DRV5PLJJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10x12 Area Rug Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRV5PLJJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10x12 Area Rug Living Room: Washable Vintage Rugs for Bedroom Dining Room - Farmhouse Ultra Thin Low Pile Stain Resistant Rugs Indoor Carpet - Home Decor for Oriental Lover 10'x12' Ivory" src="https://m.media-amazon.com/images/I/519eH1rDOzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRV5PLJJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10x12 Area Rug Living Room: Washable Vintage Rugs for Bedroom Dining Room - Farmhouse Ultra Thin Low Pile Stain Resistant Rugs Indoor Carpet - Home Decor for Oriental Lover 10'x12' Ivory" src="https://m.media-amazon.com/images/I/519eH1rDOzL._SL500_.jpg"/></a>
 
 
 The **10x12 Area Rug Living Room** by **HILORUUG** is perfect for homeowners and interior enthusiasts looking to enhance their space with a stylish yet practical addition. Ideal for those who appreciate **vintage farmhouse decor** and need a versatile rug that fits in **bedrooms, dining rooms, or living rooms**. This rug is especially suited for people who want an easy-to-maintain, **washable, stain-resistant** floor covering that adds warmth and character without overwhelming the room.
@@ -74,10 +74,10 @@ The **HILORUUG 10x12 Area Rug** features a **vintage farmhouse design** that add
 
 Beyond aesthetics, this **oriental-inspired rug** serves as a functional piece of home decor, creating a warm foundation for your furniture while protecting your floors. The **ivory color** brightens rooms and pairs well with a variety of color schemes, enhancing the overall ambiance without overpowering your existing decor. Its **ultra-thin profile** ensures it lays flat and prevents tripping hazards, making it a safe and stylish addition to your home environment.
 
-## <a href="https://www.amazon.com/dp/B0DF2S53DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uermei 10x12 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DF2S53DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uermei 10x12 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DF2S53DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UERMEI 10x12 Area Rug Living Room Rugs - Washable Neutral Modern Abstract Soft Thin Large Rug Indoor Floor No Slip Rug Carpet for Bedroom Under Dining Table Home Office Decor - Brown Grey" src="https://m.media-amazon.com/images/I/51IVMvkKUVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DF2S53DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UERMEI 10x12 Area Rug Living Room Rugs - Washable Neutral Modern Abstract Soft Thin Large Rug Indoor Floor No Slip Rug Carpet for Bedroom Under Dining Table Home Office Decor - Brown Grey" src="https://m.media-amazon.com/images/I/51IVMvkKUVL._SL500_.jpg"/></a>
 
 
 The **UERMEI 10x12 Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet functional floor covering. Perfect for those who appreciate a blend of modern design and practicality, this rug suits individuals seeking a washable, non-slip, and soft rug to place under dining tables, in bedrooms, or home offices. If you want a large, neutral-toned carpet that complements various decor styles while providing comfort and durability, this rug is a great choice.
@@ -99,10 +99,10 @@ The **UERMEI 10x12 Area Rug** features a contemporary abstract design in a subtl
 
 Crafted from materials that allow for easy washing, this rug is highly practical for busy households or pet owners who need a floor covering that can withstand regular cleaning. Additionally, the **non-slip** backing secures the rug firmly in place, reducing the risk of slips and falls on indoor floors. Weighing 8.7 pounds, it balances durability and manageability, making it a functional and stylish addition to any home office or living space.
 
-## <a href="https://www.amazon.com/dp/B0DB738N4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Witshock Living Room Area Rugs 9x12</a>
+## <a href="https://www.amazon.com/dp/B0DB738N4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Witshock Living Room Area Rugs 9x12</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB738N4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WITSHOCK Living Room Area Rugs 9x12: Washable Rug Boho Soft Non-Slip Low Pile Stain Resistant Foldable Carpet for Bedroom Playroom Dining Room Office Kitchen Farmhouse Home Decor Rug-Camel" src="https://m.media-amazon.com/images/I/51PKOcG31IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB738N4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WITSHOCK Living Room Area Rugs 9x12: Washable Rug Boho Soft Non-Slip Low Pile Stain Resistant Foldable Carpet for Bedroom Playroom Dining Room Office Kitchen Farmhouse Home Decor Rug-Camel" src="https://m.media-amazon.com/images/I/51PKOcG31IL._SL500_.jpg"/></a>
 
 
 The **WITSHOCK Living Room Area Rug 9x12** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet practical carpet. Ideal for those who want a **washable, stain-resistant**, and **non-slip rug** that complements various interior styles, especially **boho** and **farmhouse** decor. This rug is also great for families with children or pets, as well as anyone who desires a soft, low-maintenance floor covering suitable for multiple rooms like the bedroom, playroom, dining room, office, and kitchen.
@@ -126,10 +126,10 @@ The **WITSHOCK Living Room Area Rug** boasts a **soft low pile** that creates a 
 
 Designed with both functionality and aesthetics in mind, this rug’s **camel color** and **boho farmhouse design** blend seamlessly into a variety of interior themes. Its large size of **9x12 feet** covers significant floor space, enhancing the comfort and appearance of your living room, dining area, or bedroom. Additionally, the **foldable** feature allows for hassle-free storage or transport, making it versatile for different living situations or seasonal changes. Overall, the WITSHOCK rug offers a durable, stylish, and practical floor covering solution for modern homes.
 
-## <a href="https://www.amazon.com/dp/B0DXYN558J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boho Black Rug For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DXYN558J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boho Black Rug For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXYN558J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Boho Black Rug for Living Room - Washable 10x12 Area Rug, Dining Room Rugs for Under Table, Soft Low Pile Carpet for Bedroom - Farmhouse Decor, Non-Slip &amp; Stain Resistance" src="https://m.media-amazon.com/images/I/518jiwIol6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXYN558J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Boho Black Rug for Living Room - Washable 10x12 Area Rug, Dining Room Rugs for Under Table, Soft Low Pile Carpet for Bedroom - Farmhouse Decor, Non-Slip &amp; Stain Resistance" src="https://m.media-amazon.com/images/I/518jiwIol6L._SL500_.jpg"/></a>
 
 
 The **Boho Black Rug for Living Room** by **Hazo Haus** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet practical area rug. Ideal for those who appreciate **farmhouse decor** and desire a low-maintenance, durable rug that complements both modern and rustic interiors. If you want a **soft, washable, and stain-resistant carpet** suitable for high-traffic areas like dining rooms, bedrooms, or living rooms, this rug is an excellent choice.
@@ -151,10 +151,10 @@ Crafted by **Hazo Haus**, this **10x12 area rug** features a soft, low pile heig
 
 The rug’s **ashen/multi color palette** blends well with farmhouse decor and other interior styles, adding a cozy and elegant touch to any room. Its large size is perfect for anchoring furniture arrangements under dining tables or seating areas, enhancing both the aesthetics and functionality of your space. Overall, this rug combines durability, comfort, and style, making it a practical and attractive addition to your home.
 
-## <a href="https://www.amazon.com/dp/B0CWKVTC9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruugme Washable 9x12 Rug Abstract</a>
+## <a href="https://www.amazon.com/dp/B0CWKVTC9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruugme Washable 9x12 Rug Abstract</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWKVTC9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUUGME Washable 9X12 Rug Abstract - Living Room Bedroom Large Area Rug Indoor Farmhouse Stain Resistant Carpet Non-Slip Machine Washable Distressed Soft Room Decor 9X12 Grey" src="https://m.media-amazon.com/images/I/41rHB0JH8WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWKVTC9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUUGME Washable 9X12 Rug Abstract - Living Room Bedroom Large Area Rug Indoor Farmhouse Stain Resistant Carpet Non-Slip Machine Washable Distressed Soft Room Decor 9X12 Grey" src="https://m.media-amazon.com/images/I/41rHB0JH8WL._SL500_.jpg"/></a>
 
 
 The **RUUGME Washable 9X12 Rug Abstract** is an excellent choice for homeowners looking to enhance their **living room** or **bedroom** with a stylish and practical **large area rug**. Ideal for individuals who prioritize easy maintenance and durability, this rug suits families, pet owners, and anyone seeking a **stain-resistant** and **non-slip** carpet that is both functional and visually appealing.
@@ -177,10 +177,10 @@ The **RUUGME Washable 9X12 Rug** combines practicality with modern farmhouse cha
 
 Designed with convenience in mind, this rug’s **machine washable** feature means it can be cleaned without hassle, preserving its appearance and longevity. The subtle **grey** tone and abstract distressed pattern add a touch of elegance and versatility, allowing it to blend seamlessly with various interior styles from contemporary to rustic farmhouse. Overall, the RUUGME rug offers a combination of style, comfort, and functionality that suits a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B0B94DX7MB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Merelax Soft Modern Indoor Large Shaggy Rug</a>
+## <a href="https://www.amazon.com/dp/B0B94DX7MB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Merelax Soft Modern Indoor Large Shaggy Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B94DX7MB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Merelax Soft Modern Indoor Large Shaggy Rug for Livingroom Bedroom Dorm Kids Room Home Decorative, Non-Slip Plush Fluffy Furry Fur Area Rugs Comfy Nursery Accent Floor Carpet 8x10 Feet, Grey" src="https://m.media-amazon.com/images/I/51mLKa0P-LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B94DX7MB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Merelax Soft Modern Indoor Large Shaggy Rug for Livingroom Bedroom Dorm Kids Room Home Decorative, Non-Slip Plush Fluffy Furry Fur Area Rugs Comfy Nursery Accent Floor Carpet 8x10 Feet, Grey" src="https://m.media-amazon.com/images/I/51mLKa0P-LL._SL500_.jpg"/></a>
 
 
 The **Merelax Soft Modern Indoor Large Shaggy Rug** is ideal for homeowners and renters looking to add a touch of comfort and style to their **living room**, **bedroom**, **dorm**, or **kids' room**. If you want a plush, cozy, and decorative floor covering that enhances the ambiance of your space while providing a soft surface to walk on, this **8x10 feet** grey shaggy rug is an excellent choice.
@@ -204,10 +204,10 @@ The **Merelax Soft Modern Indoor Large Shaggy Rug** boasts a thick, plush pile t
 
 Designed with quality and comfort in mind, this rug’s large dimensions make it perfect for spacious areas, creating a cozy and inviting atmosphere. The easy-to-clean and lightweight nature of the rug ensures that maintenance is hassle-free, allowing users to enjoy both functionality and aesthetic appeal. Whether placed in a nursery, living room, or dormitory, this shaggy rug enhances the room's warmth and comfort while serving as a decorative focal point.
 
-## <a href="https://www.amazon.com/dp/B0DJ2D95DT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wondrg Washable Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DJ2D95DT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wondrg Washable Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ2D95DT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WondRg 10x12 Washable Area Rug Beige Grey Neutral Abstract Living Room Bedroom Large Throw Rug Non Slip Soft Low Pile Indoor Floor Carpet for Dining Room Kitchen Office Entryway" src="https://m.media-amazon.com/images/I/51GuTbYTiOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ2D95DT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WondRg 10x12 Washable Area Rug Beige Grey Neutral Abstract Living Room Bedroom Large Throw Rug Non Slip Soft Low Pile Indoor Floor Carpet for Dining Room Kitchen Office Entryway" src="https://m.media-amazon.com/images/I/51GuTbYTiOL._SL500_.jpg"/></a>
 
 
 The **WondRg 10x12 Washable Area Rug** in **Beige Grey Neutral Abstract** tones is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Ideal for those who want a large, **non-slip, soft, and low pile** rug suitable for multiple rooms such as the **living room, bedroom, dining room, kitchen, office, or entryway**. If you value both aesthetics and functionality in your home decor, this rug is designed for you.
@@ -231,10 +231,10 @@ The **WondRg 10x12 Washable Area Rug** boasts a practical yet elegant design tha
 
 Another standout feature is the rug's **non-slip backing**, which adds an important layer of safety, particularly in homes with children or elderly individuals. The washable fabric ensures that spills and stains can be managed efficiently, maintaining a fresh and hygienic environment. Overall, this rug combines functionality with aesthetic appeal, making it a smart choice for anyone seeking a durable and stylish floor covering.
 
-## <a href="https://www.amazon.com/dp/B0DQ4K6GKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo 10x12 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DQ4K6GKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo 10x12 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQ4K6GKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO 10x12 Area Rugs for Living Room, Non Slip Machine Washable Vintage Rugs, Low Pile Lightweight Chenille Print Large Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQ4K6GKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO 10x12 Area Rugs for Living Room, Non Slip Machine Washable Vintage Rugs, Low Pile Lightweight Chenille Print Large Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
 
 
 The **GENIMO 10x12 Area Rug** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Ideal for those who value both aesthetics and functionality, this rug suits individuals seeking a durable, low-maintenance option that complements a variety of interior styles, especially in living rooms, bedrooms, dining rooms, or home offices. If you want a lightweight, non-slip rug with vintage charm and easy care, this product is an excellent choice.
@@ -256,10 +256,10 @@ The **GENIMO 10x12 Area Rug** boasts a **low pile chenille** construction that s
 
 Additionally, the **vintage print** and **taupe color** lend a warm, inviting atmosphere to any room, seamlessly blending with both modern and traditional décor. This rug’s large size is perfect for defining spaces in open-plan homes or adding a cozy touch to larger rooms. Overall, the GENIMO rug combines style, safety, and easy maintenance, making it a smart investment for anyone looking to refresh their living space with a functional yet attractive floor covering.
 
-## <a href="https://www.amazon.com/dp/B0DZXV5QHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Area Rug 10x12 Washable Vintage</a>
+## <a href="https://www.amazon.com/dp/B0DZXV5QHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Area Rug 10x12 Washable Vintage</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZXV5QHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Area Rug 10x12 Washable Vintage - Soft Traditional Rugs for Living Room Large Non Slip Backing with Low Pile Farmhouse Oriental Retro Carpet for Bedroom Dining Room or Home Office - Tea Brown" src="https://m.media-amazon.com/images/I/51C4vqCor3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZXV5QHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Area Rug 10x12 Washable Vintage - Soft Traditional Rugs for Living Room Large Non Slip Backing with Low Pile Farmhouse Oriental Retro Carpet for Bedroom Dining Room or Home Office - Tea Brown" src="https://m.media-amazon.com/images/I/51C4vqCor3L._SL500_.jpg"/></a>
 
 
 The **Area Rug 10x12 Washable Vintage** in **Tea Brown** is perfect for homeowners or renters looking to enhance their living space with a stylish yet practical floor covering. Ideal for those who want a blend of traditional design and modern functionality, this rug suits anyone seeking a comfortable, low-maintenance addition to their **living room, bedroom, dining room, or home office**. If you value both aesthetics and convenience, this rug is an excellent choice.

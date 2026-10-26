@@ -22,10 +22,10 @@ Lightweight and durable, these trees bring a natural feel without needing water 
 
 
 
-## <a href="https://www.amazon.com/dp/B006PJBLI0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4ft Artificial Green Tree Planting Pack Of 2 Artificial Cypress Spiral Tree</a>
+## <a href="https://www.amazon.com/dp/B006PJBLI0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4ft Artificial Green Tree Planting Pack Of 2 Artificial Cypress Spiral Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B006PJBLI0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4FT Artificial Green Tree Planting Pack of 2 (set-48-inch) Artificial Cypress Spiral Tree Planting-Year-Round Green Fake Plant Garden Front Porch Flowerpot Decorator Artificial Tree" src="https://m.media-amazon.com/images/I/41KeYuXxKbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006PJBLI0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4FT Artificial Green Tree Planting Pack of 2 (set-48-inch) Artificial Cypress Spiral Tree Planting-Year-Round Green Fake Plant Garden Front Porch Flowerpot Decorator Artificial Tree" src="https://m.media-amazon.com/images/I/41KeYuXxKbL._SL500_.jpg"/></a>
 
 
 The **4FT Artificial Green Tree Planting Pack of 2** is ideal for homeowners, renters, and business owners looking to enhance their spaces with vibrant greenery without the hassle of maintenance. If you want to add a touch of nature to your **garden**, **front porch**, or **indoor flowerpot décor** while enjoying year-round freshness, this artificial cypress spiral tree set is perfect for you.
@@ -47,10 +47,10 @@ The **Silk Tree Warehouse** 4FT Artificial Green Tree Pack features a beautifull
 
 Designed with versatility in mind, these trees can enhance both indoor and outdoor environments. Whether placed in a **flowerpot** on your porch or used as a decorative accent in your living room or office, they provide a consistent aesthetic appeal. The compact dimensions also make them ideal for smaller spaces, allowing you to enjoy greenery without sacrificing room.
 
-## <a href="https://www.amazon.com/dp/B0CVXHTGVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu 6ft Lighted Olive Tree</a>
+## <a href="https://www.amazon.com/dp/B0CVXHTGVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu 6ft Lighted Olive Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVXHTGVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 6ft Lighted Olive Tree with 300 Warm White LED Lights for Holiday Decor - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/41Gdd5f8kML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVXHTGVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 6ft Lighted Olive Tree with 300 Warm White LED Lights for Holiday Decor - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/41Gdd5f8kML._SL500_.jpg"/></a>
 
 
 The **TYBEEU 6ft Lighted Olive Tree** is perfect for individuals seeking a versatile and elegant decorative piece that enhances both indoor and outdoor spaces. Ideal for homeowners, event planners, or anyone looking to add a warm and inviting ambiance to their holiday decor, this item suits those who appreciate quality lighting combined with aesthetic appeal.
@@ -74,10 +74,10 @@ The **TYBEEU 6ft Lighted Olive Tree** features a tall and realistic olive tree s
 
 Constructed with durability in mind, this olive tree is **UL Certified** and waterproof, ensuring safe use both indoors and outdoors regardless of weather conditions. Its substantial height and width provide a striking visual centerpiece that enhances any living room, patio, or event space. Overall, this product combines aesthetic beauty, functional features, and reliable safety to deliver a premium holiday decoration experience.
 
-## <a href="https://www.amazon.com/dp/B0BC1HSBP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ousheng Lighted Palm Tree Bar Outdoor Christmas Decorations</a>
+## <a href="https://www.amazon.com/dp/B0BC1HSBP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ousheng Lighted Palm Tree Bar Outdoor Christmas Decorations</a>
 
 
-<a href="https://www.amazon.com/dp/B0BC1HSBP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OUSHENG Lighted Palm Tree Bar Outdoor Christmas Decorations Decor, Light Up LED Artificial Fake Faux Trees Lights for Outside Patio Yard Pool Porch Deck Party Tropical, 6FT" src="https://m.media-amazon.com/images/I/41tjfn+jY7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BC1HSBP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OUSHENG Lighted Palm Tree Bar Outdoor Christmas Decorations Decor, Light Up LED Artificial Fake Faux Trees Lights for Outside Patio Yard Pool Porch Deck Party Tropical, 6FT" src="https://m.media-amazon.com/images/I/41tjfn+jY7L._SL500_.jpg"/></a>
 
 
 The **OUSHENG Lighted Palm Tree Bar Outdoor Christmas Decorations Decor** is ideal for anyone looking to add a vibrant, tropical ambiance to their outdoor spaces. Whether you are a homeowner wanting to enhance your patio, yard, or pool area, or an event planner aiming to create a festive party atmosphere, this 6FT tall **LED artificial palm tree** provides a unique and eye-catching decoration. Its warm white and green lights make it perfect for outdoor use, especially during the holiday season or any tropical-themed event.
@@ -100,10 +100,10 @@ The **OUSHENG Lighted Palm Tree** features a beautifully crafted faux palm tree 
 
 Built by **Zhongshan MLS Electronics Co., LTD**, this palm tree decoration is designed to withstand outdoor elements, ensuring durability and long-lasting use. The energy-efficient **LED lighting** reduces electricity consumption, making it an eco-friendly choice for festive and year-round decoration. Whether used for Christmas, summer parties, or themed events, this illuminated palm tree adds an exotic flair that enhances the overall ambiance and invites a relaxing, tropical vibe.
 
-## <a href="https://www.amazon.com/dp/B0C4T2SKGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homight Metal Agave Plant Outdoor Decoration</a>
+## <a href="https://www.amazon.com/dp/B0C4T2SKGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homight Metal Agave Plant Outdoor Decoration</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4T2SKGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homight Metal Agave Plant Outdoor Decoration Outdoor Garden Decoration Lily Mexican Yard Art Plant Garden Agave Lily Decorative Garden Gift… (2 Big Red Lilies)" src="https://m.media-amazon.com/images/I/41poOsCoA2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4T2SKGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homight Metal Agave Plant Outdoor Decoration Outdoor Garden Decoration Lily Mexican Yard Art Plant Garden Agave Lily Decorative Garden Gift… (2 Big Red Lilies)" src="https://m.media-amazon.com/images/I/41poOsCoA2L._SL500_.jpg"/></a>
 
 
 The **Homight Metal Agave Plant Outdoor Decoration** is perfect for garden enthusiasts and homeowners looking to add a touch of artistic flair to their outdoor spaces. Ideal for those who appreciate durable, weather-resistant decor, this item is especially suited for individuals wanting to enhance their yard with vibrant, long-lasting decorative pieces that require minimal maintenance.
@@ -126,10 +126,10 @@ The **Homight Metal Agave Plant** is crafted to bring a unique blend of artistic
 
 Beyond aesthetics, this garden art piece offers the benefit of being low maintenance, unlike real plants that require watering, pruning, and care. Its compact size allows it to fit seamlessly into different garden layouts, whether placed among other plants or as a standalone decorative element. Overall, the **Homight Metal Agave Plant** combines beauty, durability, and convenience, making it a smart choice for anyone looking to elevate their outdoor décor.
 
-## <a href="https://www.amazon.com/dp/B0C9TXVN77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu 5ft Lighted Palm Tree</a>
+## <a href="https://www.amazon.com/dp/B0C9TXVN77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu 5ft Lighted Palm Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9TXVN77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 5ft Lighted Palm Tree 136 LED Lights with Glowing Coconuts - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/31mhS9gD-cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9TXVN77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 5ft Lighted Palm Tree 136 LED Lights with Glowing Coconuts - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/31mhS9gD-cL._SL500_.jpg"/></a>
 
 
 The **TYBEEU 5ft Lighted Palm Tree** is perfect for individuals looking to add a tropical and festive ambiance to their indoor or outdoor spaces. Ideal customers include homeowners, event planners, and business owners who want a unique, eye-catching decoration that combines style and functionality. If you desire a versatile lighting solution that enhances your décor with a warm, inviting glow, this product is an excellent choice.
@@ -152,10 +152,10 @@ The **TYBEEU 5ft Lighted Palm Tree** offers an impressive combination of decorat
 
 Its **dimmable** feature allows users to adjust the light intensity based on mood or occasion, offering flexibility and control. The **waterproof** and **UL certified** design guarantees safety and durability, making it suitable for various environments without worry. Additionally, its manageable size and weight make installation and relocation hassle-free, providing convenience alongside style. Overall, this lighted palm tree is a versatile, attractive, and practical choice for anyone looking to brighten up their space with a tropical flair.
 
-## <a href="https://www.amazon.com/dp/B0BR8YLS34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spurgehom 6ft Lighted Palm Trees Outdoor Artificial Palm Trees</a>
+## <a href="https://www.amazon.com/dp/B0BR8YLS34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spurgehom 6ft Lighted Palm Trees Outdoor Artificial Palm Trees</a>
 
 
-<a href="https://www.amazon.com/dp/B0BR8YLS34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spurgehom 6FT Lighted Palm Trees Outdoor Artificial Palm Trees for Decorations Decor, LED Artificial Fake Trees Lights for Outside Patio Tiki Bar Tropical Party Backyard Poolside" src="https://m.media-amazon.com/images/I/41Bto0vEpeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BR8YLS34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spurgehom 6FT Lighted Palm Trees Outdoor Artificial Palm Trees for Decorations Decor, LED Artificial Fake Trees Lights for Outside Patio Tiki Bar Tropical Party Backyard Poolside" src="https://m.media-amazon.com/images/I/41Bto0vEpeL._SL500_.jpg"/></a>
 
 
 The **Spurgehom 6FT Lighted Palm Trees** are perfect for individuals looking to enhance their outdoor spaces with a tropical vibe without the maintenance of real plants. Ideal customers include homeowners with patios, tiki bar owners, party planners, and anyone wanting to create a festive atmosphere in their backyard or poolside area.
@@ -178,10 +178,10 @@ The **Spurgehom 6FT Lighted Palm Trees** feature a durable design that combines 
 
 Measuring 72 inches in height, these artificial palm trees are tall enough to stand out without overwhelming your space. Their lightweight construction allows for easy relocation, so you can customize your decor as needed. Additionally, their weather-resistant materials ensure that they withstand outdoor elements, making them a reliable and low-maintenance decorative option for patios, tiki bars, or tropical-themed events.
 
-## <a href="https://www.amazon.com/dp/B0C9TVH4JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu Lighted Eucalyptus Tree</a>
+## <a href="https://www.amazon.com/dp/B0C9TVH4JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tybeeu Lighted Eucalyptus Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9TVH4JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 6ft Lighted Eucalyptus Tree with 300 Warm White LED Lights for Holiday Decor - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/41LSUy68QkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9TVH4JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TYBEEU 6ft Lighted Eucalyptus Tree with 300 Warm White LED Lights for Holiday Decor - Dimmable, UL Certified, Waterproof - Ideal for Indoor and Outdoor Decoration" src="https://m.media-amazon.com/images/I/41LSUy68QkL._SL500_.jpg"/></a>
 
 
 The **TYBEEU 6ft Lighted Eucalyptus Tree** with **300 Warm White LED Lights** is perfect for individuals looking to enhance their holiday decor with a touch of elegance and versatility. Ideal for both indoor and outdoor use, this product is best suited for homeowners, event planners, and decorators who want a stylish, easy-to-use, and durable lighting solution that creates a warm and inviting atmosphere during festive seasons or special occasions.
@@ -204,10 +204,10 @@ The **TYBEEU 6ft Lighted Eucalyptus Tree** stands out with its beautifully craft
 
 Built with quality and safety in mind, this tree is **UL Certified** and **waterproof**, making it a reliable choice for both indoor and outdoor decorating needs. Its lightweight design and manageable size ensure easy placement without sacrificing visual impact. Whether used to brighten a living room corner or an outdoor patio, the **TYBEEU Lighted Eucalyptus Tree** combines aesthetic appeal with practical functionality, making it a valuable addition to any décor collection.
 
-## <a href="https://www.amazon.com/dp/B01E082CN0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightshare Lighted Palm Tree</a>
+## <a href="https://www.amazon.com/dp/B01E082CN0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightshare Lighted Palm Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B01E082CN0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIGHTSHARE Lighted Palm Tree, Small, Green, 5-Feet (ZLS5FT)" src="https://m.media-amazon.com/images/I/31Tg2lhWf8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01E082CN0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIGHTSHARE Lighted Palm Tree, Small, Green, 5-Feet (ZLS5FT)" src="https://m.media-amazon.com/images/I/31Tg2lhWf8L._SL500_.jpg"/></a>
 
 
 The **LIGHTSHARE Lighted Palm Tree, Small, Green, 5-Feet (ZLS5FT)** is perfect for individuals looking to add a vibrant, tropical touch to their indoor or outdoor spaces. Ideal customers include homeowners, event planners, and business owners who want to create a festive atmosphere with minimal effort. This product suits those seeking an eye-catching decorative piece that is both functional and visually appealing.
@@ -230,10 +230,10 @@ The **LIGHTSHARE Lighted Palm Tree** boasts an impressive design that combines a
 
 Additionally, the lightweight yet sturdy build of this 5-foot palm tree ensures hassle-free installation and portability. Users benefit from its energy-efficient lighting technology, which provides bright illumination without excessive power consumption. Overall, this product offers a visually appealing and practical solution for anyone wanting to enhance their space with a tropical flair.
 
-## <a href="https://www.amazon.com/dp/B00BEJ9Q8I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nearly Natural 5226 Triple Stalk Banana Silk Tree</a>
+## <a href="https://www.amazon.com/dp/B00BEJ9Q8I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nearly Natural 5226 Triple Stalk Banana Silk Tree</a>
 
 
-<a href="https://www.amazon.com/dp/B00BEJ9Q8I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 11.5""="" 13"="" alt="Nearly Natural 5226 6ft. Triple Stalk Banana Silk Tree , Green , 53.25" src="https://m.media-amazon.com/images/I/413JIz2WSNL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B00BEJ9Q8I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 11.5""="" 13"="" alt="Nearly Natural 5226 6ft. Triple Stalk Banana Silk Tree , Green , 53.25" src="https://m.media-amazon.com/images/I/413JIz2WSNL._SL500_.jpg" x=""/></a>
 
 
 The **Nearly Natural 5226 6ft. Triple Stalk Banana Silk Tree** is ideal for individuals looking to enhance their indoor or outdoor space with a touch of tropical greenery without the hassle of maintenance. Perfect for homeowners, office decorators, and retail spaces, this artificial tree suits anyone wanting a lifelike plant that stays vibrant year-round.
@@ -256,10 +256,10 @@ The **Nearly Natural 6ft. Triple Stalk Banana Silk Tree** boasts a lifelike desi
 
 Crafted from high-quality silk, this artificial tree offers durability and longevity, ensuring that it remains an attractive part of your décor for years. The lightweight build allows for effortless relocation and flexibility in styling, while its realistic texture and coloring provide a natural feel that complements various interior design themes.
 
-## <a href="https://www.amazon.com/dp/B0DGK668D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Choies 2 Pack Of 30 Inch Pre-lit Artificial Pathway Christmas Trees</a>
+## <a href="https://www.amazon.com/dp/B0DGK668D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Choies 2 Pack Of 30 Inch Pre-lit Artificial Pathway Christmas Trees</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGK668D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Choies 2 Pack of 30 INCH Pre-Lit Artificial Pathway Christmas Trees,Outdoor Christmas Tree for Porch,Yard,Driveway,Lighted Christmas Tree with Pine Cones,Red Berries and Red Ornaments Home Decoration" src="https://m.media-amazon.com/images/I/51sQ-GRBdCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGK668D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Choies 2 Pack of 30 INCH Pre-Lit Artificial Pathway Christmas Trees,Outdoor Christmas Tree for Porch,Yard,Driveway,Lighted Christmas Tree with Pine Cones,Red Berries and Red Ornaments Home Decoration" src="https://m.media-amazon.com/images/I/51sQ-GRBdCL._SL500_.jpg"/></a>
 
 
 The **Choies 2 Pack of 30 INCH Pre-Lit Artificial Pathway Christmas Trees** are perfect for individuals looking to enhance their outdoor holiday decor with minimal effort. Ideal for homeowners who want a festive touch on their **porch, yard, or driveway** without the hassle of real trees, these lighted trees bring charm and warmth to any outdoor space. If you appreciate durable, ready-to-use decorations that combine traditional holiday elements like **pine cones, red berries, and red ornaments**, this product is designed for you.

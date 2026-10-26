@@ -23,10 +23,10 @@ Some lamps even include shelves or outlets for extra convenience. Picking lamps 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CJFVVWGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Touch Table Lamps For Bedrooms Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CJFVVWGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Touch Table Lamps For Bedrooms Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJFVVWGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Touch Table Lamps for Bedrooms Set of 2 - 3-Way Dimmable Nightstand Lamps with USB C+A Ports and Outlet, Black Bedside Lamps with Glass Shade for Living Room, Desk Lamps for Home Office" src="https://m.media-amazon.com/images/I/41xwdhcYVTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJFVVWGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Touch Table Lamps for Bedrooms Set of 2 - 3-Way Dimmable Nightstand Lamps with USB C+A Ports and Outlet, Black Bedside Lamps with Glass Shade for Living Room, Desk Lamps for Home Office" src="https://m.media-amazon.com/images/I/41xwdhcYVTL._SL500_.jpg"/></a>
 
 
 The **Industrial Touch Table Lamps for Bedrooms Set of 2** are perfect for individuals seeking a blend of functionality and style in their bedroom or home office lighting. Ideal customers include those who appreciate modern, industrial design and need versatile lighting solutions with added convenience, such as USB charging ports. If you want a practical yet stylish bedside lamp that enhances your living space while supporting your tech needs, this set is a great choice.
@@ -48,10 +48,10 @@ These **bedside lamps** from Innqoo combine practicality and aesthetics by offer
 
 The lamps’ compact yet robust design makes them ideal for bedrooms, living rooms, or home offices where space optimization is crucial. The **glass shade** diffuses light softly, creating a warm and inviting ambiance. With their solid build and elegant black finish, these lamps not only illuminate your space effectively but also enhance the overall decor, making them a smart and stylish addition to any room.
 
-## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a blend of style and functionality, the **Industrial Table Lamps for Bedrooms Set of 2** by **Innqoo** are perfect for homeowners, office workers, and students who want versatile lighting solutions. These lamps are especially suited for individuals who value modern industrial design paired with practical features like USB ports and dimmable lighting for reading or relaxing.
@@ -74,10 +74,10 @@ The **Industrial Table Lamps** are designed with both aesthetics and utility in 
 
 One of the standout features is the inclusion of both **USB A and C ports** as well as an additional **outlet** right on the lamp base, which adds tremendous convenience. This eliminates the need for separate charging stations and helps keep bedside tables or desks clutter-free. Additionally, the lamps’ compact size and well-balanced design make them an excellent choice for various room layouts without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCDTPDTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle LED Floor Lamp for Living Room, Dimmable Standing Lamps with Foot Switch,Remote Custom Color Temperature Black Pole Lamp with Lampshade,12W Led Bulb Tall Lamps for Bedroom Office Kid Room" src="https://m.media-amazon.com/images/I/41vGv5I8QGL._SL500_.jpg"/></a>
 
 
 The **luckystyle LED Floor Lamp** is ideal for individuals seeking a versatile and modern lighting solution for their **living room**, **bedroom**, **office**, or **kid's room**. If you want an adjustable, energy-efficient lamp that combines sleek design with practical features, this **dimmable standing lamp** with remote control and foot switch is perfect for enhancing your space.
@@ -100,10 +100,10 @@ The **luckystyle LED Floor Lamp** stands out with its **dimmable feature** that 
 
 Designed with convenience in mind, this lamp includes both a **foot switch** and a **remote control**, allowing effortless operation from anywhere in the room. The elegant **black pole** and **lampshade** complement various decor styles, while its tall stature ensures broad light coverage, perfect for larger spaces like living rooms or offices. Overall, this lamp combines functionality and style, making it a smart addition to your home or workspace.
 
-## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
 
 
 The **SUNMORY Floor Lamps for Living Room** are ideal for individuals seeking a versatile and modern lighting solution for their **bedroom, office, or living space**. Those who value convenience, brightness, and customizable lighting settings will find this **69-inch tall LED floor lamp** perfect for enhancing ambiance and functionality in their rooms.
@@ -126,10 +126,10 @@ The **SUNMORY Floor Lamp** features a powerful **32W LED light** emitting **3000
 
 Designed with a sleek **modern torchiere style**, this lamp fits neatly into corners, maximizing space without sacrificing style. The included **remote control** adds convenience by allowing users to adjust settings without needing to get up, enhancing comfort and ease of use. Standing at **69 inches tall**, it provides ample light coverage, making it an excellent addition to any **living room, bedroom, or office**.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is perfect for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, **office**, or **dining room**. Ideal for those who appreciate modern design with practical features, this lamp offers adjustable brightness to create the perfect ambiance. If you want a tall, elegant lamp that combines aesthetic appeal with energy-efficient lighting, this product is an excellent choice.
@@ -152,10 +152,10 @@ This **modern standing lamp** by Nintiue brings both style and functionality to 
 
 Designed with convenience in mind, the lamp’s lightweight structure and compact dimensions make it easy to move and fit into a variety of room layouts. The **matte black finish** complements modern and contemporary decor styles, while the arc shape allows the light to extend over furniture without taking up much floor space. Overall, this dimmable floor lamp offers a perfect blend of aesthetic appeal, energy efficiency, and user-friendly features suitable for various environments.
 
-## <a href="https://www.amazon.com/dp/B0C2P82CGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luvkczc Table Lamp For Bedroom Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C2P82CGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luvkczc Table Lamp For Bedroom Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2P82CGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Luvkczc Table Lamp for Bedroom Set of 2 with USB C+A Ports, Fully Stepless Dimmable Bedside Lamp with Linen Lampshade, Contemporary Lamp for Living Room Reading Office, 2 LED Bulbs Included (Black)" src="https://m.media-amazon.com/images/I/415X-qmH4RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2P82CGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Luvkczc Table Lamp for Bedroom Set of 2 with USB C+A Ports, Fully Stepless Dimmable Bedside Lamp with Linen Lampshade, Contemporary Lamp for Living Room Reading Office, 2 LED Bulbs Included (Black)" src="https://m.media-amazon.com/images/I/415X-qmH4RL._SL500_.jpg"/></a>
 
 
 The **Luvkczc Table Lamp for Bedroom Set of 2** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom**, **living room**, or **office**. This product is perfect for those who value convenience, modern design, and versatile lighting options, especially users who want easy access to USB charging ports while enjoying adjustable brightness for reading or ambient lighting.
@@ -178,10 +178,10 @@ The **Luvkczc Table Lamp** stands out with its blend of modern aesthetics and fu
 
 Designed with practicality in mind, each lamp includes energy-efficient **LED bulbs** that reduce electricity consumption while delivering bright, clear light. The sleek black finish and well-considered dimensions make these lamps versatile additions to many room styles without overwhelming space. Overall, this set is a smart investment for anyone looking to enhance their living or working environment with stylish, adaptable lighting and convenient charging options.
 
-## <a href="https://www.amazon.com/dp/B0DS5CT3BT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DS5CT3BT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS5CT3BT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 9W Bulb Included, Tall Lamp for Bedroom with Adjustable Head, Modern Standing Lamp, 0-100% Dimmable Arc Floor Lamp for Dining Room Office Nursery, Black." src="https://m.media-amazon.com/images/I/41bHrJu+YZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS5CT3BT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 9W Bulb Included, Tall Lamp for Bedroom with Adjustable Head, Modern Standing Lamp, 0-100% Dimmable Arc Floor Lamp for Dining Room Office Nursery, Black." src="https://m.media-amazon.com/images/I/41bHrJu+YZL._SL500_.jpg"/></a>
 
 
 The **SUNMORY Floor Lamp** is ideal for individuals seeking a versatile and modern lighting solution for their **living room**, **bedroom**, or **office**. Perfect for those who appreciate adjustable lighting and sleek design, this lamp suits anyone wanting to enhance ambiance with a functional and stylish floor lamp. Whether you need focused light for reading or soft illumination for relaxation, this lamp caters well to diverse lighting needs.
@@ -205,10 +205,10 @@ The **SUNMORY Floor Lamp** features a tall, sleek design measuring 62 inches in 
 
 Crafted with a contemporary black finish, this lamp seamlessly blends with modern interiors, adding a touch of elegance without overwhelming the space. The inclusion of a **9W energy-efficient bulb** means users can enjoy immediate illumination right out of the box, reducing setup time and additional purchases. Furthermore, its lightweight construction ensures that relocating or adjusting the lamp is hassle-free, making it a practical and stylish lighting addition for any room.
 
-## <a href="https://www.amazon.com/dp/B091V8WWRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 2 Industrial Touch Control Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B091V8WWRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 2 Industrial Touch Control Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B091V8WWRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 2 Industrial Touch Control Table Lamps with 2 USB Ports and AC Outlet - 3-Way Dimmable Black Bedside Lamps Nightstand Desk Lamps for Bedroom Living Room, Glass Shade &amp; 2 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41-mHvELFNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091V8WWRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 2 Industrial Touch Control Table Lamps with 2 USB Ports and AC Outlet - 3-Way Dimmable Black Bedside Lamps Nightstand Desk Lamps for Bedroom Living Room, Glass Shade &amp; 2 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41-mHvELFNL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a blend of style and functionality, the **Set of 2 Industrial Touch Control Table Lamps** is perfect for those who want modern bedside or desk lighting with added convenience. If you need lamps that not only illuminate your space but also offer easy control and charging options, this set is an excellent choice for bedrooms, living rooms, or workspaces.
@@ -231,10 +231,10 @@ These **industrial touch control lamps** offer a sleek and practical lighting so
 
 With a height of 17 inches and a sturdy build, these lamps provide both presence and stability. The black finish and industrial design fit seamlessly into contemporary and minimalist interiors, while the inclusion of two LED bulbs ensures energy efficiency and longevity. This set is especially beneficial for those who value convenience and style, making it a versatile addition to bedrooms, living rooms, or offices.
 
-## <a href="https://www.amazon.com/dp/B0D12HSNPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">22" Tall Modern Living Room Lamps - Touch Bedside Lamps With Usb C+a, 3 Way Dimmable For End Tables - Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D12HSNPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">22" Tall Modern Living Room Lamps - Touch Bedside Lamps With Usb C+a, 3 Way Dimmable For End Tables - Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D12HSNPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" (grey="" -="" 2="" 3="" alt="22" bedside="" black)"="" c+a,="" dimmable="" end="" for="" lamps="" living="" modern="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Xi6zILTYL._SL500_.jpg" tables="" tall="" touch="" usb="" way="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D12HSNPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" (grey="" -="" 2="" 3="" alt="22" bedside="" black)"="" c+a,="" dimmable="" end="" for="" lamps="" living="" modern="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Xi6zILTYL._SL500_.jpg" tables="" tall="" touch="" usb="" way="" with=""/></a>
 
 
 The **22" Tall Modern Living Room Lamps** by **Seealle** are perfect for individuals seeking a stylish and functional lighting solution for their **bedside tables** or **end tables**. Ideal for modern home decor enthusiasts, tech-savvy users, and those who appreciate convenience, these lamps combine contemporary design with practical features such as **touch controls** and multiple USB ports for charging devices. If you want to elevate your living room or bedroom ambiance while staying connected, this set of two lamps in **grey and black** hues is an excellent choice.
@@ -257,10 +257,10 @@ The **22" Tall Modern Living Room Lamps** feature a sleek design that merges for
 
 Another standout feature is the built-in **USB C and USB A ports**, which offer practical charging options for various devices, reducing the need for extra adapters or power strips. This makes the lamps especially useful for bedrooms or living rooms where keeping devices powered is essential. Crafted by **Seealle**, these lamps combine quality materials with innovative technology, ensuring durability and convenience for everyday use. Overall, these lamps bring a modern touch and multi-functional utility to any home setting.
 
-## <a href="https://www.amazon.com/dp/B08NFS1VH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamp With Shelves</a>
+## <a href="https://www.amazon.com/dp/B08NFS1VH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamp With Shelves</a>
 
 
-<a href="https://www.amazon.com/dp/B08NFS1VH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves,Modern Dimmable Solid Wood Standing Lamp with 1 Drawer and 2 USB Ports &amp; 2 Power Outlet,Corner Tall Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41cZRQEnOhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NFS1VH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamp with Shelves,Modern Dimmable Solid Wood Standing Lamp with 1 Drawer and 2 USB Ports &amp; 2 Power Outlet,Corner Tall Bookshelf Lamp for Living Room and Bedroom(Black)" src="https://m.media-amazon.com/images/I/41cZRQEnOhL._SL500_.jpg"/></a>
 
 
 The **SUNMORY Floor Lamp with Shelves** is an excellent choice for individuals looking to enhance their **living room** or **bedroom** with a stylish and functional lighting solution. Ideal for those who appreciate modern design combined with practicality, this lamp is perfect for homeowners, renters, and office users who need both lighting and additional storage space in one elegant piece.

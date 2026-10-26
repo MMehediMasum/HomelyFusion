@@ -23,10 +23,10 @@ Wireless and rechargeable lights avoid messy wires and are easy to install. Popu
 
 
 
-## <a href="https://www.amazon.com/dp/B0BDF8CVBN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0BDF8CVBN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcgor 10inch Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0BDF8CVBN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41+YN7+ZNZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BDF8CVBN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MCGOR 10inch Under Cabinet Lighting, 2 Pack Rechargeable Motion Sensor Light Indoor, 5 Levels Dimmable Magnetic Closet Lights, Wireless Under Counter Lights for Kitchen, Stairs" src="https://m.media-amazon.com/images/I/41+YN7+ZNZL._SL500_.jpg"/></a>
 
 
 The **MCGOR 10inch Under Cabinet Lighting** is ideal for homeowners and renters looking to enhance visibility in dark indoor spaces such as kitchens, closets, or stairways. This product is perfect for those who want a convenient, wireless lighting solution with motion sensing and adjustable brightness, especially in areas without easy access to electrical outlets.
@@ -49,10 +49,10 @@ The **MCGOR 10inch Under Cabinet Lighting** boasts a sleek and compact design wi
 
 With **five dimmable levels**, users can adjust the brightness to suit different tasks or moods, from bright task lighting to softer ambient illumination. The **magnetic mounting** system adds flexibility, allowing for quick repositioning or removal without damage to surfaces. Overall, this lighting solution offers a practical and stylish way to brighten dark spaces while simplifying the user experience.
 
-## <a href="https://www.amazon.com/dp/B0F1C56SR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin Under Cabinet Lighting Rechargeable - 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0F1C56SR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin Under Cabinet Lighting Rechargeable - 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1C56SR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 10.2inch Under Cabinet Lighting Rechargeable -84 LED Super Bright,3-Color&amp; 5 Level Brightness,4 Modes,Motion Sensor, Long Lasting- Easy Installation Magnetic Under Cabinet Closet Lights -2 Pack" src="https://m.media-amazon.com/images/I/418mcll5yRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1C56SR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 10.2inch Under Cabinet Lighting Rechargeable -84 LED Super Bright,3-Color&amp; 5 Level Brightness,4 Modes,Motion Sensor, Long Lasting- Easy Installation Magnetic Under Cabinet Closet Lights -2 Pack" src="https://m.media-amazon.com/images/I/418mcll5yRL._SL500_.jpg"/></a>
 
 
 The **Gritin 10.2inch Under Cabinet Lighting Rechargeable** is ideal for homeowners, renters, or anyone looking to enhance visibility in dark or dimly lit spaces such as kitchens, closets, or workstations. If you want an easy-to-install, energy-efficient, and versatile lighting solution without the hassle of wiring, this product is perfect for you.
@@ -76,10 +76,10 @@ The **Gritin Under Cabinet Lighting** features a slim and sleek design measuring
 
 Users can tailor their lighting experience with the versatile **3-color modes** and **5 brightness levels**, adjusting the ambiance to suit tasks or mood. Additionally, the built-in **motion sensor** enhances energy efficiency by activating the light only when movement is detected, making it an excellent option for closets or pantries. The magnetic installation simplifies setup, allowing you to quickly place or relocate the lights without damaging surfaces.
 
-## <a href="https://www.amazon.com/dp/B07XHLGSXN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee White Led Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B07XHLGSXN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee White Led Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B07XHLGSXN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee White LED Strip Lights, Upgraded 16.4ft Dimmable LED Light Strip 6500K Bright Daylight White, Strong Adhesive, 300 LEDs Flexible Tape Lights for Mirror, Kitchen Cabinet, Bedroom, Christmas Decor" src="https://m.media-amazon.com/images/I/51XydFfJPKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XHLGSXN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee White LED Strip Lights, Upgraded 16.4ft Dimmable LED Light Strip 6500K Bright Daylight White, Strong Adhesive, 300 LEDs Flexible Tape Lights for Mirror, Kitchen Cabinet, Bedroom, Christmas Decor" src="https://m.media-amazon.com/images/I/51XydFfJPKL._SL500_.jpg"/></a>
 
 
 The **Govee White LED Strip Lights** are perfect for anyone looking to enhance their living space with bright, customizable lighting. Ideal customers include homeowners, renters, and decorators who want to add a clean, modern touch to areas such as mirrors, kitchen cabinets, bedrooms, or festive Christmas decor. Those seeking an easy-to-install and energy-efficient lighting solution will find this product especially beneficial.
@@ -102,10 +102,10 @@ The **Govee White LED Strip Lights** feature a long 16.4-foot flexible tape embe
 
 Designed with convenience in mind, these LED strip lights are lightweight and easy to install, making them accessible for DIY enthusiasts and beginners alike. The energy-efficient LEDs provide bright illumination while consuming minimal power, contributing to cost savings over time. Whether used for everyday lighting or seasonal decoration, the Govee LED strip lights offer versatility and reliable performance, transforming ordinary spaces into inviting and well-lit environments.
 
-## <a href="https://www.amazon.com/dp/B0D8BKMB2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Under Cabinet Lighting With Charging Station</a>
+## <a href="https://www.amazon.com/dp/B0D8BKMB2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Under Cabinet Lighting With Charging Station</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8BKMB2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO 6-Pack Under Cabinet Lighting with Charging Station, 2000mAh Rechargeable Wireless Motion Sensor Lights, 3 Color Temps, Dimmable, Timer, Magnetic, with Remote Control for Kitchen, Closet, Stair" src="https://m.media-amazon.com/images/I/41vjRwV9aIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8BKMB2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO 6-Pack Under Cabinet Lighting with Charging Station, 2000mAh Rechargeable Wireless Motion Sensor Lights, 3 Color Temps, Dimmable, Timer, Magnetic, with Remote Control for Kitchen, Closet, Stair" src="https://m.media-amazon.com/images/I/41vjRwV9aIL._SL500_.jpg"/></a>
 
 
 The **EZVALO 6-Pack Under Cabinet Lighting with Charging Station** is perfect for homeowners and renters looking to enhance their **kitchen, closet, or stair lighting** with easy-to-install, wireless solutions. Ideal for those who want **motion sensor lights** that are both **energy-efficient** and versatile, this product suits individuals seeking convenient, customizable illumination without complex wiring.
@@ -129,10 +129,10 @@ The **EZVALO Under Cabinet Lighting** features a sleek, compact design measuring
 
 Additionally, the **motion sensor technology** ensures that the lights activate automatically when movement is detected, making them ideal for areas like closets or staircases where hands-free operation is beneficial. The **magnetic base** further simplifies installation and repositioning, while the **timer feature** helps conserve battery life by turning the lights off after a set period. Together, these features provide an efficient, customizable lighting solution that enhances safety and convenience in everyday living spaces.
 
-## <a href="https://www.amazon.com/dp/B0BD89ZWH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daybetter Under Cabinet Lights</a>
+## <a href="https://www.amazon.com/dp/B0BD89ZWH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daybetter Under Cabinet Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0BD89ZWH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DAYBETTER Under Cabinet Lights, 6 PCS Under Cabinet Lighting with Remote, Dimmable LED Strip Lights for Bedroom, LED Lights for Kitchen Cabinet, Counter Shelf 2700K-6500K Warm to Daylight White, 9.8ft" src="https://m.media-amazon.com/images/I/41m9ZC16yhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BD89ZWH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DAYBETTER Under Cabinet Lights, 6 PCS Under Cabinet Lighting with Remote, Dimmable LED Strip Lights for Bedroom, LED Lights for Kitchen Cabinet, Counter Shelf 2700K-6500K Warm to Daylight White, 9.8ft" src="https://m.media-amazon.com/images/I/41m9ZC16yhL._SL500_.jpg"/></a>
 
 
 The **DAYBETTER Under Cabinet Lights** are perfect for homeowners and renters looking to enhance their **kitchen, bedroom, or counter shelves** with customizable and efficient lighting. Ideal for those who value both style and functionality, this set of **6 dimmable LED strip lights** offers versatile lighting solutions that can be easily controlled via remote, making it an excellent choice for modern living spaces.
@@ -155,10 +155,10 @@ The **DAYBETTER Under Cabinet Lights** feature a sleek and compact design that f
 
 With a total length of **9.8 feet**, these LED strip lights provide ample coverage to brighten up your kitchen counters or bedroom spaces efficiently. The **energy-efficient LED technology** not only reduces electricity consumption but also offers long-lasting performance, making it a cost-effective lighting solution. Moreover, the simple installation process means users can quickly upgrade their lighting setup without professional help, adding both functionality and aesthetic appeal to their living spaces.
 
-## <a href="https://www.amazon.com/dp/B09MQM8Q23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tecomlight Led Puck Lights</a>
+## <a href="https://www.amazon.com/dp/B09MQM8Q23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tecomlight Led Puck Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B09MQM8Q23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECOMLIGHT LED Puck Lights with Remote Control, Battery Operated Wireless Closet Light, Under Cabinet Lighting Stick on Tap Push Lights, Color Changing Under Counter Light for Kitchen, 6 Pack - Black" src="https://m.media-amazon.com/images/I/51CawpTpoXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MQM8Q23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECOMLIGHT LED Puck Lights with Remote Control, Battery Operated Wireless Closet Light, Under Cabinet Lighting Stick on Tap Push Lights, Color Changing Under Counter Light for Kitchen, 6 Pack - Black" src="https://m.media-amazon.com/images/I/51CawpTpoXL._SL500_.jpg"/></a>
 
 
 The **TECOMLIGHT LED Puck Lights with Remote Control** are ideal for homeowners or renters looking to enhance lighting in areas without convenient electrical outlets. These wireless, battery-operated lights are perfect for illuminating closets, under cabinets, or any space requiring flexible and easy-to-install lighting solutions without the hassle of wiring.
@@ -182,10 +182,10 @@ The **TECOMLIGHT LED Puck Lights** feature a compact design measuring 2.95 inche
 
 Additionally, these lights provide both stick-on adhesive and tap push activation methods, catering to different user preferences and installation scenarios. The color-changing capability allows for personalized lighting moods, perfect for kitchens, closets, or under counters. Overall, the TECOMLIGHT LED Puck Lights offer a flexible, stylish, and user-friendly lighting solution for enhancing home environments.
 
-## <a href="https://www.amazon.com/dp/B09XMRT2JH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maylit Smart Rgb Under Cabinet Lights Kit</a>
+## <a href="https://www.amazon.com/dp/B09XMRT2JH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maylit Smart Rgb Under Cabinet Lights Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09XMRT2JH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="maylit 10 PCS Smart RGB Under Cabinet Lights Kit, Compatible with Alexa and Google Assistant, App and Remote Control, Music Sync Color Changing, Timer, Dimmable, for Cabinet, Counter, Shelf, Bookcase" src="https://m.media-amazon.com/images/I/51vXIP5xg8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XMRT2JH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="maylit 10 PCS Smart RGB Under Cabinet Lights Kit, Compatible with Alexa and Google Assistant, App and Remote Control, Music Sync Color Changing, Timer, Dimmable, for Cabinet, Counter, Shelf, Bookcase" src="https://m.media-amazon.com/images/I/51vXIP5xg8L._SL500_.jpg"/></a>
 
 
 The **maylit 10 PCS Smart RGB Under Cabinet Lights Kit** is ideal for homeowners and renters who want to enhance their living spaces with versatile and customizable lighting. If you are someone who enjoys smart home technology, seeks vibrant and adjustable lighting options, or wants to effortlessly brighten cabinets, counters, shelves, or bookcases, this product is a perfect match. It suits tech-savvy users who prefer voice control compatibility with Alexa and Google Assistant, as well as those who appreciate easy app and remote control access.
@@ -209,10 +209,10 @@ The **maylit Smart RGB Under Cabinet Lights Kit** offers a robust and flexible l
 
 Additionally, the **music sync** feature elevates the ambiance by synchronizing the lights with your favorite songs, making it perfect for entertaining or relaxing. The **timer** and **dimmable** functions provide users with customizable options to set lighting schedules and create the ideal mood for any occasion. Lightweight and easy to install, this kit is designed for various applications including cabinets, counters, shelves, and bookcases, making it a versatile addition to any smart home setup.
 
-## <a href="https://www.amazon.com/dp/B0DXKSXNR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rihvy Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0DXKSXNR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rihvy Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXKSXNR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rihvy Under Cabinet Lighting 8 Inches Rechargeable Motion Sensor Light Indoor, 3 Color Dimmable Closet Light Battery Operated, USB Stick on LED Magnetic Under Counter Lights for Kitchen Stair, 3 Packs" src="https://m.media-amazon.com/images/I/41FZixF43ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXKSXNR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rihvy Under Cabinet Lighting 8 Inches Rechargeable Motion Sensor Light Indoor, 3 Color Dimmable Closet Light Battery Operated, USB Stick on LED Magnetic Under Counter Lights for Kitchen Stair, 3 Packs" src="https://m.media-amazon.com/images/I/41FZixF43ML._SL500_.jpg"/></a>
 
 
 The **Rihvy Under Cabinet Lighting 8 Inches Rechargeable Motion Sensor Light** is ideal for homeowners and renters looking to enhance the functionality and ambiance of their indoor spaces. Perfect for those who need efficient, convenient, and stylish lighting solutions in areas like kitchens, closets, stairways, or any under-counter spaces, this set of three lights is designed for users who want easy installation and versatile lighting options without the hassle of wiring.
@@ -235,10 +235,10 @@ The **Rihvy Under Cabinet Lighting** set includes three 8-inch LED lights that o
 
 Installation is simplified through the USB rechargeable design and magnetic stick-on backing, eliminating the need for complex wiring or drilling. This makes the lights portable and easy to relocate as needed. The slim dimensions and lightweight construction ensure they blend unobtrusively into any space while providing ample lighting. These features collectively enhance user experience by offering customizable, energy-efficient, and hassle-free lighting that adapts to various indoor settings.
 
-## <a href="https://www.amazon.com/dp/B0F93MNQHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0F93MNQHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0F93MNQHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO 5 Pack Under Cabinet Lighting, 2200mAh Rechargeable Motion Sensor Light, 10inch Magnetic Closet Lights with Dimmable &amp; 3 Color Temps, Wireless Motion Activated Lights with Remote for Kitchen" src="https://m.media-amazon.com/images/I/41kI-Fem0yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F93MNQHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO 5 Pack Under Cabinet Lighting, 2200mAh Rechargeable Motion Sensor Light, 10inch Magnetic Closet Lights with Dimmable &amp; 3 Color Temps, Wireless Motion Activated Lights with Remote for Kitchen" src="https://m.media-amazon.com/images/I/41kI-Fem0yL._SL500_.jpg"/></a>
 
 
 The **EZVALO 5 Pack Under Cabinet Lighting** is ideal for homeowners and renters looking to enhance visibility in dark spaces like kitchens, closets, and cabinets. If you want an easy-to-install, wireless lighting solution with motion sensors and adjustable brightness, this product is perfect for you. It’s especially useful for those who prioritize convenience and energy efficiency in their home lighting.
@@ -262,10 +262,10 @@ The **EZVALO Under Cabinet Lighting** is designed with user convenience in mind.
 
 Featuring a **10-inch magnetic design**, these lights can be quickly attached to any metal surface, allowing for flexible placement and easy repositioning. The ability to adjust brightness and choose from three distinct **color temperatures** means you can tailor the lighting ambiance for different tasks—whether you need bright, cool light for cooking or a softer, warmer glow for relaxing. Additionally, the included remote control adds another layer of convenience, letting you control the lights without needing to reach underneath cabinets.
 
-## <a href="https://www.amazon.com/dp/B0DDTGVP19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Under Cabinet Lighting</a>
+## <a href="https://www.amazon.com/dp/B0DDTGVP19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Under Cabinet Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDTGVP19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Under Cabinet Lighting, Equipped with Motion Sensor, Rechargeable Battery Operated，3-Level Adjustable Brightness, 3 Pack Magnetic Under Counter Lights for Kitchen, Closet, Pantry, 7.8" src="https://m.media-amazon.com/images/I/41nEV90ZdTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDTGVP19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Under Cabinet Lighting, Equipped with Motion Sensor, Rechargeable Battery Operated，3-Level Adjustable Brightness, 3 Pack Magnetic Under Counter Lights for Kitchen, Closet, Pantry, 7.8" src="https://m.media-amazon.com/images/I/41nEV90ZdTL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to enhance their kitchen, closet, or pantry lighting, the **Under Cabinet Lighting** by **Olalits** is perfect for those who want a convenient, energy-efficient, and easy-to-install lighting solution. This product suits individuals who appreciate smart home features like motion sensing and adjustable brightness without the hassle of wiring.

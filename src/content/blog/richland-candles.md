@@ -23,10 +23,10 @@ The White Fresh Laundry Votive Candles set of 72 offers a crisp, clean aroma. Fo
 
 
 
-## <a href="https://www.amazon.com/dp/B001D95AHU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
+## <a href="https://www.amazon.com/dp/B001D95AHU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B001D95AHU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31L8a+Yma-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001D95AHU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31L8a+Yma-L._SL500_.jpg"/></a>
 
 
 The **Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 72** is ideal for individuals seeking a reliable and fragrant candle option for home décor, events, or relaxation purposes. Perfect for event planners, homeowners, or anyone who loves a cozy ambiance with a subtle **vanilla scent**, this set offers great value and convenience with its bulk quantity and long burn time.
@@ -49,12 +49,12 @@ The **Richland® Votive Candles** boast a clean and steady burn thanks to their 
 
 This set of 72 candles offers excellent value for those who require multiple candles for weddings, parties, or extended home use. The consistent **10-hour burn time** per candle means less frequent replacements and longer enjoyment. Additionally, the elegant **ivory color** complements a wide range of décor themes, making these votive candles both functional and aesthetically pleasing for various occasions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001D95AHU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001D95AHU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002N8PHCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
+## <a href="https://www.amazon.com/dp/B002N8PHCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B002N8PHCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 144" src="https://m.media-amazon.com/images/I/31OD1xWazOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002N8PHCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 144" src="https://m.media-amazon.com/images/I/31OD1xWazOL._SL500_.jpg"/></a>
 
 
 The **Richland® Votive Candles Ivory Vanilla Scented 10 Hour Burn Set of 144** is ideal for individuals who enjoy creating a warm, inviting atmosphere in their homes or event spaces. Perfect for event planners, hospitality businesses, or anyone who loves long-lasting, fragrant candles, this set offers both convenience and elegance. If you are looking to enhance ambiance with a subtle **vanilla scent** and reliable burn time, this product is an excellent choice.
@@ -76,12 +76,12 @@ The **Richland® Votive Candles** are crafted by **Quick Candles**, ensuring qua
 
 Beyond their aesthetic appeal, these candles deliver a pleasant **vanilla scent** that gently permeates the room without overpowering. The reliable 10-hour burn time means fewer replacements and longer enjoyment, ideal for businesses or individuals who value convenience. The large quantity in this set ensures you will have an ample supply for any occasion or prolonged use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002N8PHCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002N8PHCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002MFETQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
+## <a href="https://www.amazon.com/dp/B002MFETQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B002MFETQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Fresh Laundry Scented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31ha9W+K-QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002MFETQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Fresh Laundry Scented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31ha9W+K-QL._SL500_.jpg"/></a>
 
 
 The **Richland® Votive Candles White Fresh Laundry Scented 10 Hour Burn Set of 72** is ideal for individuals who want to create a clean, refreshing ambiance in their home or event space. Perfect for those who appreciate subtle fragrances and long-lasting candlelight, this set is great for homeowners, event planners, and anyone looking to enhance their environment with a pleasant **fresh laundry scent**.
@@ -103,12 +103,12 @@ These **Richland® votive candles** are expertly crafted to deliver a steady, ge
 
 Additionally, the large set of 72 candles is especially beneficial for those who host events or want to stock up for extended use. The clean scent helps eliminate unwanted odors, creating a welcoming atmosphere. Overall, these votive candles combine practicality, quality, and an appealing fragrance to meet the needs of customers seeking both function and freshness in their candle choices.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002MFETQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002MFETQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002NUVYKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ivory Vanilla Scented Clear Cup Tealight Candles Set Of 50</a>
+## <a href="https://www.amazon.com/dp/B002NUVYKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ivory Vanilla Scented Clear Cup Tealight Candles Set Of 50</a>
 
 
-<a href="https://www.amazon.com/dp/B002NUVYKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ivory Vanilla Scented Clear Cup Richland Tealight Candles Set of 50" src="https://m.media-amazon.com/images/I/41A6BoTJwfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002NUVYKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ivory Vanilla Scented Clear Cup Richland Tealight Candles Set of 50" src="https://m.media-amazon.com/images/I/41A6BoTJwfL._SL500_.jpg"/></a>
 
 
 The **Ivory Vanilla Scented Clear Cup Richland Tealight Candles Set of 50** is ideal for individuals who enjoy creating a cozy and inviting atmosphere in their home or event space. Perfect for those who appreciate subtle fragrance and ambient lighting, this set is suitable for home decorators, event planners, and anyone looking to enhance relaxation or add a decorative touch to their surroundings.
@@ -131,12 +131,12 @@ The **Richland Tealight Candles** by Quick Candles feature a compact and elegant
 
 Additionally, the set of 50 ensures that users have an ample supply for multiple events or continuous home use. This quantity offers excellent value, especially for those who use tealights regularly. The lightweight and compact size make these candles easy to store and transport, while the consistent quality from the reputable brand Quick Candles guarantees reliable performance and safety.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002NUVYKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002NUVYKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002ON0A24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Purple Mulberry Scented Votive Candles And Clear Glass Votive Holders Set</a>
+## <a href="https://www.amazon.com/dp/B002ON0A24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Purple Mulberry Scented Votive Candles And Clear Glass Votive Holders Set</a>
 
 
-<a href="https://www.amazon.com/dp/B002ON0A24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 72 Purple Mulberry Scented Richland Votive Candles and 72 Clear Glass Eastland Votive Holders" src="https://m.media-amazon.com/images/I/31JTOtHgI9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002ON0A24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 72 Purple Mulberry Scented Richland Votive Candles and 72 Clear Glass Eastland Votive Holders" src="https://m.media-amazon.com/images/I/31JTOtHgI9L._SL500_.jpg"/></a>
 
 
 The **Set of 72 Purple Mulberry Scented Richland Votive Candles** paired with **72 Clear Glass Eastland Votive Holders** is ideal for individuals who love creating a cozy and inviting atmosphere in their homes or event spaces. Perfect for those who appreciate aromatic ambiance and elegant décor, this set is especially suited for event planners, home decorators, and anyone looking to add a fragrant touch to their living or gathering spaces.
@@ -159,12 +159,12 @@ This **set of 72 Purple Mulberry Scented Richland Votive Candles** with accompan
 
 Additionally, the compact size and consistent quality of these candles make them highly versatile for use in various locations such as dining tables, bathrooms, or outdoor patios. The bulk quantity is especially beneficial for event organizers or those who frequently use candles for decoration, ensuring long-lasting supply without frequent reorders. Overall, this set combines functionality, style, and aroma to elevate any space effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002ON0A24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002ON0A24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001D8QJXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
+## <a href="https://www.amazon.com/dp/B001D8QJXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B001D8QJXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Unscented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31Mq0l8Do4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001D8QJXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Unscented 10 Hour Burn Set of 72" src="https://m.media-amazon.com/images/I/31Mq0l8Do4L._SL500_.jpg"/></a>
 
 
 The **Richland® Votive Candles White Unscented 10 Hour Burn Set of 72** is ideal for individuals or businesses seeking reliable, long-lasting candles for events, home décor, or emergency use. Perfect for event planners, restaurants, or anyone who needs a large quantity of simple, clean-burning votive candles without fragrance, this set offers great value and consistent performance.
@@ -187,12 +187,12 @@ The **Richland® Votive Candles** are crafted by **Quick Candles**, ensuring dep
 
 These candles' long 10-hour burn time means users can enjoy extended illumination without frequent replacement, making them practical for both short-term events and longer-lasting ambiance. The pure white color enhances versatility, complementing a wide array of decorations and settings, while the bulk pack of 72 ensures you have plenty on hand for various occasions or emergencies.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001D8QJXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001D8QJXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001DNI9GU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Tealight Candles</a>
+## <a href="https://www.amazon.com/dp/B001DNI9GU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Tealight Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B001DNI9GU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Tealight Candles Ivory Clear Cup Vanilla Scented Set of 100" src="https://m.media-amazon.com/images/I/41A6BoTJwfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001DNI9GU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Tealight Candles Ivory Clear Cup Vanilla Scented Set of 100" src="https://m.media-amazon.com/images/I/41A6BoTJwfL._SL500_.jpg"/></a>
 
 
 The **Richland® Tealight Candles Ivory Clear Cup Vanilla Scented Set of 100** is ideal for individuals who love creating a warm and inviting atmosphere in their homes or events. Whether you are planning a cozy dinner, a relaxing bath, or decorating for a special occasion, these **vanilla scented tealight candles** offer a perfect blend of ambiance and fragrance. They are also great for businesses such as spas and restaurants looking to enhance their customer experience with subtle lighting and appealing scents.
@@ -214,12 +214,12 @@ The **Richland® Tealight Candles** are crafted by **Quick Candles**, ensuring q
 
 Beyond aesthetics, the gentle **vanilla scent** offers a calming and inviting atmosphere, ideal for relaxation or enhancing the mood during social events. This scent is subtle enough to avoid overpowering a room, making it suitable for sensitive environments like spas or bedrooms. Overall, this set of tealight candles combines practicality, style, and sensory appeal, making it a versatile choice for anyone looking to add warmth and fragrance to their surroundings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001DNI9GU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001DNI9GU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002ON03BC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 12 Orange Citrus Scented Richland Votive Candles And 12 Clear Glass Eastland Votive Holders</a>
+## <a href="https://www.amazon.com/dp/B002ON03BC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 12 Orange Citrus Scented Richland Votive Candles And 12 Clear Glass Eastland Votive Holders</a>
 
 
-<a href="https://www.amazon.com/dp/B002ON03BC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 12 Orange Citrus Scented Richland Votive Candles and 12 Clear Glass Eastland Votive Holders" src="https://m.media-amazon.com/images/I/31GdrHXg7kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002ON03BC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 12 Orange Citrus Scented Richland Votive Candles and 12 Clear Glass Eastland Votive Holders" src="https://m.media-amazon.com/images/I/31GdrHXg7kL._SL500_.jpg"/></a>
 
 
 Ideal for those who enjoy creating a warm and inviting atmosphere, the **Set of 12 Orange Citrus Scented Richland Votive Candles** paired with **12 Clear Glass Eastland Votive Holders** is perfect for homeowners, event planners, and anyone looking to enhance their space with a fresh, vibrant scent and elegant décor. This set is especially suited for individuals who appreciate quality candles with a refreshing citrus aroma and stylish presentation.
@@ -242,12 +242,12 @@ The **Richland votive candles** are expertly crafted to deliver a bright and zes
 
 By combining these two elements, this set offers both practicality and style. The high-quality wax ensures a clean burn with minimal residue, while the clear glass holders allow the rich orange color of the candles to shine through beautifully. Whether used individually or grouped together, this set provides a consistent and charming sensory experience, making it a valuable addition to any candle lover’s collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002ON03BC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002ON03BC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002N8JZBM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles White Unscented 10 Hour Burn Set Of 144</a>
+## <a href="https://www.amazon.com/dp/B002N8JZBM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Votive Candles White Unscented 10 Hour Burn Set Of 144</a>
 
 
-<a href="https://www.amazon.com/dp/B002N8JZBM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Unscented 10 Hour Burn Set of 144" src="https://m.media-amazon.com/images/I/31ha9W+K-QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002N8JZBM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Votive Candles White Unscented 10 Hour Burn Set of 144" src="https://m.media-amazon.com/images/I/31ha9W+K-QL._SL500_.jpg"/></a>
 
 
 The **Richland® Votive Candles White Unscented 10 Hour Burn Set of 144** is ideal for event planners, decorators, and homeowners who desire a versatile and reliable lighting option. These candles are perfect for creating a warm ambiance without overpowering scents, making them suitable for weddings, religious ceremonies, or everyday use. If you are looking for a cost-effective and long-lasting candle solution, this set is an excellent choice.
@@ -270,12 +270,12 @@ The **Richland® Votive Candles** boast a simple yet effective design with their
 
 This set of 144 candles offers exceptional value, especially for those who host multiple events or require large quantities of candles regularly. Their uniform dimensions allow for easy integration into various votive holders or decorative arrangements, creating an elegant and consistent look. The trusted brand backing guarantees that customers receive a quality product that meets safety and performance expectations, making these votive candles a practical and dependable choice for all lighting needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002N8JZBM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002N8JZBM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00KC5ODII?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Pillar Candles</a>
+## <a href="https://www.amazon.com/dp/B00KC5ODII?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Richland® Pillar Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B00KC5ODII?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Pillar Candles White Set of 30" src="https://m.media-amazon.com/images/I/4166rV3m9EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KC5ODII?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Richland® Pillar Candles White Set of 30" src="https://m.media-amazon.com/images/I/4166rV3m9EL._SL500_.jpg"/></a>
 
 
 The **Richland® Pillar Candles White Set of 30** is ideal for individuals who frequently host events, decorate their homes, or own businesses like restaurants and spas that benefit from ambient lighting. This set is perfect for those seeking a reliable, elegant, and versatile lighting solution that complements any décor style with its classic white color.
@@ -298,7 +298,7 @@ The **Richland® Pillar Candles White Set of 30** boasts a classic design with a
 
 Additionally, the convenience of having 30 candles in one set means users can stock up for extended use or multiple occasions without worrying about frequent repurchases. The weight and dimensions of these candles contribute to their robustness, ensuring they remain upright and stable when placed on various surfaces. Overall, this set offers excellent value and functionality for anyone looking to add warmth and ambiance to their environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00KC5ODII?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00KC5ODII?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

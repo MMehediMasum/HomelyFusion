@@ -23,10 +23,10 @@ Whether you want blackout panels or light-filtering sheers, these choices suit v
 
 
 
-## <a href="https://www.amazon.com/dp/B08Y89MQNC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bonzer Waterproof Outdoor Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B08Y89MQNC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bonzer Waterproof Outdoor Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B08Y89MQNC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BONZER Waterproof Outdoor Curtains for Patio, Premium Thick Privacy Weatherproof Grommet Outside Curtains for Porch, Pergola, Cabana, 1 Panel, 54W x 84L inch, Cream" src="https://m.media-amazon.com/images/I/51OALkXb8lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Y89MQNC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BONZER Waterproof Outdoor Curtains for Patio, Premium Thick Privacy Weatherproof Grommet Outside Curtains for Porch, Pergola, Cabana, 1 Panel, 54W x 84L inch, Cream" src="https://m.media-amazon.com/images/I/51OALkXb8lL._SL500_.jpg"/></a>
 
 
 The **BONZER Waterproof Outdoor Curtains** are perfect for homeowners and outdoor enthusiasts looking to enhance their **patio, porch, pergola, or cabana** with a stylish yet functional solution. Ideal for those who want to add **privacy**, protection from the elements, and a touch of elegance to their outdoor living spaces, these curtains cater to individuals seeking durability and aesthetic appeal in one package.
@@ -49,10 +49,10 @@ The **BONZER Waterproof Outdoor Curtains** feature a durable and thick fabric th
 
 Beyond protection, these curtains add a decorative touch with their elegant **cream color**, which blends seamlessly with natural surroundings and diverse outdoor furniture styles. The fabric’s texture allows for gentle airflow and sunlight filtration, maintaining a comfortable atmosphere while shielding you from harsh weather elements. Whether you want to block wind, reduce glare, or create a private retreat, the **BONZER Outdoor Curtains** offer a versatile solution that elevates any outdoor living area.
 
-## <a href="https://www.amazon.com/dp/B072WPZPYJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Outdoor Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B072WPZPYJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Outdoor Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B072WPZPYJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Outdoor Curtains for Patio - Blackout Waterproof Outside Curtains for Porch Pavilion Gazebo Weatherproof Wind Resistant, 1 Panel, 52 inches Wide x 84 inches Long, Biscotti Beige" src="https://m.media-amazon.com/images/I/51MeDm9A5jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072WPZPYJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Outdoor Curtains for Patio - Blackout Waterproof Outside Curtains for Porch Pavilion Gazebo Weatherproof Wind Resistant, 1 Panel, 52 inches Wide x 84 inches Long, Biscotti Beige" src="https://m.media-amazon.com/images/I/51MeDm9A5jL._SL500_.jpg"/></a>
 
 
 The **RYB HOME Outdoor Curtains for Patio** are perfect for homeowners and outdoor enthusiasts looking to enhance their porch, pavilion, or gazebo with stylish and functional window treatments. Ideal for those who want to create a private, comfortable, and weather-resistant outdoor living space, these curtains provide excellent protection from sun, wind, and rain while maintaining a chic appearance with their **Biscotti Beige** color. If you want to improve your outdoor area's ambiance and durability, this product is a great choice.
@@ -74,10 +74,10 @@ The **RYB HOME Outdoor Curtains** feature a **blackout waterproof fabric** that 
 
 Designed with both functionality and style in mind, these curtains offer a sleek and neutral **Biscotti Beige** shade that blends seamlessly with most outdoor themes. Their dimensions of nearly **52 inches wide and 84 inches long** provide ample coverage, allowing users to create a cozy and private retreat. Lightweight and easy to install, the curtains make upgrading your outdoor area hassle-free while enhancing both privacy and protection.
 
-## <a href="https://www.amazon.com/dp/B09FSGVQF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Weighted Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B09FSGVQF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Weighted Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09FSGVQF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN 2 Panels Weighted Blackout Curtains Patio Waterproof Outdoor Curtains, Thermal Insulated Top &amp; Bottom Grommet &amp; Back Tab Wind-Break Drapes Privacy for Pergola, W52 by L84, Tan-Khaki" src="https://m.media-amazon.com/images/I/41iQQaLvAgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09FSGVQF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN 2 Panels Weighted Blackout Curtains Patio Waterproof Outdoor Curtains, Thermal Insulated Top &amp; Bottom Grommet &amp; Back Tab Wind-Break Drapes Privacy for Pergola, W52 by L84, Tan-Khaki" src="https://m.media-amazon.com/images/I/41iQQaLvAgL._SL500_.jpg"/></a>
 
 
 The **NICETOWN 2 Panels Weighted Blackout Curtains** are perfect for homeowners or renters who want to enhance their outdoor living spaces with stylish and functional window treatments. Ideal for those with patios, pergolas, or outdoor seating areas, these curtains provide excellent **privacy**, **thermal insulation**, and protection from wind and weather. If you are looking for durable, waterproof, and aesthetically pleasing outdoor curtains, this product is designed for you.
@@ -100,10 +100,10 @@ The **NICETOWN Weighted Blackout Curtains** feature a high-quality waterproof fa
 
 Installation is flexible with both **top grommets** and **back tabs**, allowing users to hang the curtains on rods or hooks depending on their outdoor setup. The tan-khaki color is neutral yet stylish, blending seamlessly with natural surroundings or outdoor furniture. These curtains not only enhance the look of your patio or pergola but also provide functional benefits like blocking UV rays, reducing glare, and offering a cozy, private space outdoors.
 
-## <a href="https://www.amazon.com/dp/B09G118P5L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Easy-going Outdoor Curtains</a>
+## <a href="https://www.amazon.com/dp/B09G118P5L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Easy-going Outdoor Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09G118P5L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Easy-Going Outdoor Curtains Waterproof Windproof Weatherproof Curtain for Patio, Cabana, Porch, Pergola and Gazebo, Grommet Top and Tab Bottom Drape, 1panel, 54x84 inch, Beige" src="https://m.media-amazon.com/images/I/51lew8ORAOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09G118P5L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Easy-Going Outdoor Curtains Waterproof Windproof Weatherproof Curtain for Patio, Cabana, Porch, Pergola and Gazebo, Grommet Top and Tab Bottom Drape, 1panel, 54x84 inch, Beige" src="https://m.media-amazon.com/images/I/51lew8ORAOL._SL500_.jpg"/></a>
 
 
 The **Easy-Going Outdoor Curtains** are ideal for homeowners and outdoor enthusiasts looking to enhance their **patio, cabana, porch, pergola, or gazebo** spaces. If you want a versatile and durable solution to protect against weather elements while adding a stylish touch to your outdoor area, this **waterproof, windproof, and weatherproof curtain** is a perfect choice.
@@ -126,10 +126,10 @@ The **Easy-Going Outdoor Curtains** feature a **durable, waterproof fabric** tha
 
 The curtain’s **grommet top and tab bottom drape** enhance both functionality and style. The grommet top allows for smooth sliding and easy hanging on rods, while the tab bottom ensures the curtain stays securely in place. This combination offers users convenience in setup and reliable performance, making it an excellent addition to any outdoor living space seeking protection and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0B5WDLQYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sun Zero Valencia 2-pack Cabana Stripe Curtain Panel Pair</a>
+## <a href="https://www.amazon.com/dp/B0B5WDLQYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sun Zero Valencia 2-pack Cabana Stripe Curtain Panel Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5WDLQYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sun Zero Valencia 2-Pack Cabana Stripe Indoor/Outdoor UV Protectant Energy Efficient Grommet Curtain Panel Pair" src="https://m.media-amazon.com/images/I/61OjvSMrPsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5WDLQYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sun Zero Valencia 2-Pack Cabana Stripe Indoor/Outdoor UV Protectant Energy Efficient Grommet Curtain Panel Pair" src="https://m.media-amazon.com/images/I/61OjvSMrPsL._SL500_.jpg"/></a>
 
 
 The **Sun Zero Valencia 2-Pack Cabana Stripe Indoor/Outdoor UV Protectant Energy Efficient Grommet Curtain Panel Pair** is ideal for homeowners and renters looking to enhance their living spaces with stylish and functional window treatments. Perfect for those who want to combine aesthetic appeal with practical benefits such as UV protection and energy efficiency, these curtain panels suit both indoor and outdoor environments, making them a versatile choice for patios, sunrooms, or living rooms.
@@ -152,10 +152,10 @@ The **Sun Zero Valencia curtain panels** feature a durable and lightweight fabri
 
 Designed with convenience in mind, the grommet top allows for easy installation and smooth movement along curtain rods. This makes adjusting natural light and privacy effortless, whether you use them indoors in living rooms or outdoors on patios and porches. Their dual functionality as indoor/outdoor curtains ensures long-lasting performance despite exposure to the elements, making them a smart investment for enhancing any space's comfort and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B06X158B7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Outdoor Curtains For Patio Waterproof Blackout Gazebo Curtain For Pergola Porch</a>
+## <a href="https://www.amazon.com/dp/B06X158B7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Outdoor Curtains For Patio Waterproof Blackout Gazebo Curtain For Pergola Porch</a>
 
 
-<a href="https://www.amazon.com/dp/B06X158B7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 1="" 52"="" alt="NICETOWN Outdoor Curtains for Patio Waterproof 95" beige"="" biscotti="" blackout="" curtain="" drape,="" for="" gazebo="" l,="" outside="" panel,="" pergola="" porch="" privacy="" protection="" src="https://m.media-amazon.com/images/I/51QrlVaZieL._SL500_.jpg" uv="" weatherproof,="" wide,=""/></a>
+<a href="https://www.amazon.com/dp/B06X158B7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 1="" 52"="" alt="NICETOWN Outdoor Curtains for Patio Waterproof 95" beige"="" biscotti="" blackout="" curtain="" drape,="" for="" gazebo="" l,="" outside="" panel,="" pergola="" porch="" privacy="" protection="" src="https://m.media-amazon.com/images/I/51QrlVaZieL._SL500_.jpg" uv="" weatherproof,="" wide,=""/></a>
 
 
 The **NICETOWN Outdoor Curtains for Patio** are ideal for homeowners and outdoor enthusiasts looking to enhance their **patio, pergola, or porch** spaces with durable, stylish, and functional window treatments. If you want to add privacy, block out harsh sunlight, and protect your outdoor area from weather elements, this **waterproof blackout gazebo curtain** in **Biscotti Beige** is an excellent choice. It is perfect for those who seek both aesthetic appeal and practical benefits in their outdoor drapes.
@@ -177,10 +177,10 @@ The **NICETOWN Outdoor Curtains** feature a robust **waterproof fabric** that en
 
 Additionally, the **weatherproof and UV-resistant** properties extend the durability of these curtains, ensuring they maintain their functionality and appearance over time. The elegant **Biscotti Beige** shade blends seamlessly with natural outdoor settings while adding a touch of sophistication. Lightweight and easy to hang, these curtains are a practical upgrade to any outdoor living area, providing comfort, style, and protection all year round.
 
-## <a href="https://www.amazon.com/dp/B0BYMQG7XX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holidayideas Outdoor Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B0BYMQG7XX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holidayideas Outdoor Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYMQG7XX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HolidayIdeas Outdoor Curtains for Patio Waterproof, 4 Panels - 54 x 84 Inch - Privacy Protection &amp; Light Filtering Curtains Cream Grommet Outside Curtains for Porch, Gazebo, Pergola, Backyard" src="https://m.media-amazon.com/images/I/51s3jdLPEEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYMQG7XX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HolidayIdeas Outdoor Curtains for Patio Waterproof, 4 Panels - 54 x 84 Inch - Privacy Protection &amp; Light Filtering Curtains Cream Grommet Outside Curtains for Porch, Gazebo, Pergola, Backyard" src="https://m.media-amazon.com/images/I/51s3jdLPEEL._SL500_.jpg"/></a>
 
 
 The **HolidayIdeas Outdoor Curtains for Patio** are perfect for homeowners and outdoor enthusiasts looking to enhance their **porch, gazebo, pergola**, or **backyard** spaces. Ideal for those who desire a blend of **privacy protection** and **light filtering** while enjoying the outdoors, these curtains offer a stylish and functional solution for creating a cozy and private outdoor retreat.
@@ -202,10 +202,10 @@ The **HolidayIdeas Outdoor Curtains** stand out due to their **waterproof fabric
 
 Designed with **grommets**, these curtains are simple to hang and slide smoothly along curtain rods, making them practical for frequent adjustments based on weather or privacy needs. Additionally, the fabric's ability to filter light ensures that users can enjoy natural daylight while reducing harsh glare and maintaining privacy. This combination of style, functionality, and protection makes these curtains a valuable addition for anyone looking to upgrade their outdoor living spaces.
 
-## <a href="https://www.amazon.com/dp/B0BQQ4GQ7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spacedresser Waterproof Outdoor Sheer Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B0BQQ4GQ7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spacedresser Waterproof Outdoor Sheer Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQQ4GQ7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SpaceDresser Waterproof Outdoor Sheer Curtains for Patio - 2 Panels Rod Pocket Indoor Voile Sheer Curtain for Living Room,52W x 84L inch, White" src="https://m.media-amazon.com/images/I/51zcrkpP9-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQQ4GQ7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SpaceDresser Waterproof Outdoor Sheer Curtains for Patio - 2 Panels Rod Pocket Indoor Voile Sheer Curtain for Living Room,52W x 84L inch, White" src="https://m.media-amazon.com/images/I/51zcrkpP9-L._SL500_.jpg"/></a>
 
 
 The **SpaceDresser Waterproof Outdoor Sheer Curtains for Patio** are ideal for homeowners and outdoor enthusiasts looking to enhance their patio or living room with stylish yet functional window treatments. These curtains are perfect for those who want a blend of elegance and protection, especially in areas exposed to outdoor elements. If you desire a lightweight, sheer fabric that offers privacy without sacrificing natural light, these curtains are the perfect fit.
@@ -229,10 +229,10 @@ The **SpaceDresser Waterproof Outdoor Sheer Curtains** boast a unique combinatio
 
 Additionally, the spacious dimensions of 52W x 84L inches offer ample coverage, suitable for various window and door sizes. The easy-to-use rod pocket design allows for quick setup and smooth operation, making them user-friendly for any homeowner. Overall, these curtains not only enhance the aesthetic appeal of your space but also provide functional benefits like privacy, weather resistance, and light diffusion, making them a valuable addition to your home decor.
 
-## <a href="https://www.amazon.com/dp/B093CWBHLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown 2 Panels Outdoor Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B093CWBHLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown 2 Panels Outdoor Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B093CWBHLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="NICETOWN 2 Panels Outdoor Curtains for Patio Waterproof 84" beige,="" biscotti="" blocking="" detachable="" drapes="" for="" insulated="" l84"="" long,="" pergola,="" porch="" privacy="" protection="" src="https://m.media-amazon.com/images/I/41qOjFMEAsL._SL500_.jpg" sticky="" sun="" tab="" thermal="" top="" uv="" w52="" x=""/></a>
+<a href="https://www.amazon.com/dp/B093CWBHLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="NICETOWN 2 Panels Outdoor Curtains for Patio Waterproof 84" beige,="" biscotti="" blocking="" detachable="" drapes="" for="" insulated="" l84"="" long,="" pergola,="" porch="" privacy="" protection="" src="https://m.media-amazon.com/images/I/41qOjFMEAsL._SL500_.jpg" sticky="" sun="" tab="" thermal="" top="" uv="" w52="" x=""/></a>
 
 
 Ideal for homeowners and outdoor enthusiasts looking to enhance their patio or porch space, the **NICETOWN 2 Panels Outdoor Curtains** offer a perfect blend of style and functionality. These curtains are especially suitable for those who want to add privacy, block harmful UV rays, and protect their outdoor area from weather elements while maintaining an elegant look with the **Biscotti Beige** color.
@@ -255,10 +255,10 @@ The **NICETOWN Outdoor Curtains** are crafted with high-quality waterproof fabri
 
 Installation is straightforward thanks to the innovative detachable sticky tab top, which eliminates the need for complicated hardware. This feature allows users to easily hang or remove the curtains as needed, providing flexibility and convenience. Additionally, the curtains’ ability to block UV rays protects both the users and outdoor furniture from sun damage, making these panels a practical and stylish investment for enhancing outdoor living areas.
 
-## <a href="https://www.amazon.com/dp/B0DP72FRSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holidayideas Grommet Outdoor Curtains For Patio</a>
+## <a href="https://www.amazon.com/dp/B0DP72FRSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holidayideas Grommet Outdoor Curtains For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP72FRSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HolidayIdeas Grommet Outdoor Curtains for Patio Waterproof 8 Pcs All Weather Balcony Outside Curtain Drapes for Apartments, Gazebo, Pergolas, Porch, 54x84 Inch, Cream" src="https://m.media-amazon.com/images/I/51reOTDJ+eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP72FRSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HolidayIdeas Grommet Outdoor Curtains for Patio Waterproof 8 Pcs All Weather Balcony Outside Curtain Drapes for Apartments, Gazebo, Pergolas, Porch, 54x84 Inch, Cream" src="https://m.media-amazon.com/images/I/51reOTDJ+eL._SL500_.jpg"/></a>
 
 
 The **HolidayIdeas Grommet Outdoor Curtains** are perfect for homeowners and apartment dwellers looking to enhance their outdoor living spaces such as patios, balconies, gazebos, pergolas, or porches. Ideal for those who want a stylish yet functional solution to protect against weather elements while adding a touch of elegance to their outdoor décor. If you seek durable, waterproof curtains that can withstand all weather conditions, these cream-colored drapes are an excellent choice.

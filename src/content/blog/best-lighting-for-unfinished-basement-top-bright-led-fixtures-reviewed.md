@@ -23,10 +23,10 @@ Bright daylight bulbs make tasks easier, while warm lights create a cozy feel. F
 
 
 
-## <a href="https://www.amazon.com/dp/B0B21GPLNH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tanbaby 2 Pack Led Garage Lights</a>
+## <a href="https://www.amazon.com/dp/B0B21GPLNH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tanbaby 2 Pack Led Garage Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0B21GPLNH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TANBABY 2 Pack LED Garage Lights, 150W Deformable Best Ceiling Shop Lights, 15000LM LED Light 6500K Garage Lighting with 6+1 Adjustable Panels Bulb for Basement" src="https://m.media-amazon.com/images/I/41pFrRyd3NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B21GPLNH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TANBABY 2 Pack LED Garage Lights, 150W Deformable Best Ceiling Shop Lights, 15000LM LED Light 6500K Garage Lighting with 6+1 Adjustable Panels Bulb for Basement" src="https://m.media-amazon.com/images/I/41pFrRyd3NL._SL500_.jpg"/></a>
 
 
 The **TANBABY 2 Pack LED Garage Lights** are ideal for homeowners, mechanics, and DIY enthusiasts who need powerful and adjustable lighting solutions for their **garage**, **basement**, or workshop areas. If you’re looking for a bright, energy-efficient light fixture that can illuminate large spaces with customizable panels, this product is perfect for you.
@@ -49,10 +49,10 @@ The **TANBABY LED Garage Lights** feature a robust 150W output and deliver an im
 
 Additionally, the lights emit a crisp 6500K daylight color temperature, which mimics natural light and reduces eye strain during prolonged use. The sturdy build and compact dimensions make these lights easy to mount on ceilings without taking up much space. Overall, the TANBABY LED Garage Lights combine power, efficiency, and adaptability to create a highly functional lighting solution for various indoor environments.
 
-## <a href="https://www.amazon.com/dp/B08KG5T8XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ensenior 12 Pack 6 Inch Led Recessed Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B08KG5T8XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ensenior 12 Pack 6 Inch Led Recessed Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08KG5T8XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ensenior 12 Pack 6 Inch LED Recessed Ceiling Light, Dimmable, 2700K-5000K 5CCT, 1200LM 12W 120V, High Brightness Canless Wafer Downlight - ETL&amp;FCC&amp;IC" src="https://m.media-amazon.com/images/I/412RKaSLtDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08KG5T8XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ensenior 12 Pack 6 Inch LED Recessed Ceiling Light, Dimmable, 2700K-5000K 5CCT, 1200LM 12W 120V, High Brightness Canless Wafer Downlight - ETL&amp;FCC&amp;IC" src="https://m.media-amazon.com/images/I/412RKaSLtDL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners, renovators, and interior designers seeking versatile and energy-efficient lighting solutions, the **Ensenior 12 Pack 6 Inch LED Recessed Ceiling Light** is perfect for those who want customizable brightness and color temperature in their living or working spaces. This product is especially suitable for anyone looking to upgrade their lighting with a sleek, canless design that fits seamlessly into modern ceilings.
@@ -74,10 +74,10 @@ The **Ensenior 6 Inch LED Recessed Ceiling Light** boasts a slim profile with di
 
 Energy efficiency and brightness are key highlights of this lighting solution. Delivering a powerful **1200 lumens** output while consuming only **12 watts**, it significantly reduces electricity costs compared to traditional lighting. Additionally, the dimmable feature provides excellent control over light intensity, enabling users to create the perfect atmosphere for different occasions, whether it’s relaxing evenings or focused tasks.
 
-## <a href="https://www.amazon.com/dp/B0BFLNYPDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Polarpra Garage Lights - 2pack</a>
+## <a href="https://www.amazon.com/dp/B0BFLNYPDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Polarpra Garage Lights - 2pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFLNYPDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="POLARPRA Garage Lights - 2Pack Super Bright 32000LM LED Garage Ceiling Light 6500K LED Shop Light w/ 6 Deformable Panels Screw in E26/E27 Socket Light Bulbs for Workshop Storage Warehouse Attic" src="https://m.media-amazon.com/images/I/51N8YDnrzNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFLNYPDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="POLARPRA Garage Lights - 2Pack Super Bright 32000LM LED Garage Ceiling Light 6500K LED Shop Light w/ 6 Deformable Panels Screw in E26/E27 Socket Light Bulbs for Workshop Storage Warehouse Attic" src="https://m.media-amazon.com/images/I/51N8YDnrzNL._SL500_.jpg"/></a>
 
 
 The **POLARPRA Garage Lights - 2Pack Super Bright 32000LM LED Garage Ceiling Light** is ideal for homeowners, workshop owners, and anyone looking to improve lighting in spaces like garages, storage areas, warehouses, or attics. If you need bright, energy-efficient, and adjustable lighting solutions that easily fit into standard E26/E27 sockets, this product is a perfect choice.
@@ -100,10 +100,10 @@ The **POLARPRA Garage Lights** boast a powerful 32000 lumens brightness spread a
 
 Installation is straightforward thanks to the standard **E26/E27 screw-in socket** compatibility, allowing users to replace existing bulbs without complicated wiring or fixtures. The energy-efficient LED technology not only reduces electricity consumption but also provides long-lasting performance, minimizing maintenance. This makes the POLARPRA garage lights an excellent investment for anyone seeking reliable, bright, and adjustable lighting solutions in utility spaces.
 
-## <a href="https://www.amazon.com/dp/B08YWQ8PZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tudoccy Led Garage Light 4 Pack</a>
+## <a href="https://www.amazon.com/dp/B08YWQ8PZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tudoccy Led Garage Light 4 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B08YWQ8PZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tudoccy LED Garage Light 4 Pack, 120W Ultra Bright LED Shop Light with 4 Adjustable Panels, 12000LM E26/E27 Base Deformable Ceiling Fixtures for Garage, Workshop, Attic, Basement, Barn (Black-4 Pack)" src="https://m.media-amazon.com/images/I/51tRJIRm9yS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08YWQ8PZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tudoccy LED Garage Light 4 Pack, 120W Ultra Bright LED Shop Light with 4 Adjustable Panels, 12000LM E26/E27 Base Deformable Ceiling Fixtures for Garage, Workshop, Attic, Basement, Barn (Black-4 Pack)" src="https://m.media-amazon.com/images/I/51tRJIRm9yS._SL500_.jpg"/></a>
 
 
 The **Tudoccy LED Garage Light 4 Pack** is ideal for homeowners, DIY enthusiasts, and professionals who need powerful and versatile lighting solutions for their **garage**, **workshop**, **attic**, **basement**, or **barn**. If you want a bright, energy-efficient lighting setup that can be easily adjusted to cover all angles, this product is perfect for you.
@@ -127,10 +127,10 @@ The **Tudoccy LED Garage Light 4 Pack** features four adjustable panels that can
 
 Installation is straightforward thanks to the compatibility with standard **E26/E27 bases**, making it a convenient upgrade for many existing fixtures. The robust construction and sleek black finish provide not only durability but also a modern look that fits seamlessly into various environments. Overall, this lighting solution offers excellent value for those needing bright, adjustable, and reliable illumination in their work or storage areas.
 
-## <a href="https://www.amazon.com/dp/B0BGBH5Y7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adiding Led Garage Light 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0BGBH5Y7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adiding Led Garage Light 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGBH5Y7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adiding LED Garage Light 2 Pack, Super Bright 20000Lm Basement Ceiling Lighting w/ 6+1 Deformable Panels Screw in E26 Bulb Base Socket for Workshop Attic Warehouse Utility Laundry Storage Area" src="https://m.media-amazon.com/images/I/41JDRFw7KeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGBH5Y7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adiding LED Garage Light 2 Pack, Super Bright 20000Lm Basement Ceiling Lighting w/ 6+1 Deformable Panels Screw in E26 Bulb Base Socket for Workshop Attic Warehouse Utility Laundry Storage Area" src="https://m.media-amazon.com/images/I/41JDRFw7KeL._SL500_.jpg"/></a>
 
 
 The **Adiding LED Garage Light 2 Pack** is ideal for homeowners, workshop owners, and anyone needing powerful, energy-efficient lighting in spaces like basements, garages, attics, or storage areas. If you require bright, adjustable illumination to enhance visibility and safety in utility or work environments, this lighting solution is perfect for you.
@@ -153,10 +153,10 @@ The **Adiding LED Garage Light** features six deformable panels plus an addition
 
 With a powerful output of **20000 lumens**, this lighting set delivers superior brightness compared to traditional bulbs, improving safety and convenience in utility spaces. The incorporation of an **E26 screw base** ensures compatibility with most existing fixtures, making installation hassle-free. Additionally, the LED design guarantees long-lasting performance while consuming less energy, contributing to cost savings over time.
 
-## <a href="https://www.amazon.com/dp/B0897JC95G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kernowo Led Garage Lights</a>
+## <a href="https://www.amazon.com/dp/B0897JC95G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kernowo Led Garage Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0897JC95G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KERNOWO LED Garage Lights, 140W 18500 Lumens Garage Lighting, 6000K Daylight with Deformable Three Panel Ceiling Light Fixture E26/E27 Triple Glow LED Shop Light for Basement Workshop Warehouse" src="https://m.media-amazon.com/images/I/51VRkXRByoS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0897JC95G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KERNOWO LED Garage Lights, 140W 18500 Lumens Garage Lighting, 6000K Daylight with Deformable Three Panel Ceiling Light Fixture E26/E27 Triple Glow LED Shop Light for Basement Workshop Warehouse" src="https://m.media-amazon.com/images/I/51VRkXRByoS._SL500_.jpg"/></a>
 
 
 The **KERNOWO LED Garage Lights** are ideal for homeowners, workshop owners, and warehouse managers seeking bright, efficient, and versatile lighting solutions. If you need powerful illumination to brighten large spaces such as garages, basements, or industrial areas, this **140W 18500 Lumens** fixture with a **6000K daylight** color temperature is designed for you. Its deformable three-panel design and compatibility with standard **E26/E27 sockets** make it a perfect upgrade for anyone wanting enhanced visibility and energy savings.
@@ -179,10 +179,10 @@ The **KERNOWO LED Garage Lights** feature a deformable triple-panel design that 
 
 Additionally, the **6000K daylight** color temperature provides crisp and natural light that enhances visibility and reduces eye strain, making it easier to work on detailed projects or navigate large storage areas. Installation is straightforward thanks to the standard **E26/E27 socket compatibility**, enabling quick replacement of existing fixtures without additional hardware. Overall, this lighting fixture is a smart investment for anyone looking to improve lighting quality and energy efficiency in garages, basements, workshops, or warehouses.
 
-## <a href="https://www.amazon.com/dp/B095YSRLVT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2 Pack Led 120w Warm Light Ceiling Fixtures</a>
+## <a href="https://www.amazon.com/dp/B095YSRLVT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2 Pack Led 120w Warm Light Ceiling Fixtures</a>
 
 
-<a href="https://www.amazon.com/dp/B095YSRLVT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pack LED 120W Warm Light Ceiling Fixtures - Basement Light, 3000K Deformable Garage &amp; Shop LED Light Bulb for Workshop, Warehouse, Barn" src="https://m.media-amazon.com/images/I/51biOSo6eVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095YSRLVT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pack LED 120W Warm Light Ceiling Fixtures - Basement Light, 3000K Deformable Garage &amp; Shop LED Light Bulb for Workshop, Warehouse, Barn" src="https://m.media-amazon.com/images/I/51biOSo6eVL._SL500_.jpg"/></a>
 
 
 The **2 Pack LED 120W Warm Light Ceiling Fixtures** are ideal for homeowners and professionals looking to brighten up dim spaces such as basements, garages, workshops, or warehouses. If you need a durable, energy-efficient lighting solution that offers warm, inviting illumination at 3000K, this product is perfect for you. It is especially suited for those who value adjustable lighting angles and robust build quality in their work or storage areas.
@@ -204,10 +204,10 @@ These **LED ceiling fixtures** measure 5.2 inches in height, 6.81 inches in widt
 
 Manufactured by **Amiluo**, these fixtures combine quality and functionality. Their energy-efficient LEDs help reduce power consumption, making them an eco-friendly choice without compromising on brightness. The sturdy build ensures the lights withstand the rigors of industrial or home use, providing a reliable lighting solution for years. Overall, these fixtures enhance productivity and safety by delivering consistent, warm illumination tailored to various indoor applications.
 
-## <a href="https://www.amazon.com/dp/B07G2Q4VZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Barrina Led Shop Lights</a>
+## <a href="https://www.amazon.com/dp/B07G2Q4VZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Barrina Led Shop Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B07G2Q4VZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Barrina LED Shop Lights, 40W 5500LM 5000K, 4FT Integrated Fixture, V Shape,T8 Light Tube, Daylight White, Clear Cover, High Output, LED Shop Lights for Garage Warehouse Workshop Basement (Pack of 6)" src="https://m.media-amazon.com/images/I/51MPf0rAt0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G2Q4VZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Barrina LED Shop Lights, 40W 5500LM 5000K, 4FT Integrated Fixture, V Shape,T8 Light Tube, Daylight White, Clear Cover, High Output, LED Shop Lights for Garage Warehouse Workshop Basement (Pack of 6)" src="https://m.media-amazon.com/images/I/51MPf0rAt0L._SL500_.jpg"/></a>
 
 
 The **Barrina LED Shop Lights** are ideal for homeowners, mechanics, and workshop professionals seeking bright, energy-efficient lighting solutions for their **garage, warehouse, workshop**, or **basement**. If you need reliable and high-output illumination that enhances visibility and productivity in large workspaces, this pack of six **4FT Integrated Fixture V Shape T8 Light Tubes** is the perfect choice.
@@ -230,10 +230,10 @@ The **Barrina LED Shop Lights** feature a robust **V shape T8 light tube** desig
 
 With a **5000K daylight white** color temperature, these LED lights offer a natural and vibrant light quality that closely mimics daylight, ideal for tasks requiring true color recognition. Their slim and lightweight dimensions allow for versatile placement, and the energy-efficient **40W power consumption** helps lower utility bills without sacrificing brightness. Overall, these shop lights are a smart investment for those looking to upgrade their lighting with high output, durability, and ease of use.
 
-## <a href="https://www.amazon.com/dp/B0CJBZ6H67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xinghuanlit Garage Light 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0CJBZ6H67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xinghuanlit Garage Light 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJBZ6H67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XINGHUANLIT Garage Light 2 Pack - 200W 20000LM Garage Lights Ceiling LED 6500K with 6+1 Deformable Panels, Screw in E26/E27 Bulb Socket LED Shop Lights for Workshop Barn Basement Gym Bay Lighting" src="https://m.media-amazon.com/images/I/41dxmzUVdkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJBZ6H67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XINGHUANLIT Garage Light 2 Pack - 200W 20000LM Garage Lights Ceiling LED 6500K with 6+1 Deformable Panels, Screw in E26/E27 Bulb Socket LED Shop Lights for Workshop Barn Basement Gym Bay Lighting" src="https://m.media-amazon.com/images/I/41dxmzUVdkL._SL500_.jpg"/></a>
 
 
 The **XINGHUANLIT Garage Light 2 Pack** is ideal for homeowners, workshop owners, and gym enthusiasts who need powerful and versatile lighting solutions. If you are looking to brighten up your **garage, basement, barn, or workshop** with efficient and adjustable LED lighting, this product is perfect for you. Its high lumen output and flexible design make it suitable for anyone wanting to improve visibility in large or dimly lit spaces.
@@ -256,10 +256,10 @@ The **XINGHUANLIT Garage Light** boasts impressive features such as a high watta
 
 Additionally, the convenience of a screw-in **E26/E27 bulb socket** means installation is straightforward and compatible with most standard fixtures. This means you don’t need special tools or professional assistance to set it up. The sturdy black design not only looks modern but is also built to last, providing reliable lighting in demanding environments like barns, gyms, or basements. Overall, this product combines power, flexibility, and user-friendliness, making it a top choice for anyone seeking superior LED lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B07KQL4VLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lunabode Led 7.5" Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B07KQL4VLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lunabode Led 7.5" Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B07KQL4VLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (120w="" -="" 120v,="" 16.5w="" 2700k="" 4="" 6"="" alt="Lunabode LED 7.5" bedroom="" ceiling="" eq),="" fixture="" fixture"="" flush="" for="" i="" j-box="" led="" light="" lighting="" lights="" location="" mount="" porch="" src="https://m.media-amazon.com/images/I/21FsO-8h1kL._SL500_.jpg" wet="" |=""/></a>
+<a href="https://www.amazon.com/dp/B07KQL4VLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (120w="" -="" 120v,="" 16.5w="" 2700k="" 4="" 6"="" alt="Lunabode LED 7.5" bedroom="" ceiling="" eq),="" fixture="" fixture"="" flush="" for="" i="" j-box="" led="" light="" lighting="" lights="" location="" mount="" porch="" src="https://m.media-amazon.com/images/I/21FsO-8h1kL._SL500_.jpg" wet="" |=""/></a>
 
 
 The **Lunabode LED 7.5" Ceiling Lighting Fixture** is ideal for homeowners or renters looking to upgrade their **bedroom**, **porch**, or any indoor/outdoor wet location with a sleek, energy-efficient lighting solution. Those who want a combination of **modern design**, **warm white illumination**, and a compact flush mount fixture will find this product particularly suitable. It’s perfect for individuals seeking a durable and low-maintenance **LED light fixture** that fits standard **4/6" J-boxes**.

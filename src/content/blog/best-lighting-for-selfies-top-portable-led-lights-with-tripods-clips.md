@@ -20,10 +20,10 @@ Ring lights offer soft, balanced illumination, ideal for video calls, makeup, or
 
 
 
-## <a href="https://www.amazon.com/dp/B0C2C9QT91?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Altson 60 Led Portable Selfie Light</a>
+## <a href="https://www.amazon.com/dp/B0C2C9QT91?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Altson 60 Led Portable Selfie Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2C9QT91?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ALTSON 60 LED Portable Selfie Light Video Conference Lighting with Clip &amp; Camera Tripod Adapter Rechargeable 2200mAh CRI 97+, 3 Light Modes for Phone iPhone Webcam Laptop Photo Makeup" src="https://m.media-amazon.com/images/I/41DFP3dJ-xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2C9QT91?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ALTSON 60 LED Portable Selfie Light Video Conference Lighting with Clip &amp; Camera Tripod Adapter Rechargeable 2200mAh CRI 97+, 3 Light Modes for Phone iPhone Webcam Laptop Photo Makeup" src="https://m.media-amazon.com/images/I/41DFP3dJ-xL._SL500_.jpg"/></a>
 
 
 The **ALTSON 60 LED Portable Selfie Light** is perfect for content creators, remote workers, and makeup enthusiasts who need high-quality, adjustable lighting on the go. Whether you’re attending video conferences, shooting selfies, or applying makeup, this compact and rechargeable light offers versatility and ease of use for anyone looking to enhance their visual presentation.
@@ -45,10 +45,10 @@ The **ALTSON 60 LED Portable Selfie Light** stands out with its excellent balanc
 
 Featuring a remarkable **CRI of 97+**, this light produces vibrant and natural colors, which is essential for flawless makeup looks or accurate video presentations. The three light modes offer flexibility to adjust brightness and warmth, catering to different lighting needs and enhancing user comfort. Overall, the ALTSON selfie light is a valuable tool for anyone seeking reliable, portable, and high-quality lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B08JPCSDMP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weilisi 10" Ring Light With Stand</a>
+## <a href="https://www.amazon.com/dp/B08JPCSDMP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weilisi 10" Ring Light With Stand</a>
 
 
-<a href="https://www.amazon.com/dp/B08JPCSDMP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 72''="" alt="Weilisi 10" android,youtube,="" color="" dimmable="" for="" holder,38="" iphone="" led="" light="" makeup,tik="" modes="" phone="" ring="" selfie="" speed="" src="https://m.media-amazon.com/images/I/51hLOYHG5nL._SL500_.jpg" stand="" stand,stepless="" tall="" tok"="" tripod="" with=""/></a>
+<a href="https://www.amazon.com/dp/B08JPCSDMP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 72''="" alt="Weilisi 10" android,youtube,="" color="" dimmable="" for="" holder,38="" iphone="" led="" light="" makeup,tik="" modes="" phone="" ring="" selfie="" speed="" src="https://m.media-amazon.com/images/I/51hLOYHG5nL._SL500_.jpg" stand="" stand,stepless="" tall="" tok"="" tripod="" with=""/></a>
 
 
 The **Weilisi 10" Ring Light with Stand** is ideal for content creators, makeup artists, and anyone passionate about photography or videography who wants to achieve professional-quality lighting. Whether you are a YouTuber, TikTok enthusiast, or someone who enjoys taking flawless selfies, this ring light offers versatile lighting solutions that enhance your visual content. Its compatibility with both **iPhone and Android** devices makes it perfect for a wide range of users.
@@ -70,10 +70,10 @@ The **Weilisi 10" Ring Light** comes equipped with an impressive range of featur
 
 The inclusion of a **phone holder** that supports both **iPhone and Android** models enhances convenience by eliminating the need for extra mounting accessories. The sturdy **tripod stand** extends up to 72 inches, offering flexibility to position the ring light at the ideal height for different shooting angles. Overall, this ring light combines portability, advanced lighting technology, and ease of use to meet the needs of modern creators and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B0DXL2WHRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">60 Led Portable Selfie Light</a>
+## <a href="https://www.amazon.com/dp/B0DXL2WHRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">60 Led Portable Selfie Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXL2WHRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="60 LED Portable Selfie Light Video Conference Lighting with Clip &amp; Camera Tripod Adapter Rechargeable 2000mAh CRI 97+, 3 Light Modes for Phone iPhone Webcam Laptop Photo Makeup (Dark Greay)" src="https://m.media-amazon.com/images/I/51XLge5h5mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXL2WHRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="60 LED Portable Selfie Light Video Conference Lighting with Clip &amp; Camera Tripod Adapter Rechargeable 2000mAh CRI 97+, 3 Light Modes for Phone iPhone Webcam Laptop Photo Makeup (Dark Greay)" src="https://m.media-amazon.com/images/I/51XLge5h5mL._SL500_.jpg"/></a>
 
 
 The **60 LED Portable Selfie Light** is perfect for content creators, remote workers, and makeup enthusiasts who need reliable and adjustable lighting for their **video conferences, photography, or beauty routines**. Ideal for those using smartphones, laptops, or webcams, this compact and rechargeable light enhances visual clarity in any setting.
@@ -96,10 +96,10 @@ Featuring **60 powerful LEDs**, this selfie light delivers bright and even illum
 
 The built-in **2000mAh rechargeable battery** offers the convenience of wireless use, freeing you from constant power source dependency. Additionally, the versatile **clip and camera tripod adapter** allow you to attach the light securely to phones, laptops, or tripods, making it adaptable for different scenarios. With three distinct light modes, you can customize brightness and color temperature to enhance your visual environment, whether you're in a brightly lit room or a dim setting.
 
-## <a href="https://www.amazon.com/dp/B0F541CLJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Singwil 120 Led Selfie Light</a>
+## <a href="https://www.amazon.com/dp/B0F541CLJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Singwil 120 Led Selfie Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0F541CLJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Singwil 120 LED Selfie Light for iPhone, Portable Phone Light with Clip &amp; Camera Tripod Adapter - 5000mAh Rechargeable, 3 Lighting Modes, CRI 97+ for Video Recording, TikTok, Tripod Mount Rings" src="https://m.media-amazon.com/images/I/41otc2HyqaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F541CLJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Singwil 120 LED Selfie Light for iPhone, Portable Phone Light with Clip &amp; Camera Tripod Adapter - 5000mAh Rechargeable, 3 Lighting Modes, CRI 97+ for Video Recording, TikTok, Tripod Mount Rings" src="https://m.media-amazon.com/images/I/41otc2HyqaL._SL500_.jpg"/></a>
 
 
 The **Singwil 120 LED Selfie Light for iPhone** is ideal for content creators, vloggers, TikTok enthusiasts, and anyone who frequently records videos or takes selfies on their phone. If you want to enhance your lighting quality with a portable, easy-to-use device that can clip onto your phone or attach to a tripod, this item is perfect for you. It’s especially suited for those seeking professional-level lighting with excellent color accuracy and versatile settings.
@@ -122,10 +122,10 @@ The **Singwil 120 LED Selfie Light** features a powerful 5000mAh rechargeable ba
 
 With a remarkable **CRI of 97+**, this selfie light delivers highly accurate and natural colors, which is crucial for professional-looking video recordings and high-quality selfies. This feature ensures that skin tones and other colors appear true to life, enhancing the overall appearance of your content. Additionally, the sleek black design complements modern devices, while the durable build ensures long-term reliability. Whether you’re creating TikTok videos, conducting video calls, or capturing memorable moments, the Singwil selfie light provides consistent, flattering illumination to enhance your visual content effortlessly.
 
-## <a href="https://www.amazon.com/dp/B08L5VKNWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 12'' Selfie Ring Light With 62’’ Tripod Stand</a>
+## <a href="https://www.amazon.com/dp/B08L5VKNWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 12'' Selfie Ring Light With 62’’ Tripod Stand</a>
 
 
-<a href="https://www.amazon.com/dp/B08L5VKNWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand for Video Recording, Live Streaming(YouTube, Instagram, TIK Tok), Compatible with Phones, Cameras and Webcams" src="https://m.media-amazon.com/images/I/41fDvi1ZJEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L5VKNWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand for Video Recording, Live Streaming(YouTube, Instagram, TIK Tok), Compatible with Phones, Cameras and Webcams" src="https://m.media-amazon.com/images/I/41fDvi1ZJEL._SL500_.jpg"/></a>
 
 
 The **UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand** is ideal for content creators, vloggers, live streamers, and anyone looking to enhance their video recording or photography setup. Whether you are active on platforms like **YouTube**, **Instagram**, or **TikTok**, this versatile lighting solution is perfect for users who want professional-quality lighting that is compatible with **phones**, **cameras**, and **webcams**.
@@ -148,10 +148,10 @@ The **UBeesize 12'' Selfie Ring Light** stands out due to its combination of siz
 
 The included 62-inch tripod stand offers excellent height adjustment options, allowing users to position the light at the perfect angle for their content. This flexibility enhances the overall quality of videos and photos by ensuring consistent and professional lighting conditions. Additionally, the lightweight and compact design make it easy to transport, so creators can maintain high-quality lighting whether they are shooting at home or on location.
 
-## <a href="https://www.amazon.com/dp/B08BCH841V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newmowa 60 Led High Power Rechargeable Clip Fill Video Conference Light</a>
+## <a href="https://www.amazon.com/dp/B08BCH841V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newmowa 60 Led High Power Rechargeable Clip Fill Video Conference Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08BCH841V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newmowa 60 LED High Power Rechargeable Clip Fill Video Conference Light with Front &amp; Back Clip, Adjusted 3 Light Modes for Phone, iPhone, Android, iPad, Laptop, for Makeup, TikTok, Selfie, Vlog" src="https://m.media-amazon.com/images/I/41GiPBIr8oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BCH841V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newmowa 60 LED High Power Rechargeable Clip Fill Video Conference Light with Front &amp; Back Clip, Adjusted 3 Light Modes for Phone, iPhone, Android, iPad, Laptop, for Makeup, TikTok, Selfie, Vlog" src="https://m.media-amazon.com/images/I/41GiPBIr8oL._SL500_.jpg"/></a>
 
 
 The **Newmowa 60 LED High Power Rechargeable Clip Fill Video Conference Light** is ideal for content creators, remote workers, makeup enthusiasts, and anyone who requires enhanced lighting for video calls, selfies, or vlogs. Whether you use a **phone**, **iPhone**, **Android**, **iPad**, or **laptop**, this versatile light is designed to provide professional-quality illumination in any setting. If you want to improve your video presence or achieve flawless makeup application, this product is a perfect buy.
@@ -173,10 +173,10 @@ The **Newmowa 60 LED Video Conference Light** excels in delivering bright and ad
 
 Additionally, the dual clip system enhances its versatility by enabling secure attachment to a variety of devices like phones, tablets, and laptops. Its compact and lightweight form factor means it won’t add bulk or interfere with your device’s normal use. Overall, this light provides a convenient and efficient solution for improving your visual appearance in digital content and virtual meetings.
 
-## <a href="https://www.amazon.com/dp/B0DZWY9CNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Portable Selfie Light For Iphone</a>
+## <a href="https://www.amazon.com/dp/B0DZWY9CNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Portable Selfie Light For Iphone</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZWY9CNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Portable Selfie Light for iPhone: 90 LED Rechargeable Phone Fill Lights, Ring Light for Camera Picture, Makeup Photo, Video Conferences, Laptop Use, Zoom Meetings, TikTok, Vlog Photography" src="https://m.media-amazon.com/images/I/41geofsovCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZWY9CNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Portable Selfie Light for iPhone: 90 LED Rechargeable Phone Fill Lights, Ring Light for Camera Picture, Makeup Photo, Video Conferences, Laptop Use, Zoom Meetings, TikTok, Vlog Photography" src="https://m.media-amazon.com/images/I/41geofsovCL._SL500_.jpg"/></a>
 
 
 The **Portable Selfie Light for iPhone** is perfect for content creators, remote workers, makeup enthusiasts, and anyone who frequently participates in **video conferences** or creates **TikTok** and **vlog photography**. If you need a compact, versatile lighting solution that enhances your camera quality on the go, this device is designed for you.
@@ -199,10 +199,10 @@ This **90 LED ring light** offers a balanced and bright fill light that enhances
 
 Designed with convenience in mind, the light is quick to set up and compatible with various devices, making it a versatile tool for both professional and personal use. Whether you're aiming for flawless makeup photos or a well-lit video conference, this fill light helps you look your best by providing consistent and flattering illumination. Its sleek black design also adds a professional look to your setup.
 
-## <a href="https://www.amazon.com/dp/B0CBNFXSFL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olrpt Selfie Light</a>
+## <a href="https://www.amazon.com/dp/B0CBNFXSFL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olrpt Selfie Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBNFXSFL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLRPT Selfie Light, Phone Light with Front &amp; Back Clip, 60 LED Portable Light with 3 Modes, 5000mAh Rechargeable Video Light for Phone, iPhone, IPad, Laptop, TikTok, Makeup, Live Stream, Vlog" src="https://m.media-amazon.com/images/I/4184tRX2KiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBNFXSFL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLRPT Selfie Light, Phone Light with Front &amp; Back Clip, 60 LED Portable Light with 3 Modes, 5000mAh Rechargeable Video Light for Phone, iPhone, IPad, Laptop, TikTok, Makeup, Live Stream, Vlog" src="https://m.media-amazon.com/images/I/4184tRX2KiL._SL500_.jpg"/></a>
 
 
 The **OLRPT Selfie Light** is ideal for content creators, makeup enthusiasts, and anyone who frequently uses their phone or laptop for video calls, live streaming, or vlogging. If you want to enhance your lighting setup with a portable, rechargeable, and versatile light source, this product is perfect for you. Its compact size and dual clip design make it suitable for users who need reliable lighting on the go or at home.
@@ -224,10 +224,10 @@ The **OLRPT Selfie Light** features a robust set of 60 LEDs that deliver bright,
 
 Beyond its lighting capabilities, this device is powered by a substantial 5000mAh rechargeable battery, ensuring extended usage without interruptions. Its slim profile and lightweight build make it effortless to carry and attach, enhancing user convenience. Whether you're a vlogger, streamer, or makeup artist, the **OLRPT Selfie Light** provides an efficient and portable lighting solution that enhances your content quality and overall user experience.
 
-## <a href="https://www.amazon.com/dp/B0C3D5DSVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bansine Usb-rechargeable Led Phone Light</a>
+## <a href="https://www.amazon.com/dp/B0C3D5DSVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bansine Usb-rechargeable Led Phone Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3D5DSVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Selfie Light - BANSINE USB-Rechargeable LED Phone Light - Portable Photo Light with 97+ CRI, Up to 6500K Color Temperature for Selfie, Zoom Conference, Video, Makeup and Live Stream" src="https://m.media-amazon.com/images/I/41pMIELmpeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3D5DSVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Selfie Light - BANSINE USB-Rechargeable LED Phone Light - Portable Photo Light with 97+ CRI, Up to 6500K Color Temperature for Selfie, Zoom Conference, Video, Makeup and Live Stream" src="https://m.media-amazon.com/images/I/41pMIELmpeL._SL500_.jpg"/></a>
 
 
 The **Selfie Light - BANSINE USB-Rechargeable LED Phone Light** is ideal for anyone looking to enhance their photo and video quality with professional lighting on the go. Whether you are a content creator, makeup enthusiast, remote worker attending **Zoom conferences**, or someone who enjoys live streaming, this portable photo light provides the perfect solution for well-lit, vibrant visuals. Its compact design and powerful features make it suitable for users who want convenience without compromising on lighting quality.
@@ -250,10 +250,10 @@ This **BANSINE Selfie Light** boasts a superior **97+ CRI** rating, which means 
 
 Designed with portability in mind, the compact dimensions allow users to carry this LED phone light effortlessly, enabling on-the-go usage without sacrificing lighting quality. Whether you are participating in a **Zoom conference**, streaming live, or capturing the perfect selfie, this light enhances your image clarity and brightness. The sleek black finish complements modern devices, making it a stylish and functional accessory for everyday use.
 
-## <a href="https://www.amazon.com/dp/B0BYZ4X226?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meixitoy 120 Led Phone Light</a>
+## <a href="https://www.amazon.com/dp/B0BYZ4X226?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meixitoy 120 Led Phone Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYZ4X226?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Meixitoy 120 LED Phone Light, Selfie Light for iPhone, 5000Mah Rechargeable Clip Video Light for Phone, Camera, Laptop, iPad, Adjusted 3 Lights Modes for Selfie, Video Conference, TikTok, Vlog (Black)" src="https://m.media-amazon.com/images/I/41TcH1gObPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYZ4X226?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Meixitoy 120 LED Phone Light, Selfie Light for iPhone, 5000Mah Rechargeable Clip Video Light for Phone, Camera, Laptop, iPad, Adjusted 3 Lights Modes for Selfie, Video Conference, TikTok, Vlog (Black)" src="https://m.media-amazon.com/images/I/41TcH1gObPL._SL500_.jpg"/></a>
 
 
 The **Meixitoy 120 LED Phone Light** is ideal for content creators, vloggers, and professionals who frequently engage in **video conferences** or **selfies**. If you want to enhance your lighting setup for devices like **iPhones, cameras, laptops, or iPads**, this compact and rechargeable clip-on light is perfect for you. It offers adjustable lighting modes to suit different environments and improve the overall quality of your videos and photos.

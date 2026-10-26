@@ -23,10 +23,10 @@ The collection includes sofas, tables, and chairs, all designed with attention t
 
 
 
-## <a href="https://www.amazon.com/dp/B0BGQQFRY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furniture</a>
+## <a href="https://www.amazon.com/dp/B0BGQQFRY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furniture</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGQQFRY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Furniture" src="https://m.media-amazon.com/images/I/51d8ffdGYgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGQQFRY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Furniture" src="https://m.media-amazon.com/images/I/51d8ffdGYgL._SL500_.jpg"/></a>
 
 
 The **Furniture** item is ideal for individuals or businesses looking to enhance their living or working spaces with unique, high-quality pieces. Perfect for those who appreciate craftsmanship and are fans of **Dischord Records** products, this item suits anyone wanting durable and stylish additions to their environment.

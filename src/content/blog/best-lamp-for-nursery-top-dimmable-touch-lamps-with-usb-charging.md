@@ -23,10 +23,10 @@ Some lamps even have color-changing modes or timers for added comfort. Safety ma
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is an excellent choice for individuals seeking a versatile and stylish lighting solution for their bedroom or living space. Ideal for those who value functionality combined with aesthetic appeal, this lamp is perfect for students, professionals, or anyone looking to enhance their room's ambiance while enjoying convenient charging options. If you need a compact, elegant lamp that also serves as a charging station, this product is designed with you in mind.
@@ -48,10 +48,10 @@ The **Fenmzee Bedside Table Lamp** stands out with its multifunctional features 
 
 Beyond its technological advantages, the lamp's design merges functionality with style. The **wood base** paired with a **round flaxen fabric shade** in cream offers a warm, inviting look that blends seamlessly into diverse room decors. Its compact dimensions (14 inches high and just over 4 inches wide and long) make it ideal for desks, nightstands, or small tables without occupying excessive space. Moreover, the included **LED bulb** ensures energy-efficient lighting that lasts longer, reducing maintenance and electricity costs. Overall, this lamp provides a balanced combination of practicality, aesthetic appeal, and modern convenience.
 
-## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarra-decor Bedside Table Lamp With Usb Port</a>
+## <a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarra-decor Bedside Table Lamp With Usb Port</a>
 
 
-<a href="https://www.amazon.com/dp/B087CDBKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087CDBKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yarra-Decor Bedside Table Lamp with USB Port - Touch Control for Bedroom Wood 3 Way Dimmable Nightstand Lamp with Round Flaxen Fabric Shade for Living Room, Dorm, Home Office (LED Bulb Included)" src="https://m.media-amazon.com/images/I/41cUY-8nYAL._SL500_.jpg"/></a>
 
 
 The **Yarra-Decor Bedside Table Lamp with USB Port** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom**, **living room**, **dorm**, or **home office**. This lamp is perfect for those who want to combine elegant design with modern convenience, especially users who need easy access to USB charging while enjoying customizable lighting options.
@@ -74,10 +74,10 @@ The **Yarra-Decor Bedside Table Lamp** offers a perfect blend of modern technolo
 
 With its elegant **flaxen fabric shade**, this lamp adds a touch of warmth and sophistication to any environment, making it suitable for a variety of settings from cozy bedrooms to professional home offices. The compact size and lightweight design make it an excellent choice for small spaces while still providing ample lighting. Overall, this lamp not only illuminates your space but also enhances convenience and style in everyday living.
 
-## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Gold Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, **office**, or **reading room**. This lamp is perfect for those who appreciate modern design combined with practical features such as adjustable brightness and energy-efficient LED technology. If you want to enhance your space with a tall, elegant lamp that provides ample light without compromising on aesthetics, this product is an excellent choice.
@@ -101,10 +101,10 @@ The **【Upgraded】 Dimmable Gold Floor Lamp** stands out with its sleek, moder
 
 Equipped with an energy-efficient **1200 lumens LED bulb**, this floor lamp not only brightens your space effectively but also helps reduce electricity consumption, making it an eco-friendly lighting option. The lamp’s lightweight and compact dimensions make it easy to move and place in various rooms, while its modern aesthetic seamlessly integrates with contemporary interiors, enhancing the overall decor. Whether used as a functional reading lamp or a decorative accent piece, this lamp offers both style and practicality for diverse living spaces.
 
-## <a href="https://www.amazon.com/dp/B097YP171M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolywell Night Light For Kids</a>
+## <a href="https://www.amazon.com/dp/B097YP171M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolywell Night Light For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B097YP171M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JolyWell Night Light for Kids, Baby Egg Light with 7 Colors Changing Mode &amp; Stepless Dimming, Nursery Night Lamp BPA Free,Rechargeable Egg Night Light for Breastfeeding 1h Timer &amp; Touch Control" src="https://m.media-amazon.com/images/I/21LEy1tiqeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097YP171M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JolyWell Night Light for Kids, Baby Egg Light with 7 Colors Changing Mode &amp; Stepless Dimming, Nursery Night Lamp BPA Free,Rechargeable Egg Night Light for Breastfeeding 1h Timer &amp; Touch Control" src="https://m.media-amazon.com/images/I/21LEy1tiqeL._SL500_.jpg"/></a>
 
 
 The **JolyWell Night Light for Kids** is ideal for parents seeking a safe, versatile, and soothing light source for their nursery or child's bedroom. Perfect for those who need a gentle night lamp for breastfeeding sessions, bedtime routines, or simply to provide comfort to young children, this **rechargeable egg night light** offers a combination of functionality and child-friendly design. Its compact size and BPA-free materials make it especially suitable for babies and toddlers.
@@ -127,10 +127,10 @@ The **JolyWell Night Light** features a charming egg-shaped design that appeals 
 
 Thanks to its **rechargeable battery**, this night light is portable and environmentally friendly, making it easy to move between rooms without worrying about cords or power outlets. The **touch control** offers an effortless user experience, while the **1-hour timer** ensures energy efficiency by automatically turning off the light after use. Constructed from **BPA-free** materials, this night lamp prioritizes safety, giving parents peace of mind while providing a gentle glow that comforts children throughout the night.
 
-## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touch Bedside Table Lamp With Usb</a>
+## <a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touch Bedside Table Lamp With Usb</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD7JFK68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touch Bedside Table Lamp with USB - 3 Way Dimmable Wood Lamp for Bedroom Nightstand, Desk Lamp with Charging Station for Dorm, Living Room, Office, Kids Room, Nursery, Small" src="https://m.media-amazon.com/images/I/413QiVnxXBL._SL500_.jpg"/></a>
 
 
 The **Touch Bedside Table Lamp with USB** is perfect for individuals seeking a versatile and stylish lighting solution for their **bedroom nightstand**, **desk**, or any cozy corner in the home. Ideal for students in dorms, professionals working from home, or parents setting up a **nursery** or **kids room**, this lamp combines functionality with aesthetic appeal, making it a smart purchase for those who value convenience and design.
@@ -153,10 +153,10 @@ This **wooden bedside table lamp** boasts a sleek and minimalist design with a h
 
 Beyond its lighting capabilities, the integrated **USB charging station** adds significant convenience, allowing users to charge smartphones, tablets, or other electronic devices directly from the lamp. This feature is especially beneficial for those with limited outlet access or who prefer to keep their devices close while charging. Its compact size and lightweight build make it ideal for small spaces like dorm rooms or bedside tables without overwhelming the area.
 
-## <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Night Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B8D2K76V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Night Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8D2K76V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Night Table Lamp for Bedroom, Minimalist Nightstand Lamp with Round Fabric Linen Shade, Study Reading Desk Lamp for Kids Room, Living Room, College Dorm, Home, Office" src="https://m.media-amazon.com/images/I/41FCrvR3E8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8D2K76V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Night Table Lamp for Bedroom, Minimalist Nightstand Lamp with Round Fabric Linen Shade, Study Reading Desk Lamp for Kids Room, Living Room, College Dorm, Home, Office" src="https://m.media-amazon.com/images/I/41FCrvR3E8L._SL500_.jpg"/></a>
 
 
 The **Small Bedside Night Table Lamp** by **SEENSINY** is perfect for individuals seeking a compact, stylish lighting solution for their **bedroom**, **kids' room**, **college dorm**, or **office**. Ideal for those who prefer a minimalist aesthetic combined with functionality, this lamp suits anyone needing focused illumination for **reading**, **studying**, or creating a cozy atmosphere without occupying much space.
@@ -179,10 +179,10 @@ This **minimalist nightstand lamp** features a round fabric linen shade that dif
 
 Beyond its appealing look, this lamp provides practical benefits such as focused lighting for reading or studying, reducing eye strain during nighttime activities. Its durable build from **SEENSINY** guarantees long-lasting performance, making it a reliable addition to your home or office. Whether used as a bedside companion or a desk light, this lamp effectively balances functionality with a pleasing design, fulfilling the needs of users who appreciate both form and function.
 
-## <a href="https://www.amazon.com/dp/B09B1B6J9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anico Easzzz Baby Night Light</a>
+## <a href="https://www.amazon.com/dp/B09B1B6J9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anico Easzzz Baby Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09B1B6J9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anico EASZZZ Baby Night Light, Nursery Night Lamp for Breastfeeding, Soft BPA Free Silicone Touch Night Lamp, Eye Caring, Easy Flip Design, Stepless Dimming, 1-Pack" src="https://m.media-amazon.com/images/I/11rEGPdWq7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09B1B6J9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anico EASZZZ Baby Night Light, Nursery Night Lamp for Breastfeeding, Soft BPA Free Silicone Touch Night Lamp, Eye Caring, Easy Flip Design, Stepless Dimming, 1-Pack" src="https://m.media-amazon.com/images/I/11rEGPdWq7L._SL500_.jpg"/></a>
 
 
 The **Anico EASZZZ Baby Night Light** is ideal for parents and caregivers seeking a gentle, safe, and convenient lighting solution for nighttime feedings and nursery comfort. This night lamp is perfect for those who want an **eye-caring, soft glow** that won’t disturb a sleeping baby, while also providing easy-to-use features for quick adjustments during late-night routines.
@@ -204,10 +204,10 @@ The **Anico EASZZZ Baby Night Light** features a compact design with dimensions 
 
 The innovative **stepless dimming** feature allows users to tailor the light brightness to their exact needs, which is particularly useful for creating a soothing atmosphere or avoiding harsh lighting that could disrupt sleep. Additionally, the **easy flip design** makes it simple to operate the lamp with one hand, perfect for busy parents managing nighttime care. Its lightweight and portable nature enable easy movement between rooms, enhancing convenience without compromising functionality.
 
-## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
 
 
 The **Ambimall Floor Lamps for Living Room** is an excellent choice for individuals seeking a versatile and modern lighting solution. Ideal customers include homeowners, office workers, and anyone looking to enhance their living room, bedroom, or office space with customizable lighting options. Those who appreciate sleek design combined with practical features like remote control and adjustable brightness will find this lamp particularly appealing.
@@ -229,10 +229,10 @@ The **Ambimall Floor Lamp** stands out with its impressive height of 64.57 inche
 
 Additionally, the lamp’s modern and minimalistic design complements any decor style, making it a stylish addition to your living room, bedroom, or office. Its lightweight construction, weighing only 5.73 pounds, means it can be easily moved to different locations as needed. Overall, this lamp combines functionality and aesthetics, offering a reliable lighting option that adapts to your daily needs.
 
-## <a href="https://www.amazon.com/dp/B07YB1LQDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">G Keni Nursery Night Light</a>
+## <a href="https://www.amazon.com/dp/B07YB1LQDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">G Keni Nursery Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07YB1LQDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="G Keni Nursery Night Light for Baby, Portable LED Touch Night Lamp for Kids and Adult, Breastfeeding, Sleep Aid, USB Rechargeable Nursing Lamp, Bedside Dimmable Warm Night Light, Soft Eye Caring" src="https://m.media-amazon.com/images/I/21mOxN0xAyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YB1LQDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="G Keni Nursery Night Light for Baby, Portable LED Touch Night Lamp for Kids and Adult, Breastfeeding, Sleep Aid, USB Rechargeable Nursing Lamp, Bedside Dimmable Warm Night Light, Soft Eye Caring" src="https://m.media-amazon.com/images/I/21mOxN0xAyL._SL500_.jpg"/></a>
 
 
 The **G Keni Nursery Night Light for Baby** is perfect for parents, caregivers, and anyone who needs a gentle, portable lighting solution for nighttime activities such as breastfeeding, soothing a child, or simply navigating a dark room. This night lamp is designed for both kids and adults who value a soft, eye-friendly light that aids sleep without causing disturbance.
@@ -254,10 +254,10 @@ The **G Keni Nursery Night Light** features a compact size of approximately 4.5 
 
 Additionally, the night lamp is **USB rechargeable**, offering an eco-friendly and cost-effective power solution. This ensures that the lamp can be used repeatedly without the hassle of replacing batteries. Its gentle illumination is perfect for nursing mothers, helping them attend to their babies comfortably during the night while minimizing eye strain. Overall, this night light combines convenience, functionality, and eye care in a sleek, user-friendly package.
 
-## <a href="https://www.amazon.com/dp/B0C1NP6GG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Beside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C1NP6GG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Beside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1NP6GG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Beside Table Lamp, Wood Tripod Table Lamp with White Fabric Shade, Cute Boho Nightstand Minimalist Desk Lamp for Bedroom Living Room Nursery Kids Room Office Dorm, Bulb Not Included" src="https://m.media-amazon.com/images/I/41+N4N7UwNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1NP6GG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Beside Table Lamp, Wood Tripod Table Lamp with White Fabric Shade, Cute Boho Nightstand Minimalist Desk Lamp for Bedroom Living Room Nursery Kids Room Office Dorm, Bulb Not Included" src="https://m.media-amazon.com/images/I/41+N4N7UwNL._SL500_.jpg"/></a>
 
 
 The **Small Beside Table Lamp** with a **Wood Tripod Base** and **White Fabric Shade** is ideal for anyone looking to add a touch of **minimalist** and **boho charm** to their bedroom, living room, nursery, kids room, office, or dorm. This lamp is perfect for those who want a compact, stylish lighting solution that complements modern and cozy decor styles without occupying much space.

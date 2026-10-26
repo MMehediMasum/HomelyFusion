@@ -23,10 +23,10 @@ For a vintage touch, the Srugn Faux Wool Retro Rug adds warmth and style without
 
 
 
-## <a href="https://www.amazon.com/dp/B0852WLH7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0852WLH7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0852WLH7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Area Rugs for Living Room Bedroom, Upgrade Non-Slip Fluffy Soft Grey Shag Carpet, Indoor Floor Gray 4x6 Fuzzy Shaggy Living Room Plush Rug for Kids Home Dorm Decor Aesthetic" src="https://m.media-amazon.com/images/I/51t+YqCPudL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0852WLH7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Area Rugs for Living Room Bedroom, Upgrade Non-Slip Fluffy Soft Grey Shag Carpet, Indoor Floor Gray 4x6 Fuzzy Shaggy Living Room Plush Rug for Kids Home Dorm Decor Aesthetic" src="https://m.media-amazon.com/images/I/51t+YqCPudL._SL500_.jpg"/></a>
 
 
 The **Ophanie Area Rugs for Living Room Bedroom** are ideal for homeowners and renters looking to add a touch of comfort and style to their indoor spaces. This **non-slip, fluffy soft grey shag carpet** is perfect for families with kids, dorm residents, or anyone seeking an aesthetic and cozy floor covering that enhances the ambiance of living rooms, bedrooms, or home offices.
@@ -48,10 +48,10 @@ The **Ophanie grey shag carpet** boasts a luxurious and plush texture that eleva
 
 Measuring 4x6 feet, this **plush rug** is sized perfectly to complement medium-sized rooms without overwhelming your decor. The neutral grey tone is versatile and enhances modern and traditional aesthetics alike, making it easy to coordinate with your existing furniture and color schemes. Lightweight yet durable, it offers both convenience and longevity, ensuring your investment remains a stylish and functional part of your home for years to come.
 
-## <a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nakagishi Area Rug Living Room Rugs</a>
+## <a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nakagishi Area Rug Living Room Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nakagishi Area Rug Living Room Rugs: 5x7 Washable Boho Large Neutral Farmhouse Soft Moroccan Stain Resistant Indoor Carpet for Bedroom Nursery Kids Playroom Office Dining Room Home House Decor- Brown" src="https://m.media-amazon.com/images/I/51Tg3WSlI+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nakagishi Area Rug Living Room Rugs: 5x7 Washable Boho Large Neutral Farmhouse Soft Moroccan Stain Resistant Indoor Carpet for Bedroom Nursery Kids Playroom Office Dining Room Home House Decor- Brown" src="https://m.media-amazon.com/images/I/51Tg3WSlI+L._SL500_.jpg"/></a>
 
 
 The **Nakagishi Area Rug Living Room Rugs** is ideal for homeowners and renters looking to add a touch of **boho farmhouse style** to their indoor spaces. Perfect for those who want a **soft, stain-resistant, and washable rug** that fits well in **bedrooms, nurseries, kids’ playrooms, offices, dining rooms**, or living areas, this rug caters to families seeking both functionality and aesthetic appeal in a **neutral brown Moroccan-inspired design**.
@@ -74,10 +74,10 @@ The **Nakagishi Area Rug** measures a generous **60 by 84 inches**, making it a 
 
 Additionally, the **washable feature** of this rug simplifies upkeep, allowing users to keep their living environment clean with minimal effort. The **neutral farmhouse-inspired color palette** ensures that it blends seamlessly with a variety of decor themes, from modern to rustic. Its lightweight construction makes it easy to move around as needed, enhancing its practicality for dynamic living spaces where rearranging is common. Overall, the Nakagishi rug offers a perfect balance of style, comfort, and convenience for any household.
 
-## <a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 8x10 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 8x10 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 8x10 Area Rugs for Living Room,Rugs for Bedroom,Large Carpets,Ultra Soft Faux Wool Retro Dining Room Rug,Non Slip&amp;Non-Shedding Low Pile Vintage Print Rug for Home Office Decor" src="https://m.media-amazon.com/images/I/51Dh9EoKT+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLK9F9S5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 8x10 Area Rugs for Living Room,Rugs for Bedroom,Large Carpets,Ultra Soft Faux Wool Retro Dining Room Rug,Non Slip&amp;Non-Shedding Low Pile Vintage Print Rug for Home Office Decor" src="https://m.media-amazon.com/images/I/51Dh9EoKT+L._SL500_.jpg"/></a>
 
 
 The **Srugn Washable Rugs 8x10 Area Rugs** are perfect for homeowners or renters looking to enhance their living spaces with a stylish yet practical floor covering. Ideal for those who want a **large, ultra-soft, and easy-to-clean rug** that fits well in living rooms, bedrooms, or dining areas, this rug suits individuals who appreciate both comfort and aesthetic appeal in their home or office decor. If you need a **non-slip, low pile rug** with a vintage print that complements a variety of interior styles, this is an excellent choice.
@@ -101,10 +101,10 @@ The **Srugn Washable Rug** features a carefully designed ultra-soft faux wool su
 
 One of the standout benefits is the rug’s washable nature, allowing users to maintain a fresh and clean environment without the hassle of professional cleaning. The non-slip backing enhances safety, especially on hardwood or tile floors, reducing the risk of accidents. Overall, the **Srugn Washable Rug** balances aesthetics, functionality, and comfort, making it a smart investment for anyone looking to upgrade their home or office flooring with a durable, stylish, and easy-to-maintain carpet.
 
-## <a href="https://www.amazon.com/dp/B0CJ9D6RT2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerhoo Large Shag Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CJ9D6RT2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerhoo Large Shag Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ9D6RT2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deerhoo Large Shag Area Rugs 5 x 8, Tie-Dyed Plush Fuzzy Rugs for Living Room, Ultra Soft Fluffy Furry Rug for Bedroom, Indoor Carpet Nursery Rugs for Kids Room Home Decor, Light Grey" src="https://m.media-amazon.com/images/I/51ESVRKHOvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ9D6RT2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deerhoo Large Shag Area Rugs 5 x 8, Tie-Dyed Plush Fuzzy Rugs for Living Room, Ultra Soft Fluffy Furry Rug for Bedroom, Indoor Carpet Nursery Rugs for Kids Room Home Decor, Light Grey" src="https://m.media-amazon.com/images/I/51ESVRKHOvL._SL500_.jpg"/></a>
 
 
 The **Deerhoo Large Shag Area Rug 5 x 8** is perfect for homeowners looking to add a cozy and stylish touch to their living spaces. Ideal for those who want an ultra-soft, plush rug to enhance comfort in bedrooms, living rooms, or nurseries, this **tie-dyed light grey rug** complements modern and contemporary decor styles. Families with kids or pet owners will also appreciate its fluffy texture, which creates a warm and inviting environment.
@@ -127,10 +127,10 @@ The **Deerhoo Large Shag Area Rug** boasts a plush, fuzzy surface crafted from h
 
 Designed with a **0.3-inch pile height**, this rug provides a thick, cushioned feel that enhances warmth and coziness throughout your home. The lightweight construction also allows for easy repositioning and cleaning, making it a practical choice for busy households. Overall, this **Deerhoo shag rug** combines functionality with aesthetic appeal, making it a valuable addition to your home decor.
 
-## <a href="https://www.amazon.com/dp/B0CNB93BLH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CNB93BLH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNB93BLH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT Area Rug 4x6 Washable Rug Gray Vintage Traditional Floor Cover Foldable Thin Retro Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51FuD7cuL9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNB93BLH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT Area Rug 4x6 Washable Rug Gray Vintage Traditional Floor Cover Foldable Thin Retro Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51FuD7cuL9L._SL500_.jpg"/></a>
 
 
 The **CHAMPLANT Area Rug 4x6** is ideal for homeowners and renters looking to enhance their indoor spaces with a stylish yet functional floor covering. Perfect for those who appreciate a blend of **vintage traditional** design and modern practicality, this rug suits bedrooms, living rooms, and bathrooms. If you want a **washable**, **non-slip**, and **thin** rug that adds character without overwhelming your décor, this item is an excellent choice.
@@ -152,10 +152,10 @@ The **CHAMPLANT Area Rug** combines both form and function, offering a **distres
 
 Additionally, the **washable** fabric means that users can maintain a fresh and clean environment effortlessly, especially in high-traffic areas like living rooms and bathrooms. The **non-slip backing** adds an important safety feature that prevents accidental slips, providing peace of mind for families with children or elderly members. Overall, this rug is a practical yet stylish solution for anyone looking to add a subtle vintage touch while prioritizing ease of use and safety.
 
-## <a href="https://www.amazon.com/dp/B0C9J8WCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0C9J8WCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugcomf Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9J8WCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Area Rug 5x7 Washable Rug Boho Soft Abstract Pattern Non-Slip Faux Wool Vintage for Living Room, Bedroom, Farmhouse, Dining Room, Kids Playroom, Grey and Black" src="https://m.media-amazon.com/images/I/51w3VhjI6zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9J8WCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugcomf Area Rug 5x7 Washable Rug Boho Soft Abstract Pattern Non-Slip Faux Wool Vintage for Living Room, Bedroom, Farmhouse, Dining Room, Kids Playroom, Grey and Black" src="https://m.media-amazon.com/images/I/51w3VhjI6zL._SL500_.jpg"/></a>
 
 
 The **Rugcomf Area Rug 5x7** is ideal for individuals looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for homeowners or renters who appreciate a blend of **boho** and **vintage** aesthetics, this rug suits those seeking a soft, comfortable feel combined with easy maintenance. It is especially beneficial for families with kids or pets, as the **washable** feature ensures convenience and longevity.
@@ -178,10 +178,10 @@ The **Rugcomf Area Rug** features a durable construction with a height of 0.35 i
 
 Additionally, the **non-slip backing** ensures safety by preventing slips and slides, which is particularly important in homes with children or elderly residents. The rug's washable feature allows for hassle-free cleaning, maintaining its fresh appearance over time. Overall, this rug combines style, comfort, and practicality, making it a valuable addition to any home seeking both aesthetic appeal and functionality.
 
-## <a href="https://www.amazon.com/dp/B0D5L39SJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zentavio Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0D5L39SJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zentavio Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5L39SJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zentavio Area Rugs for Living Room Grey Rugs for Bedroom 4x6 Carpet Fluffy Furry Soft Shag Aesthetic Plush High Pile Gray Throw Rug for Nursery Kids Room Dorm" src="https://m.media-amazon.com/images/I/51dLKlmWK2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5L39SJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zentavio Area Rugs for Living Room Grey Rugs for Bedroom 4x6 Carpet Fluffy Furry Soft Shag Aesthetic Plush High Pile Gray Throw Rug for Nursery Kids Room Dorm" src="https://m.media-amazon.com/images/I/51dLKlmWK2L._SL500_.jpg"/></a>
 
 
 The **Zentavio Area Rugs for Living Room** are perfect for individuals looking to add a touch of comfort and style to their home spaces. Ideal customers include homeowners, renters, and dorm residents who want a **soft, plush, and aesthetic rug** to enhance bedrooms, nurseries, kids’ rooms, or living areas. Those seeking a versatile **grey shag rug** that combines both functionality and design will find this product an excellent choice.
@@ -204,10 +204,10 @@ The **Zentavio Area Rug** features a **plush high pile** design that delivers a 
 
 Measuring **4x6 feet** with a height of **1.78 inches**, this rug provides ample coverage without overwhelming the room. Its lightweight nature makes it easy to reposition or clean, ideal for busy households or dorm environments. Whether placed in a nursery, kids' room, or living area, the **Zentavio rug** offers a cozy surface that enhances the atmosphere while standing up to daily use.
 
-## <a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo 5x7 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo 5x7 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO 5X7 Area Rugs for Living Room, Machine Washable Non Slip Vintage Rugs, Low Pile Lightweight Chenille Print Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO 5X7 Area Rugs for Living Room, Machine Washable Non Slip Vintage Rugs, Low Pile Lightweight Chenille Print Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
 
 
 The **GENIMO 5X7 Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who need a **lightweight**, **machine washable**, and **non-slip rug** that complements various rooms such as the **living room**, **bedroom**, **dining room**, or **home office**. If you value both aesthetics and functionality in your home décor, this **low pile vintage rug** in a **light taupe brown** shade is an excellent choice.
@@ -230,10 +230,10 @@ The **GENIMO 5X7 Area Rug** features a durable **chenille print** that combines 
 
 Designed with versatility in mind, this rug’s **light taupe brown** color blends seamlessly with a wide range of décor styles from modern to vintage. Its generous dimensions of 60 by 84 inches make it a perfect fit for living rooms, dining areas, bedrooms, or even home offices, adding warmth and texture to your floors. The fact that it is **machine washable** enhances its practicality, allowing users to maintain its fresh appearance with minimal effort over time.
 
-## <a href="https://www.amazon.com/dp/B085XT1FS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Upgrade 4x6 Rugs For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B085XT1FS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Upgrade 4x6 Rugs For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B085XT1FS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Upgrade 4x6 Rugs for Bedroom, Grey, Fluffy Shaggy Soft Area Rug, Gray Non-Slip Indoor Floor Carpet for Living Room, Kids Baby Boys Teen Dorm Home Decor Aesthetic, Nursery, Rug" src="https://m.media-amazon.com/images/I/51irYgwVLuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085XT1FS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Upgrade 4x6 Rugs for Bedroom, Grey, Fluffy Shaggy Soft Area Rug, Gray Non-Slip Indoor Floor Carpet for Living Room, Kids Baby Boys Teen Dorm Home Decor Aesthetic, Nursery, Rug" src="https://m.media-amazon.com/images/I/51irYgwVLuL._SL500_.jpg"/></a>
 
 
 The **Ophanie Upgrade 4x6 Rugs for Bedroom** is perfect for individuals looking to enhance their living spaces with a touch of comfort and style. Ideal customers include homeowners, parents seeking a soft and safe play area for their kids, and anyone wanting to add a cozy, aesthetic element to bedrooms, nurseries, or dorm rooms. Its plush, shaggy texture makes it especially suitable for families with babies or teens who appreciate both function and design.
@@ -255,10 +255,10 @@ Featuring a plush and fluffy shaggy surface, the **Ophanie Upgrade 4x6 Rug** off
 
 The rug's dimensions of approximately 4 by 6 feet provide ample coverage for bedrooms, nurseries, or dorm rooms, creating a warm and inviting area for relaxation or play. Weighing just around 3 pounds, it is easy to handle for cleaning or repositioning. Manufactured by Ophanie, this rug combines quality craftsmanship with functional design, making it a valuable addition to any indoor space looking for both style and comfort.
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** are ideal for anyone looking to add a touch of comfort and style to their indoor spaces. Perfect for **kids, girls and boys**, as well as dorm rooms, nursery rooms, and general home decor enthusiasts, this **machine washable** and **soft fluffy shaggy bedside rug** offers both practicality and aesthetic appeal. If you want a cozy, durable, and easy-to-maintain carpet in a versatile **grey** color, this rug is an excellent choice.

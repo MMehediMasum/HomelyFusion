@@ -23,10 +23,10 @@ Many rugs use durable materials that feel soft underfoot. The colors range from 
 
 
 
-## <a href="https://www.amazon.com/dp/B0B2KZLR8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Maison Collection Mao-05 Wisteria Cream Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B2KZLR8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Maison Collection Mao-05 Wisteria Cream Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2KZLR8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .19"="" 9'-6",="" alt="Loloi Rifle Paper Co. Maison Collection MAO-05 Wisteria Cream 7'-6" area="" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51-vzZHmEML._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0B2KZLR8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .19"="" 9'-6",="" alt="Loloi Rifle Paper Co. Maison Collection MAO-05 Wisteria Cream 7'-6" area="" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51-vzZHmEML._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Maison Collection MAO-05 Wisteria Cream 7'-6" x 9'-6"** area rug is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and charm to their living spaces. If you value a blend of artistic design and quality craftsmanship in your home décor, this rug is perfect for you. It suits those who want a statement piece that enhances the ambiance of bedrooms, living rooms, or dining areas with subtle yet sophisticated color tones.
@@ -48,10 +48,10 @@ The **Loloi Rifle Paper Co. Maison Collection MAO-05** rug stands out for its ex
 
 Additionally, this area rug is made by **Loloi Rugs**, a name synonymous with quality and craftsmanship. The materials and construction guarantee durability, making it a smart investment for those who want a long-lasting decorative piece. The overall balance of style and functionality makes this rug a versatile option for anyone aiming to elevate their home décor effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Eden Collection Ede-02 Mughal Garden Cream Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Eden Collection Ede-02 Mughal Garden Cream Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/513AtJt-QLL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0B1JLPHM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/513AtJt-QLL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Eden Collection EDE-02 Mughal Garden Cream 5'-0" x 7'-6" Area Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of elegance and artistic charm to their living spaces. Perfect for those who appreciate intricate design and high-quality craftsmanship, this rug suits both traditional and contemporary decor styles, making it a versatile choice for bedrooms, living rooms, or dining areas.
@@ -73,10 +73,10 @@ The **Loloi Rifle Paper Co. Eden Collection EDE-02** rug is crafted with attenti
 
 Beyond aesthetics, this area rug offers durability and comfort thanks to Loloi’s commitment to quality manufacturing. The size of 5 feet by 7 feet 6 inches is perfect for medium-sized rooms, offering ample coverage while maintaining flexibility in room arrangement. Whether placed under a coffee table or as a statement piece in a bedroom, this rug elevates the style quotient while providing a cozy surface for walking barefoot or relaxing.
 
-## <a href="https://www.amazon.com/dp/B0DXNBKYM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Canopy Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DXNBKYM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Canopy Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXNBKYM5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Canopy Collection CNP-02 Sage/Blush 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51iFoo40PaL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DXNBKYM5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Canopy Collection CNP-02 Sage/Blush 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51iFoo40PaL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Canopy Collection CNP-02 Sage/Blush 7'-6" x 9'-6" Area Rug** is ideal for homeowners and interior design enthusiasts who want to add a touch of elegance and subtle color to their living spaces. This rug is perfect for those seeking a blend of artistic design with functional home décor, especially in rooms that benefit from a soft yet sophisticated aesthetic.
@@ -99,10 +99,10 @@ The **Loloi Rifle Paper Co. Canopy Collection CNP-02** stands out with its harmo
 
 Crafted by **Loloi Rugs**, this area rug balances aesthetic beauty with practical usability. The relatively lightweight construction allows for easy placement and cleaning, which is beneficial for those who like to refresh their room layouts periodically. While it is best suited for areas with moderate foot traffic to maintain its intricate design, its high-quality materials ensure durability and longevity, providing lasting value for your home décor investment.
 
-## <a href="https://www.amazon.com/dp/B0CQKQZ9TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Rosa Collection Rsa-01 Ivory Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CQKQZ9TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Rosa Collection Rsa-01 Ivory Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQKQZ9TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Rosa Collection RSA-01 Ivory 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/519pZhipY7L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CQKQZ9TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Rosa Collection RSA-01 Ivory 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/519pZhipY7L._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Rosa Collection RSA-01 Ivory 7'-6" x 9'-6" Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and sophistication to their living spaces. This rug is perfect for those who appreciate high-quality craftsmanship and a timeless, floral-inspired design that complements a variety of decor styles. If you want to enhance your room with a soft, neutral palette and a durable yet stylish floor covering, this rug is an excellent choice.
@@ -124,10 +124,10 @@ The **Loloi Rifle Paper Co. Rosa Collection RSA-01 Ivory Area Rug** combines aes
 
 Crafted by **Loloi Rugs**, this rug guarantees quality and durability, ensuring it withstands daily use while maintaining its vibrant appearance. The lightweight nature of the rug allows for easy repositioning and maintenance, making it suitable for users who frequently update their room layouts or prefer hassle-free cleaning. Overall, this area rug is a stylish and functional addition to any home, elevating decor with its elegant design and practical features.
 
-## <a href="https://www.amazon.com/dp/B0DXHHYJJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Wildwood Collection Wwld-01 Sage Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DXHHYJJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Wildwood Collection Wwld-01 Sage Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXHHYJJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Wildwood Collection WWLD-01 Sage 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51ZhE5KMPZL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DXHHYJJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Wildwood Collection WWLD-01 Sage 7'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51ZhE5KMPZL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Wildwood Collection WWLD-01 Sage 7'-6" x 9'-6" Area Rug** is ideal for homeowners and interior design enthusiasts who are looking to add a touch of elegance and nature-inspired charm to their living spaces. This rug is perfect for those who appreciate high-quality craftsmanship combined with artistic floral designs and are seeking a durable yet stylish floor covering for medium to large rooms.
@@ -150,10 +150,10 @@ The **Wildwood Collection WWLD-01** stands out with its elegant sage color and i
 
 Additionally, the weight of 21.38 pounds reflects the rug’s substantial construction, ensuring it stays in place and maintains its shape over time. The artistic design enhances any room with a natural, calming vibe, making it a perfect choice for those who want to merge functionality with sophisticated décor. While it requires some care to preserve its beauty, this rug offers lasting value and a timeless aesthetic for discerning buyers.
 
-## <a href="https://www.amazon.com/dp/B0CQRWHLXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Laurel Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CQRWHLXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Laurel Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQRWHLXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-2"="" alt="Loloi Rifle Paper Co. Laurel Collection LAU-01 Cream 6'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51vEGSbElkL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CQRWHLXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-2"="" alt="Loloi Rifle Paper Co. Laurel Collection LAU-01 Cream 6'-6" area="" rug"="" src="https://m.media-amazon.com/images/I/51vEGSbElkL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Laurel Collection LAU-01 Cream 6'-6" x 9'-2" Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and subtle sophistication to their living spaces. This rug is perfect for those who appreciate high-quality craftsmanship and a neutral color palette that can seamlessly blend with various décor styles. If you want a durable and visually appealing rug to enhance your room's ambiance, this item is a great choice.
@@ -174,10 +174,10 @@ The **Loloi Rifle Paper Co. Laurel Collection LAU-01 Cream Area Rug** offers a t
 
 Beyond its visual appeal, the rug’s sturdy construction contributes to its longevity, making it a smart investment for those seeking a blend of beauty and practicality. While the light cream color may require some upkeep, it also brightens rooms and creates a welcoming atmosphere. Overall, this area rug combines elegance, functionality, and quality, making it an excellent choice for discerning buyers who want to elevate their home’s interior design.
 
-## <a href="https://www.amazon.com/dp/B0C2FG7GJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Courtyard Collection Cou-02 Blue Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0C2FG7GJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Courtyard Collection Cou-02 Blue Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2FG7GJQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Courtyard Collection COU-02 Blue 7'-6" area="" cloudpile"="" feat.="" rug="" src="https://m.media-amazon.com/images/I/51AznttjK2L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0C2FG7GJQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Rifle Paper Co. Courtyard Collection COU-02 Blue 7'-6" area="" cloudpile"="" feat.="" rug="" src="https://m.media-amazon.com/images/I/51AznttjK2L._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Courtyard Collection COU-02 Blue 7'-6" x 9'-6" Area Rug feat. CloudPile** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and comfort to their living spaces. This area rug suits anyone who appreciates high-quality craftsmanship combined with artistic design, especially those who want a statement piece that complements a variety of décor styles. If you desire a rug that not only enhances aesthetics but also offers durability and softness, this item is perfect for you.
@@ -200,10 +200,10 @@ The **Loloi Rifle Paper Co. Courtyard Collection COU-02** rug features a stunnin
 
 Beyond aesthetics, this rug is designed for durability, crafted by **Loloi Rugs**, a brand known for producing high-quality home décor products. The lightweight nature, weighing less than 20 pounds, makes it easy to handle during cleaning or repositioning. Overall, this area rug combines style, comfort, and practicality, making it a valuable addition to any home aiming for a sophisticated yet cozy atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0CQMVLQ3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Perennial Collection Garden Party</a>
+## <a href="https://www.amazon.com/dp/B0CQMVLQ3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co. Perennial Collection Garden Party</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQMVLQ3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-4"="" alt="Loloi Rifle Paper Co. Perennial Collection Garden Party PRN-04 Rose/Multi 6'-7" area="" indoor="" outdoor="" rug"="" src="https://m.media-amazon.com/images/I/516eCKd4yHL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CQMVLQ3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-4"="" alt="Loloi Rifle Paper Co. Perennial Collection Garden Party PRN-04 Rose/Multi 6'-7" area="" indoor="" outdoor="" rug"="" src="https://m.media-amazon.com/images/I/516eCKd4yHL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co. Perennial Collection Garden Party PRN-04 Rose/Multi 6'-7" x 9'-4" Indoor/Outdoor Area Rug** is ideal for homeowners and decorators looking to enhance their living spaces with a stylish, durable, and versatile rug. Perfect for those who appreciate vibrant floral designs and need a rug that can seamlessly transition between indoor and outdoor use. This rug suits individuals seeking both aesthetic appeal and practical functionality in their area rugs.
@@ -226,10 +226,10 @@ The **Loloi Rifle Paper Co. Perennial Collection Garden Party PRN-04** combines 
 
 Measuring approximately **6'-7" by 9'-4"**, this rug fits perfectly in medium to large spaces such as living rooms, patios, or dining areas. The **thin 0.13-inch profile** makes it easy to place under furniture without causing uneven surfaces, while the lightweight nature facilitates repositioning or seasonal storage. Overall, this area rug is a beautiful and functional addition to any décor, blending aesthetic appeal with resilience and ease of maintenance.
 
-## <a href="https://www.amazon.com/dp/B0B1LR4MGJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co Cotswolds Sky Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0B1LR4MGJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co Cotswolds Sky Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1LR4MGJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5'-6"="" accent="" alt="Loloi Rifle Paper Co Cotswolds Sky 3'-6" rug"="" src="https://m.media-amazon.com/images/I/41K1m8b-YDL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0B1LR4MGJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5'-6"="" accent="" alt="Loloi Rifle Paper Co Cotswolds Sky 3'-6" rug"="" src="https://m.media-amazon.com/images/I/41K1m8b-YDL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co Cotswolds Sky 3'-6" x 5'-6" Accent Rug** is ideal for individuals seeking to add a touch of elegance and charm to their living spaces. Perfect for homeowners, interior designers, or anyone looking to enhance their home décor with a stylish and functional rug, this accent piece complements a variety of interior styles, especially those that favor soft, serene color palettes.
@@ -250,10 +250,10 @@ Crafted by **Loloi**, a renowned manufacturer known for its attention to detail,
 
 Beyond its visual charm, this accent rug delivers comfort underfoot with a soft texture that enhances the overall ambiance of any room. Its versatile design ensures it blends seamlessly with contemporary, traditional, or transitional décor styles. Investing in this rug means adding a functional yet decorative element that uplifts your home’s style and offers lasting value.
 
-## <a href="https://www.amazon.com/dp/B0B1JPSKJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co Kismet Navy Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0B1JPSKJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Rifle Paper Co Kismet Navy Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1JPSKJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5'-2"="" accent="" alt="Loloi Rifle Paper Co Kismet Navy 3'-7" rug"="" src="https://m.media-amazon.com/images/I/61uSEWMEtxL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0B1JPSKJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 5'-2"="" accent="" alt="Loloi Rifle Paper Co Kismet Navy 3'-7" rug"="" src="https://m.media-amazon.com/images/I/61uSEWMEtxL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Rifle Paper Co Kismet Navy 3'-7" x 5'-2" Accent Rug** is ideal for individuals seeking to enhance their living space with a stylish and functional floor covering. Perfect for homeowners, renters, or interior design enthusiasts who appreciate a blend of classic aesthetics and durable materials, this rug fits well in living rooms, bedrooms, or entryways. If you want to add a splash of **navy color** and elegant floral patterns to complement your décor, this accent rug is a great choice.

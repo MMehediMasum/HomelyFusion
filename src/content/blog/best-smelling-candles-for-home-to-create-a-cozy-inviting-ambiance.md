@@ -23,10 +23,10 @@ Bath & Body Works White Barn’s Mahogany Teakwood blends deep scents for a stro
 
 
 
-## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
+## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
 
 
-<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar** is ideal for individuals seeking to create a calming and serene atmosphere in their living spaces. Perfect for those who appreciate subtle yet refreshing fragrances, this candle is a great choice for people who want to enhance relaxation during meditation, unwinding after a long day, or setting a peaceful ambiance in their home or office.
@@ -49,10 +49,10 @@ The **3-wick coffee table jar** design of this **Chesapeake Bay Candle** offers 
 
 Crafted by the trusted **Chesapeake Bay Candle manufacturer**, this candle balances quality materials with a refined fragrance blend. The **Peace + Tranquility color scheme** enhances the visual appeal, making it not only a source of scent but also a subtle decorative element. Ideal for gifting or personal use, this candle supports creating a peaceful atmosphere without overpowering the environment with strong odors.
 
-## <a href="https://www.amazon.com/dp/B000JDGC78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yankee Candle Balsam &amp; Cedar Scented Classic Large Jar Candle </a>
+## <a href="https://www.amazon.com/dp/B000JDGC78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yankee Candle Balsam &amp; Cedar Scented Classic Large Jar Candle </a>
 
 
-<a href="https://www.amazon.com/dp/B000JDGC78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Balsam &amp; Cedar Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Ideal Holiday Gift" src="https://m.media-amazon.com/images/I/418mGpjbZEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000JDGC78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Balsam &amp; Cedar Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Ideal Holiday Gift" src="https://m.media-amazon.com/images/I/418mGpjbZEL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Balsam & Cedar Scented, Classic 22oz Large Jar Single Wick Candle** is perfect for individuals seeking a long-lasting, high-quality candle that brings a refreshing, natural aroma into their home. Ideal for those who love festive scents reminiscent of the holiday season, this candle is especially suited for gifting or enhancing cozy indoor environments with a warm, evergreen fragrance.
@@ -75,10 +75,10 @@ This **Yankee Candle** features a beautifully crafted large jar measuring 7.0 in
 
 Beyond its aesthetic appeal, this candle delivers practical benefits. The long burn time of over 110 hours means fewer replacements, offering excellent value for candle enthusiasts. Its robust scent helps mask unwanted odors while providing a calming ambiance, making it ideal for living rooms, bedrooms, or workspaces. Additionally, the reliable craftsmanship from the **Yankee Candle Company** ensures a safe and clean burn, enhancing the overall user experience.
 
-## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle</a>
+## <a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bath &amp; Body Works White Barn 3-wick Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M7TTA2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bath &amp; Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented" src="https://m.media-amazon.com/images/I/417GzbiDHjL._SL500_.jpg"/></a>
 
 
 The **Bath & Body Works White Barn 3-Wick Candle in Mahogany Teakwood High Intensity, Scented** is ideal for individuals who enjoy creating a cozy and inviting atmosphere in their homes. Perfect for those who appreciate rich, masculine fragrances with a touch of sophistication, this candle suits anyone looking to elevate their living space with a long-lasting and powerful scent experience. Whether you want to unwind after a busy day or add a warm ambiance to social gatherings, this candle is a great choice.
@@ -101,10 +101,10 @@ The **Bath & Body Works White Barn 3-Wick Candle** in Mahogany Teakwood High Int
 
 In addition to its scent benefits, the candle’s sleek black and silver container adds a touch of elegance to home decor. Its compact size means it can fit on shelves, tables, or bathroom counters without taking up much space. For users who want a high-impact fragrance experience, this candle provides a perfect balance of intensity and style, making it a wonderful gift or a personal indulgence for enhancing the ambiance of any living space.
 
-## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
+## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
 
 
 The **Lulu Candles | Jasmine, Oud & Sandalwood | Luxury Scented Soy Jar Candle** is perfect for individuals who appreciate a sophisticated and calming ambiance in their living or working space. Ideal for those who enjoy premium home fragrances made from natural ingredients, this candle suits anyone looking to enhance relaxation, meditation, or simply add a touch of elegance to their décor. If you value a highly scented, long-lasting candle that is hand-poured with care in the USA, this product is an excellent choice.
@@ -128,10 +128,10 @@ This **9 oz. luxury scented soy jar candle** by Lulu Candles is designed to deli
 
 Beyond its aromatic appeal, the candle's sleek black jar adds a touch of sophistication to any space, making it a stylish addition to home or office settings. Its dimensions and lightweight design enable easy placement on shelves, desks, or bedside tables without occupying much space. For those seeking a blend of luxury, sustainability, and high performance, this candle provides a compelling balance of features and benefits.
 
-## <a href="https://www.amazon.com/dp/B000YBFJQU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Capri Blue Volcano Scented Candles</a>
+## <a href="https://www.amazon.com/dp/B000YBFJQU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Capri Blue Volcano Scented Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B000YBFJQU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Capri Blue Volcano Scented Candles - Luxury Glass Jar Candles for Home Scented with Tropical Fruit &amp; Sugared Citrus - Soy Wax Blend - Capri Blue Volcano - Blue Color (19 oz)" src="https://m.media-amazon.com/images/I/21pkUxODcPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000YBFJQU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Capri Blue Volcano Scented Candles - Luxury Glass Jar Candles for Home Scented with Tropical Fruit &amp; Sugared Citrus - Soy Wax Blend - Capri Blue Volcano - Blue Color (19 oz)" src="https://m.media-amazon.com/images/I/21pkUxODcPL._SL500_.jpg"/></a>
 
 
 The **Capri Blue Volcano Scented Candles** are perfect for individuals who appreciate a luxurious and tropical ambiance in their living spaces. Ideal for those who want to elevate their home decor with a stylish and fragrant accessory, these candles suit anyone looking to create a relaxing and inviting atmosphere with a blend of tropical fruit and sugared citrus scents. Whether you’re a candle enthusiast or seeking a thoughtful gift, this item is designed for you.
@@ -154,10 +154,10 @@ The **Capri Blue Volcano Scented Candle** features a thoughtfully crafted soy wa
 
 Additionally, the candle’s size and weight (approximately 1.3 pounds and 5 inches in all dimensions) make it versatile enough to be placed on tabletops, shelves, or bathroom counters without overwhelming the space. The carefully balanced scent profile helps create an uplifting and refreshing environment, perfect for unwinding after a long day or setting a lively mood during gatherings. Overall, this candle blends style and function to enhance your living space beautifully.
 
-## <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle 3 Wick Candle Jar</a>
+## <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle 3 Wick Candle Jar</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle 3 Wick Candle Jar, Scented Candle with up to 40 Hours of Burn Time, Premium Plant Wax Blend for Consistent Long Lasting Scent from First to Last Burn, Sage &amp; Citrus" src="https://m.media-amazon.com/images/I/31-kV68-6nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle 3 Wick Candle Jar, Scented Candle with up to 40 Hours of Burn Time, Premium Plant Wax Blend for Consistent Long Lasting Scent from First to Last Burn, Sage &amp; Citrus" src="https://m.media-amazon.com/images/I/31-kV68-6nL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle 3 Wick Candle Jar** in **Sage & Citrus** scent is ideal for individuals who appreciate a fresh, invigorating aroma in their living space and desire a long-lasting, consistent fragrance experience. Perfect for those who enjoy premium scented candles with a natural wax blend, this candle suits anyone looking to enhance their home ambiance with a blend of herbal and citrus notes. Whether for relaxation, meditation, or simply creating a welcoming environment, this candle caters to users seeking quality and durability in their scented candles.
@@ -179,10 +179,10 @@ The **Yankee Candle 3 Wick Candle Jar** is crafted with a premium plant wax blen
 
 Its moderate size and elegant green color make it a versatile decorative piece suitable for many home decors. Additionally, the candle’s long burn time of up to 40 hours means users can enjoy the soothing fragrance for extended periods without frequent replacements. Whether placed in a living room, bathroom, or bedroom, this candle creates a welcoming and tranquil atmosphere that promotes relaxation and comfort.
 
-## <a href="https://www.amazon.com/dp/B0BVQBQBPQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Jolie Muse Sandalwood Rose Candle</a>
+## <a href="https://www.amazon.com/dp/B0BVQBQBPQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Jolie Muse Sandalwood Rose Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVQBQBPQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LA JOLIE MUSE Sandalwood Rose Candle, Scented Candles Gifts for Women, Natural Soy Candle, 6 oz 40 Hours Burn, Candles for Home Scented" src="https://m.media-amazon.com/images/I/41Hff9HwyyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVQBQBPQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LA JOLIE MUSE Sandalwood Rose Candle, Scented Candles Gifts for Women, Natural Soy Candle, 6 oz 40 Hours Burn, Candles for Home Scented" src="https://m.media-amazon.com/images/I/41Hff9HwyyL._SL500_.jpg"/></a>
 
 
 The **LA JOLIE MUSE Sandalwood Rose Candle** is perfect for individuals looking to enhance their living space with a soothing and elegant aroma. Ideal for those who appreciate natural and long-lasting scented candles, this product is especially suited for women seeking a calming ambiance, whether for relaxation, meditation, or as a thoughtful gift. If you value eco-friendly options and premium fragrance quality, this candle is an excellent choice.
@@ -204,10 +204,10 @@ The **LA JOLIE MUSE Sandalwood Rose Candle** combines the natural benefits of so
 
 Additionally, the natural soy composition ensures a cleaner burn without the harmful toxins often found in paraffin candles, promoting healthier indoor air quality. With up to 40 hours of burn time, users can enjoy extended relaxation sessions or create a cozy ambiance for gatherings. This candle also makes a thoughtful gift, packaged with elegance and backed by the reputable **LA JOLIE MUSE** name.
 
-## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Pink Sands Scented Classic 22oz Large Jar Single Wick Candle** is ideal for individuals seeking to create a **relaxing and inviting atmosphere** in their living space. Whether you're a candle enthusiast, someone looking to enhance their home décor, or simply want a long-lasting, delightful fragrance, this candle suits those who appreciate quality and ambiance.
@@ -229,10 +229,10 @@ The **Yankee Candle Pink Sands** candle offers a beautifully balanced fragrance 
 
 Crafted by the trusted **Yankee Candle Company**, this candle is designed to enhance any room, whether it’s your living room, bedroom, or bathroom. Its **Pink Sands color** adds a subtle decorative touch, complementing various interior styles. The combination of high-quality wax and a carefully formulated fragrance blend benefits users by providing a soothing, aromatic experience that helps reduce stress and elevate mood.
 
-## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
 
 
 The **Scented Candles Set | Men Candle Set** is ideal for men who appreciate a refined and relaxing atmosphere at home or office. This set is perfect for gifting to dads, husbands, or any man who enjoys **aromatherapy** with a masculine touch, combining scents like **Leather, Smoke & Vanilla, Oak, and Lavender**. It suits those looking to create a cozy ambiance while benefiting from the calming properties of natural soy candles.
@@ -254,10 +254,10 @@ Each candle in this **4-pack aromatherapy gift set** is crafted by **Auelife** t
 
 The **black jar** design offers a sleek and masculine aesthetic that fits seamlessly into any room, from living rooms to home offices. Additionally, the compact dimensions make it easy to place these candles on shelves, desks, or bedside tables. This set makes a thoughtful and practical gift for men who value both style and function in their home fragrance products.
 
-## <a href="https://www.amazon.com/dp/B0CRHX7JR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Fall Scented Candles Creamy Vanilla Swirl</a>
+## <a href="https://www.amazon.com/dp/B0CRHX7JR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Fall Scented Candles Creamy Vanilla Swirl</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRHX7JR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Fall Scented Candles, Creamy Vanilla Swirl, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Relaxing Ambiance" src="https://m.media-amazon.com/images/I/41ZgDwPkOAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRHX7JR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Fall Scented Candles, Creamy Vanilla Swirl, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Relaxing Ambiance" src="https://m.media-amazon.com/images/I/41ZgDwPkOAL._SL500_.jpg"/></a>
 
 
 Ideal for individuals seeking a cozy and inviting atmosphere, the **Candle-lite Fall Scented Candles** in **Creamy Vanilla Swirl** are perfect for those who appreciate **aromatherapy** and long-lasting fragrance. Whether you're looking to unwind after a busy day, enhance your home décor, or create a relaxing ambiance for special occasions, this candle is designed to meet your needs with its soothing scent and elegant presentation.

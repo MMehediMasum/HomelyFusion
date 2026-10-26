@@ -23,10 +23,10 @@ The Tivoli II planks have a natural wood grain feel and peel-and-stick backing f
 
 
 
-## <a href="https://www.amazon.com/dp/B004GFBQS0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Achim Home Furnishings Nexus 12-inch Vinyl Tile</a>
+## <a href="https://www.amazon.com/dp/B004GFBQS0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Achim Home Furnishings Nexus 12-inch Vinyl Tile</a>
 
 
-<a href="https://www.amazon.com/dp/B004GFBQS0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 1.2mm="" 12"l="" alt="Achim Home Furnishings FTVWD21420 Nexus 12-Inch Vinyl Tile, Wood Light Oak Plank-Look, 20-Pack, Basket Weave Light/Dark Oak, 12" src="https://m.media-amazon.com/images/I/51ndhze1fIL._SL500_.jpg" t"="" w="" x=""/></a>
+<a href="https://www.amazon.com/dp/B004GFBQS0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 1.2mm="" 12"l="" alt="Achim Home Furnishings FTVWD21420 Nexus 12-Inch Vinyl Tile, Wood Light Oak Plank-Look, 20-Pack, Basket Weave Light/Dark Oak, 12" src="https://m.media-amazon.com/images/I/51ndhze1fIL._SL500_.jpg" t"="" w="" x=""/></a>
 
 
 Ideal for homeowners and DIY enthusiasts looking to enhance their living spaces with a stylish yet affordable flooring option, the **Achim Home Furnishings FTVWD21420 Nexus 12-Inch Vinyl Tile** in **Wood Light Oak Plank-Look** is perfect for those seeking an easy-to-install, durable, and visually appealing solution. This product suits anyone aiming to achieve the charm of natural wood without the high maintenance and cost associated with traditional hardwood floors.
@@ -49,12 +49,12 @@ The **Achim Nexus Vinyl Tile** stands out with its detailed wood grain pattern t
 
 Installation is a breeze with these 12-inch tiles, which can be arranged in various patterns to match your décor style. Their lightweight nature simplifies transportation and handling, allowing even DIYers to tackle the project without professional help. Furthermore, their low profile thickness of 1.2mm ensures they fit seamlessly over existing floors, reducing renovation time and costs while still delivering a sophisticated wood-look finish.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B004GFBQS0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B004GFBQS0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B008E486AU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tivoli Ii Self Adhesive Vinyl Floor Planks</a>
+## <a href="https://www.amazon.com/dp/B008E486AU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tivoli Ii Self Adhesive Vinyl Floor Planks</a>
 
 
-<a href="https://www.amazon.com/dp/B008E486AU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 36",="" achim="" alt="Tivoli II Self Adhesive Vinyl Floor Planks, 10 Pack - 6" bedrooms="" by="" decor"="" dining="" diy="" feel="" flooring="" for="" grain="" home="" kitchen,="" maple="" natural="" peel="" room="" src="https://m.media-amazon.com/images/I/215WYuh851L._SL500_.jpg" stick,="" wood="" x=""/></a>
+<a href="https://www.amazon.com/dp/B008E486AU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 36",="" achim="" alt="Tivoli II Self Adhesive Vinyl Floor Planks, 10 Pack - 6" bedrooms="" by="" decor"="" dining="" diy="" feel="" flooring="" for="" grain="" home="" kitchen,="" maple="" natural="" peel="" room="" src="https://m.media-amazon.com/images/I/215WYuh851L._SL500_.jpg" stick,="" wood="" x=""/></a>
 
 
 The **Tivoli II Self Adhesive Vinyl Floor Planks** are ideal for homeowners and renters looking for an affordable, easy-to-install flooring solution with a natural wood appearance. Those who want to upgrade their **kitchen, dining room, or bedroom** floors without the hassle of professional installation or messy adhesives will find this product especially appealing. DIY enthusiasts and anyone seeking a quick floor makeover will benefit greatly from these **peel & stick vinyl planks**.
@@ -78,7 +78,7 @@ The **Tivoli II Self Adhesive Vinyl Floor Planks** by Achim Home Decor offer a p
 
 Constructed with durability in mind, these vinyl planks are **water-resistant** and easy to clean, which makes them perfect for spaces prone to spills or high foot traffic. The dimensions of each plank, measuring **6" x 36"**, ensure a quick and smooth installation process, covering floors efficiently while creating a visually appealing pattern. Overall, the Tivoli II floor planks combine style, functionality, and convenience, catering to those who want a beautiful floor transformation with minimal effort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B008E486AU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B008E486AU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -22,10 +22,10 @@ Shades can be fabric, paper rope, or linen. Whether for reading, working, or rel
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a multifunctional and stylish lighting solution for their **bedroom** or **living room**. Perfect for those who value convenience and modern features, this lamp is especially suited for users who want adjustable lighting, easy device charging, and an elegant design that complements any décor. Whether you need a lamp for reading, relaxing, or working at your desk, this lamp caters to various needs.
@@ -47,12 +47,12 @@ The **Fenmzee Bedside Table Lamp** features a 3-way dimmable touch system that a
 
 Crafted with a sturdy **wood base** and topped with a round **flaxen fabric shade**, the lamp blends rustic charm with modern functionality. Its compact and lightweight design makes it an excellent choice for small spaces like bedside tables or desks. The energy-efficient **LED bulb** included with the lamp ensures bright, consistent lighting while reducing power consumption, making it an eco-friendly and cost-effective lighting option.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
 
 
 The **PoKat 23" Modern Ceramic Table Lamp Set of 2** is ideal for individuals looking to enhance their living room, bedroom, or bedside area with stylish yet functional lighting. This set is perfect for those who appreciate a farmhouse aesthetic combined with modern design elements, making it a great choice for homeowners, renters, or interior decorators seeking elegant **beige and white ceramic lamps** that complement various decor styles.
@@ -75,12 +75,12 @@ The **PoKat 23" Modern Ceramic Table Lamp Set** features a sleek ceramic body fi
 
 Each lamp in this set is crafted by **PoKat Lighting**, ensuring quality and durability. Their compact footprint makes them perfect for placement on nightstands, desks, or end tables, offering practical illumination for reading, relaxation, or general ambiance. The neutral color palette and sturdy ceramic base not only enhance the aesthetic appeal but also provide stability, reducing the risk of tipping over. These lamps offer an excellent combination of form and function for anyone seeking to brighten up their living spaces with style.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine 14.6" Rattan Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edishine 14.6" Rattan Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE 14.6" base(bulb="" bedroom="" bedside="" e26="" for="" handwoven="" included)"="" lamp="" lamp,="" line="" living="" nightstand="" not="" office,="" on-off="" paper="" rattan="" room,="" rope="" rose="" shade,="" small="" src="https://m.media-amazon.com/images/I/51gaH+a0B5L._SL500_.jpg" switch,="" table="" tripod="" wood=""/></a>
+<a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EDISHINE 14.6" base(bulb="" bedroom="" bedside="" e26="" for="" handwoven="" included)"="" lamp="" lamp,="" line="" living="" nightstand="" not="" office,="" on-off="" paper="" rattan="" room,="" rope="" rose="" shade,="" small="" src="https://m.media-amazon.com/images/I/51gaH+a0B5L._SL500_.jpg" switch,="" table="" tripod="" wood=""/></a>
 
 
 The **EDISHINE 14.6" Rattan Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, or **office**. Perfect for those who appreciate handcrafted decor and want to add a warm, natural touch to their space, this lamp suits anyone who values both aesthetic appeal and practical lighting.
@@ -102,12 +102,12 @@ The **EDISHINE Rattan Table Lamp** stands out with its handcrafted **rattan and 
 
 Featuring a sturdy **rose wood tripod base**, this lamp offers both elegance and stability. The inclusion of an **on-off line switch** adds to user convenience, allowing quick control over lighting without fumbling for switches. Although the bulb is not included, the lamp's **E26 base** supports a wide range of bulbs, giving users the flexibility to choose the brightness and color temperature that best suits their needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F1CW1Z2F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
 
 
 The **PARTPHONER Traditional Table Lamp Set of 2** is ideal for individuals seeking to enhance their living room or bedroom with a touch of rustic farmhouse charm. Perfect for those who appreciate vintage aesthetics combined with functional lighting, these lamps are well-suited for homeowners, interior decorators, or anyone looking to add warmth and style to their bedside or desk area.
@@ -129,12 +129,12 @@ Featuring a height of 22 inches and a classic **rustic farmhouse design**, these
 
 Additionally, the **antique grey finish** adds a timeless appeal that can easily complement existing furniture and decor. Whether placed on a bedside table or living room desk, these lamps offer both style and practicality, enhancing the overall ambiance of any room while providing reliable lighting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C612KJSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Farmhouse Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0C612KJSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Farmhouse Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0C612KJSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Farmhouse Lamps for Living Room, Rustic Vintage Bedroom Nightstand Table Lamp with 2 USB Charging Ports, Built-In Frosted Glass Night Light for End Table Entryway, 4 Bulbs Included (Bronze)" src="https://m.media-amazon.com/images/I/517dEzw0DzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C612KJSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Farmhouse Lamps for Living Room, Rustic Vintage Bedroom Nightstand Table Lamp with 2 USB Charging Ports, Built-In Frosted Glass Night Light for End Table Entryway, 4 Bulbs Included (Bronze)" src="https://m.media-amazon.com/images/I/517dEzw0DzL._SL500_.jpg"/></a>
 
 
 The **Set of 2 Farmhouse Lamps** in **bronze** finish is perfect for individuals looking to enhance their **living room** or **bedroom** with a touch of rustic vintage charm. Ideal for homeowners who appreciate a blend of style and functionality, these lamps are especially suited for those who need additional lighting with modern conveniences like **USB charging ports**. If you want to brighten up your **end table**, **entryway**, or nightstand with a practical yet decorative solution, this set is a great choice.
@@ -157,12 +157,12 @@ Featuring a height of **25 inches** and a sleek **bronze color**, these lamps ma
 
 The set includes **4 bulbs**, ensuring that you have everything you need to start illuminating your home right away. The sturdy build and quality craftsmanship from **AIEAMPDO** ensure durability and long-lasting performance. Whether placed in a cozy bedroom or a welcoming entryway, these lamps deliver warm, inviting light that complements a variety of decor styles, making them a versatile addition to your home lighting collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C612KJSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C612KJSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onewish Touch Bedside Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onewish Touch Bedside Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEWISH Touch Bedside Lamp for Bedroom, 3-Way Dimmable Farmhouse Table Lamps for Nightstand with Fabric Shade, Desk Lamp for Kids Reading, Home Office" src="https://m.media-amazon.com/images/I/41cCWv3THRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEWISH Touch Bedside Lamp for Bedroom, 3-Way Dimmable Farmhouse Table Lamps for Nightstand with Fabric Shade, Desk Lamp for Kids Reading, Home Office" src="https://m.media-amazon.com/images/I/41cCWv3THRL._SL500_.jpg"/></a>
 
 
 The **ONEWISH Touch Bedside Lamp** is perfect for individuals seeking a stylish yet functional lighting solution for their **bedroom, home office, or kids' reading nook**. This lamp is ideal for those who value customizable lighting with easy touch controls and desire a cozy, farmhouse aesthetic to complement their décor. Whether you need soft ambient light for relaxation or brighter illumination for reading, this lamp caters to versatile lighting needs.
@@ -184,12 +184,12 @@ The **ONEWISH Touch Bedside Lamp** excels in combining functionality with aesthe
 
 The **fabric shade** enhances the lamp’s farmhouse look while softly diffusing light to create a cozy atmosphere. Its compact size and lightweight build make it an excellent choice for small nightstands or desks, adding practical illumination without occupying much space. This lamp is particularly beneficial for children’s rooms, where safety and ease of use are priorities, making it a versatile addition to any home environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CK835MGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CK835MGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
 
 
 The **Small Table Lamp for Bedroom** by **Aooshine** is ideal for individuals seeking a compact and stylish lighting solution for their **bedside, nightstand, or desk**. Perfect for students in dorms, professionals working late hours, or parents looking for a gentle light in their kids' rooms, this lamp combines minimalist design with practical functionality. If you want a lamp that complements various room styles while providing focused illumination, this is an excellent choice.
@@ -212,12 +212,12 @@ This **minimalist night stand light lamp** features a sleek design with a **squa
 
 Designed with user convenience in mind, the lamp's lightweight construction allows for easy repositioning, making it a versatile addition to your home or office. Whether you need focused light for late-night reading or a gentle glow to help children feel safe at bedtime, this lamp delivers just the right ambiance. Its straightforward functionality and pleasing aesthetics make it a practical and stylish lighting solution for various settings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reaketon Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reaketon Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reaketon Table Lamps for Living Room Set of 2, Ceramic Table Lamps for Bedroom, 20" for="" lamps="" modern="" night="" src="https://m.media-amazon.com/images/I/41lMJ+aSpvL._SL500_.jpg" stands,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reaketon Table Lamps for Living Room Set of 2, Ceramic Table Lamps for Bedroom, 20" for="" lamps="" modern="" night="" src="https://m.media-amazon.com/images/I/41lMJ+aSpvL._SL500_.jpg" stands,="" white"=""/></a>
 
 
 The **Reaketon Table Lamps for Living Room Set of 2** are ideal for individuals looking to enhance their bedroom or living room ambiance with stylish and functional lighting. Perfect for those who appreciate a modern aesthetic combined with practical features, these lamps suit anyone needing reliable nightstand lighting or a decorative touch to complement contemporary decor.
@@ -240,12 +240,12 @@ The **Reaketon Table Lamps** feature a modern design crafted from high-quality c
 
 Functionally, these lamps deliver reliable lighting that enhances the ambiance of any room. The lightweight yet sturdy build ensures stability while being easy to move as needed. Users benefit from the convenience of having two matching lamps in one set, making it simple to achieve symmetrical lighting in bedrooms or living areas. Overall, the **Reaketon Table Lamps** combine style and utility, making them a smart choice for anyone seeking modern, effective lighting solutions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DFCLXCHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Small Bedside Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
 
 
 The **Small Bedside Table Lamp for Bedroom** by **Dicoool** is perfect for individuals seeking a compact, multifunctional lighting solution for their nightstand or bedroom. Ideal for **kids**, students, or anyone who enjoys reading before bed, this lamp combines style and practicality with its sleek **white finish** and sturdy **black metal base**. If you want a bedside lamp that offers adjustable lighting and convenient charging options, this product is an excellent choice.
@@ -269,12 +269,12 @@ This **Dicoool bedside lamp** stands out due to its three selectable **color tem
 
 Additionally, the **pull chain switch** offers a simple and tactile way to operate the lamp, which is ideal for kids or anyone who prefers a quick physical control. The integrated **AC outlet** further enhances functionality by providing extra power access on the nightstand. Its compact size and modern design with a sturdy **black metal base** ensure stability while complementing various bedroom styles. Overall, this lamp is a smart, space-saving solution for anyone looking to combine lighting and charging needs seamlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08LP9R33P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Industrial Table Lamps With Usb Port</a>
+## <a href="https://www.amazon.com/dp/B08LP9R33P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Industrial Table Lamps With Usb Port</a>
 
 
-<a href="https://www.amazon.com/dp/B08LP9R33P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Industrial Table Lamps with USB Port, Fully Stepless Dimmable Bedside Lamps for Bedrooms, Nightstand Desk Lamp with Clear Glass Shade for Reading Living Room Office 2 LED Bulb Included" src="https://m.media-amazon.com/images/I/41g8nW8ZTQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LP9R33P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Industrial Table Lamps with USB Port, Fully Stepless Dimmable Bedside Lamps for Bedrooms, Nightstand Desk Lamp with Clear Glass Shade for Reading Living Room Office 2 LED Bulb Included" src="https://m.media-amazon.com/images/I/41g8nW8ZTQL._SL500_.jpg"/></a>
 
 
 The **Set of 2 Industrial Table Lamps with USB Port** by **Lynnoland** is ideal for individuals seeking stylish yet functional lighting solutions for their **bedrooms, nightstands, desks, living rooms**, or offices. Perfect for readers, students, professionals, and anyone who values adjustable brightness and convenient charging capabilities, these lamps combine modern industrial design with practical features.
@@ -296,7 +296,7 @@ These **industrial table lamps** feature a matte black base combined with a clea
 
 With dimensions that fit comfortably on most bedside tables or desks, these lamps are designed to provide ample illumination without occupying excessive space. The set includes two lamps, making it ideal for symmetrical placement in bedrooms or offices. The **energy-efficient LED bulbs** ensure long-term savings on electricity and maintenance, while the sturdy construction by the reputable **Lynnoland** brand guarantees durability and reliable performance for daily use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08LP9R33P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08LP9R33P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

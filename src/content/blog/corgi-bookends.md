@@ -23,10 +23,10 @@ Some feature tricolor corgis, others show corgis with sunglasses or open mouths,
 
 
 
-## <a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunglasses Corgi Tricolor Dog Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunglasses Corgi Tricolor Dog Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sunglasses Corgi Tricolor Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41a1rg03gfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sunglasses Corgi Tricolor Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41a1rg03gfL._SL500_.jpg"/></a>
 
 
 Ideal for pet lovers and those seeking a whimsical yet functional addition to their home or office, the **Sunglasses Corgi Tricolor Dog Book Ends** are perfect for organizing books, magazines, DVDs, and more while adding charm to any space. These decorative wood bookends suit kids' rooms, desks, shelves, and offices, making them an excellent choice for individuals who appreciate unique and playful decor combined with practicality.
@@ -48,12 +48,12 @@ The **Sunglasses Corgi Tricolor Dog Book Ends** stand out with their charming an
 
 Beyond their aesthetic appeal, these bookends are practical tools for maintaining order on desks, shelves, or kids' rooms. The pair works effectively to prevent books from tipping over, protecting your collection while showcasing your love for adorable pet-themed accessories. Their lightweight yet durable construction ensures ease of use and longevity, making them a valuable addition to any home or office.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CMD6J9R6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Colorful Corgi Dog Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Colorful Corgi Dog Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Colorful Corgi Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41f02h+LqKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Colorful Corgi Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41f02h+LqKL._SL500_.jpg"/></a>
 
 
 The **Colorful Corgi Dog Book Ends** are perfect for anyone looking to add a playful yet functional touch to their **kids' room, desk, home, or office**. Ideal for pet lovers, book enthusiasts, and those who appreciate quirky decor, these **decorative wood bookends** help organize and display **magazines, books, DVDs** in a charming way. If you want to keep your shelves tidy while showcasing a cute design, this item is for you.
@@ -75,12 +75,12 @@ These **Colorful Corgi Dog Book Ends** combine functionality with a fun aestheti
 
 Thanks to their compact dimensions and lightweight nature, these bookends are easy to move and reposition as needed. They also make great gifts for dog lovers and anyone who appreciates unique, decorative items that serve a practical purpose. Overall, these bookends are a stylish and efficient solution for keeping your shelves neat while brightening up your environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CLP7ZHRP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Open Mouth Corgi Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Open Mouth Corgi Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Open Mouth Corgi Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41C29zOZjyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Open Mouth Corgi Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41C29zOZjyL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers**, **book enthusiasts**, and those looking to add a playful yet functional touch to their **home or office decor**, the **Dog Open Mouth Corgi Book Ends** by **Famame** are perfect for anyone wanting to keep their books, magazines, or DVDs organized while showcasing a charming design. These decorative **wood bookends** are especially suitable for **kids' rooms**, **desks**, or **shelves**, providing both style and practicality.
@@ -102,12 +102,12 @@ The **Dog Open Mouth Corgi Book Ends** stand out due to their charming and eye-c
 
 Beyond their decorative appeal, these bookends provide practical benefits by preventing your books and magazines from toppling over, thereby protecting them from damage. The pair offers balanced support on either side of your collection, making organization effortless. Whether you're looking to brighten up your desk or keep your shelves tidy, these **Dog Open Mouth Corgi Book Ends** combine cuteness with utility, making them a delightful choice for both adults and kids alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CNRMBC3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kawaii Corgi Cute Dog Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kawaii Corgi Cute Dog Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kawaii Corgi Cute Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/51i+RcxWuQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kawaii Corgi Cute Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/51i+RcxWuQL._SL500_.jpg"/></a>
 
 
 Ideal for **book lovers**, **kids**, and anyone looking to add a touch of charm to their **home office**, **desk**, or **shelves**, the **Kawaii Corgi Cute Dog Book Ends** are perfect for those who want to keep their **books**, **magazines**, and **DVDs** organized while showcasing their love for adorable decor. These **decorative wood bookends** appeal especially to fans of cute and functional accessories that brighten up any space.
@@ -130,12 +130,12 @@ The **Kawaii Corgi Cute Dog Book Ends** combine both functionality and cuteness 
 
 Measuring just **5 by 3.1 inches**, these book stoppers fit neatly on most shelves without taking up excessive space. Their lightweight but sturdy build makes them easy to move around and reposition as needed. Whether you want to showcase your favorite books or keep your magazines tidy, these bookends offer an effective and delightful solution.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZRY4F2Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D6N8KR46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wfsm Corgi Kitchen And Bathroom Hand Towels</a>
+## <a href="https://www.amazon.com/dp/B0D6N8KR46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wfsm Corgi Kitchen And Bathroom Hand Towels</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6N8KR46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WFSM Corgi Kitchen and Bathroom Hand Towels - Dog Tea Towels, Gifts for Women and Corgi Lovers, Decorative Decor, 1624 Inches" src="https://m.media-amazon.com/images/I/21TXtuFv2vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6N8KR46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WFSM Corgi Kitchen and Bathroom Hand Towels - Dog Tea Towels, Gifts for Women and Corgi Lovers, Decorative Decor, 1624 Inches" src="https://m.media-amazon.com/images/I/21TXtuFv2vL._SL500_.jpg"/></a>
 
 
 The **WFSM Corgi Kitchen and Bathroom Hand Towels** are perfect for **Corgi lovers** and those looking to add a charming, decorative touch to their kitchen or bathroom. Ideal for women who appreciate cute and functional home decor, these towels serve as both practical hand towels and delightful gifts for dog enthusiasts.
@@ -159,12 +159,12 @@ These **WFSM Corgi hand towels** feature an eye-catching **Corgi print** that br
 
 Crafted by the trusted **WFSM brand**, these towels combine functionality with decorative appeal. They make thoughtful gifts, especially for **women and dog lovers** who appreciate unique and playful home accessories. Whether used as tea towels or hand towels, they add warmth and charm to everyday routines.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D6N8KR46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D6N8KR46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C7483M1J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cute Corgi Bun Dog Butt Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0C7483M1J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cute Corgi Bun Dog Butt Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7483M1J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cute Corgi Bun Dog Butt Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41fXx44mjyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7483M1J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cute Corgi Bun Dog Butt Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/41fXx44mjyL._SL500_.jpg"/></a>
 
 
 The **Cute Corgi Bun Dog Butt Book Ends** are perfect for dog lovers, especially those who want to add a playful and decorative touch to their **kids' rooms, desks, or home offices**. Ideal for individuals looking to keep their **books, magazines, DVDs** organized in a fun and stylish way, these bookends are both functional and charming. If you enjoy quirky home décor and need sturdy book stoppers, this pair is a great choice.
@@ -186,12 +186,12 @@ These **Famame** bookends boast a delightful design styled as a **Corgi dog butt
 
 Beyond their utility, these bookends serve as a unique decorative element that can brighten up any space. Their playful style appeals to pet enthusiasts and adds a whimsical flair to your home or office environment. Whether you are looking to organize your collection of books or keep magazines neatly stacked, these **decorative wood bookends** combine function with cuteness, making them a great addition to your organizational tools.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C7483M1J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C7483M1J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ambipolar Dog Decor Bookends</a>
+## <a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ambipolar Dog Decor Bookends</a>
 
 
-<a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ambipolar Dog Decor Bookends, Geometric Bookends to Hold Books Heavy Duty for Office Desk, Vintage Antique Black Home Decor, Shelf Decor, Modern Living Room Decor" src="https://m.media-amazon.com/images/I/51t76cfS6DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ambipolar Dog Decor Bookends, Geometric Bookends to Hold Books Heavy Duty for Office Desk, Vintage Antique Black Home Decor, Shelf Decor, Modern Living Room Decor" src="https://m.media-amazon.com/images/I/51t76cfS6DL._SL500_.jpg"/></a>
 
 
 The **Ambipolar Dog Decor Bookends** are perfect for individuals who appreciate a blend of functionality and style in their home or office. Ideal for pet lovers, book enthusiasts, and those looking to add a vintage yet modern touch to their living space, these bookends offer both practicality and aesthetic appeal. If you want to keep your books neatly organized while enhancing your decor, this item is a great choice.
@@ -213,12 +213,12 @@ The **Ambipolar Dog Decor Bookends** combine durability with stylish design, mak
 
 With dimensions that make them compact yet effective, these bookends fit seamlessly into various environments without overwhelming the space. The **vintage antique black** color enhances their versatility, allowing them to blend with both modern and traditional decor styles. Whether you are organizing your favorite novels, important documents, or showcasing them as part of your home decor, these bookends deliver both utility and aesthetic appeal.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08TV6DHDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D363LYX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Bookends</a>
+## <a href="https://www.amazon.com/dp/B0D363LYX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Bookends</a>
 
 
-<a href="https://www.amazon.com/dp/B0D363LYX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Bookends, Book Ends for Shelves to Hold Books Heavy Duty, Creative Resin Book Holders for Kitchen Desk Home Office" src="https://m.media-amazon.com/images/I/41DHARovCKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D363LYX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Bookends, Book Ends for Shelves to Hold Books Heavy Duty, Creative Resin Book Holders for Kitchen Desk Home Office" src="https://m.media-amazon.com/images/I/41DHARovCKL._SL500_.jpg"/></a>
 
 
 Ideal for **book lovers**, **home office organizers**, and those looking to add a touch of elegance to their shelves, the **Dog Bookends** by **LADDERU** are perfect for anyone who wants to keep their books neatly arranged while enhancing their decor. These **heavy-duty**, **creative resin book holders** are especially suited for users who need sturdy support for their books on desks, kitchen counters, or home office spaces.
@@ -240,12 +240,12 @@ The **Dog Bookends** combine both functionality and artistic design, making them
 
 Beyond their attractive appearance, these bookends offer practical benefits such as preventing books from falling or becoming disorganized. The **compact size** makes them adaptable for various environments, whether it's a cozy kitchen nook or a professional home office. Overall, these bookends serve as both a functional accessory and a stylish accent piece to enhance your book collection and room decor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D363LYX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D363LYX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CMTV2J67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corgi Splash Watercolor Dog Book Ends</a>
+## <a href="https://www.amazon.com/dp/B0CMTV2J67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corgi Splash Watercolor Dog Book Ends</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMTV2J67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Corgi Splash Watercolor Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/4190HZ7zZjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMTV2J67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Corgi Splash Watercolor Dog Book Ends Decorative Wood Bookends for Shelves Kids Room Desk Home Office Book Stoppers for Magazines,Books, DVDs, 1 Pair/2 Pieces(5x3.1 in)" src="https://m.media-amazon.com/images/I/4190HZ7zZjL._SL500_.jpg"/></a>
 
 
 The **Corgi Splash Watercolor Dog Book Ends** are perfect for pet lovers, especially those who adore dogs and want to add a whimsical touch to their living or working spaces. Ideal for parents decorating a child's room, office workers looking for charming desk accessories, or anyone who needs practical yet decorative book stoppers for shelves, these **decorative wood bookends** combine functionality with adorable design.
@@ -267,12 +267,12 @@ These **Famame brand** bookends provide not only a practical solution for keepin
 
 Compact and versatile, the bookends fit easily on shelves or desks without taking up too much space. Their artistic design and practical use make them an excellent gift choice for dog enthusiasts or anyone looking to brighten up their storage areas. Whether for a child's room, office, or home library, these book stoppers blend style and utility seamlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CMTV2J67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CMTV2J67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D4H58DM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oganazi 2 Pack Dog Decorative Bookends For Shelf</a>
+## <a href="https://www.amazon.com/dp/B0D4H58DM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oganazi 2 Pack Dog Decorative Bookends For Shelf</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4H58DM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OGANAZI 2 Pack Dog Decorative Bookends for Shelf - Cast Iron Book Ends Cute Dog Bookend Support for Home Decor, Heavy Duty Book Stands Vintage Antique Shelf Decor for Reading Enthusiasts or Dog Lovers" src="https://m.media-amazon.com/images/I/41B0Md+djsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4H58DM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OGANAZI 2 Pack Dog Decorative Bookends for Shelf - Cast Iron Book Ends Cute Dog Bookend Support for Home Decor, Heavy Duty Book Stands Vintage Antique Shelf Decor for Reading Enthusiasts or Dog Lovers" src="https://m.media-amazon.com/images/I/41B0Md+djsL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers** and **reading enthusiasts** who want to add a touch of vintage charm to their home decor, the **OGANAZI 2 Pack Dog Decorative Bookends** combine functionality with aesthetic appeal. These **heavy-duty cast iron bookends** are perfect for those seeking sturdy support for their bookshelves while showcasing their love for dogs in a stylish way.
@@ -295,7 +295,7 @@ The **OGANAZI Dog Decorative Bookends** are crafted from premium **cast iron**, 
 
 Beyond their practical function, these bookends serve as an eye-catching decorative piece for dog enthusiasts. The charming dog silhouette adds personality and warmth to your reading nook or living area. Thanks to their solid construction and attractive design, these bookends are not only useful for organizing books but also help elevate the overall ambiance of your home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D4H58DM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D4H58DM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

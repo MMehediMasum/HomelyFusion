@@ -23,10 +23,10 @@ Easy to maintain and designed for durability, these rugs are perfect for homes w
 
 
 
-## <a href="https://www.amazon.com/dp/B0F2T2K2YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garveehome Scalloped 8x10 Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F2T2K2YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garveehome Scalloped 8x10 Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2T2K2YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GarveeHome Scalloped 8x10 Rugs Washable Area Rugs for Living Room, Modern Bordered Solid Rug for Bedroom, Abstract Scalloped Non-Slip Stain Resistant Carpet for Dining Room Home Office Dorm,Cream" src="https://m.media-amazon.com/images/I/51113hF2TdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2T2K2YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GarveeHome Scalloped 8x10 Rugs Washable Area Rugs for Living Room, Modern Bordered Solid Rug for Bedroom, Abstract Scalloped Non-Slip Stain Resistant Carpet for Dining Room Home Office Dorm,Cream" src="https://m.media-amazon.com/images/I/51113hF2TdL._SL500_.jpg"/></a>
 
 
 The **GarveeHome Scalloped 8x10 Rugs** are ideal for homeowners and renters seeking a stylish yet practical addition to their living spaces. Perfect for those who want a **washable area rug** that combines modern aesthetics with functionality, this rug suits living rooms, bedrooms, dining rooms, home offices, and dorms. If you prioritize a **non-slip**, **stain-resistant carpet** that offers both comfort and durability, this rug is a great choice.
@@ -50,10 +50,10 @@ Crafted by **GarveeHome**, this rug measures approximately 8 by 10 feet, providi
 
 Beyond its visual appeal, this rug offers practical benefits such as a **stain-resistant surface** that helps maintain cleanliness over time. The **non-slip backing** ensures safety by preventing unwanted movement, making it ideal for households with children or pets. Additionally, the **washable material** simplifies upkeep, allowing users to freshen the rug easily and extend its lifespan. Overall, the GarveeHome Scalloped Rug balances style with functionality, meeting the needs of modern living environments.
 
-## <a href="https://www.amazon.com/dp/B0DHW9SWKS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Scottie Collection Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0DHW9SWKS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Chris Loves Julia Scottie Collection Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHW9SWKS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .87"="" 5'-6",="" accent="" alt="Loloi Chris Loves Julia Scottie Collection SCO-01 Fog/Ivory 3'-6" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51yAcuLeMbL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DHW9SWKS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img .87"="" 5'-6",="" accent="" alt="Loloi Chris Loves Julia Scottie Collection SCO-01 Fog/Ivory 3'-6" height,="" pile="" rug"="" src="https://m.media-amazon.com/images/I/51yAcuLeMbL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Chris Loves Julia Scottie Collection SCO-01 Fog/Ivory 3'-6" x 5'-6"** accent rug is ideal for homeowners and interior enthusiasts looking to add a touch of modern elegance and comfort to smaller living spaces such as bedrooms, reading nooks, or entryways. This rug is perfect for those who appreciate stylish, high-quality home decor pieces that blend seamlessly with contemporary or transitional design aesthetics.
@@ -75,10 +75,10 @@ The **Loloi Chris Loves Julia Scottie Collection SCO-01** accent rug boasts a ca
 
 Crafted by **Loloi Rugs**, this accent rug combines aesthetic appeal with practical benefits. Its lightweight construction facilitates easy repositioning and cleaning, while the soft texture adds warmth and comfort to any room. Whether placed in a bedroom, living room, or entryway, this rug elevates your interior style and creates a welcoming atmosphere for family and guests alike.
 
-## <a href="https://www.amazon.com/dp/B0DWJSV234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Washable Entryway Scalloped Rug</a>
+## <a href="https://www.amazon.com/dp/B0DWJSV234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Washable Entryway Scalloped Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWJSV234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Washable 2x3 Entryway Scalloped Rug: Floral Thin Door Mat Non Slip Water Resistant Kitchen Bathroom Area Rug Indoor Ultra Soft Carpet for Laundry Nursery Living Room Bedroom Soft Floor Mat (2x3,Cream)" src="https://m.media-amazon.com/images/I/51fejJ2iomL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWJSV234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Washable 2x3 Entryway Scalloped Rug: Floral Thin Door Mat Non Slip Water Resistant Kitchen Bathroom Area Rug Indoor Ultra Soft Carpet for Laundry Nursery Living Room Bedroom Soft Floor Mat (2x3,Cream)" src="https://m.media-amazon.com/images/I/51fejJ2iomL._SL500_.jpg"/></a>
 
 
 The **Washable 2x3 Entryway Scalloped Rug** is ideal for homeowners and renters who want a stylish yet practical solution for high-traffic areas such as entryways, kitchens, bathrooms, and nurseries. If you are looking for an **ultra-soft carpet** that combines aesthetic appeal with functionality, this **non-slip, water-resistant floor mat** in a subtle **cream floral design** is perfect for adding comfort and safety to your living spaces.
@@ -101,10 +101,10 @@ The **Washable 2x3 Entryway Scalloped Rug** features a delicate scalloped edge t
 
 Made from durable and **water-resistant materials**, this rug is designed to withstand spills and moisture common in kitchens and bathrooms. The **machine washable** feature allows for hassle-free cleaning, keeping the rug looking fresh and vibrant. Its **ultra-soft carpet** texture delivers comfort, making it suitable for prolonged standing or playtime in nurseries. The elegant **cream floral design** not only brightens the room but also complements various décor themes, enhancing the overall ambiance.
 
-## <a href="https://www.amazon.com/dp/B0DZX8CQPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Livebox Scalloped Washable 5x7 Rug</a>
+## <a href="https://www.amazon.com/dp/B0DZX8CQPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Livebox Scalloped Washable 5x7 Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZX8CQPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIVEBOX Scalloped Washable 5x7 Rug, Easy Jute Tan Rugs for Living Room, Indoor Geometric Rug for Bedroom, Outdoor Farmhouse Non-Slip Rug Dining Room Mat Morden Carpet Area Rug for Home Office" src="https://m.media-amazon.com/images/I/51tJ75bQNPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZX8CQPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LIVEBOX Scalloped Washable 5x7 Rug, Easy Jute Tan Rugs for Living Room, Indoor Geometric Rug for Bedroom, Outdoor Farmhouse Non-Slip Rug Dining Room Mat Morden Carpet Area Rug for Home Office" src="https://m.media-amazon.com/images/I/51tJ75bQNPL._SL500_.jpg"/></a>
 
 
 The **LIVEBOX Scalloped Washable 5x7 Rug** is ideal for homeowners and renters looking to add a stylish yet functional element to their living spaces. Perfect for those who appreciate a blend of durability and aesthetic appeal, this **easy jute tan rug** suits individuals wanting a versatile floor covering that works well both indoors and outdoors. If you need a **non-slip, farmhouse-style rug** for your living room, bedroom, dining area, or home office, this item is a great choice.
@@ -128,10 +128,10 @@ The **LIVEBOX Scalloped Washable Rug** combines practicality with a modern farmh
 
 Beyond its visual appeal, the rug’s **non-slip backing** makes it safe for households with children or pets, reducing the risk of slips and falls. Its versatility extends to both indoor and outdoor settings, making it suitable for a variety of uses such as under dining tables, in living rooms, or even on patios. The **neutral tan color** effortlessly blends with various color schemes, ensuring it complements your existing décor while bringing a cozy, inviting atmosphere to your home or office space.
 
-## <a href="https://www.amazon.com/dp/B0DNJDH4GN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hand-tufted Wool Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNJDH4GN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hand-tufted Wool Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNJDH4GN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand-Tufted Wool Rug with Scalloped Edges, Light Blue Plaid Pattern, Cozy Soft Area Rug for Living Room, Bedroom, and Nursery, Handmade Modern Accent Rug, 3x5 Ft" src="https://m.media-amazon.com/images/I/51Trsx5mWzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNJDH4GN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand-Tufted Wool Rug with Scalloped Edges, Light Blue Plaid Pattern, Cozy Soft Area Rug for Living Room, Bedroom, and Nursery, Handmade Modern Accent Rug, 3x5 Ft" src="https://m.media-amazon.com/images/I/51Trsx5mWzL._SL500_.jpg"/></a>
 
 
 The **Hand-Tufted Wool Rug with Scalloped Edges** is ideal for homeowners and renters looking to add a touch of modern elegance and cozy comfort to their living spaces. Perfect for those who appreciate **handmade craftsmanship** and want a versatile rug that works beautifully in the **living room**, **bedroom**, or **nursery**. This rug suits individuals who value soft textures and subtle patterns to complement a calming and stylish home environment.
@@ -154,10 +154,10 @@ This **handmade modern accent rug** features a carefully crafted **wool tufting 
 
 The **scalloped edges** add a distinctive touch that elevates the overall design, creating visual interest beyond a traditional rectangular rug. Its moderate size and lightweight design make it practical for everyday use in multiple rooms like the nursery or bedroom, where warmth and softness are key. Overall, this rug enhances any space by combining aesthetic appeal with functional comfort, making it a smart choice for anyone looking to refresh their home décor.
 
-## <a href="https://www.amazon.com/dp/B0F1MKT1VW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lahome Scalloped Washable Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F1MKT1VW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lahome Scalloped Washable Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1MKT1VW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Scalloped Washable Rugs 8x10, Soft 8x10 Area Rugs for Living Room Bedroom, Modern Bordered Non-Slip Ultra-Thin Large Throw Carpet for Nursery Dining Room Office,Mauve/Pink" src="https://m.media-amazon.com/images/I/51lRL9NQgZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1MKT1VW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Scalloped Washable Rugs 8x10, Soft 8x10 Area Rugs for Living Room Bedroom, Modern Bordered Non-Slip Ultra-Thin Large Throw Carpet for Nursery Dining Room Office,Mauve/Pink" src="https://m.media-amazon.com/images/I/51lRL9NQgZL._SL500_.jpg"/></a>
 
 
 The **Lahome Scalloped Washable Rugs 8x10** are ideal for homeowners and renters looking to add a touch of modern elegance and comfort to their living spaces. Perfect for those who want a stylish yet practical area rug for the **living room, bedroom, nursery, dining room, or office**, this rug suits individuals who value both aesthetics and functionality, especially in high-traffic areas. If you desire an easy-to-maintain, soft, and ultra-thin rug with a non-slip backing, this product is an excellent choice.
@@ -180,10 +180,10 @@ The **Lahome Scalloped Washable Rug** features a thoughtfully designed scalloped
 
 Additionally, the **washable nature** of this rug makes it highly practical for families with children or pets, as spills and stains can be easily managed without professional cleaning. The **non-slip backing** provides extra grip on various floor types, promoting safety and stability. With its generous 8x10 size, this rug offers ample coverage to unify and elevate your room’s decor while protecting your floors from wear and tear.
 
-## <a href="https://www.amazon.com/dp/B0F48HWH6G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4x6 Rug Non-slip Washable Low-pile Carpet</a>
+## <a href="https://www.amazon.com/dp/B0F48HWH6G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4x6 Rug Non-slip Washable Low-pile Carpet</a>
 
 
-<a href="https://www.amazon.com/dp/B0F48HWH6G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4x6 Rug Non-Slip Washable Low-Pile Carpet - Scalloped Solid Pink Modern Minimalism Rugs for Bedroom Living Room Nursery Kitchen Entryway Indoor Mat with Rubber Back" src="https://m.media-amazon.com/images/I/51tplL9zOwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F48HWH6G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4x6 Rug Non-Slip Washable Low-Pile Carpet - Scalloped Solid Pink Modern Minimalism Rugs for Bedroom Living Room Nursery Kitchen Entryway Indoor Mat with Rubber Back" src="https://m.media-amazon.com/images/I/51tplL9zOwL._SL500_.jpg"/></a>
 
 
 The **4x6 Rug Non-Slip Washable Low-Pile Carpet** in **Scalloped Solid Pink** is ideal for individuals seeking a stylish yet functional **indoor mat** that complements modern minimalistic decor. Perfect for homeowners looking to add a splash of color and comfort to their **bedroom, living room, nursery, kitchen, or entryway**, this rug caters to those who value both aesthetics and practicality in their home furnishings.
@@ -206,10 +206,10 @@ The **GarveeHome 4x6 Rug** stands out with its **non-slip rubber back**, making 
 
 Beyond aesthetics, the rug's versatility means it can be easily relocated across different rooms, serving as both a decorative and functional element. Although the thickness is modest, it provides enough comfort for daily use while preventing the accumulation of dust and allergens often trapped in thicker carpets. Overall, this rug balances style, safety, and practicality, making it a worthy addition to any indoor space.
 
-## <a href="https://www.amazon.com/dp/B0DQG6BN6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Caremee Scalloped Rug 2.5x8 Runners For Hallways</a>
+## <a href="https://www.amazon.com/dp/B0DQG6BN6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Caremee Scalloped Rug 2.5x8 Runners For Hallways</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQG6BN6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CAREMEE Scalloped Rug 2.5x8 Runners for Hallways, Solid Jute Runner Rug Non Slip Scalloped Bath Runner, Washable Rugs for Bedroom Girls, Rugs for Kitchen Floor Soft Dorm Nursery Carpet for Bedside" src="https://m.media-amazon.com/images/I/51lykyCupuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQG6BN6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CAREMEE Scalloped Rug 2.5x8 Runners for Hallways, Solid Jute Runner Rug Non Slip Scalloped Bath Runner, Washable Rugs for Bedroom Girls, Rugs for Kitchen Floor Soft Dorm Nursery Carpet for Bedside" src="https://m.media-amazon.com/images/I/51lykyCupuL._SL500_.jpg"/></a>
 
 
 The **CAREMEE Scalloped Rug 2.5x8 Runners** is ideal for individuals looking to enhance their living spaces with a versatile, stylish, and functional floor covering. Perfect for homeowners, renters, and dorm residents, this **solid jute runner rug** is especially suited for those who want a durable, non-slip, and washable rug for high-traffic areas such as hallways, kitchens, bedrooms, and nurseries.
@@ -233,10 +233,10 @@ The **CAREMEE Scalloped Rug** features a thoughtfully designed shape and materia
 
 Additionally, the rug's **non-slip backing** enhances safety, especially in homes with children or elderly residents. The scalloped edges provide a unique decorative accent that elevates the look of any room, from kitchens to bedrooms. Its washable nature means it can be easily cleaned, maintaining a fresh and inviting atmosphere wherever it is placed.
 
-## <a href="https://www.amazon.com/dp/B0D25W6CCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Knight Fury Scalloped Natural Jute Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0D25W6CCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Knight Fury Scalloped Natural Jute Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D25W6CCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="knight fury Scalloped Natural Jute Area Rug, Hand Woven Classic Rug Kitchen Rugs, Rugs for Living &amp; Bedroom (2x3 ft)" src="https://m.media-amazon.com/images/I/513rX3Y4UBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D25W6CCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="knight fury Scalloped Natural Jute Area Rug, Hand Woven Classic Rug Kitchen Rugs, Rugs for Living &amp; Bedroom (2x3 ft)" src="https://m.media-amazon.com/images/I/513rX3Y4UBL._SL500_.jpg"/></a>
 
 
 The **knight fury Scalloped Natural Jute Area Rug** is ideal for individuals seeking a durable, eco-friendly, and stylish addition to their living spaces. Perfect for homeowners or renters who appreciate natural materials and want to enhance their **kitchens, living rooms, or bedrooms** with a handwoven, classic rug that combines both functionality and aesthetic appeal.
@@ -259,10 +259,10 @@ The **knight fury Scalloped Natural Jute Area Rug** stands out with its handwove
 
 Additionally, the rug’s natural color palette and scalloped edges offer timeless elegance, effortlessly blending with contemporary or classic furnishings. While it excels in dry environments like living rooms and bedrooms, users should be mindful of its sensitivity to moisture. Overall, this rug provides an attractive, functional, and environmentally friendly flooring option that enhances the comfort and style of any room.
 
-## <a href="https://www.amazon.com/dp/B0FC6D1MLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lorwer Scalloped Easy Jute Hallway Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0FC6D1MLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lorwer Scalloped Easy Jute Hallway Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC6D1MLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LORWER Scalloped Easy Jute Hallway Runner Rug, 2x6 Kitchen Non Slip Runner Washable Outdoor Indoor Long Rug, Farmhouse Morden Carpet for Porch Bedroom Laundry Front Door" src="https://m.media-amazon.com/images/I/51qCKPWzXcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC6D1MLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LORWER Scalloped Easy Jute Hallway Runner Rug, 2x6 Kitchen Non Slip Runner Washable Outdoor Indoor Long Rug, Farmhouse Morden Carpet for Porch Bedroom Laundry Front Door" src="https://m.media-amazon.com/images/I/51qCKPWzXcL._SL500_.jpg"/></a>
 
 
 The **LORWER Scalloped Easy Jute Hallway Runner Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. Perfect for those who want a durable, non-slip, and washable rug for high-traffic areas such as kitchens, hallways, porches, and laundry rooms, this rug suits anyone aiming to combine farmhouse charm with modern design. If you need a versatile and easy-to-maintain runner that adds both comfort and aesthetic appeal, this is a great choice.

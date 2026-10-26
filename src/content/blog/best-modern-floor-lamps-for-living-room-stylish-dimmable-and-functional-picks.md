@@ -24,10 +24,10 @@ Some models feature remote controls or foot switches for easy use. Colors and ma
 
 
 
-## <a href="https://www.amazon.com/dp/B0CYH6WS6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CYH6WS6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYH6WS6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp, 3 Lights Arc Floor Lamps for Living Room, Modern Tall Standing Tree Lamp with Gray Linen Shade &amp; Heavy Base, Large Floor Lamp for Bedroom Office, 3x1000 LM LED Bulbs Included" src="https://m.media-amazon.com/images/I/41bd1MsEBTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYH6WS6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp, 3 Lights Arc Floor Lamps for Living Room, Modern Tall Standing Tree Lamp with Gray Linen Shade &amp; Heavy Base, Large Floor Lamp for Bedroom Office, 3x1000 LM LED Bulbs Included" src="https://m.media-amazon.com/images/I/41bd1MsEBTL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp, 3 Lights Arc Floor Lamps for Living Room** is perfect for individuals looking to enhance their living spaces with stylish and functional lighting. Ideal for homeowners, office workers, or anyone who needs adjustable and bright illumination, this lamp suits those who appreciate modern design combined with practical features.
@@ -51,10 +51,10 @@ This **modern tall standing tree lamp** features an elegant arc design with thre
 
 Designed with a **heavy base**, the lamp remains stable even when positioned in high-traffic areas. Its **matte black frame** and stylish fabric shades blend seamlessly with contemporary decor. The dimmable functionality offers users full control over lighting intensity, enhancing comfort and energy efficiency.
 
-## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp - 3 Lights Arc Floor Lamps** is ideal for individuals seeking a stylish and functional lighting solution for their **living room, bedroom, or office**. This lamp is perfect for those who appreciate **modern mid-century design** and want customizable lighting with its **dimmable feature**. If you need a tall, elegant lamp that provides both ambient and task lighting with energy-efficient LEDs, this product is an excellent choice.
@@ -78,10 +78,10 @@ The **Dimmable Floor Lamp** features a sleek **arc design** with three adjustabl
 
 With its **sturdy heavy base**, the lamp remains stable and secure, even when adjusted. Its lightweight build means it can be easily repositioned to suit changing room layouts or lighting needs. Whether used in a modern living room, cozy bedroom, or professional office, this floor lamp combines functionality and style, enhancing any space with warm, customizable light and timeless design.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, **office**, or **dining room**. This lamp is perfect for those who appreciate modern design combined with practical features like dimmable lighting and an included **1000 Lumens LED Edison Bulb**. It suits homeowners and professionals who want to enhance ambiance while maintaining energy efficiency.
@@ -103,10 +103,10 @@ Featuring a sleek **arc floor lamp design**, this product brings both aesthetic 
 
 Additionally, the combination of the **matte black finish** and the soft-textured **linen shade** delivers a modern yet cozy atmosphere. Its compact size and portability make it an excellent choice for smaller living areas or offices where space is a premium. Overall, this lamp balances style, functionality, and convenience for a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B0B95XH99V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0B95XH99V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arc Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0B95XH99V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room, Modern Standing Lamp with Adjustable Hanging Drum Shade, Tall Pole Lamp with Foot Switch, Over Couch Arched Reading Light for Bedroom, Office (Black)" src="https://m.media-amazon.com/images/I/413IArq6kLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B95XH99V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arc Floor Lamps for Living Room, Modern Standing Lamp with Adjustable Hanging Drum Shade, Tall Pole Lamp with Foot Switch, Over Couch Arched Reading Light for Bedroom, Office (Black)" src="https://m.media-amazon.com/images/I/413IArq6kLL._SL500_.jpg"/></a>
 
 
 The **Arc Floor Lamps for Living Room** by **Seaside village** are ideal for individuals seeking a modern, versatile lighting solution that enhances both functionality and style. Perfect for homeowners, office workers, or anyone looking to brighten up a **living room**, **bedroom**, or workspace with an elegant floor lamp that features an adjustable hanging drum shade and a convenient foot switch.
@@ -129,10 +129,10 @@ The **Arc Floor Lamp** stands out due to its tall, elegant pole design combined 
 
 The inclusion of a convenient foot switch adds to the lamp’s user-friendly design, allowing effortless control without disrupting your activities. Additionally, its sleek black finish provides a contemporary touch that blends seamlessly into various interiors. Whether used in a **bedroom**, **office**, or **living room**, this floor lamp offers both aesthetic appeal and practical functionality, making it a valuable addition for anyone looking to improve their lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Arc Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Arc Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDW797MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDW797MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Arc Floor Lamp,Modern Floor Lamp with 9W 3 Color Temperatures Bulb,Metal Standing Lamps with Adjustable Hanging Lampshade,Tall Floor Lamps for Living Room,Bedroom,Office (Black)" src="https://m.media-amazon.com/images/I/41FkBv9pc5L._SL500_.jpg"/></a>
 
 
 The **SUNMORY Arc Floor Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **living room**, **bedroom**, or **office**. This modern floor lamp is perfect for those who appreciate adjustable lighting options and contemporary design, especially in spaces that require both ambiance and task lighting.
@@ -154,10 +154,10 @@ The **SUNMORY Arc Floor Lamp** features a sturdy metal construction with a moder
 
 With its tall stature measuring 50 inches, this floor lamp effectively illuminates larger spaces without occupying much floor space. The black finish provides a versatile and sleek look, making it easy to blend with various interior styles. While it lacks a remote control, the lamp’s intuitive design ensures straightforward operation, delivering both style and functionality for anyone looking to enhance their home or office lighting.
 
-## <a href="https://www.amazon.com/dp/B0CCRCQ18V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CCRCQ18V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCRCQ18V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable LED Lamps for Living Room with 3 Color Temperatures, Ultra Bright 2000LM Arc Floor Lamps, Modern Standing Tall Lamp with Remote Control Reading Floor Lamp for Bedroom Office Classroom" src="https://m.media-amazon.com/images/I/31zLzkMzWTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCRCQ18V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable LED Lamps for Living Room with 3 Color Temperatures, Ultra Bright 2000LM Arc Floor Lamps, Modern Standing Tall Lamp with Remote Control Reading Floor Lamp for Bedroom Office Classroom" src="https://m.media-amazon.com/images/I/31zLzkMzWTL._SL500_.jpg"/></a>
 
 
 The **Dimmable LED Lamps for Living Room** are ideal for individuals seeking a versatile and modern lighting solution for their **bedroom, office, classroom**, or living area. If you value adjustable brightness and customizable lighting tones to create the perfect ambiance for reading, working, or relaxing, this floor lamp is designed to meet your needs. Its remote control feature also appeals to those who prioritize convenience and ease of use.
@@ -181,10 +181,10 @@ The **Torondo dimmable LED floor lamp** boasts impressive versatility with its t
 
 Equipped with a convenient remote control, this modern standing lamp offers effortless lighting adjustments from anywhere in the room. The sleek **matte black finish** and tall, slender design not only provide functional illumination but also add a stylish element to your decor. Its generous height of nearly 67 inches enables broad light coverage, making it a practical choice for living rooms, bedrooms, offices, and classrooms alike. Overall, this lamp combines aesthetics, functionality, and user-friendly features that cater to a wide range of lighting needs.
 
-## <a href="https://www.amazon.com/dp/B093GXHRWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B093GXHRWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B093GXHRWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp for Living Room, Adjustable Height Standing Lamp with Marble Base, 3-Way Dimmable Gold Brass Tall Pole Light with White Linen Shade for Reading, Bedroom, Chain Switch, Bulb Included" src="https://m.media-amazon.com/images/I/5120EtfVckL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093GXHRWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp for Living Room, Adjustable Height Standing Lamp with Marble Base, 3-Way Dimmable Gold Brass Tall Pole Light with White Linen Shade for Reading, Bedroom, Chain Switch, Bulb Included" src="https://m.media-amazon.com/images/I/5120EtfVckL._SL500_.jpg"/></a>
 
 
 The **Modern Floor Lamp for Living Room** is ideal for individuals seeking a stylish yet functional lighting solution that complements contemporary interiors. Perfect for those who enjoy reading, working, or relaxing in well-lit spaces, this lamp suits homeowners or renters who want an adjustable and elegant light source that enhances both ambiance and decor.
@@ -209,10 +209,10 @@ This **Modern Floor Lamp** features an **adjustable height** mechanism that allo
 
 The combination of a **gold brass tall pole** and a **white linen shade** balances contemporary elegance with soft illumination. This design choice ensures that the light is both functional and aesthetically pleasing, reducing glare while enhancing the room’s ambiance. The inclusion of a **chain switch** makes turning the lamp on and off effortless, while the **bulb included** feature adds value and convenience for the user right out of the box.
 
-## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Gold Floor Lamp** is perfect for individuals seeking a stylish yet functional lighting solution for their **living room, bedroom, office, or reading room**. Ideal customers include those who appreciate modern design with practical features like dimmability and integrated LED technology, making it a great choice for anyone wanting to enhance ambiance and lighting versatility in their space.
@@ -234,10 +234,10 @@ Featuring an upgraded design from the brand **Nintiue**, this floor lamp combine
 
 Its sleek **gold finish** and **linen shade** complement modern interior styles, adding warmth and elegance to your space. The tall, arc-style design provides ample lighting coverage while occupying minimal floor space. Whether you need a focused light for reading or a gentle light for relaxing, this lamp adapts seamlessly, making it a practical and stylish addition to your home or office environment.
 
-## <a href="https://www.amazon.com/dp/B0F2SH42R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sibrille Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F2SH42R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sibrille Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2SH42R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIBRILLE Floor Lamp with Linen Shade, Dimmable Tall Standing Lamp with Remote Control &amp; 3 Color Temperatures, Modern Floor Lamps for Living Room Bedroom Office Corner, 9W LED Bulb Included" src="https://m.media-amazon.com/images/I/41B7+BD-VpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2SH42R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIBRILLE Floor Lamp with Linen Shade, Dimmable Tall Standing Lamp with Remote Control &amp; 3 Color Temperatures, Modern Floor Lamps for Living Room Bedroom Office Corner, 9W LED Bulb Included" src="https://m.media-amazon.com/images/I/41B7+BD-VpL._SL500_.jpg"/></a>
 
 
 The **SIBRILLE Floor Lamp with Linen Shade** is ideal for individuals looking to enhance their living spaces with elegant yet functional lighting. Perfect for homeowners, office workers, and interior design enthusiasts who want a versatile lighting solution that combines modern aesthetics with practical features. If you need a tall standing lamp that offers adjustable brightness and color temperatures, this lamp is a great choice.
@@ -260,10 +260,10 @@ The **SIBRILLE Floor Lamp** features a sleek and modern design with a tall statu
 
 One of the standout features is the **dimmable function** combined with the **remote control**, allowing users to easily adjust brightness levels and switch between three different **color temperatures**. This versatility supports various activities from reading to relaxing, enhancing comfort and functionality. Additionally, its neutral beige color and modern aesthetic enable seamless integration into most living rooms, bedrooms, or office spaces, making it a practical and stylish lighting choice.
 
-## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
 
 
 The **Modern Floor Lamp Simple Design with White Shade** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, **office**, **dining room**, or **kitchen**. This lamp is perfect for those who appreciate minimalist aesthetics combined with practical features such as a **foot pedal switch** for easy operation and a sleek black pole design that complements various interior styles. If you want a compact, elegant lamp that does not require a bulb included, this product suits your needs.

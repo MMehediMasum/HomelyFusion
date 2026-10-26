@@ -22,10 +22,10 @@ Adjustable brightness and dimmable features add comfort and convenience. Materia
 
 
 
-## <a href="https://www.amazon.com/dp/B0DFLCVPHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">26" Modern Table Lamp With Usb A+c Charging Ports &amp; Ac Outlet</a>
+## <a href="https://www.amazon.com/dp/B0DFLCVPHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">26" Modern Table Lamp With Usb A+c Charging Ports &amp; Ac Outlet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFLCVPHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" a+c="" ac="" alt="26" bedroom="" beside="" black(2="" bulbs="" charging="" contemporary="" end="" for="" glass="" included)"="" industrial="" lamp="" led="" light="" living="" modern="" night="" nightstand="" outlet,="" ports="" room="" single="" src="https://m.media-amazon.com/images/I/41fWUV9mV7L._SL500_.jpg" table="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DFLCVPHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" a+c="" ac="" alt="26" bedroom="" beside="" black(2="" bulbs="" charging="" contemporary="" end="" for="" glass="" included)"="" industrial="" lamp="" led="" light="" living="" modern="" night="" nightstand="" outlet,="" ports="" room="" single="" src="https://m.media-amazon.com/images/I/41fWUV9mV7L._SL500_.jpg" table="" usb="" with=""/></a>
 
 
 The **26" Modern Table Lamp with USB A+C Charging Ports & AC Outlet** by **Lolikit** is ideal for individuals seeking a blend of style and functionality in their living spaces. Perfect for those who want a sleek, industrial yet contemporary lighting solution for their **living room**, **bedroom**, or **nightstand**. This lamp suits tech-savvy users who appreciate integrated charging options and a compact design without compromising on illumination quality.
@@ -47,10 +47,10 @@ This **Lolikit modern table lamp** offers a unique combination of lighting and c
 
 Designed with user convenience in mind, this lamp’s height and dimensions are ideal for placement on **bedroom nightstands** or **end tables** in living rooms. The sturdy black finish is both elegant and neutral, fitting seamlessly into various color schemes and settings. Whether charging devices overnight or setting the mood with warm LED light, this lamp provides versatility and aesthetic appeal in one compact unit.
 
-## <a href="https://www.amazon.com/dp/B0D3G5NBWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">27" Farmhouse Industrial Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B0D3G5NBWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">27" Farmhouse Industrial Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3G5NBWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" a+c="" ac="" alt="27" bedrooms="" beside="" charging="" end="" farmhouse="" for="" glass="" industrial="" lamps="" lamps,="" led="" light="" living="" modern="" night="" nightstand="" outlet,="" ports="" retro="" room="" rustic="" src="https://m.media-amazon.com/images/I/41LkeEy4MyL._SL500_.jpg" table="" table"="" usb="" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D3G5NBWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" a+c="" ac="" alt="27" bedrooms="" beside="" charging="" end="" farmhouse="" for="" glass="" industrial="" lamps="" lamps,="" led="" light="" living="" modern="" night="" nightstand="" outlet,="" ports="" retro="" room="" rustic="" src="https://m.media-amazon.com/images/I/41LkeEy4MyL._SL500_.jpg" table="" table"="" usb="" vintage="" with=""/></a>
 
 
 The **27" Farmhouse Industrial Table Lamps** by **Rinweey** are perfect for individuals seeking a blend of **vintage rustic charm** and modern functionality in their living spaces. Ideal for homeowners or renters who appreciate **industrial design** and need versatile lighting solutions with added convenience, such as USB charging and additional power outlets. These lamps suit those who want to enhance their **living rooms, bedrooms, or end tables** with a stylish yet practical lighting option.
@@ -72,10 +72,10 @@ The **27" Farmhouse Industrial Table Lamps** feature a robust and stylish design
 
 Additionally, the lamps come equipped with a **glass LED night light**, which provides a soft, ambient glow perfect for nighttime visibility without disturbing sleep. The vintage rustic retro style blends classic farmhouse elements with industrial aesthetics, making the lamps versatile enough for various interior themes. Their substantial size ensures adequate illumination for reading or accent lighting, while the durable materials promise longevity and consistent performance. Overall, these lamps offer a perfect balance of style, function, and modern convenience.
 
-## <a href="https://www.amazon.com/dp/B08D6WGJC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bandile Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B08D6WGJC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Bandile Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08D6WGJC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bandile Modern Farmhouse 22.5" bronze"="" glass="" lamp,="" seeded="" src="https://m.media-amazon.com/images/I/21XkzjiA6yL._SL500_.jpg" table=""/></a>
+<a href="https://www.amazon.com/dp/B08D6WGJC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Bandile Modern Farmhouse 22.5" bronze"="" glass="" lamp,="" seeded="" src="https://m.media-amazon.com/images/I/21XkzjiA6yL._SL500_.jpg" table=""/></a>
 
 
 The **Signature Design by Ashley Bandile Modern Farmhouse 22.5" Seeded Glass Table Lamp** in **Bronze** is ideal for homeowners and interior enthusiasts looking to add a touch of rustic charm combined with modern elegance to their living spaces. Those who appreciate quality craftsmanship and want a versatile lighting solution for bedrooms, living rooms, or cozy reading nooks will find this lamp a perfect fit.
@@ -97,10 +97,10 @@ This **modern farmhouse table lamp** features a charming seeded glass body that 
 
 Beyond aesthetics, the lamp is designed with user convenience in mind. The lightweight construction allows easy relocation, while the quality manufacturing by **Ashley Furniture Industries** guarantees durability. Overall, this lamp not only brightens your room but also elevates your interior style with a timeless farmhouse appeal.
 
-## <a href="https://www.amazon.com/dp/B0CLV5YZ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Farmhouse Bedside Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CLV5YZ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Farmhouse Bedside Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLV5YZ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="19.5" bedroom="" bedside="" carved="" decor"="" end="" farmhouse="" floral="" for="" lamps="" light="" living="" night="" nightstand="" of="" ports="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/51zbjYAdF7L._SL500_.jpg" table="" tables="" traditional="" usb="" vintage="" white="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CLV5YZ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="19.5" bedroom="" bedside="" carved="" decor"="" end="" farmhouse="" floral="" for="" lamps="" light="" living="" night="" nightstand="" of="" ports="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/51zbjYAdF7L._SL500_.jpg" table="" tables="" traditional="" usb="" vintage="" white="" with=""/></a>
 
 
 Ideal for those seeking a blend of **rustic charm** and modern functionality, the **19.5" Farmhouse Bedside Table Lamps Set of 2** is perfect for homeowners looking to enhance their **bedroom** or **living room decor**. If you want a **vintage traditional white carved floral lamp** that offers both style and convenience, especially with integrated **USB ports** for easy device charging, this set is an excellent choice.
@@ -123,10 +123,10 @@ The **19.5" Farmhouse Bedside Table Lamps** by **Fullarge** stand out with their
 
 With a traditional pull chain switch, these lamps provide a nostalgic touch while ensuring easy access to lighting control. Their sturdy construction and balanced dimensions make them reliable for everyday use. Whether placed in a cozy bedroom or a welcoming living room, these lamps blend **rustic design** with modern convenience, making them a versatile addition to home decor.
 
-## <a href="https://www.amazon.com/dp/B08L74HY8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boncoo Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08L74HY8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Boncoo Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08L74HY8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Boncoo LED Floor Lamp Fully Dimmable Modern Standing Lamp Arc Floor Lamp with Adjustable Drum Shade, Tall Pole Reading Lamp Light for Living Room Bedroom Study Room, Bulb Included" src="https://m.media-amazon.com/images/I/41JW-ndVjZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L74HY8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Boncoo LED Floor Lamp Fully Dimmable Modern Standing Lamp Arc Floor Lamp with Adjustable Drum Shade, Tall Pole Reading Lamp Light for Living Room Bedroom Study Room, Bulb Included" src="https://m.media-amazon.com/images/I/41JW-ndVjZL._SL500_.jpg"/></a>
 
 
 The **Boncoo LED Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, or **study room**. This lamp is perfect for readers, students, or anyone who desires adjustable, ambient lighting with a modern design. Its fully dimmable feature and adjustable drum shade make it a versatile choice for various lighting needs.
@@ -150,10 +150,10 @@ The **Boncoo LED Floor Lamp** combines a contemporary aesthetic with practical f
 
 Standing at 66 inches tall, this lamp provides ample lighting coverage without overwhelming the space. The elegant gold finish adds a sophisticated touch, blending well with various interior styles. Additionally, the included bulb and lightweight design mean users can quickly set up and enjoy this lamp without extra hassle, making it an excellent investment for both functionality and style.
 
-## <a href="https://www.amazon.com/dp/B0C4D6BYNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxsight Collection 28.5" Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C4D6BYNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxsight Collection 28.5" Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4D6BYNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 2="" alt="LuxSight Collection 28.5" and="" bedroom="" bedrooms"="" bedside="" fabric="" for="" lamp="" lamps="" living="" nightlight="" nightstands="" of="" perfect="" room="" set="" shades="" src="https://m.media-amazon.com/images/I/517FhA8Kl0L._SL500_.jpg" table="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0C4D6BYNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 2="" alt="LuxSight Collection 28.5" and="" bedroom="" bedrooms"="" bedside="" fabric="" for="" lamp="" lamps="" living="" nightlight="" nightstands="" of="" perfect="" room="" set="" shades="" src="https://m.media-amazon.com/images/I/517FhA8Kl0L._SL500_.jpg" table="" usb="" with=""/></a>
 
 
 The **LuxSight Collection 28.5" Table Lamps Set of 2** is ideal for individuals looking to enhance the ambiance of their **bedroom** or **living room** with stylish yet functional lighting. Perfect for those who value both aesthetics and practicality, this set is especially suited for people who need convenient features like **USB ports** for charging devices and a gentle **nightlight** for added comfort during nighttime. Whether you are decorating your nightstands or adding a cozy touch to your space, these lamps meet the needs of modern homeowners and renters alike.
@@ -175,10 +175,10 @@ The **28.5-inch height** of these table lamps makes them an excellent choice for
 
 One of the standout features is the inclusion of **USB ports** integrated into the lamp base, allowing users to conveniently charge electronic devices without the need for additional adapters or outlets. This is especially beneficial for bedrooms where bedside outlets may be limited. The **nightlight function** adds another layer of practicality, offering a subtle glow that helps navigate the room safely in the dark, making it ideal for children, elderly users, or anyone who prefers gentle lighting at night.
 
-## <a href="https://www.amazon.com/dp/B0D8BFXNB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">22in Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D8BFXNB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">22in Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8BFXNB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="22IN Modern Ceramic Table Lamp Set of 2 White Lamps for Living Room Tall Bedroom Lamp Set Bedside Nightstand Lamps Set of Two Farmhouse Rustic Side Table Lamps for End Table Beige Desk Lamps" src="https://m.media-amazon.com/images/I/41ztAh-z7TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8BFXNB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="22IN Modern Ceramic Table Lamp Set of 2 White Lamps for Living Room Tall Bedroom Lamp Set Bedside Nightstand Lamps Set of Two Farmhouse Rustic Side Table Lamps for End Table Beige Desk Lamps" src="https://m.media-amazon.com/images/I/41ztAh-z7TL._SL500_.jpg"/></a>
 
 
 The **22IN Modern Ceramic Table Lamp Set of 2** is ideal for those looking to enhance their living room, bedroom, or office space with elegant and functional lighting. Perfect for individuals who appreciate a blend of **farmhouse rustic** style and modern design, these lamps suit anyone wanting to add a warm, inviting ambiance to their **bedside nightstand** or **end table**. If you desire a durable and stylish lighting solution that complements neutral and beige-toned decor, this lamp set is an excellent choice.
@@ -201,10 +201,10 @@ These **modern ceramic table lamps** boast a clean and timeless design that blen
 
 Beyond aesthetics, the lamps are designed with user convenience in mind. Their lightweight structure allows for easy relocation between rooms or repositioning on bedside tables. The set of two lamps ensures balanced lighting on both sides of a bed or sofa, creating a harmonious ambiance. Whether used for reading, working, or ambient lighting, these lamps provide both style and function for any living space.
 
-## <a href="https://www.amazon.com/dp/B0CL4M1D41?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo 27" Farmhouse Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CL4M1D41?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo 27" Farmhouse Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL4M1D41?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (black)"="" 2="" a+c="" alt="BOBOMOMO 27" bedroom="" bedside="" farmhouse="" for="" lamp="" lamps="" living="" nightstand="" of="" retro="" room="" rustic="" set="" side="" src="https://m.media-amazon.com/images/I/51AzsibH4UL._SL500_.jpg" table="" traditional="" usb="" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CL4M1D41?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (black)"="" 2="" a+c="" alt="BOBOMOMO 27" bedroom="" bedside="" farmhouse="" for="" lamp="" lamps="" living="" nightstand="" of="" retro="" room="" rustic="" set="" side="" src="https://m.media-amazon.com/images/I/51AzsibH4UL._SL500_.jpg" table="" traditional="" usb="" vintage="" with=""/></a>
 
 
 Ideal for those seeking a blend of **vintage charm** and modern functionality, the **BOBOMOMO 27" Farmhouse Table Lamp Set of 2** is perfect for individuals wanting to enhance their **bedroom** or **living room** ambiance with a rustic yet traditional touch. This set suits homeowners, interior decor enthusiasts, and anyone who values both **aesthetic appeal** and practical features like **USB charging ports** integrated into their lighting solutions.
@@ -227,10 +227,10 @@ The **BOBOMOMO 27" Farmhouse Table Lamp Set** showcases a perfect balance of **d
 
 One of the most practical features is the inclusion of **USB A+C charging ports**, allowing users to conveniently charge smartphones, tablets, or other devices without needing extra adapters. This thoughtful addition caters to the modern lifestyle, making these lamps more than just a source of light—they become an essential bedside or living room accessory. The **vintage rustic traditional design** ensures these lamps blend seamlessly with farmhouse, retro, and classic interior themes, offering timeless appeal and lasting value.
 
-## <a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oyears 3-way Dimmable 22'' Usb A+c Touch Control Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oyears 3-way Dimmable 22'' Usb A+c Touch Control Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2 with Nightlight for Living Room Bedroom Farmhouse Bedside Nightstand Lamps (Bulb Included)" src="https://m.media-amazon.com/images/I/51RHVHpkHiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS3CYTTZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2 with Nightlight for Living Room Bedroom Farmhouse Bedside Nightstand Lamps (Bulb Included)" src="https://m.media-amazon.com/images/I/51RHVHpkHiL._SL500_.jpg"/></a>
 
 
 The **OYEARS 3-Way Dimmable 22'' USB A+C Touch Control Table Lamp Set of 2** is ideal for individuals seeking versatile and stylish lighting solutions for their **living room**, **bedroom**, or **bedside nightstand**. This set is perfect for those who appreciate modern farmhouse aesthetics combined with functional features like dimmable lighting and integrated USB charging ports. If you need lamps that provide adjustable brightness, convenient charging options, and a cozy nightlight feature, this product is an excellent choice.
@@ -254,10 +254,10 @@ The **OYEARS 3-Way Dimmable Table Lamp** features a convenient touch control sys
 
 Additionally, the built-in **nightlight feature** provides gentle illumination during nighttime hours, which is perfect for bedrooms or hallways. The set of two lamps ensures balanced lighting across your space, ideal for placement on bedside tables or flanking a sofa. The sturdy construction and included bulb mean you can start enjoying these lamps immediately without additional purchases. Overall, this lamp set combines practical features with aesthetic appeal, making it a smart choice for those looking to enhance their living spaces with functional and attractive lighting.
 
-## <a href="https://www.amazon.com/dp/B0CXSM9DQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Cinsary 25" Farmhouse Jar Table Lamps Set Of 2 </a>
+## <a href="https://www.amazon.com/dp/B0CXSM9DQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Cinsary 25" Farmhouse Jar Table Lamps Set Of 2 </a>
 
 
-<a href="https://www.amazon.com/dp/B0CXSM9DQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" (led="" 2,="" 3="" a+c="" ac="" alt="CINSARY 25" bedroom="" bedside="" bulbs="" control="" farmhouse="" for="" included)"="" jar="" lamps="" living="" nightstand="" of="" outlet,="" ports="" pot="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/41AvzpDUjqL._SL500_.jpg" table="" touch="" usb="" way="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CXSM9DQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" (led="" 2,="" 3="" a+c="" ac="" alt="CINSARY 25" bedroom="" bedside="" bulbs="" control="" farmhouse="" for="" included)"="" jar="" lamps="" living="" nightstand="" of="" outlet,="" ports="" pot="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/41AvzpDUjqL._SL500_.jpg" table="" touch="" usb="" way="" with=""/></a>
 
 
 The **CINSARY 25" Farmhouse Jar Table Lamps Set of 2** is ideal for individuals looking to enhance their **bedroom** or **living room** ambiance with a combination of rustic charm and modern functionality. Perfect for those who appreciate a farmhouse aesthetic and need versatile lighting solutions that also offer convenient charging options, this set is well-suited for homeowners, renters, or anyone wanting to upgrade their bedside or nightstand setup.

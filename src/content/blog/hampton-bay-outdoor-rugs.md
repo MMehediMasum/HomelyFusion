@@ -23,10 +23,10 @@ Made with durable materials, they withstand the elements and offer easy maintena
 
 
 
-## <a href="https://www.amazon.com/dp/B07T7L441K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07T7L441K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07T7L441K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug, Bohemian, Rustic, Scandinavian Easy, Bedroom,Kitchen,Backyard,Patio,Non Shedding, Natural/Black, 8 X 10" src="https://m.media-amazon.com/images/I/61QsxfIfjBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T7L441K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug, Bohemian, Rustic, Scandinavian Easy, Bedroom,Kitchen,Backyard,Patio,Non Shedding, Natural/Black, 8 X 10" src="https://m.media-amazon.com/images/I/61QsxfIfjBL._SL500_.jpg"/></a>
 
 
 The **JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug** is perfect for individuals seeking a versatile and stylish rug that complements various spaces such as the **bedroom, kitchen, backyard, or patio**. Ideal for those who appreciate a blend of **Bohemian, Rustic, and Scandinavian** design elements, this rug is suited for homeowners or renters looking to enhance both indoor and outdoor areas with a durable, non-shedding floor covering. If you want a low-maintenance yet visually appealing rug, this product fits the bill.
@@ -49,10 +49,10 @@ The **Ourika Moroccan Geometric Rug** features a textured weave that not only en
 
 Additionally, the rug’s non-shedding construction ensures minimal maintenance, allowing users to enjoy a clean and tidy space effortlessly. The size is ideal for covering significant floor areas, providing comfort and style simultaneously. Overall, this rug offers a perfect balance of aesthetic charm and practical functionality for customers seeking a dependable and attractive floor covering.
 
-## <a href="https://www.amazon.com/dp/B0D6NFVMQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tommy Bahama Poolside Offset Stripe Indoor Outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0D6NFVMQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tommy Bahama Poolside Offset Stripe Indoor Outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6NFVMQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tommy Bahama Poolside Offset Stripe Indoor Outdoor Area Rug, Stripe Modern Design, UV Fade Resistant, Ivory/Grey,3'11" src="https://m.media-amazon.com/images/I/41N9xTXHhTL._SL500_.jpg" x5'2""=""/></a>
+<a href="https://www.amazon.com/dp/B0D6NFVMQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tommy Bahama Poolside Offset Stripe Indoor Outdoor Area Rug, Stripe Modern Design, UV Fade Resistant, Ivory/Grey,3'11" src="https://m.media-amazon.com/images/I/41N9xTXHhTL._SL500_.jpg" x5'2""=""/></a>
 
 
 The **Tommy Bahama Poolside Offset Stripe Indoor Outdoor Area Rug** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet durable floor covering. Ideal for those who want a rug that seamlessly transitions between indoor and outdoor environments, this rug is suited for individuals who appreciate modern design combined with practical features like UV fade resistance. If you seek a versatile, easy-to-maintain rug that adds both comfort and aesthetic appeal, this item is a great choice.
@@ -75,10 +75,10 @@ Crafted with durability in mind, the **Tommy Bahama Poolside Offset Stripe Rug**
 
 Measuring **3'11"x5'2"** with a height of **0.4 inches**, this rug offers a low-profile look that is easy to clean and maintain, preventing dirt and debris from embedding deeply. Its dual-purpose design allows users to enjoy the comfort and style of an indoor rug while benefiting from the toughness required for outdoor use, making it a practical investment for any home.
 
-## <a href="https://www.amazon.com/dp/B09YCTD74F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo Outdoor Rug For Patio</a>
+## <a href="https://www.amazon.com/dp/B09YCTD74F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genimo Outdoor Rug For Patio</a>
 
 
-<a href="https://www.amazon.com/dp/B09YCTD74F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO Outdoor Rug for Patio Clearance,5'x8' Waterproof Mat,Reversible Plastic Camping Rugs,Rv,Porch,Deck,Camper,Balcony,Backyard,Black &amp; Gray" src="https://m.media-amazon.com/images/I/61+zzrexWYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YCTD74F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENIMO Outdoor Rug for Patio Clearance,5'x8' Waterproof Mat,Reversible Plastic Camping Rugs,Rv,Porch,Deck,Camper,Balcony,Backyard,Black &amp; Gray" src="https://m.media-amazon.com/images/I/61+zzrexWYL._SL500_.jpg"/></a>
 
 
 The **GENIMO Outdoor Rug for Patio Clearance** is ideal for individuals who enjoy spending time outdoors and want to enhance their patio, porch, deck, or backyard space with a durable and stylish mat. This product is perfect for campers, RV owners, and balcony users seeking a practical, waterproof, and easy-to-clean solution that adds both comfort and protection to outdoor areas.
@@ -99,10 +99,10 @@ The **GENIMO Outdoor Rug** features a waterproof construction that ensures it wi
 
 Designed with versatility in mind, this **5'x8'** rug fits various outdoor environments such as patios, decks, and balconies. The durable plastic material offers protection against wear and tear, extending the life of your outdoor flooring while enhancing the overall look of your space. Whether hosting guests or enjoying a quiet moment outdoors, this rug adds both practical benefits and visual appeal to enhance your outdoor living experience.
 
-## <a href="https://www.amazon.com/dp/B0CB761BDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Positano Indoor/outdoor Beige Ivory Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CB761BDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Positano Indoor/outdoor Beige Ivory Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CB761BDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home Positano Indoor/Outdoor Beige Ivory 8' x 10' Area Rug, Easy Cleaning, Non Shedding, Bed Room, Living Room, Dining Room, Backyard, Deck, Patio (8x10)" src="https://m.media-amazon.com/images/I/51Y25LNSZLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CB761BDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home Positano Indoor/Outdoor Beige Ivory 8' x 10' Area Rug, Easy Cleaning, Non Shedding, Bed Room, Living Room, Dining Room, Backyard, Deck, Patio (8x10)" src="https://m.media-amazon.com/images/I/51Y25LNSZLL._SL500_.jpg"/></a>
 
 
 The **Nourison Home Positano Indoor/Outdoor Beige Ivory 8' x 10' Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a versatile and stylish rug. Perfect for those who want a durable, easy-to-clean floor covering suitable for multiple areas such as the **bedroom**, **living room**, **dining room**, as well as outdoor spaces like the **backyard**, **deck**, and **patio**. If you value both functionality and aesthetic appeal, this rug is a great choice.
@@ -124,10 +124,10 @@ The **Nourison Home Positano Rug** features a thoughtfully designed blend of dur
 
 Measuring **8 feet by 10 feet** with a subtle **beige ivory color**, this rug fits seamlessly into various rooms and outdoor setups, providing a cohesive and elegant appearance. The lightweight yet sturdy construction allows for flexible placement, making it a practical and stylish addition to any home seeking comfort and sophistication in their indoor or outdoor living spaces.
 
-## <a href="https://www.amazon.com/dp/B094L2DCS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tommy Bahama Marlin Transitional Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B094L2DCS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tommy Bahama Marlin Transitional Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B094L2DCS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tommy Bahama Marlin Transitional Indoor/Outdoor Area Rug, Brown, 5'3" src="https://m.media-amazon.com/images/I/619jRVIhI2S._SL500_.jpg" x7'3""=""/></a>
+<a href="https://www.amazon.com/dp/B094L2DCS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tommy Bahama Marlin Transitional Indoor/Outdoor Area Rug, Brown, 5'3" src="https://m.media-amazon.com/images/I/619jRVIhI2S._SL500_.jpg" x7'3""=""/></a>
 
 
 The **Tommy Bahama Marlin Transitional Indoor/Outdoor Area Rug** in **brown** is ideal for homeowners and renters looking to enhance both their indoor and outdoor spaces with a stylish yet durable floor covering. This rug is perfect for those who want a versatile, easy-to-maintain option that can withstand different environments, making it suitable for patios, sunrooms, or living areas.
@@ -149,10 +149,10 @@ The **Tommy Bahama Marlin Rug** features a transitional design that blends seaml
 
 With a height of just 0.4 inches, this rug offers a sleek, low-profile look that easily accommodates furniture placement without creating tripping hazards. Additionally, the **brown color** adds warmth and earthiness to any space, enhancing the overall aesthetic while being practical enough to hide minor dirt. Crafted by **Home Dynamix** under the trusted **Tommy Bahama** brand, this rug delivers both style and durability for long-lasting use.
 
-## <a href="https://www.amazon.com/dp/B0DDCBNMBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Outdoor Rug 5x8 Ft</a>
+## <a href="https://www.amazon.com/dp/B0DDCBNMBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Outdoor Rug 5x8 Ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDCBNMBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Outdoor Rug 5x8 ft Waterproof, Reversible Outdoor Plastic Straw Rug, RV Mat, Indoor Outdoor Carpet Clearance for Patio, Camping, Balcony, Deck, Backyard, Grey &amp; White" src="https://m.media-amazon.com/images/I/51ZDJ2p25aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDCBNMBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Outdoor Rug 5x8 ft Waterproof, Reversible Outdoor Plastic Straw Rug, RV Mat, Indoor Outdoor Carpet Clearance for Patio, Camping, Balcony, Deck, Backyard, Grey &amp; White" src="https://m.media-amazon.com/images/I/51ZDJ2p25aL._SL500_.jpg"/></a>
 
 
 The **OLANLY Outdoor Rug 5x8 ft** is perfect for individuals who want a durable, stylish, and easy-to-maintain rug for their outdoor spaces. Ideal customers include homeowners with patios, balconies, decks, or backyards, as well as camping enthusiasts and RV owners looking for a versatile and waterproof mat that can withstand various weather conditions. This rug is designed for those who appreciate functionality combined with aesthetic appeal in their outdoor decor.
@@ -176,10 +176,10 @@ The **OLANLY Outdoor Rug** features a waterproof and reversible design made from
 
 This outdoor rug's durable construction ensures it can handle exposure to moisture, dirt, and sunlight, providing long-lasting use across different environments. Whether placed on a patio, deck, or inside an RV, it offers a comfortable surface that protects flooring beneath while adding style. The reversible feature further extends the rug's usability, allowing users to switch looks effortlessly and maintain a fresh outdoor space.
 
-## <a href="https://www.amazon.com/dp/B0C2YPNSVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Happytrends Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0C2YPNSVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Happytrends Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2YPNSVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HappyTrends,Outdoor Rug,Patio Rug,Reversible Portable Plastic Straw Rug,Camping Rugs for Outside RV,Large Waterproof Area Rugs for Patio,Deck,Picnic,Porch,Balcony(6'x 9',White&amp;Gray)" src="https://m.media-amazon.com/images/I/61qtcvHSg8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2YPNSVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HappyTrends,Outdoor Rug,Patio Rug,Reversible Portable Plastic Straw Rug,Camping Rugs for Outside RV,Large Waterproof Area Rugs for Patio,Deck,Picnic,Porch,Balcony(6'x 9',White&amp;Gray)" src="https://m.media-amazon.com/images/I/61qtcvHSg8L._SL500_.jpg"/></a>
 
 
 The **HappyTrends Outdoor Rug** is ideal for individuals who enjoy spending time outdoors and want a stylish yet practical solution for their patio, deck, or camping setup. Whether you are an avid camper, RV traveler, or someone looking to enhance your outdoor living space, this **reversible portable plastic straw rug** offers both convenience and durability for various outdoor activities.
@@ -202,10 +202,10 @@ The **HappyTrends Outdoor Rug** features a sleek **white and gray** color scheme
 
 Additionally, the **reversible design** adds a practical benefit, allowing users to switch between two patterns or sides to keep the rug looking fresh over time. Its lightweight and portable nature make it an excellent choice for those who frequently travel or camp, as it can be easily rolled or folded for transport. Overall, this rug balances functionality, durability, and aesthetic appeal, enhancing the comfort and style of any outdoor setting.
 
-## <a href="https://www.amazon.com/dp/B0DHGC62NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cocoer Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0DHGC62NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cocoer Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHGC62NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCOER Outdoor Rug-8x10 ft Waterproof Patio Rug-Reversible Outdoor Carpet Plastic Straw Outside Rug-Camping Mat for RV Porch Balcony Black&amp;Beige" src="https://m.media-amazon.com/images/I/61jMOsShb4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHGC62NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCOER Outdoor Rug-8x10 ft Waterproof Patio Rug-Reversible Outdoor Carpet Plastic Straw Outside Rug-Camping Mat for RV Porch Balcony Black&amp;Beige" src="https://m.media-amazon.com/images/I/61jMOsShb4L._SL500_.jpg"/></a>
 
 
 The **COCOER Outdoor Rug-8x10 ft Waterproof Patio Rug** is ideal for individuals looking to enhance their outdoor living spaces with a durable and stylish floor covering. Whether you own an **RV, porch, balcony**, or enjoy camping, this **reversible outdoor carpet** made from **plastic straw** is perfect for those who want a versatile and easy-to-clean mat that withstands various weather conditions.
@@ -227,10 +227,10 @@ The **COCOER Outdoor Rug** features a waterproof construction that ensures it re
 
 Made from robust **plastic straw** material, this rug is designed for longevity and ease of maintenance. It is lightweight and portable, making it an excellent choice for camping enthusiasts who need a reliable mat for their outdoor adventures. Overall, the COCOER Outdoor Rug combines practical features with aesthetic appeal, making it a smart investment for anyone seeking to upgrade their outdoor flooring.
 
-## <a href="https://www.amazon.com/dp/B0BGRJGLQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Cabana Collection Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B0BGRJGLQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Cabana Collection Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGRJGLQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Cabana Collection Accent Rug - 4' x 6', Aqua &amp; Rust, Floral Tropical Design, Non-Shedding &amp; Easy Care, Indoor/Outdoor &amp; Washable-Ideal for Patio, Backyard, Mudroom (CBN454J)" src="https://m.media-amazon.com/images/I/516v9M5Y1-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGRJGLQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Cabana Collection Accent Rug - 4' x 6', Aqua &amp; Rust, Floral Tropical Design, Non-Shedding &amp; Easy Care, Indoor/Outdoor &amp; Washable-Ideal for Patio, Backyard, Mudroom (CBN454J)" src="https://m.media-amazon.com/images/I/516v9M5Y1-L._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Cabana Collection Accent Rug** in **Aqua & Rust** is perfect for homeowners looking to add a vibrant, tropical touch to their indoor or outdoor spaces. Ideal for those who want a durable yet stylish rug that can effortlessly enhance patios, backyards, mudrooms, or any high-traffic area, this rug is designed for people who value both aesthetics and practicality. If you need a rug that is easy to maintain and brings a fresh, floral tropical design into your home, this item is an excellent choice.
@@ -253,10 +253,10 @@ Crafted by **SAFAVIEH**, this accent rug features a durable construction with a 
 
 The rug’s **non-shedding** fibers ensure that your living area remains clean and free from annoying loose threads, which is especially beneficial for those with allergies or pets. Additionally, the rug is designed to be **washable**, simplifying upkeep and making it a practical option for busy households. Whether placed outdoors on your backyard deck or indoors in a high-traffic mudroom, this rug maintains its vibrant look and functional appeal through everyday wear and tear.
 
-## <a href="https://www.amazon.com/dp/B0F4K6F68N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Outdoor Patio Rug</a>
+## <a href="https://www.amazon.com/dp/B0F4K6F68N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Outdoor Patio Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4K6F68N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Outdoor Patio Rug Waterproof Camping - Outdoor Plastic Straw Rug Area Carpet Clearance for Outside, Porch, RV Camper, Picnic, Balcony &amp; Backyard, Patio Decor, Clearance" src="https://m.media-amazon.com/images/I/51iUiqOSXWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4K6F68N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Outdoor Patio Rug Waterproof Camping - Outdoor Plastic Straw Rug Area Carpet Clearance for Outside, Porch, RV Camper, Picnic, Balcony &amp; Backyard, Patio Decor, Clearance" src="https://m.media-amazon.com/images/I/51iUiqOSXWL._SL500_.jpg"/></a>
 
 
 The **Outdoor Patio Rug Waterproof Camping** by Kalafun is ideal for outdoor enthusiasts and homeowners looking to enhance their outdoor living spaces. Whether you enjoy camping, picnics, or simply want to add a stylish touch to your porch, balcony, or backyard, this durable and versatile **area carpet** is designed to meet your needs. Its waterproof and easy-to-clean features make it perfect for those who want a low-maintenance yet attractive outdoor rug.

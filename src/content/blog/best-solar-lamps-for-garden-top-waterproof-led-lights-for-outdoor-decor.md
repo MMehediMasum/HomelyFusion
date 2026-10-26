@@ -22,10 +22,10 @@ Options range from classic stainless steel designs to unique solar flame torches
 
 
 
-## <a href="https://www.amazon.com/dp/B084YXGFXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Lights Outdoor Waterproof</a>
+## <a href="https://www.amazon.com/dp/B084YXGFXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Lights Outdoor Waterproof</a>
 
 
-<a href="https://www.amazon.com/dp/B084YXGFXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Lights Outdoor Waterproof, 6 Pack LED Solar Garden Lights, Outdoor Decorations, Garden Decor for Yard, Patio, Landscape, Planter, Walkway (Warm White)" src="https://m.media-amazon.com/images/I/51KBb4YLT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084YXGFXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Lights Outdoor Waterproof, 6 Pack LED Solar Garden Lights, Outdoor Decorations, Garden Decor for Yard, Patio, Landscape, Planter, Walkway (Warm White)" src="https://m.media-amazon.com/images/I/51KBb4YLT0L._SL500_.jpg"/></a>
 
 
 The **GIGALUMI Solar Lights Outdoor Waterproof** are ideal for homeowners and garden enthusiasts looking to enhance their outdoor spaces with eco-friendly, stylish lighting. Perfect for those who want to illuminate their **yard**, **patio**, **landscape**, or **walkway** without the hassle of wiring or electricity bills, these lights offer a practical and decorative solution.
@@ -48,10 +48,10 @@ The **GIGALUMI Solar Lights** feature a compact and sleek design, measuring just
 
 Designed with durability in mind, these lights are fully **waterproof**, making them reliable even in rainy or damp conditions. The set of six lights offers excellent coverage for pathways, planters, or landscape features, adding both safety and aesthetic appeal. Overall, the **GIGALUMI Solar Garden Lights** combine functionality, style, and sustainability, making them an excellent choice for outdoor decoration and lighting.
 
-## <a href="https://www.amazon.com/dp/B07VPTBXXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Incx Solar Lights For Outside</a>
+## <a href="https://www.amazon.com/dp/B07VPTBXXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Incx Solar Lights For Outside</a>
 
 
-<a href="https://www.amazon.com/dp/B07VPTBXXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INCX Solar Lights for Outside,12 Pack Solar Lights Outdoor Waterproof, Solar Garden Lights Landscape Lighting for Patio Pathway Lawn Yard Deck Driveway Walkway, Cold White" src="https://m.media-amazon.com/images/I/51gLKh3MntS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VPTBXXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INCX Solar Lights for Outside,12 Pack Solar Lights Outdoor Waterproof, Solar Garden Lights Landscape Lighting for Patio Pathway Lawn Yard Deck Driveway Walkway, Cold White" src="https://m.media-amazon.com/images/I/51gLKh3MntS._SL500_.jpg"/></a>
 
 
 The **INCX Solar Lights for Outside** are perfect for homeowners and outdoor enthusiasts looking to enhance their garden, patio, or pathway with efficient and eco-friendly lighting. Ideal for those who want to illuminate their outdoor spaces without increasing electricity bills, these solar lights suit anyone seeking easy installation and durable, weather-resistant fixtures.
@@ -73,10 +73,10 @@ The **INCX Solar Garden Lights** come equipped with a reliable solar panel that 
 
 Designed with a **waterproof exterior**, these lights withstand rain, snow, and other harsh weather conditions, making them a low-maintenance option for year-round outdoor illumination. The bright **cold white LEDs** enhance visibility along pathways and driveways, improving safety while adding a modern aesthetic to your outdoor space. Overall, these solar lights provide an environmentally friendly and cost-effective solution for lighting your outdoor areas beautifully and efficiently.
 
-## <a href="https://www.amazon.com/dp/B07YZ4LTH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Outdoor Lights</a>
+## <a href="https://www.amazon.com/dp/B07YZ4LTH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Outdoor Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZ4LTH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Outdoor Lights,12 Pack LED Solar Lights Outdoor Waterproof, Solar Walkway Lights Maintain 10 Hours of Lighting for Your Garden, Landscape, Path, Yard, Patio, Driveway" src="https://m.media-amazon.com/images/I/41TVaBtTHNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZ4LTH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Outdoor Lights,12 Pack LED Solar Lights Outdoor Waterproof, Solar Walkway Lights Maintain 10 Hours of Lighting for Your Garden, Landscape, Path, Yard, Patio, Driveway" src="https://m.media-amazon.com/images/I/41TVaBtTHNL._SL500_.jpg"/></a>
 
 
 The **GIGALUMI Solar Outdoor Lights** are ideal for homeowners and garden enthusiasts looking to enhance their outdoor spaces with efficient, eco-friendly lighting. If you want to illuminate your **garden, landscape, pathway, patio, or driveway** without increasing your electricity bill, these **12 pack LED solar lights** offer a convenient and sustainable solution.
@@ -98,10 +98,10 @@ The **GIGALUMI Solar Outdoor Lights** feature high-efficiency solar panels that 
 
 Each LED light emits a **warm white glow** that adds charm and safety to your pathways, patios, and driveways. Since the lights operate on solar power, they help reduce energy costs while contributing to a greener environment. Additionally, the simple installation process allows users to quickly set up the lights without professional assistance or complex wiring, making them an excellent choice for anyone seeking practical and attractive outdoor lighting.
 
-## <a href="https://www.amazon.com/dp/B01K1SETD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Lights Outdoor Waterproof</a>
+## <a href="https://www.amazon.com/dp/B01K1SETD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigalumi Solar Lights Outdoor Waterproof</a>
 
 
-<a href="https://www.amazon.com/dp/B01K1SETD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Lights Outdoor Waterproof, 12 Pack, Stainless Steel LED Solar Garden Lights for Patio, Lawn, Yard and Landscape, Cold White" src="https://m.media-amazon.com/images/I/41VO40MNdGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01K1SETD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GIGALUMI Solar Lights Outdoor Waterproof, 12 Pack, Stainless Steel LED Solar Garden Lights for Patio, Lawn, Yard and Landscape, Cold White" src="https://m.media-amazon.com/images/I/41VO40MNdGL._SL500_.jpg"/></a>
 
 
 The **GIGALUMI Solar Lights Outdoor Waterproof** are ideal for homeowners and garden enthusiasts looking to enhance their **patio, lawn, yard, or landscape** with elegant and sustainable lighting. If you want a hassle-free, energy-efficient way to illuminate your outdoor spaces with a modern touch, this 12-pack of **stainless steel LED solar garden lights** in a sleek **cold white** hue is a perfect choice.
@@ -125,10 +125,10 @@ The **GIGALUMI Solar Lights** feature an efficient solar panel that captures sun
 
 These solar garden lights are easy to set up without the need for complicated wiring or electricity, making them a convenient choice for anyone wanting to upgrade their outdoor lighting quickly. The compact and durable design fits seamlessly into various outdoor landscapes, while the eco-friendly solar power system reduces your carbon footprint. Overall, the GIGALUMI lights deliver a practical and stylish solution for illuminating your outdoor spaces with minimal effort and maximum impact.
 
-## <a href="https://www.amazon.com/dp/B0DPWS1YDK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vignuto Solar Lights Outdoor Waterproof 4 Pack Of 32 Leds</a>
+## <a href="https://www.amazon.com/dp/B0DPWS1YDK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vignuto Solar Lights Outdoor Waterproof 4 Pack Of 32 Leds</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPWS1YDK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vignuto Solar Lights Outdoor Waterproof 4 Pack of 32 LEDs Garden Patio Firefly Decoration Unique Gifts Women Grandparents" src="https://m.media-amazon.com/images/I/51CcKSGbm1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPWS1YDK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vignuto Solar Lights Outdoor Waterproof 4 Pack of 32 LEDs Garden Patio Firefly Decoration Unique Gifts Women Grandparents" src="https://m.media-amazon.com/images/I/51CcKSGbm1L._SL500_.jpg"/></a>
 
 
 The **vignuto Solar Lights Outdoor Waterproof 4 Pack** is perfect for homeowners and garden enthusiasts looking to add a charming and eco-friendly touch to their outdoor spaces. Ideal for those who want to enhance their patio, garden, or yard with decorative lighting without worrying about electricity costs or complicated installations. These lights also make unique and thoughtful gifts for women and grandparents who appreciate both functionality and aesthetic appeal.
@@ -150,10 +150,10 @@ The **vignuto Solar Lights Outdoor Waterproof 4 Pack** stands out with its combi
 
 Additionally, the solar-powered feature offers a sustainable lighting solution by harnessing natural sunlight during the day to illuminate outdoor spaces at night. This not only reduces electricity bills but also supports environmentally friendly living. The easy-to-install design ensures that users can quickly set up the lights without professional help, making them accessible for anyone wanting to enhance their outdoor decor. Overall, these lights combine functionality, style, and sustainability, making them an excellent choice for anyone looking to brighten their outdoor areas with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B0BV1KVY19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bitpott Bright Solar Pathway Lights</a>
+## <a href="https://www.amazon.com/dp/B0BV1KVY19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bitpott Bright Solar Pathway Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0BV1KVY19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BITPOTT Bright Solar Pathway Lights Outdoor, 8 Pack Solar Powered Garden Lights Waterproof IP65, Auto On/Off Outdoor Light for Lawn Patio Walkway Driveway Decor Landscape Lighting" src="https://m.media-amazon.com/images/I/51ZV+rddUkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BV1KVY19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BITPOTT Bright Solar Pathway Lights Outdoor, 8 Pack Solar Powered Garden Lights Waterproof IP65, Auto On/Off Outdoor Light for Lawn Patio Walkway Driveway Decor Landscape Lighting" src="https://m.media-amazon.com/images/I/51ZV+rddUkL._SL500_.jpg"/></a>
 
 
 The **BITPOTT Bright Solar Pathway Lights Outdoor** are ideal for homeowners and garden enthusiasts looking to enhance their outdoor spaces with eco-friendly and stylish lighting. If you want to illuminate your **lawn**, **patio**, **walkway**, or **driveway** without worrying about electrical wiring or high energy costs, these solar-powered lights are perfect for you.
@@ -177,10 +177,10 @@ The **BITPOTT Bright Solar Pathway Lights** boast a smart and user-friendly desi
 
 Measuring 24.6 inches in height and weighing just under 5 pounds, these pathway lights are easy to install and reposition as needed. The **warm white illumination** creates a welcoming atmosphere, perfect for evening gatherings or simply enhancing your garden's beauty. With 8 lights included, you can effectively decorate and light up larger areas, making your outdoor space more inviting and safer to navigate after dark.
 
-## <a href="https://www.amazon.com/dp/B09VFMXVMX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ikeeruic Solar Lights Outdoor</a>
+## <a href="https://www.amazon.com/dp/B09VFMXVMX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ikeeruic Solar Lights Outdoor</a>
 
 
-<a href="https://www.amazon.com/dp/B09VFMXVMX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IkeeRuic Solar Lights Outdoor, Solar Torch Light with Flickering Flame for Garden Decor, Solar Garden Lights, Waterproof Outdoor Lighting, Flame Torches for Outside Patio Pathway Yard Decorations" src="https://m.media-amazon.com/images/I/5150+h-W3GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09VFMXVMX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IkeeRuic Solar Lights Outdoor, Solar Torch Light with Flickering Flame for Garden Decor, Solar Garden Lights, Waterproof Outdoor Lighting, Flame Torches for Outside Patio Pathway Yard Decorations" src="https://m.media-amazon.com/images/I/5150+h-W3GL._SL500_.jpg"/></a>
 
 
 The **IkeeRuic Solar Lights Outdoor** are perfect for homeowners and garden enthusiasts looking to enhance their outdoor spaces with an eco-friendly and visually appealing lighting solution. Ideal for those who want to add a warm, flickering flame effect to patios, pathways, or yards without the hassle of wiring or electricity costs. If you desire a blend of ambiance and practicality in your garden décor, this solar torch light is an excellent choice.
@@ -202,10 +202,10 @@ The **IkeeRuic Solar Torch Light** features a compact and durable design with a 
 
 This solar garden light offers practical benefits such as energy savings and ease of installation, while also enhancing the aesthetic appeal of your outdoor spaces. Its small size allows for flexible placement along patios, pathways, or yards, adding a touch of warmth and charm wherever it is positioned. Overall, the **IkeeRuic Solar Lights Outdoor** are an excellent way to combine functionality, sustainability, and decorative lighting in one affordable package.
 
-## <a href="https://www.amazon.com/dp/B0DQ1JFVSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solar Lanterns Outdoor Waterproof</a>
+## <a href="https://www.amazon.com/dp/B0DQ1JFVSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solar Lanterns Outdoor Waterproof</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQ1JFVSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Solar Lanterns Outdoor Waterproof Gifts for Women Grandma Gifts for Mom Hummingbird Garden Decor Solar Hanging Lantern Metal for Patio Yard Festival Pathway Landscape" src="https://m.media-amazon.com/images/I/51CpCambH2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQ1JFVSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Solar Lanterns Outdoor Waterproof Gifts for Women Grandma Gifts for Mom Hummingbird Garden Decor Solar Hanging Lantern Metal for Patio Yard Festival Pathway Landscape" src="https://m.media-amazon.com/images/I/51CpCambH2L._SL500_.jpg"/></a>
 
 
 The **Solar Lanterns Outdoor Waterproof** are perfect for anyone looking to enhance their outdoor spaces with eco-friendly and elegant lighting. Ideal for homeowners, garden enthusiasts, and those searching for thoughtful gifts for women, grandmas, or moms, these lanterns combine functionality with aesthetic appeal. If you want to brighten your patio, yard, or garden pathways with charming **solar hanging lanterns**, this product is an excellent choice.
@@ -228,10 +228,10 @@ The **Solar Hanging Lantern** by HOFLYW features a compact and elegant bronze me
 
 Beyond its decorative value, this lantern offers significant benefits such as energy savings and environmental friendliness thanks to its solar-powered operation. Users can enjoy a hassle-free lighting solution without worrying about wiring or electricity costs. Additionally, its lightweight design allows easy installation and relocation, making it versatile for various outdoor events or seasonal decorations. Overall, it is an excellent choice for those seeking a stylish, sustainable, and practical outdoor lighting option.
 
-## <a href="https://www.amazon.com/dp/B0CSS8R2GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Bright Solar Lights For Outside</a>
+## <a href="https://www.amazon.com/dp/B0CSS8R2GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Bright Solar Lights For Outside</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSS8R2GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Bright Solar Lights for Outside, Up to 12H Solar Lights Outdoor Waterproof, 8 Pack Outdoor Light Decorative, Garden lamp Dusk to Dawn Auto On/Off, Pathway Light for Yard,Landscape" src="https://m.media-amazon.com/images/I/51pPFQ6UKjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSS8R2GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Bright Solar Lights for Outside, Up to 12H Solar Lights Outdoor Waterproof, 8 Pack Outdoor Light Decorative, Garden lamp Dusk to Dawn Auto On/Off, Pathway Light for Yard,Landscape" src="https://m.media-amazon.com/images/I/51pPFQ6UKjL._SL500_.jpg"/></a>
 
 
 The **Super Bright Solar Lights for Outside** are perfect for homeowners and outdoor enthusiasts looking to enhance their garden, pathway, or yard with eco-friendly, efficient lighting. Ideal for those who want a hassle-free, solar-powered solution that automatically illuminates outdoor spaces from dusk to dawn without increasing electricity bills. If you value durability and ease of installation in your outdoor lighting, these lights are an excellent choice.
@@ -253,10 +253,10 @@ The **Super Bright Solar Lights for Outside** feature a sleek design measuring 1
 
 These lights are built with durability in mind, boasting a waterproof construction that withstands rain, snow, and other harsh weather conditions without compromising performance. The dusk-to-dawn auto on/off functionality ensures the lights operate only when needed, conserving energy and providing convenience. With an 8 pack included, users can easily place multiple lights strategically around their landscape to highlight pathways, garden beds, or other outdoor features, improving both aesthetics and security.
 
-## <a href="https://www.amazon.com/dp/B0CJ6BZDM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jkimk Solar Globe Lights Outdoor Waterproof</a>
+## <a href="https://www.amazon.com/dp/B0CJ6BZDM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jkimk Solar Globe Lights Outdoor Waterproof</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ6BZDM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JKIMK Solar Globe Lights Outdoor Waterproof - Cracked Glass Ball Lights for Garden, Patio, Yard, Lawn and Backyard Decor - Solar Orbs for Outside Decorations" src="https://m.media-amazon.com/images/I/51McLzfAxBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ6BZDM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JKIMK Solar Globe Lights Outdoor Waterproof - Cracked Glass Ball Lights for Garden, Patio, Yard, Lawn and Backyard Decor - Solar Orbs for Outside Decorations" src="https://m.media-amazon.com/images/I/51McLzfAxBL._SL500_.jpg"/></a>
 
 
 The **JKIMK Solar Globe Lights Outdoor Waterproof** are perfect for homeowners and outdoor enthusiasts looking to enhance their **garden, patio, yard, lawn, or backyard decor** with elegant, eco-friendly lighting. Ideal for those who want a hassle-free, solar-powered lighting solution that combines aesthetics with functionality. If you appreciate durable, weather-resistant decoration that adds a warm ambiance to your outdoor space, these **solar orbs** are an excellent choice.

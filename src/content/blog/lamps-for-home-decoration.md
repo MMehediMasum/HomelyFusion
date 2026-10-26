@@ -23,10 +23,10 @@ Table lamps fit well on desks and nightstands, adding both light and charm. Mate
 
 
 
-## <a href="https://www.amazon.com/dp/B0CTJGJL2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Godonlif Candle Warmer Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CTJGJL2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Godonlif Candle Warmer Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTJGJL2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GODONLIF Candle Warmer Lamp with Timer Dimmable, Birthday Gifts for Women Mom, House Warming Gifts New Home Decor, Wax Melt Warmer for Jar Candles with 2 Bulbs" src="https://m.media-amazon.com/images/I/41Ahz+ihkiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTJGJL2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GODONLIF Candle Warmer Lamp with Timer Dimmable, Birthday Gifts for Women Mom, House Warming Gifts New Home Decor, Wax Melt Warmer for Jar Candles with 2 Bulbs" src="https://m.media-amazon.com/images/I/41Ahz+ihkiL._SL500_.jpg"/></a>
 
 
 The **GODONLIF Candle Warmer Lamp with Timer Dimmable** is ideal for individuals who love creating a cozy and inviting atmosphere in their homes. It is perfect for those who frequently use jar candles or wax melts and want a safer, flame-free way to enjoy their favorite scents. This product is especially suitable as a thoughtful **birthday gift** for women, moms, or anyone who appreciates elegant **home decor** and practical accessories.
@@ -49,10 +49,10 @@ The **GODONLIF Candle Warmer Lamp** offers a unique blend of functionality and s
 
 This warmer lamp is not only practical but also user-friendly. The inclusion of two bulbs means you can start using it right away without needing to purchase replacements. Its compatibility with both wax melts and jar candles makes it a flexible option for fragrance lovers. Overall, the **GODONLIF Candle Warmer Lamp** is a thoughtful gift and a valuable home accessory that combines safety, convenience, and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Industrial Table Lamps For Bedrooms Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3CMG9D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Industrial Table Lamps for Bedrooms Set of 2 - Fully Dimmable Bedside Lamps with USB A and C Ports and Outlet, Black Nightstand Lamps with Glass Shade for Living Room, Desk Lamps for Office Reading" src="https://m.media-amazon.com/images/I/51k03k-eKXL._SL500_.jpg"/></a>
 
 
 The **Industrial Table Lamps for Bedrooms Set of 2** by **Innqoo** are ideal for individuals seeking a stylish yet functional lighting solution for their **bedrooms**, **living rooms**, or **offices**. Perfect for those who appreciate a blend of modern industrial design and practical features, these lamps suit anyone who needs adjustable lighting with convenient charging options close to their bedside or workspace.
@@ -75,10 +75,10 @@ The **Industrial Table Lamps** offer a sophisticated combination of form and fun
 
 Designed with a stylish **black frame** and a distinctive **seeded clear glass shade**, these lamps add an industrial charm to any room. Their compact size and sturdy build ensure they fit well on nightstands, desks, or side tables, offering both stability and aesthetic appeal. Whether used for bedroom lighting or as **office desk lamps**, they deliver consistent performance and enhance the overall décor with their timeless design.
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their **bedroom**, **living room**, or **desk area**. This lamp is perfect for those who value convenience and modern features such as touch control, adjustable brightness, and integrated charging options, making it especially suitable for students, professionals, and anyone looking to enhance their personal space with functional decor.
@@ -101,10 +101,10 @@ The **Fenmzee Bedside Table Lamp** combines aesthetic appeal with smart function
 
 Designed with a **wood base** and a , this lamp adds a warm, inviting ambiance to any space while fitting comfortably on small surfaces due to its compact dimensions. The **LED bulb included** ensures energy efficiency and longevity, meaning fewer replacements and lower electricity costs. Overall, this lamp is an excellent choice for anyone looking to blend style, convenience, and energy-saving features in a compact bedside or desk lamp.
 
-## <a href="https://www.amazon.com/dp/B08CBTXYC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo Tradition 20.5" Rustic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B08CBTXYC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bobomomo Tradition 20.5" Rustic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B08CBTXYC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="BOBOMOMO Tradition 20.5" areas）"="" bedroom="" bedside="" decorating="" desk="" farmhouse="" for="" lamp="" lamps="" linen="" living="" nightstand="" of="" room="" rustic="" set="" small="" src="https://m.media-amazon.com/images/I/41CByS2c3ZL._SL500_.jpg" table="" vintage="" washed（suitable=""/></a>
+<a href="https://www.amazon.com/dp/B08CBTXYC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="BOBOMOMO Tradition 20.5" areas）"="" bedroom="" bedside="" decorating="" desk="" farmhouse="" for="" lamp="" lamps="" linen="" living="" nightstand="" of="" room="" rustic="" set="" small="" src="https://m.media-amazon.com/images/I/41CByS2c3ZL._SL500_.jpg" table="" vintage="" washed（suitable=""/></a>
 
 
 The **BOBOMOMO Tradition 20.5" Rustic Table Lamp Set of 2** is ideal for individuals looking to enhance small living spaces with a touch of vintage farmhouse charm. Perfect for those who appreciate a cozy, rustic aesthetic in their **living room**, **bedroom**, or **desk area**, this lamp set suits anyone wanting functional lighting combined with classic design, especially in compact areas like nightstands or small desks.
@@ -127,10 +127,10 @@ The **BOBOMOMO Tradition Rustic Table Lamp Set** offers a charming blend of vint
 
 Beyond aesthetics, these lamps provide functional benefits with their lightweight design and easy placement options. Whether used on bedside tables or desks, they offer just the right amount of illumination for reading or relaxing. Manufactured by **Lingmei Lighting**, these lamps promise durability and consistent performance, making them a reliable addition to your home décor.
 
-## <a href="https://www.amazon.com/dp/B0D8W7DT64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">G-safava 22.75" Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B0D8W7DT64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">G-safava 22.75" Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8W7DT64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="G-SAFAVA 22.75" bedroom="" bedside="" beige"="" boho="" deco="" desk="" farmhouse="" for="" gifts,="" home="" lamp="" lamps="" light="" living="" modern="" nightstand="" of="" office="" retro="" room="" rustic="" set="" small="" src="https://m.media-amazon.com/images/I/41PgJbrK6TL._SL500_.jpg" table="" vintage=""/></a>
+<a href="https://www.amazon.com/dp/B0D8W7DT64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="G-SAFAVA 22.75" bedroom="" bedside="" beige"="" boho="" deco="" desk="" farmhouse="" for="" gifts,="" home="" lamp="" lamps="" light="" living="" modern="" nightstand="" of="" office="" retro="" room="" rustic="" set="" small="" src="https://m.media-amazon.com/images/I/41PgJbrK6TL._SL500_.jpg" table="" vintage=""/></a>
 
 
 The **G-SAFAVA 22.75" Table Lamps** are perfect for individuals looking to enhance their **bedroom**, **living room**, or **office space** with a blend of **boho**, **farmhouse**, and **vintage** design elements. Ideal for those who appreciate rustic and retro aesthetics combined with modern functionality, this lamp set of two offers both style and practicality for bedside or desk lighting needs.
@@ -152,10 +152,10 @@ The **G-SAFAVA Table Lamps** feature a thoughtfully designed rustic and vintage 
 
 Beyond their appealing look, these lamps provide practical benefits such as soft, ambient lighting perfect for reading or creating a cozy atmosphere. The set of two allows for symmetrical lighting arrangements, enhancing both functionality and visual harmony. Whether you want to add a touch of boho farmhouse charm or simply need a reliable light source, the **G-SAFAVA Table Lamps** deliver an excellent balance of style and utility.
 
-## <a href="https://www.amazon.com/dp/B09TW285ND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hortsun Pressed Floral Lamp</a>
+## <a href="https://www.amazon.com/dp/B09TW285ND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hortsun Pressed Floral Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09TW285ND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hortsun Pressed Floral Lamp Bedside Vintage Flower Desk Lamp for Bedroom Living Room, Dorm, Home, Office Decor(1 Pcs,Modern Style)" src="https://m.media-amazon.com/images/I/51CnCxovMvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TW285ND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hortsun Pressed Floral Lamp Bedside Vintage Flower Desk Lamp for Bedroom Living Room, Dorm, Home, Office Decor(1 Pcs,Modern Style)" src="https://m.media-amazon.com/images/I/51CnCxovMvL._SL500_.jpg"/></a>
 
 
 The **Hortsun Pressed Floral Lamp** is ideal for individuals seeking a blend of **vintage charm** and modern functionality in their lighting solutions. Perfect for those who want to add a warm, decorative touch to their **bedroom**, **living room**, **dorm**, or **office** space, this lamp suits buyers who appreciate unique, floral-inspired designs that double as ambient lighting.
@@ -178,10 +178,10 @@ The **Hortsun Pressed Floral Lamp** combines aesthetic appeal with practical lig
 
 Designed with both beauty and functionality in mind, this lamp offers an ideal balance for users who want to brighten their space without sacrificing style. Its lightweight construction ensures easy portability, allowing users to refresh their decor effortlessly. Whether used as a bedside lamp or a desk accessory, the **Hortsun Pressed Floral Lamp** elevates everyday living spaces with subtle sophistication and charm.
 
-## <a href="https://www.amazon.com/dp/B0DJX6XH5Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 26.5" Ceramic Table Lamps For Bedroom Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DJX6XH5Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Portres 26.5" Ceramic Table Lamps For Bedroom Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJX6XH5Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PORTRES 26.5" bedroom="" bedside="" boho="" ceramic="" deco="" desk="" farmhouse="" for="" gifts,="" green"="" home="" lamp="" lamps="" large="" light="" living="" modern="" nightstand="" of="" office="" retro="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/41ZYOA-XwgL._SL500_.jpg" table="" vintage=""/></a>
+<a href="https://www.amazon.com/dp/B0DJX6XH5Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PORTRES 26.5" bedroom="" bedside="" boho="" ceramic="" deco="" desk="" farmhouse="" for="" gifts,="" green"="" home="" lamp="" lamps="" large="" light="" living="" modern="" nightstand="" of="" office="" retro="" room="" rustic="" set="" src="https://m.media-amazon.com/images/I/41ZYOA-XwgL._SL500_.jpg" table="" vintage=""/></a>
 
 
 The **PORTRES 26.5" Ceramic Table Lamps** are perfect for individuals looking to enhance their **bedroom**, **living room**, or **home office** decor with a stylish, vintage-inspired lighting solution. Ideal for those who appreciate a blend of **rustic**, **boho**, and **modern** aesthetics, this set of two lamps offers both functionality and charm, making it an excellent choice for homeowners, interior decorators, and gift buyers alike.
@@ -203,10 +203,10 @@ The **PORTRES ceramic table lamps** stand out due to their impressive size and v
 
 Beyond aesthetics, these lamps are designed for versatility and practicality. Their size and light output make them perfect for bedside tables, living rooms, or home offices where both style and sufficient illumination are required. The set of two lamps ensures balanced lighting, creating a cozy and inviting atmosphere that can transform any space into a relaxing haven or productive workspace.
 
-## <a href="https://www.amazon.com/dp/B0F2947SZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fetason Vintage Gold Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F2947SZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fetason Vintage Gold Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2947SZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fetason Vintage Gold Desk Lamp Decorative Table Lamp for Home Office Living Room Bedroom Desk Light, Rustic Industrial Farmhouse Antique Library Study Desk Lamp E26 LED Bulb Included" src="https://m.media-amazon.com/images/I/31miodyPSsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2947SZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fetason Vintage Gold Desk Lamp Decorative Table Lamp for Home Office Living Room Bedroom Desk Light, Rustic Industrial Farmhouse Antique Library Study Desk Lamp E26 LED Bulb Included" src="https://m.media-amazon.com/images/I/31miodyPSsL._SL500_.jpg"/></a>
 
 
 The **Fetason Vintage Gold Desk Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **home office**, **living room**, **bedroom**, or **study area**. Perfect for those who appreciate a blend of **rustic industrial** and **farmhouse antique** aesthetics, this lamp enhances any space with its timeless charm and practical illumination.
@@ -229,10 +229,10 @@ The **Fetason Vintage Gold Desk Lamp** features a thoughtfully crafted design th
 
 In addition to its aesthetic appeal, the inclusion of an **E26 LED bulb** ensures bright, energy-efficient illumination that reduces electricity costs while providing consistent light. The lamp’s durable construction and lightweight nature mean users can easily relocate it to different rooms or desks, adding versatility to its list of benefits. Overall, this lamp is a perfect fusion of style and function for anyone wanting to elevate their space with a vintage-inspired lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
 
 
 The **Nourison Home 23" Greyish Brown Earth Tone Rustic Farmhouse Ceramic Table Lamp** is ideal for individuals looking to enhance their **bedroom, living room, dining area, or office** with a stylish yet functional lighting piece. This lamp suits those who appreciate a **rustic farmhouse aesthetic** combined with modern utility, making it perfect for homeowners, interior decorators, and anyone aiming to add a warm, earthy ambiance to their space.
@@ -255,10 +255,10 @@ The **Nourison Home 23" Rustic Farmhouse Ceramic Table Lamp** features a beautif
 
 In addition to its aesthetic appeal, the lamp’s sturdy construction ensures longevity and reliability. The lightweight design means you can easily relocate or reposition it according to your needs, whether on a bedside table, office desk, or dining room console. This combination of style, functionality, and convenience makes it a versatile addition to any home looking to achieve a cozy, rustic farmhouse vibe without sacrificing practical lighting needs.
 
-## <a href="https://www.amazon.com/dp/B0C27GJZ4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Candle Warmer Lamp Wood With Timer</a>
+## <a href="https://www.amazon.com/dp/B0C27GJZ4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Candle Warmer Lamp Wood With Timer</a>
 
 
-<a href="https://www.amazon.com/dp/B0C27GJZ4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Candle Warmer Lamp Wood with Timer, Dimmable Electric Candle Lamp Warmer for Jar Candles, 2*35 Watt Bulb, Christmas Gifts, Birthday Gifts for Mom, Decorative Wooden Candle Lamp for Bedroom Home Decor" src="https://m.media-amazon.com/images/I/411u8SPdPuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C27GJZ4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Candle Warmer Lamp Wood with Timer, Dimmable Electric Candle Lamp Warmer for Jar Candles, 2*35 Watt Bulb, Christmas Gifts, Birthday Gifts for Mom, Decorative Wooden Candle Lamp for Bedroom Home Decor" src="https://m.media-amazon.com/images/I/411u8SPdPuL._SL500_.jpg"/></a>
 
 
 The **Candle Warmer Lamp Wood with Timer** is perfect for individuals who enjoy the cozy ambiance of **jar candles** but prefer a flameless, safer alternative. Ideal for those who want to enhance their **home decor** with a functional yet stylish accessory, this product suits anyone looking to extend the life of their candles while avoiding open flames. It’s especially suited for gift-givers seeking unique **Christmas** or **birthday gifts for moms** and loved ones.

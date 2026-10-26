@@ -23,10 +23,10 @@ Light-blocking or blackout curtains help control sunlight and improve privacy. L
 
 
 
-## <a href="https://www.amazon.com/dp/B0D9JQ21YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bay Window Curtain Rods</a>
+## <a href="https://www.amazon.com/dp/B0D9JQ21YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bay Window Curtain Rods</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9JQ21YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bay Window Curtain Rods, U shaped Adjustable Curved Curtain Rods for Windows 59 to 184 Inches, Black 1 inch Renter Friendly Heavy Duty Curtain Rods with Brackets for Bedroom, Living Room Curtains" src="https://m.media-amazon.com/images/I/316DbsBdz7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9JQ21YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bay Window Curtain Rods, U shaped Adjustable Curved Curtain Rods for Windows 59 to 184 Inches, Black 1 inch Renter Friendly Heavy Duty Curtain Rods with Brackets for Bedroom, Living Room Curtains" src="https://m.media-amazon.com/images/I/316DbsBdz7L._SL500_.jpg"/></a>
 
 
 The **Bay Window Curtain Rods** by **Lcokeiy** are ideal for homeowners or renters looking to enhance their **bay windows** with a stylish, functional solution. Perfect for those who want a **renter-friendly** and **heavy-duty curtain rod** that adapts to various window sizes, these rods suit anyone needing adjustable, curved curtain rods that fit windows from **59 to 184 inches**. If you're seeking a versatile, durable curtain rod in a sleek **black** finish to complement your **bedroom** or **living room**, this product is an excellent choice.
@@ -48,10 +48,10 @@ The **Bay Window Curtain Rods** feature a **U-shaped adjustable curved design** 
 
 Additionally, the rods come with **brackets designed for easy installation**, making them particularly suitable for renters who want to avoid damaging walls. The **sleek black color** adds a modern and sophisticated look, enhancing the overall ambiance of bedrooms or living rooms. With durable materials and thoughtful design, these curtain rods offer a practical and stylish window solution for bay window owners.
 
-## <a href="https://www.amazon.com/dp/B07C9HL1G1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen 100% Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B07C9HL1G1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen 100% Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07C9HL1G1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen 100% Blackout Curtains for Bedroom Full Light Blocking Curtains, Textured Window Curtain for Living Room 84 inch Grommet, Energy Efficient Curtains White Liner(2 Panels, Natural)" src="https://m.media-amazon.com/images/I/41vHa09JNuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07C9HL1G1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen 100% Blackout Curtains for Bedroom Full Light Blocking Curtains, Textured Window Curtain for Living Room 84 inch Grommet, Energy Efficient Curtains White Liner(2 Panels, Natural)" src="https://m.media-amazon.com/images/I/41vHa09JNuL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Linen 100% Blackout Curtains** are ideal for homeowners and renters who seek to enhance their bedroom or living room with stylish yet functional window treatments. Perfect for those who value privacy, energy efficiency, and a peaceful environment, these curtains are especially suitable for light-sensitive individuals, shift workers, or anyone looking to reduce outside noise and sunlight effectively.
@@ -73,10 +73,10 @@ The **H.VERSAILTEX Linen 100% Blackout Curtains** combine aesthetic appeal with 
 
 Measuring 84 inches in length and designed with convenient grommet tops, these curtains are easy to hang and fit most standard windows. Their robust construction ensures long-lasting durability, while the 100% blackout feature provides users with enhanced privacy and better control over room lighting. Ideal for bedrooms and living rooms alike, these curtains create a cozy and serene atmosphere perfect for relaxation or entertainment.
 
-## <a href="https://www.amazon.com/dp/B0D97Q5YMQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ervnynt Bay Window Curtain Rods</a>
+## <a href="https://www.amazon.com/dp/B0D97Q5YMQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ervnynt Bay Window Curtain Rods</a>
 
 
-<a href="https://www.amazon.com/dp/B0D97Q5YMQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERVNYNT Bay Window Curtain Rods，146-187 inch Black 1 Inch Diamer Adjustable Sturdy Bay Window Curtain Rod 3 Sided 59-78.7 Inch Side Rods for Windows for Living Room Bedroom And Sliding Windows" src="https://m.media-amazon.com/images/I/41OEdXh7eoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D97Q5YMQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERVNYNT Bay Window Curtain Rods，146-187 inch Black 1 Inch Diamer Adjustable Sturdy Bay Window Curtain Rod 3 Sided 59-78.7 Inch Side Rods for Windows for Living Room Bedroom And Sliding Windows" src="https://m.media-amazon.com/images/I/41OEdXh7eoL._SL500_.jpg"/></a>
 
 
 The **ERVNYNT Bay Window Curtain Rods** are ideal for homeowners and renters who want a versatile and sturdy solution for hanging curtains around bay windows, living rooms, bedrooms, and sliding windows. If you are looking for a durable, adjustable, and stylish curtain rod set that fits unique window shapes and sizes, this product is perfect for you.
@@ -99,10 +99,10 @@ The **ERVNYNT Bay Window Curtain Rods** feature an adjustable design that allows
 
 This curtain rod set is manufactured by **ERVNYNT**, a brand known for quality and durability. The sturdy metal construction guarantees long-lasting use, while the adjustable nature means you can easily fit it to your specific window dimensions without needing additional components. Ideal for living rooms, bedrooms, or sliding windows, these rods offer an elegant and practical solution to enhance your window treatments, improve privacy, and control natural light effectively.
 
-## <a href="https://www.amazon.com/dp/B0D7W122YB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bay Window Curtain Rods 1 Inch Heavy Duty Metal Corner Curtain Rod</a>
+## <a href="https://www.amazon.com/dp/B0D7W122YB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bay Window Curtain Rods 1 Inch Heavy Duty Metal Corner Curtain Rod</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7W122YB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bay Window Curtain Rods 1 Inch Heavy Duty Metal Corner Curtain Rod for Windows 59-184” Adjustable U Shaped Curtain Rod with Decorative End Black" src="https://m.media-amazon.com/images/I/41VFFMhXMBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7W122YB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bay Window Curtain Rods 1 Inch Heavy Duty Metal Corner Curtain Rod for Windows 59-184” Adjustable U Shaped Curtain Rod with Decorative End Black" src="https://m.media-amazon.com/images/I/41VFFMhXMBL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and interior decorators looking to enhance their window aesthetics, the **Bay Window Curtain Rods 1 Inch Heavy Duty Metal Corner Curtain Rod** is perfect for those who need a sturdy and adjustable solution for bay or corner windows. If you have windows ranging from 59 to 184 inches and want a sleek, functional curtain rod with a modern look, this product is designed for you.
@@ -124,10 +124,10 @@ The **Bay Window Curtain Rods** feature a robust 1-inch heavy-duty metal design 
 
 Additionally, the unique **U shaped corner design** ensures that curtains hang smoothly around corners and angled windows, eliminating gaps and providing a clean, professional appearance. The decorative end pieces not only enhance the rod’s visual appeal but also help secure the curtains in place. Finished in sleek black, this curtain rod blends effortlessly with various interior designs, offering both functionality and style for an upgraded window treatment experience.
 
-## <a href="https://www.amazon.com/dp/B0F2TD6478?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foldable Industrial U Shape Curtain Rod</a>
+## <a href="https://www.amazon.com/dp/B0F2TD6478?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foldable Industrial U Shape Curtain Rod</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2TD6478?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white)"="" -="" 10-year="" 15-53="" 25-78="" 3="" adjustable="" alt="Foldable Industrial U Shape Curtain Rod 1" center="" corner="" for="" inch="" metal="" rod="" rods="" rust-proof="" side="" sides="" src="https://m.media-amazon.com/images/I/41sMSDJryCL._SL500_.jpg" warranty="" windows="" |=""/></a>
+<a href="https://www.amazon.com/dp/B0F2TD6478?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white)"="" -="" 10-year="" 15-53="" 25-78="" 3="" adjustable="" alt="Foldable Industrial U Shape Curtain Rod 1" center="" corner="" for="" inch="" metal="" rod="" rods="" rust-proof="" side="" sides="" src="https://m.media-amazon.com/images/I/41sMSDJryCL._SL500_.jpg" warranty="" windows="" |=""/></a>
 
 
 The **Foldable Industrial U Shape Curtain Rod 1" Rust-Proof Metal** is ideal for homeowners or renters looking to maximize space and style around **corner windows**. If you need a versatile, durable, and adjustable solution to hang curtains on tricky three-sided window frames, this rod is perfect for you. Its rust-proof metal construction and foldable design make it especially suitable for those who want long-lasting, low-maintenance window treatments that adapt to various window sizes.
@@ -149,10 +149,10 @@ The **Foldable Industrial U Shape Curtain Rod** features a robust yet lightweigh
 
 Thanks to its **rust-proof metal construction**, this curtain rod remains resistant to corrosion, ensuring a clean and polished look for years, even in kitchens or bathrooms where moisture is prevalent. The clean **white color** enhances any room's aesthetic by providing a neutral backdrop that complements most curtain styles and colors. Additionally, the included **10-year warranty** highlights the manufacturer's confidence in its durability and functionality, making it a smart investment for anyone seeking a reliable curtain rod solution for corner windows.
 
-## <a href="https://www.amazon.com/dp/B097328HHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home White Curtains &amp; Drapes</a>
+## <a href="https://www.amazon.com/dp/B097328HHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home White Curtains &amp; Drapes</a>
 
 
-<a href="https://www.amazon.com/dp/B097328HHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME White Curtains &amp; Drapes - Linen Textured Semi Sheer Curtains Privacy Panels for Living Room Bedroom Dining Bathroom Farmhouse Large Bay Window Decor, W 70 x L 95, 2 Pcs" src="https://m.media-amazon.com/images/I/41nQ7xO9R+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097328HHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME White Curtains &amp; Drapes - Linen Textured Semi Sheer Curtains Privacy Panels for Living Room Bedroom Dining Bathroom Farmhouse Large Bay Window Decor, W 70 x L 95, 2 Pcs" src="https://m.media-amazon.com/images/I/41nQ7xO9R+L._SL500_.jpg"/></a>
 
 
 Ideal for homeowners seeking to enhance their living spaces with a touch of elegance and functionality, the **RYB HOME White Curtains & Drapes** are perfect for those who want a blend of privacy and natural light. These semi-sheer panels are especially suitable for individuals looking to decorate large bay windows or add a farmhouse charm to their living room, bedroom, dining room, or bathroom.
@@ -174,10 +174,10 @@ The **RYB HOME White Curtains & Drapes** feature a beautifully textured linen fa
 
 Designed with both aesthetics and practicality in mind, these curtains are lightweight and easy to install, allowing users to quickly update their home decor. The crisp white color brightens interiors and pairs well with a variety of color palettes and furniture styles, offering a timeless appeal that fits modern and traditional homes alike.
 
-## <a href="https://www.amazon.com/dp/B078MK4K3V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Solid Blackout Curtain Energy Efficient Tie Up Shades Rod Pocket Panel For Kitchen</a>
+## <a href="https://www.amazon.com/dp/B078MK4K3V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Solid Blackout Curtain Energy Efficient Tie Up Shades Rod Pocket Panel For Kitchen</a>
 
 
-<a href="https://www.amazon.com/dp/B078MK4K3V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Solid Blackout Curtain Energy Efficient Tie Up Shades Rod Pocket Panel for Kitchen (Light Sage, 42W x 63L, Set of 2 Panels)" src="https://m.media-amazon.com/images/I/51oryEooXFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078MK4K3V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Solid Blackout Curtain Energy Efficient Tie Up Shades Rod Pocket Panel for Kitchen (Light Sage, 42W x 63L, Set of 2 Panels)" src="https://m.media-amazon.com/images/I/51oryEooXFL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Solid Blackout Curtain Energy Efficient Tie Up Shades Rod Pocket Panel** in **Light Sage** is ideal for homeowners or renters looking to enhance privacy, block out unwanted sunlight, and improve energy efficiency in their **kitchen**. Those who want a stylish yet functional window treatment that complements a modern or minimalist decor will find this set of two panels particularly suitable.
@@ -200,10 +200,10 @@ The **H.VERSAILTEX blackout curtain panels** are crafted with high-quality mater
 
 Additionally, the **rod pocket design** ensures hassle-free installation on most standard curtain rods, making these panels a convenient upgrade for any kitchen window. The calming **Light Sage** color adds a subtle accent that can enhance the overall ambiance without overwhelming the room’s decor. With a lightweight yet durable build, this set of two panels balances functionality with aesthetic appeal, making it an excellent investment for practical and style-conscious buyers.
 
-## <a href="https://www.amazon.com/dp/B0D1C2J7NC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anndason 1 Inch Bay Window Curtain Rods Corner Curtain Rods Set</a>
+## <a href="https://www.amazon.com/dp/B0D1C2J7NC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anndason 1 Inch Bay Window Curtain Rods Corner Curtain Rods Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1C2J7NC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anndason 1 Inch Bay Window Curtain Rods Corner Curtain Rods Set 30-76 Inch Center Rod for Windows 16-40 Inch Side Rods,Curtain Rods Set (Black)" src="https://m.media-amazon.com/images/I/41SumcFE4eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1C2J7NC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anndason 1 Inch Bay Window Curtain Rods Corner Curtain Rods Set 30-76 Inch Center Rod for Windows 16-40 Inch Side Rods,Curtain Rods Set (Black)" src="https://m.media-amazon.com/images/I/41SumcFE4eL._SL500_.jpg"/></a>
 
 
 The **Anndason 1 Inch Bay Window Curtain Rods Corner Curtain Rods Set** is ideal for homeowners or interior decorators looking to elegantly dress bay windows or corner windows. This set is perfect for those who want a flexible, durable, and stylish solution to hang curtains and enhance natural light control in uniquely shaped window spaces.
@@ -225,10 +225,10 @@ The **Anndason Bay Window Curtain Rods Set** features an adjustable center rod t
 
 Crafted with a sturdy 1-inch diameter, these curtain rods ensure strong support for heavier drapes or layered window treatments. The lightweight design simplifies installation, while the comprehensive sizing options provide flexibility, allowing users to customize the fit according to their specific window dimensions. Overall, this curtain rod set offers both functionality and style, enhancing window aesthetics and providing effective light control.
 
-## <a href="https://www.amazon.com/dp/B01M8QAWA9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Blackout Curtains Thermal Insulated Window Treatment Panels Room Darkening Blackout Drapes</a>
+## <a href="https://www.amazon.com/dp/B01M8QAWA9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Blackout Curtains Thermal Insulated Window Treatment Panels Room Darkening Blackout Drapes</a>
 
 
-<a href="https://www.amazon.com/dp/B01M8QAWA9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Blackout Curtains Thermal Insulated Window Treatment Panels Room Darkening Blackout Drapes for Living Room Back Tab/Rod Pocket Bedroom Draperies, 52 x 84 Inch, Light Sage, 2 Panels" src="https://m.media-amazon.com/images/I/41yFjHONA4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M8QAWA9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Blackout Curtains Thermal Insulated Window Treatment Panels Room Darkening Blackout Drapes for Living Room Back Tab/Rod Pocket Bedroom Draperies, 52 x 84 Inch, Light Sage, 2 Panels" src="https://m.media-amazon.com/images/I/41yFjHONA4L._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Blackout Curtains** are ideal for homeowners or renters looking to enhance privacy, reduce outside light, and improve energy efficiency in their living spaces. Perfect for bedrooms, living rooms, or any area where light control and insulation are a priority, these **thermal insulated window treatment panels** suit anyone seeking a balance of style and functionality with the elegant **Light Sage** color option.
@@ -250,10 +250,10 @@ These **blackout drapes** are crafted to provide superior light-blocking capabil
 
 The dual installation options, featuring a **back tab** and **rod pocket** design, offer versatility and ease of use, allowing users to customize the look and functionality according to their window setup. Additionally, the generous dimensions of **52 x 84 inches** fit most standard-sized windows, providing ample coverage for effective room darkening and privacy. Overall, these curtains combine style, comfort, and energy efficiency, making them a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0CY2834R3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kamanina Bay Window Curtain Rods</a>
+## <a href="https://www.amazon.com/dp/B0CY2834R3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kamanina Bay Window Curtain Rods</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY2834R3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAMANINA Bay Window Curtain Rods, Telescoping Curtain Rods for Bay Windows 32 to 86 Inch(Center Rod), Bronze Curtain Rod 32 to 58 Inch(Side Rods), Netted Texture Ends" src="https://m.media-amazon.com/images/I/31KvF2MGxdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY2834R3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAMANINA Bay Window Curtain Rods, Telescoping Curtain Rods for Bay Windows 32 to 86 Inch(Center Rod), Bronze Curtain Rod 32 to 58 Inch(Side Rods), Netted Texture Ends" src="https://m.media-amazon.com/images/I/31KvF2MGxdL._SL500_.jpg"/></a>
 
 
 The **KAMANINA Bay Window Curtain Rods** are ideal for homeowners or renters looking to enhance their bay windows with a stylish and functional window treatment solution. If you want a versatile and adjustable curtain rod system that fits various window sizes while adding a touch of elegance with its **bronze finish** and **netted texture ends**, this product is a perfect choice. It is especially suited for those who appreciate quality craftsmanship and easy installation in their living rooms, bedrooms, or office spaces.

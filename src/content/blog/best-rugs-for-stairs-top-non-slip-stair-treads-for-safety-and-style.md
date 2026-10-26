@@ -23,10 +23,10 @@ Sizes usually fit standard steps, around 8 to 30 inches wide. Some come in packs
 
 
 
-## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps</a>
+## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
 
 
 The **KOOTETA Stair Treads for Wooden Steps Indoor** are ideal for homeowners looking to enhance safety and style on their indoor wooden stairs. Perfect for families with **kids, elders, and pets**, these stair treads provide a non-slip surface that reduces the risk of slips and falls. If you want a practical yet elegant solution to protect your wooden stairs from wear and tear while ensuring safety, this product is a great choice.
@@ -48,10 +48,10 @@ The **KOOTETA Stair Treads** feature a **polyester surface** that is both comfor
 
 Additionally, these stair treads protect your wooden steps from scratches, scuffs, and general wear, preserving the aesthetic and value of your flooring. The dark grey color offers a sleek, contemporary look that complements various interior styles while effectively hiding dirt and stains. Overall, the KOOTETA stair treads are a practical investment for anyone prioritizing safety, durability, and style on their wooden stairs.
 
-## <a href="https://www.amazon.com/dp/B0B21632H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Stair Treads Non-slip Carpet Mat</a>
+## <a href="https://www.amazon.com/dp/B0B21632H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Stair Treads Non-slip Carpet Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0B21632H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat 28inX9in Indoor Stair Runners for Wooden Steps, Stair Rugs for Kids and Dogs, 100% Polyester TPE Backing 10pcs,Grey,Square" src="https://m.media-amazon.com/images/I/51bZGGh3HdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B21632H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat 28inX9in Indoor Stair Runners for Wooden Steps, Stair Rugs for Kids and Dogs, 100% Polyester TPE Backing 10pcs,Grey,Square" src="https://m.media-amazon.com/images/I/51bZGGh3HdL._SL500_.jpg"/></a>
 
 
 The **COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat** is ideal for homeowners looking to enhance safety and comfort on their **wooden stairs**. This product is especially suitable for families with **kids and dogs**, providing an effective solution to prevent slips and falls while adding a stylish touch with its **grey color**. Anyone seeking durable, easy-to-install, and visually appealing **stair runners** will find this 10-piece set a practical choice.
@@ -74,10 +74,10 @@ The **COSY HOMEER Soft Stair Treads** feature a soft yet durable **polyester sur
 
 These stair runners not only provide safety but also add a layer of comfort for **children and pets** who frequently use the stairs. The easy installation process allows users to quickly secure the mats without damaging the wood, and their washable fabric ensures that the stairs remain clean and fresh with minimal effort. Overall, this product balances functionality and style, making it a smart addition to any household with wooden stairs.
 
-## <a href="https://www.amazon.com/dp/B0DT6MBW8S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aucuda Carpet Stair Treads For Wooden Steps</a>
+## <a href="https://www.amazon.com/dp/B0DT6MBW8S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aucuda Carpet Stair Treads For Wooden Steps</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT6MBW8S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"(15="" adhesive="" alt="Aucuda Carpet Stair Treads for Wooden Steps, 8" and="" anti="" dogs="" elders="" for="" grip."="" in="" kids,="" pack)="" peel="" reusable="" rug="" runner="" self="" slip="" src="https://m.media-amazon.com/images/I/514ajk8ZYCL._SL500_.jpg" stair="" staircase="" stick="" summer,="" tape="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DT6MBW8S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"(15="" adhesive="" alt="Aucuda Carpet Stair Treads for Wooden Steps, 8" and="" anti="" dogs="" elders="" for="" grip."="" in="" kids,="" pack)="" peel="" reusable="" rug="" runner="" self="" slip="" src="https://m.media-amazon.com/images/I/514ajk8ZYCL._SL500_.jpg" stair="" staircase="" stick="" summer,="" tape="" with="" x=""/></a>
 
 
 The **Aucuda Carpet Stair Treads for Wooden Steps** are ideal for homeowners looking to enhance safety and comfort on their staircases. These stair runners are perfect for families with **kids, elders, and pets** like dogs, providing a secure, non-slip surface to prevent falls. If you want to protect your wooden steps from scratches and wear while adding a touch of style, this product is a great choice.
@@ -101,10 +101,10 @@ The **Aucuda Carpet Stair Treads** combine functionality with convenience, featu
 
 Beyond safety, these stair runners protect your stairs from everyday wear and tear, preserving the finish and preventing unsightly scratches. The neutral **grey color** blends seamlessly with various interior themes, while the durable construction ensures long-lasting use. Whether you’re looking to add an extra layer of security or simply want to prolong the life of your wooden stairs, the **Aucuda Carpet Stair Treads** offer an effective and stylish solution.
 
-## <a href="https://www.amazon.com/dp/B08ZSTST3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beneathyourfeet Door Mat</a>
+## <a href="https://www.amazon.com/dp/B08ZSTST3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beneathyourfeet Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZSTST3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BeneathYourFeet Door Mat (30" areas"="" doormat="" entryway,="" floor="" for="" front="" high="" low="" mat="" non="" patio,="" profile="" rugs="" slip="" src="https://m.media-amazon.com/images/I/51WDWZtaD0L._SL500_.jpg" traffic="" welcome="" x17.5",black),=""/></a>
+<a href="https://www.amazon.com/dp/B08ZSTST3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BeneathYourFeet Door Mat (30" areas"="" doormat="" entryway,="" floor="" for="" front="" high="" low="" mat="" non="" patio,="" profile="" rugs="" slip="" src="https://m.media-amazon.com/images/I/51WDWZtaD0L._SL500_.jpg" traffic="" welcome="" x17.5",black),=""/></a>
 
 
 The **BeneathYourFeet Door Mat (30"x17.5", Black)** is ideal for homeowners and renters looking to enhance their entryway with a durable and stylish welcome mat. Perfect for those who want a low-profile, non-slip solution to keep dirt and moisture from entering their homes, this mat suits anyone needing a reliable floor mat for high traffic areas such as patios, doorsteps, and entryways.
@@ -126,10 +126,10 @@ The **BeneathYourFeet Door Mat** features a sturdy construction designed to with
 
 Additionally, the mat’s sleek **black color** not only adds a modern touch to your doorstep but also efficiently conceals dirt and grime between cleanings. Its size is ideal for standard doorways, providing ample coverage without overwhelming the space. Overall, the **BeneathYourFeet Door Mat** combines functionality, safety, and aesthetics, making it a smart choice for anyone seeking a reliable entryway mat.
 
-## <a href="https://www.amazon.com/dp/B0B2194JV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Stair Treads Non-slip Carpet Mat</a>
+## <a href="https://www.amazon.com/dp/B0B2194JV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Stair Treads Non-slip Carpet Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2194JV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat 28inX9in Indoor Stair Runners for Wooden Steps,Stair Rugs for Kids and Dogs, 100% Polyester TPE Backing 7pcs,Beige,Rhombus" src="https://m.media-amazon.com/images/I/51ZluXo+vsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2194JV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat 28inX9in Indoor Stair Runners for Wooden Steps,Stair Rugs for Kids and Dogs, 100% Polyester TPE Backing 7pcs,Beige,Rhombus" src="https://m.media-amazon.com/images/I/51ZluXo+vsL._SL500_.jpg"/></a>
 
 
 The **COSY HOMEER Soft Stair Treads Non-Slip Carpet Mat** is ideal for homeowners with **wooden stairs** who want to enhance safety and comfort, especially those with **children** or **pets**. If you are looking to prevent slips and falls while adding a touch of style to your indoor steps, these stair runners are designed with your needs in mind.
@@ -153,10 +153,10 @@ The **COSY HOMEER Soft Stair Treads** combine practical safety features with aes
 
 Additionally, the soft polyester surface offers a comfortable and quiet step, which is particularly beneficial in busy households. The subtle rhombus pattern in beige seamlessly blends with most home decors, enhancing the look of your stairs while providing functionality. These stair runners are also lightweight and easy to clean, ensuring they remain fresh and effective with minimal effort over time.
 
-## <a href="https://www.amazon.com/dp/B0CGH4BFPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stair Treads Carpet For Wooden Steps</a>
+## <a href="https://www.amazon.com/dp/B0CGH4BFPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stair Treads Carpet For Wooden Steps</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGH4BFPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 31"="" alt="Stair Treads Carpet for Wooden Steps, Non Slip Landing Mat Rug Whit Rubber Backing, Polyester Soft Stairs Resistant Indoor Skid Runner Safety Rugs for Family, Absorbent Washable 31" gray"="" src="https://m.media-amazon.com/images/I/51ACReGHSfL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CGH4BFPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 31"="" alt="Stair Treads Carpet for Wooden Steps, Non Slip Landing Mat Rug Whit Rubber Backing, Polyester Soft Stairs Resistant Indoor Skid Runner Safety Rugs for Family, Absorbent Washable 31" gray"="" src="https://m.media-amazon.com/images/I/51ACReGHSfL._SL500_.jpg" x=""/></a>
 
 
 The **Stair Treads Carpet for Wooden Steps** is ideal for homeowners and families looking to enhance the safety and comfort of their indoor staircases. If you have wooden stairs that tend to be slippery or are concerned about preventing slips and falls, especially in homes with children, elderly individuals, or pets, this product offers an effective solution. It is also perfect for those who want to add a touch of style and softness to their stair landings without compromising durability.
@@ -179,10 +179,10 @@ The **SUMLANS Stair Treads Carpet** is designed with a focus on both safety and 
 
 Additionally, the carpet’s **washable feature** allows for easy upkeep, ensuring the stairs remain fresh and free from dirt or allergens. The **31" x 31"** size makes it versatile enough to cover most stair landings or individual steps, and the elegant **gray-dense knitting** design adds a modern touch that fits seamlessly into various home styles. This combination of practical features and aesthetic appeal makes it a smart choice for anyone wanting to improve stair safety without sacrificing style.
 
-## <a href="https://www.amazon.com/dp/B0D2KKSVKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jaoul Stair Treads For Wooden Steps Indoor Non-slip</a>
+## <a href="https://www.amazon.com/dp/B0D2KKSVKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jaoul Stair Treads For Wooden Steps Indoor Non-slip</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2KKSVKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (dark="" 15pcs="" 15pcs)"="" 30"="" alt="Jaoul Stair Treads for Wooden Steps Indoor Non-Slip 8" and="" carpet,="" elders="" for="" gray,="" indoor="" kids="" non-skid="" pets="" rug="" runners="" safety="" src="https://m.media-amazon.com/images/I/513q2yqlTZL._SL500_.jpg" stair="" treads="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0D2KKSVKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (dark="" 15pcs="" 15pcs)"="" 30"="" alt="Jaoul Stair Treads for Wooden Steps Indoor Non-Slip 8" and="" carpet,="" elders="" for="" gray,="" indoor="" kids="" non-skid="" pets="" rug="" runners="" safety="" src="https://m.media-amazon.com/images/I/513q2yqlTZL._SL500_.jpg" stair="" treads="" x=""/></a>
 
 
 The **Jaoul Stair Treads for Wooden Steps** are ideal for homeowners looking to enhance safety and style on their indoor stairs. These **non-slip stair treads** are perfect for families with **kids, elders, and pets** who need extra grip to prevent slipping and falling. If you want to protect your wooden steps from wear and tear while adding a touch of dark gray elegance, this set of 15 carpet stair runners is an excellent choice.
@@ -205,10 +205,10 @@ The **Jaoul Stair Treads** measure 8" X 30", perfectly sized to fit most standar
 
 Additionally, the **dark gray color** is not only stylish but also practical, as it helps to hide dirt and stains, keeping your stairs looking clean for longer. The **15-piece set** provides ample coverage for a typical staircase, ensuring consistent safety and protection on every step. Whether you have active children, elderly family members, or pets, these stair treads enhance your home’s safety while preserving the beauty of your wooden stairs.
 
-## <a href="https://www.amazon.com/dp/B08CS168WP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ottomanson Non-slip Rubberback Solid Indoor/outdoor Stair Treads</a>
+## <a href="https://www.amazon.com/dp/B08CS168WP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ottomanson Non-slip Rubberback Solid Indoor/outdoor Stair Treads</a>
 
 
-<a href="https://www.amazon.com/dp/B08CS168WP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" 7="" alt="Ottomanson Non-Slip Rubberback Solid 8" black"="" for="" garage,="" indoor="" outdoor="" pack,="" patio,="" src="https://m.media-amazon.com/images/I/51q+wL6M7kL._SL500_.jpg" stair="" stairs,="" treads="" x=""/></a>
+<a href="https://www.amazon.com/dp/B08CS168WP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" 7="" alt="Ottomanson Non-Slip Rubberback Solid 8" black"="" for="" garage,="" indoor="" outdoor="" pack,="" patio,="" src="https://m.media-amazon.com/images/I/51q+wL6M7kL._SL500_.jpg" stair="" stairs,="" treads="" x=""/></a>
 
 
 The **Ottomanson Non-Slip Rubberback Solid 8" x 30" Indoor/Outdoor Stair Treads** are ideal for homeowners and property managers looking to enhance safety on stairs in both indoor and outdoor settings. If you want to prevent slips and falls on stairs, garage steps, or patios, these stair treads provide an effective solution with their durable, non-slip design. They are perfect for families with children, elderly individuals, or anyone seeking added traction on potentially slippery surfaces.
@@ -230,10 +230,10 @@ These **Ottomanson stair treads** feature a sturdy rubber backing that firmly gr
 
 Designed for convenience, the stair treads come in a pack of seven, providing enough coverage for multiple stairs or for replacement over time. Their black color lends a sleek, unobtrusive look that can complement various décor styles. Overall, these stair treads offer an affordable, practical way to increase stair safety and reduce accident risks in homes and commercial settings alike.
 
-## <a href="https://www.amazon.com/dp/B074N7J8G4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gloria Rug Non-slip Rubber Back Carpet Stair Treads</a>
+## <a href="https://www.amazon.com/dp/B074N7J8G4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gloria Rug Non-slip Rubber Back Carpet Stair Treads</a>
 
 
-<a href="https://www.amazon.com/dp/B074N7J8G4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (7,="" 1923)"="" 26")="" alt="Gloria Rug Non-Slip Rubber Back Carpet Stair Treads - Skid Resistant Stair Mats (8.5" src="https://m.media-amazon.com/images/I/51FQb1FVopL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B074N7J8G4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (7,="" 1923)"="" 26")="" alt="Gloria Rug Non-Slip Rubber Back Carpet Stair Treads - Skid Resistant Stair Mats (8.5" src="https://m.media-amazon.com/images/I/51FQb1FVopL._SL500_.jpg" x=""/></a>
 
 
 The **Gloria Rug Non-Slip Rubber Back Carpet Stair Treads** are ideal for homeowners and renters looking to enhance safety on their staircases. If you have pets, children, or elderly family members, these **skid resistant stair mats** provide an effective solution to prevent slips and falls. They are also perfect for anyone wanting to protect their stairs from wear and tear while adding a touch of style with the elegant **brown color**.
@@ -255,10 +255,10 @@ The **Gloria Rug Non-Slip Rubber Back Carpet Stair Treads** combine safety and s
 
 These stair mats are designed for easy installation without the need for adhesives or complicated tools. Their durable material ensures long-lasting performance, resisting wear even with frequent use. The warm **brown color** adds a subtle aesthetic enhancement to your stairs, blending well with most home interiors. Overall, these stair treads offer a practical and stylish solution to improve stair safety and appearance.
 
-## <a href="https://www.amazon.com/dp/B0D1XR3T8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Non Slip Stair Carpet Treads For Wood Steps</a>
+## <a href="https://www.amazon.com/dp/B0D1XR3T8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Non Slip Stair Carpet Treads For Wood Steps</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1XR3T8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (15="" 30"="" adhesive,="" alt="Non Slip Stair Carpet Treads for Wood Steps 8" and="" anti-slip="" covers="" dogs"="" elders="" for="" indoor="" kids="" mats="" pack),="" rug="" runner="" src="https://m.media-amazon.com/images/I/51t12Pf58hL._SL500_.jpg" stair="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0D1XR3T8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (15="" 30"="" adhesive,="" alt="Non Slip Stair Carpet Treads for Wood Steps 8" and="" anti-slip="" covers="" dogs"="" elders="" for="" indoor="" kids="" mats="" pack),="" rug="" runner="" src="https://m.media-amazon.com/images/I/51t12Pf58hL._SL500_.jpg" stair="" with="" x=""/></a>
 
 
 The **Non Slip Stair Carpet Treads for Wood Steps 8" X 30" (15 Pack)** by **JAYFAN** are ideal for homeowners looking to enhance safety on their indoor stairs. This product is especially beneficial for families with **kids, elders, and pets** who are prone to slipping on smooth wooden steps. If you want to prevent accidents and add a non-slip surface to your stairway without compromising on style, these **anti-slip stair runner rugs** are the perfect solution.

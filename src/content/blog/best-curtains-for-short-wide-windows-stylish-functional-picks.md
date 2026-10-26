@@ -23,10 +23,10 @@ Semi-sheer curtains allow soft light and maintain privacy. Materials such as lin
 
 
 
-## <a href="https://www.amazon.com/dp/B07BYSQ39N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Short Curtains Gray Half Window Curtains</a>
+## <a href="https://www.amazon.com/dp/B07BYSQ39N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Short Curtains Gray Half Window Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07BYSQ39N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Short Curtains Gray Half Window Curtains for Bedroom, Privacy Curtain Tiers for Windows, Energy Saving Drapes for Bathroom Shades, Wide 42 x Long 36 inches per Panel, Grey, Set of 2" src="https://m.media-amazon.com/images/I/412K3LAb5+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BYSQ39N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Short Curtains Gray Half Window Curtains for Bedroom, Privacy Curtain Tiers for Windows, Energy Saving Drapes for Bathroom Shades, Wide 42 x Long 36 inches per Panel, Grey, Set of 2" src="https://m.media-amazon.com/images/I/412K3LAb5+L._SL500_.jpg"/></a>
 
 
 The **RYB HOME Short Curtains Gray Half Window Curtains** are ideal for homeowners or renters looking to enhance their **privacy** while adding a touch of style to smaller windows. These curtains are perfect for bedrooms, bathrooms, or any space where you want to maintain natural light without sacrificing privacy. If you value both functionality and modern aesthetics, these **energy-saving drapes** are an excellent choice.
@@ -48,10 +48,10 @@ The **RYB HOME Short Curtains** are crafted to fit windows measuring 42 inches w
 
 Beyond aesthetics, these curtain tiers offer practical benefits such as **energy efficiency**. Their fabric helps to reduce heat loss during colder months and keeps out excessive heat during warmer seasons, contributing to lower energy costs. Additionally, their lightweight design makes them easy to hang and remove, ensuring that users can maintain and clean them with minimal effort, keeping their living spaces fresh and comfortable.
 
-## <a href="https://www.amazon.com/dp/B09SBD7T1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Halloween Short Curtains</a>
+## <a href="https://www.amazon.com/dp/B09SBD7T1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Halloween Short Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09SBD7T1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Halloween Short Curtains 36 inches Long, Black Out RV Bunk Panels, Kitchen Window Curtains Over Sink, Thermal Insulating Blackout Drapes/Draperies for Small Window (2 Panels, 42 inches Wide)" src="https://m.media-amazon.com/images/I/417VUJT27+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SBD7T1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Halloween Short Curtains 36 inches Long, Black Out RV Bunk Panels, Kitchen Window Curtains Over Sink, Thermal Insulating Blackout Drapes/Draperies for Small Window (2 Panels, 42 inches Wide)" src="https://m.media-amazon.com/images/I/417VUJT27+L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Halloween Short Curtains** are perfect for individuals looking to enhance privacy and block out light in small spaces such as RV bunks, kitchen windows, or any small window area. Ideal customers include RV owners, apartment dwellers, and those seeking thermal insulation for compact window setups. These curtains combine functionality with seasonal style, making them a practical choice for those who want effective blackout solutions with a sleek, black finish.
@@ -73,10 +73,10 @@ The **NICETOWN Halloween Short Curtains** are designed with high-quality blackou
 
 Additionally, these curtains come in a compact size of 36 inches in length and 42 inches in width, making them ideal for small windows such as those found over kitchen sinks or RV bunk panels. The black color offers a sleek, modern look while effectively reducing glare and enhancing privacy. With two panels included, users get full coverage and easy installation, making these curtains a practical and stylish window treatment solution.
 
-## <a href="https://www.amazon.com/dp/B0DKSGFSJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamit Short Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0DKSGFSJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamit Short Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKSGFSJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LAMIT Short Linen Curtains 36 Inch Length for Cafe, Ivory Semi Sheer Small Kitchen Window Curtains Over Sink, Light Filtering Rod Pocket Drapes for RV/Half Window, 2 Panels, 42 x 36 Inch" src="https://m.media-amazon.com/images/I/31YKLusGR+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKSGFSJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LAMIT Short Linen Curtains 36 Inch Length for Cafe, Ivory Semi Sheer Small Kitchen Window Curtains Over Sink, Light Filtering Rod Pocket Drapes for RV/Half Window, 2 Panels, 42 x 36 Inch" src="https://m.media-amazon.com/images/I/31YKLusGR+L._SL500_.jpg"/></a>
 
 
 These **LAMIT Short Linen Curtains** are ideal for homeowners or renters looking to add a touch of elegance and privacy to small windows, such as kitchen cafe windows, RV windows, or half-sized windows. If you want a light-filtering curtain that provides a natural, airy feel without completely blocking sunlight, these curtains are a perfect choice.
@@ -99,10 +99,10 @@ The **LAMIT Short Linen Curtains** feature a lightweight and semi-sheer fabric t
 
 These curtains come with a convenient rod pocket design, allowing for easy hanging and smooth movement along the curtain rod. The set includes two panels, each measuring 42 by 36 inches, providing ample coverage while maintaining a delicate appearance. The breathable linen fabric ensures airflow, which is especially beneficial in kitchen environments or RVs where ventilation is important. Overall, these curtains combine functionality with aesthetic appeal for users seeking subtle privacy and light control.
 
-## <a href="https://www.amazon.com/dp/B01NAOM85J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Kitchen Blackout Short Curtain Panels</a>
+## <a href="https://www.amazon.com/dp/B01NAOM85J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Kitchen Blackout Short Curtain Panels</a>
 
 
-<a href="https://www.amazon.com/dp/B01NAOM85J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Kitchen Blackout Short Curtain Panels for Bedroom, 45 Inch Long Thermal Insulated Grommet Top Blackout Draperies and Drapes (2 Panels, W42 x L45 -Inch, Grey)" src="https://m.media-amazon.com/images/I/41lYSbT00IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01NAOM85J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Kitchen Blackout Short Curtain Panels for Bedroom, 45 Inch Long Thermal Insulated Grommet Top Blackout Draperies and Drapes (2 Panels, W42 x L45 -Inch, Grey)" src="https://m.media-amazon.com/images/I/41lYSbT00IL._SL500_.jpg"/></a>
 
 
 The **NICETOWN Grey Kitchen Blackout Short Curtain Panels** are ideal for homeowners and renters looking to enhance privacy and control natural light in smaller spaces such as kitchens, bedrooms, or bathrooms. Those who want an easy-to-install, stylish, and functional window treatment to reduce heat and glare will find these **thermal insulated blackout draperies** particularly beneficial.
@@ -124,10 +124,10 @@ The **NICETOWN Grey Kitchen Blackout Short Curtain Panels** are crafted from hig
 
 These curtains are designed with a **grommet top** style, which not only adds a modern touch but also facilitates easy sliding and installation on standard curtain rods. The **compact dimensions** make them ideal for kitchens and smaller windows, where full-length curtains might be impractical. Their **neutral grey shade** offers versatility, seamlessly blending with various color schemes and interior styles to enhance your room's overall look.
 
-## <a href="https://www.amazon.com/dp/B07P38XL5C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B07P38XL5C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07P38XL5C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen Blackout Curtains 45 Inches Long 100% Blackout Thermal Insulated Textured Linen Look Curtain Draperies Anti-Rust Grommet, Energy Saving with White Liner, 2 Panels, Natural" src="https://m.media-amazon.com/images/I/41ojXedgn8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P38XL5C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen Blackout Curtains 45 Inches Long 100% Blackout Thermal Insulated Textured Linen Look Curtain Draperies Anti-Rust Grommet, Energy Saving with White Liner, 2 Panels, Natural" src="https://m.media-amazon.com/images/I/41ojXedgn8L._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Linen Blackout Curtains** are ideal for homeowners and renters seeking an elegant yet functional window treatment. Perfect for those who want to block out sunlight, reduce noise, and improve energy efficiency, these curtains suit bedrooms, living rooms, or home offices where privacy and light control are essential.
@@ -152,10 +152,10 @@ The **H.VERSAILTEX Linen Blackout Curtains** combine functionality with aestheti
 
 The curtains’ **textured linen look** provides a sophisticated, natural feel that enhances any room's decor without overpowering existing styles. The **anti-rust grommets** ensure smooth operation and durability, while the included **white liner** adds an extra layer of privacy and light filtering. Overall, these panels deliver a practical and stylish solution for modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B0C6HW47RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chyhomenyc 2 Panels White Kitchen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0C6HW47RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chyhomenyc 2 Panels White Kitchen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6HW47RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains, Faux Linen Textured Small Cafe Curtains, Light Filtering Short Window Curtains for Bathroom Basement, 30x36 inch, 2PCS" src="https://m.media-amazon.com/images/I/41Ona7Z6ESL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6HW47RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chyhomenyc 2 Panels White Kitchen Curtains 36 Inch Length Tier Curtains, Faux Linen Textured Small Cafe Curtains, Light Filtering Short Window Curtains for Bathroom Basement, 30x36 inch, 2PCS" src="https://m.media-amazon.com/images/I/41Ona7Z6ESL._SL500_.jpg"/></a>
 
 
 The **Chyhomenyc 2 Panels White Kitchen Curtains** are ideal for homeowners or renters looking to add a touch of elegance and privacy to smaller windows, such as those in kitchens, bathrooms, or basements. These curtains are perfect for individuals who want a balance between light filtering and maintaining some degree of natural light, making them suitable for spaces that require both functionality and style.
@@ -178,10 +178,10 @@ These **Chyhomenyc kitchen curtains** feature a textured faux linen fabric that 
 
 The compact 30x36 inch size of each panel is tailored for smaller windows, ensuring a snug fit that looks polished without overwhelming the space. Additionally, the two-panel set allows for easy installation and the option to adjust coverage as needed. While these curtains may not block out all light, their design strikes a practical balance for users seeking a combination of style, light control, and privacy in less conventional window spaces.
 
-## <a href="https://www.amazon.com/dp/B0D76F1XCD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamit Short Linen Kitchen Window Curtains</a>
+## <a href="https://www.amazon.com/dp/B0D76F1XCD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamit Short Linen Kitchen Window Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0D76F1XCD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LAMIT Short Linen Kitchen Window Curtains 36 Inch Length, Over Sink Semi Sheer Light Filtering Panels Back Tab and Rod Pocket Drapes for Basement Bathroom Window, 2 Panels, Cream Ivory，34 x 36 Inch" src="https://m.media-amazon.com/images/I/41zs5mcNBML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D76F1XCD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LAMIT Short Linen Kitchen Window Curtains 36 Inch Length, Over Sink Semi Sheer Light Filtering Panels Back Tab and Rod Pocket Drapes for Basement Bathroom Window, 2 Panels, Cream Ivory，34 x 36 Inch" src="https://m.media-amazon.com/images/I/41zs5mcNBML._SL500_.jpg"/></a>
 
 
 The **LAMIT Short Linen Kitchen Window Curtains** are ideal for homeowners or renters looking to add a touch of elegance and light control to smaller spaces such as kitchens, bathrooms, or basements. These curtains are perfect for those who want a combination of privacy and natural light filtering without overwhelming their windows with heavy drapes.
@@ -204,10 +204,10 @@ The **LAMIT Short Linen Kitchen Window Curtains** are crafted from a lightweight
 
 With the dual hanging options of **back tab and rod pocket**, these curtains offer flexibility in styling and ease of installation. This design feature allows users to customize the look, whether they prefer a more casual or structured appearance. Additionally, the **two-panel set** provides adequate coverage while remaining lightweight and easy to maintain, making them an excellent choice for anyone seeking functional yet stylish window treatments for smaller spaces.
 
-## <a href="https://www.amazon.com/dp/B071Y49CZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pony Dance Short Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B071Y49CZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pony Dance Short Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B071Y49CZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PONY DANCE Short Blackout Curtains for Kitchen Over Sink 45 inch Long, Thermal Insulated Black Out Curtain for Bedroom, Rod Pocket Drapes for Bathroom Small Window(2 Panels Set, Black, 42 inches Wide)" src="https://m.media-amazon.com/images/I/41gBMa0VXwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071Y49CZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PONY DANCE Short Blackout Curtains for Kitchen Over Sink 45 inch Long, Thermal Insulated Black Out Curtain for Bedroom, Rod Pocket Drapes for Bathroom Small Window(2 Panels Set, Black, 42 inches Wide)" src="https://m.media-amazon.com/images/I/41gBMa0VXwL._SL500_.jpg"/></a>
 
 
 The **PONY DANCE Short Blackout Curtains for Kitchen Over Sink** are ideal for homeowners or renters looking to enhance privacy and light control in small spaces such as kitchens, bathrooms, or bedrooms. If you have a **small window** measuring around **42 inches wide and 45 inches long** and want a stylish, functional solution to block sunlight and insulate against temperature changes, this set is perfect for you.
@@ -229,10 +229,10 @@ The **PONY DANCE Blackout Curtains** feature a **thermal insulated fabric** that
 
 Additionally, the **rod pocket drapes** make installation hassle-free, allowing you to quickly update your window treatments without the need for special hardware. The durable yet lightweight material ensures the curtains are easy to clean and maintain, adding convenience alongside style. Overall, this two-panel set offers a practical and aesthetic solution for anyone looking to enhance small window spaces with effective blackout and thermal insulation properties.
 
-## <a href="https://www.amazon.com/dp/B09M9VHKC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Short Black Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B09M9VHKC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home Short Black Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B09M9VHKC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Short Black Curtains for Bedroom, Blackout Thermal Insulated Curtain Tiers Small Window Treatment Privacy Shades for Kitchen Farmhouse Closet, W42 x L36 inch, 2 Panels" src="https://m.media-amazon.com/images/I/41r-ST1t3zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09M9VHKC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME Short Black Curtains for Bedroom, Blackout Thermal Insulated Curtain Tiers Small Window Treatment Privacy Shades for Kitchen Farmhouse Closet, W42 x L36 inch, 2 Panels" src="https://m.media-amazon.com/images/I/41r-ST1t3zL._SL500_.jpg"/></a>
 
 
 The **RYB HOME Short Black Curtains** are ideal for homeowners and renters looking to enhance privacy and control light in smaller spaces like bedrooms, kitchens, or closets. These **blackout thermal insulated curtain tiers** are perfect for those wanting to reduce outside noise, block sunlight effectively, and add a touch of farmhouse charm to their interiors. If you need a compact window treatment that combines functionality with style, these curtains are an excellent choice.
@@ -256,10 +256,10 @@ The **RYB HOME Short Black Curtains** are crafted to offer both practical and ae
 
 Beyond functionality, these curtains provide a sleek and modern look with their solid **black color**, making them versatile enough to blend into various interior styles. The lightweight fabric simplifies installation and upkeep, allowing users to enjoy the benefits without hassle. Whether used in a cozy bedroom, a busy kitchen, or a private closet, the **RYB HOME Short Black Curtains** deliver privacy and style in a compact form that meets specific household needs.
 
-## <a href="https://www.amazon.com/dp/B0CLGP123Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tollpiz Short Linen Curtains Bedroom Rod Pocket Semi Sheer Curtain Burlap Light Filtering Thick Linen Drapes</a>
+## <a href="https://www.amazon.com/dp/B0CLGP123Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tollpiz Short Linen Curtains Bedroom Rod Pocket Semi Sheer Curtain Burlap Light Filtering Thick Linen Drapes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLGP123Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tollpiz Short Linen Curtains Bedroom Rod Pocket Semi Sheer Curtain Burlap Light Filtering Thick Linen Drapes for Living Room, 38 x 45 inches Long, Natural, Set of 2 Panels" src="https://m.media-amazon.com/images/I/41wKpIMp+gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLGP123Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tollpiz Short Linen Curtains Bedroom Rod Pocket Semi Sheer Curtain Burlap Light Filtering Thick Linen Drapes for Living Room, 38 x 45 inches Long, Natural, Set of 2 Panels" src="https://m.media-amazon.com/images/I/41wKpIMp+gL._SL500_.jpg"/></a>
 
 
 The **Tollpiz Short Linen Curtains** are ideal for homeowners and renters seeking a blend of style and functionality in their window treatments. Perfect for those who want to add a natural, airy feel to their **bedroom** or **living room**, these curtains suit individuals looking for **semi-sheer** coverage that filters light without sacrificing privacy. If you prefer a **thick linen drape** with a rustic burlap texture that complements a cozy, natural décor, this set is an excellent choice.

@@ -23,10 +23,10 @@ Many designs are reversible, offering two looks in one rug. Colors like black, g
 
 
 
-## <a href="https://www.amazon.com/dp/B0DXL3NGPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4x6 Outdoor Rug Waterproof Porch Rug</a>
+## <a href="https://www.amazon.com/dp/B0DXL3NGPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4x6 Outdoor Rug Waterproof Porch Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXL3NGPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4x6 Outdoor Rug Waterproof Porch Rug,Outdoor Mat 4x6 Small Balcony Mat,Reversible Plastic Straw Rug, Outdoor Rug for Camping Black and White Outdoor Rugs for Patio, Deck, RV, Camping, Beach, Backyard" src="https://m.media-amazon.com/images/I/61G9iMNbtgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXL3NGPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4x6 Outdoor Rug Waterproof Porch Rug,Outdoor Mat 4x6 Small Balcony Mat,Reversible Plastic Straw Rug, Outdoor Rug for Camping Black and White Outdoor Rugs for Patio, Deck, RV, Camping, Beach, Backyard" src="https://m.media-amazon.com/images/I/61G9iMNbtgL._SL500_.jpg"/></a>
 
 
 The **4x6 Outdoor Rug Waterproof Porch Rug** is perfect for individuals who love spending time outdoors and want a durable, stylish, and functional mat for their patio, deck, balcony, or camping trips. Ideal customers include homeowners with outdoor spaces, RV enthusiasts, campers, and beachgoers who need a versatile and easy-to-maintain **outdoor rug** that can withstand various weather conditions.
@@ -49,10 +49,10 @@ The **Alfolo 4x6 Outdoor Rug** features a unique **reversible plastic straw desi
 
 Weighing only **1.65 pounds** and measuring **48 by 72 inches**, this rug is easy to carry and store, making it an excellent choice for camping trips and RV travel. The durable yet flexible **plastic straw** material ensures long-lasting use while also being gentle on feet. Whether you're looking to create a comfortable outdoor seating area or protect your balcony floor, this rug offers a balance of style, convenience, and resilience.
 
-## <a href="https://www.amazon.com/dp/B0CMTNN9KL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ileading Reversible Outdoor Rug 6x9ft</a>
+## <a href="https://www.amazon.com/dp/B0CMTNN9KL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ileading Reversible Outdoor Rug 6x9ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMTNN9KL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ileading Reversible Outdoor Rug 6x9Ft Waterproof Patio Rug Carpet Portable Outdoor Plastic Straw Rug Large RV Camping Mat Rug for Patio, Clearance, Deck, Beach, Porch, Camping, Picnic, Flower Grey" src="https://m.media-amazon.com/images/I/61pWB4jDhsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMTNN9KL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ileading Reversible Outdoor Rug 6x9Ft Waterproof Patio Rug Carpet Portable Outdoor Plastic Straw Rug Large RV Camping Mat Rug for Patio, Clearance, Deck, Beach, Porch, Camping, Picnic, Flower Grey" src="https://m.media-amazon.com/images/I/61pWB4jDhsL._SL500_.jpg"/></a>
 
 
 The **Ileading Reversible Outdoor Rug 6x9Ft** is perfect for outdoor enthusiasts and homeowners looking to enhance their patios, decks, or camping experiences with a durable and stylish mat. Ideal for those who enjoy picnics, beach outings, or RV camping, this **waterproof patio rug** provides a versatile and portable solution for various outdoor settings. Its large size and reversible design make it suitable for families or groups who want a comfortable and easy-to-clean surface.
@@ -74,10 +74,10 @@ Crafted by **Ileading**, this **portable outdoor plastic straw rug** features a 
 
 The **large 6x9 feet dimensions** provide a spacious area to relax, play, or dine outdoors, enhancing comfort and usability. This rug is also easy to clean, requiring only a quick shake or wipe down, which saves time and effort for users. Whether placed on a porch, deck, or sandy beach, the **Ileading Reversible Outdoor Rug** adds both functionality and aesthetic appeal to any outdoor setting.
 
-## <a href="https://www.amazon.com/dp/B0D97V83KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Door Mat Outside Entrance With Drainage</a>
+## <a href="https://www.amazon.com/dp/B0D97V83KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Door Mat Outside Entrance With Drainage</a>
 
 
-<a href="https://www.amazon.com/dp/B0D97V83KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Color&amp;Geometry Door Mat Outside Entrance with Drainage, Rubber Heavy Duty Dirt Trapper Waterproof Outdoor Welcome Mat, Outdoor Mats All Weather for Front Back Door Patio Entryway Entry,19" green"="" src="https://m.media-amazon.com/images/I/51-5quIPDTL._SL500_.jpg" x30"=""/></a>
+<a href="https://www.amazon.com/dp/B0D97V83KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Color&amp;Geometry Door Mat Outside Entrance with Drainage, Rubber Heavy Duty Dirt Trapper Waterproof Outdoor Welcome Mat, Outdoor Mats All Weather for Front Back Door Patio Entryway Entry,19" green"="" src="https://m.media-amazon.com/images/I/51-5quIPDTL._SL500_.jpg" x30"=""/></a>
 
 
 The **Color&Geometry Door Mat Outside Entrance** is ideal for homeowners and renters looking to maintain a clean and welcoming entryway. If you want a durable, easy-to-clean mat that effectively traps dirt and handles all weather conditions, this **waterproof outdoor welcome mat** is perfect for your front or back door, patio, or entryway.
@@ -101,10 +101,10 @@ The **Color&Geometry Door Mat** features a robust rubber construction that not o
 
 Additionally, the mat’s ability to trap dirt effectively means you spend less time cleaning indoor floors, as mud and debris are captured right at the doorstep. The waterproof and heavy-duty nature of this mat guarantees longevity and consistent performance, making it a practical investment for anyone seeking a reliable outdoor mat. Its vivid green color adds an appealing aesthetic, enhancing your entryway’s overall look while providing excellent functionality.
 
-## <a href="https://www.amazon.com/dp/B0F4K8ZFPB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outdoor Patio Rug Waterproof Camping</a>
+## <a href="https://www.amazon.com/dp/B0F4K8ZFPB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outdoor Patio Rug Waterproof Camping</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4K8ZFPB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outdoor Patio Rug Waterproof Camping - Outdoor Plastic Straw Rug Area Carpet Clearance for Outside, Porch, RV Camper, Picnic, Balcony &amp; Backyard, Patio Decor, Clearance" src="https://m.media-amazon.com/images/I/51iUiqOSXWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4K8ZFPB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outdoor Patio Rug Waterproof Camping - Outdoor Plastic Straw Rug Area Carpet Clearance for Outside, Porch, RV Camper, Picnic, Balcony &amp; Backyard, Patio Decor, Clearance" src="https://m.media-amazon.com/images/I/51iUiqOSXWL._SL500_.jpg"/></a>
 
 
 The **Outdoor Patio Rug Waterproof Camping** by **Kalafun** is ideal for individuals who enjoy spending time outdoors and want a durable, stylish, and functional rug for their **porch**, **RV camper**, **picnic**, **balcony**, or **backyard**. Perfect for campers, outdoor enthusiasts, and homeowners looking to enhance their **patio decor**, this rug offers both practicality and aesthetic appeal.
@@ -127,10 +127,10 @@ The **Outdoor Patio Rug** is crafted with a waterproof **plastic straw** materia
 
 Additionally, this area carpet serves multiple functions beyond decoration. It protects surfaces from dirt and wear while providing a clean, comfortable area to sit or place outdoor furniture. The durable construction from **Kalafun** guarantees long-lasting use, making it a smart investment for anyone who frequently enjoys outdoor activities or wants to beautify their outdoor living area with minimal maintenance.
 
-## <a href="https://www.amazon.com/dp/B0DJ78SXP7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vk·living Outdoor Rug 5'x8'</a>
+## <a href="https://www.amazon.com/dp/B0DJ78SXP7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vk·living Outdoor Rug 5'x8'</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ78SXP7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VK·LIVING Outdoor Rug 5'x8' Outdoor Patio Rugs Indoor Rugs Waterproof Rugs Carpet Outside Plastic Rug Outside Rug, Outdoor Mats for Camping, RV, Beach, Balcony, Backyard, Deck, (Plaid-Blue)" src="https://m.media-amazon.com/images/I/51D34GSoSVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ78SXP7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VK·LIVING Outdoor Rug 5'x8' Outdoor Patio Rugs Indoor Rugs Waterproof Rugs Carpet Outside Plastic Rug Outside Rug, Outdoor Mats for Camping, RV, Beach, Balcony, Backyard, Deck, (Plaid-Blue)" src="https://m.media-amazon.com/images/I/51D34GSoSVL._SL500_.jpg"/></a>
 
 
 The **VK·LIVING Outdoor Rug 5'x8'** is perfect for individuals seeking a durable and stylish flooring solution for their outdoor spaces. Ideal for homeowners with patios, balconies, or backyards, as well as campers and RV enthusiasts, this rug offers versatility and practicality for various outdoor environments. If you want a waterproof, easy-to-clean, and attractive rug to enhance your outdoor living areas, this product is an excellent choice.
@@ -152,10 +152,10 @@ The **VK·LIVING Outdoor Rug** features a **waterproof design** that protects it
 
 This rug’s versatility allows it to be used in numerous outdoor settings such as camping trips, RV floors, beach outings, or simply as a decorative piece on your balcony or deck. The lightweight and portable nature of the rug make it easy to transport and set up wherever you need it. Additionally, its easy maintenance saves time and effort, allowing users to enjoy their outdoor activities without worrying about cleaning or damage.
 
-## <a href="https://www.amazon.com/dp/B0CGZSTWG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Front Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CGZSTWG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Front Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGZSTWG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Front Door Mat Indoor Outdoor Entrance, Waterproof All-Season, All-Weather Doormat, Sturdy Natural Rubber, Fade Resistant, Low Profile, Easy Clean Patio Porch Entryway Mat, 29.5x17, Grey" src="https://m.media-amazon.com/images/I/51VpYFwVt6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGZSTWG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Front Door Mat Indoor Outdoor Entrance, Waterproof All-Season, All-Weather Doormat, Sturdy Natural Rubber, Fade Resistant, Low Profile, Easy Clean Patio Porch Entryway Mat, 29.5x17, Grey" src="https://m.media-amazon.com/images/I/51VpYFwVt6L._SL500_.jpg"/></a>
 
 
 The **OLANLY Front Door Mat** is ideal for homeowners and renters looking for a durable, stylish, and functional entrance mat that works well both **indoors and outdoors**. If you want a **waterproof, all-season, and fade-resistant** doormat that can withstand various weather conditions while keeping your entryway clean and welcoming, this mat is a perfect choice. It’s especially suitable for those who value low maintenance and a neat appearance for their porch, patio, or foyer.
@@ -178,10 +178,10 @@ The **OLANLY Front Door Mat** features a robust natural rubber construction that
 
 Additionally, the mat’s fade-resistant quality means it will retain its attractive **grey finish** even after prolonged exposure to sunlight, ensuring your entryway remains visually appealing year-round. Cleaning is a breeze as the mat can be quickly rinsed or wiped down, reducing the hassle of regular maintenance. Overall, this mat combines practicality with aesthetic appeal, making it a smart and stylish choice for anyone seeking a reliable entrance solution.
 
-## <a href="https://www.amazon.com/dp/B0DG8MZ48N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0DG8MZ48N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG8MZ48N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 5x8, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Leaf Brown" src="https://m.media-amazon.com/images/I/51e6ljWkEJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG8MZ48N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 5x8, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Leaf Brown" src="https://m.media-amazon.com/images/I/51e6ljWkEJL._SL500_.jpg"/></a>
 
 
 The **Pauwer Waterproof Outdoor Rug 5x8** is ideal for individuals who enjoy spending time outdoors and want a durable, stylish, and versatile mat for their **deck**, **porch**, **backyard**, or even while **camping**. Whether you own an **RV**, have a **balcony** space, or frequently host **picnics**, this rug is designed to withstand the elements while adding comfort and aesthetic appeal to your outdoor living area.
@@ -205,10 +205,10 @@ The **Pauwer Waterproof Outdoor Rug** is crafted from durable **plastic straw**,
 
 Beyond durability, the rug’s size and color make it a versatile accessory for various outdoor settings. The **5x8 foot** dimensions provide ample coverage for seating areas or picnic spots, while the **Leaf Brown** tone complements natural surroundings. Whether you want to add comfort to your **porch** or create a stylish base for your outdoor furniture, this rug enhances both the functionality and ambiance of your space.
 
-## <a href="https://www.amazon.com/dp/B0DG8M9FZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0DG8M9FZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Waterproof Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG8M9FZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 6x9, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Floral Brown" src="https://m.media-amazon.com/images/I/51sQ659Qd8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG8M9FZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Waterproof Outdoor Rug 6x9, Reversible Plastic Straw Patio Camping Rug, Indoor Outdoor RV Mat Carpet for Deck, Camper, Porch, Balcony, Backyard, Picnic, Floral Brown" src="https://m.media-amazon.com/images/I/51sQ659Qd8L._SL500_.jpg"/></a>
 
 
 The **Pauwer Waterproof Outdoor Rug 6x9** is ideal for individuals who enjoy spending time outdoors and want a durable, stylish mat that can withstand various weather conditions. Perfect for campers, RV owners, and anyone looking to enhance their deck, porch, balcony, or backyard with a practical and attractive rug, this item suits those seeking both functionality and aesthetics in an outdoor setting.
@@ -231,10 +231,10 @@ The **Pauwer Waterproof Outdoor Rug** is crafted with a sturdy plastic straw mat
 
 This rug's generous size of 6x9 feet provides ample coverage for a variety of settings, from a cozy camping spot to a spacious backyard deck. The **Floral Brown color** adds a natural, warm touch that blends seamlessly with outdoor surroundings. Lightweight and portable, it can be easily rolled up and transported, making it an excellent companion for picnics, RV trips, or simply relaxing on a porch. Overall, the Pauwer Outdoor Rug combines practicality with style, offering users a reliable and aesthetically pleasing outdoor accessory.
 
-## <a href="https://www.amazon.com/dp/B0DN9XQZ2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oppodream Outdoor Rug 5x8 Ft</a>
+## <a href="https://www.amazon.com/dp/B0DN9XQZ2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oppodream Outdoor Rug 5x8 Ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN9XQZ2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPPODREAM Outdoor Rug 5x8 Ft, Waterproof Outdoor Plastic Straw Rug for Patio, Reversible Out Door Carpet for Camping, Deck, Rv, 5 x 8 Area Carpet for Balcony, Porch, Backyard, Black and Beige" src="https://m.media-amazon.com/images/I/61-jVlvAIrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN9XQZ2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPPODREAM Outdoor Rug 5x8 Ft, Waterproof Outdoor Plastic Straw Rug for Patio, Reversible Out Door Carpet for Camping, Deck, Rv, 5 x 8 Area Carpet for Balcony, Porch, Backyard, Black and Beige" src="https://m.media-amazon.com/images/I/61-jVlvAIrL._SL500_.jpg"/></a>
 
 
 The **OPPODREAM Outdoor Rug 5x8 Ft** is ideal for individuals who enjoy spending time outdoors and want a durable, stylish, and practical addition to their patio, deck, balcony, or camping setup. If you are someone looking for a **waterproof**, easy-to-clean, and reversible outdoor carpet that can withstand various weather conditions, this rug is perfect for you. It caters to homeowners, RV owners, campers, and anyone wanting to enhance their outdoor living spaces with a reliable and attractive floor covering.
@@ -257,10 +257,10 @@ The **OPPODREAM Outdoor Rug** features a **waterproof plastic straw weave** that
 
 In addition to its practical benefits, the rug’s lightweight construction makes it easy to roll up and transport, perfect for camping trips or moving between different outdoor locations. The durable materials used in manufacturing ensure that it withstands the rigors of outdoor environments, including sun exposure and foot traffic, without fading or fraying. Overall, this **OPPODREAM Outdoor Rug** combines functionality with style, making it a smart investment for anyone looking to elevate their outdoor living experience.
 
-## <a href="https://www.amazon.com/dp/B0DFYBM312?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yamaziot Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0DFYBM312?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yamaziot Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFYBM312?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yamaziot Outdoor Rug 5x8 Ft, Waterproof Plastic Straw Patio Rug, Reversible Backyard Carpet UV Resistant Portable RV Mat Clearance, Large Indoor Outdoor Rug for Patio, Porch, Deck, Balcony, Brown" src="https://m.media-amazon.com/images/I/51y5QlTlHLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFYBM312?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yamaziot Outdoor Rug 5x8 Ft, Waterproof Plastic Straw Patio Rug, Reversible Backyard Carpet UV Resistant Portable RV Mat Clearance, Large Indoor Outdoor Rug for Patio, Porch, Deck, Balcony, Brown" src="https://m.media-amazon.com/images/I/51y5QlTlHLL._SL500_.jpg"/></a>
 
 
 The **Yamaziot Outdoor Rug 5x8 Ft** is an excellent choice for homeowners and outdoor enthusiasts looking to enhance their patio, porch, or deck area with a durable and stylish flooring option. Ideal for those who want a low-maintenance, waterproof, and UV-resistant rug that can withstand various weather conditions, this product is perfect for anyone seeking a versatile and portable outdoor carpet solution. Whether you have an RV, balcony, or backyard space, this rug caters to individuals who appreciate both functionality and aesthetic appeal in their outdoor living areas.

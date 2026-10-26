@@ -23,10 +23,10 @@ Light grey or dove grey curtains blend softly with grey walls for a calm effect.
 
 
 
-## <a href="https://www.amazon.com/dp/B078G4P8K5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homeideas Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B078G4P8K5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homeideas Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B078G4P8K5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMEIDEAS Blackout Curtains for Bedroom 52 X 84 Inch Long 2 Panels Set Light Grey/Gray Room Darkening Curtains/Drapes, Soundproof Thermal Grommet Window Curtains for Living Room" src="https://m.media-amazon.com/images/I/417LzuSG-YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078G4P8K5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMEIDEAS Blackout Curtains for Bedroom 52 X 84 Inch Long 2 Panels Set Light Grey/Gray Room Darkening Curtains/Drapes, Soundproof Thermal Grommet Window Curtains for Living Room" src="https://m.media-amazon.com/images/I/417LzuSG-YL._SL500_.jpg"/></a>
 
 
 The **HOMEIDEAS Blackout Curtains for Bedroom** are ideal for homeowners or renters seeking to enhance privacy, reduce light intrusion, and improve energy efficiency in their living spaces. Perfect for bedrooms, living rooms, or any area where controlling light and noise is essential, these **light grey/gray room darkening curtains** are designed for those who value comfort, style, and functionality in window treatments.
@@ -48,10 +48,10 @@ The **HOMEIDEAS Blackout Curtains** feature a high-quality thermal fabric that n
 
 Designed with convenience in mind, the **grommet window curtains** ensure effortless installation and smooth operation. The elegant **light grey color** adds a modern touch to any room, blending seamlessly with different interior styles. Overall, these **blackout drapes** provide both aesthetic appeal and practical benefits, making them a smart choice for anyone looking to improve their home environment.
 
-## <a href="https://www.amazon.com/dp/B09HBXQTLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lemomo Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B09HBXQTLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lemomo Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09HBXQTLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEMOMO Blackout Curtains 52 x 84 inch/Light Grey Curtains Set of 2 Panels/Thermal Insulated Room Darkening Bedroom Curtains" src="https://m.media-amazon.com/images/I/41OClbJy7gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HBXQTLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEMOMO Blackout Curtains 52 x 84 inch/Light Grey Curtains Set of 2 Panels/Thermal Insulated Room Darkening Bedroom Curtains" src="https://m.media-amazon.com/images/I/41OClbJy7gL._SL500_.jpg"/></a>
 
 
 The **LEMOMO Blackout Curtains 52 x 84 inch** in **Light Grey** are ideal for homeowners or renters looking to enhance privacy and control natural light in their living spaces. These curtains are perfect for bedrooms, nurseries, or media rooms where blocking out sunlight and reducing noise is a priority. If you want to improve energy efficiency while adding a sleek, modern touch to your decor, these thermal insulated curtains are an excellent choice.
@@ -74,10 +74,10 @@ These **LEMOMO Blackout Curtains** are designed with a **thermal insulated fabri
 
 Additionally, the generous dimensions of each panel (52 inches wide by 84 inches long) ensure comprehensive window coverage, minimizing gaps that allow light to seep through. This makes the curtains particularly beneficial for light-sensitive individuals or those who work night shifts and need to sleep during daylight hours. The set of two panels provides flexibility in installation, allowing users to cover larger windows or multiple smaller ones easily. Overall, these curtains deliver a balanced combination of aesthetic appeal, energy savings, and improved comfort for any room.
 
-## <a href="https://www.amazon.com/dp/B072HWC79L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Room Darkening Gray Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B072HWC79L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Room Darkening Gray Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B072HWC79L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Room Darkening Gray Blackout Curtains, Light Blocking Thermal Insulated Grommet Drapes for Bedroom Living Room, 52W x 84L, Grey Curtains, 2 Panels, 2 Tie Backs Included" src="https://m.media-amazon.com/images/I/41Fs-65no0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072HWC79L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Room Darkening Gray Blackout Curtains, Light Blocking Thermal Insulated Grommet Drapes for Bedroom Living Room, 52W x 84L, Grey Curtains, 2 Panels, 2 Tie Backs Included" src="https://m.media-amazon.com/images/I/41Fs-65no0L._SL500_.jpg"/></a>
 
 
 The **Yakamok Room Darkening Gray Blackout Curtains** are perfect for individuals seeking enhanced privacy, improved sleep quality, and energy efficiency in their living spaces. Ideal customers include homeowners, renters, and anyone looking to reduce outside light and noise in bedrooms, living rooms, or home offices. These **thermal insulated grommet drapes** are designed to fit standard window sizes while adding a sleek, modern look with their elegant grey color.
@@ -101,10 +101,10 @@ These **blackout curtains** feature a high-quality **thermal insulated fabric** 
 
 Additionally, the included **tie backs** provide flexible styling options, allowing users to let in natural light when desired or create a more dramatic look by fully closing the curtains. The elegant **grey color** adds a contemporary touch to any room, blending seamlessly with various décor themes. Overall, these curtains combine functionality with style, making them a smart choice for anyone looking to enhance their home environment.
 
-## <a href="https://www.amazon.com/dp/B09Y913QJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anytime Home Curtains Blackout And Sheer Layered Solid Window Curtain Panel Pair</a>
+## <a href="https://www.amazon.com/dp/B09Y913QJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anytime Home Curtains Blackout And Sheer Layered Solid Window Curtain Panel Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B09Y913QJ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anytime Home Curtains Blackout and Sheer Layered Solid Window Curtain Panel Pair with Grommet Top, 52Wx63L,Grey" src="https://m.media-amazon.com/images/I/51IW9S3V-aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Y913QJ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anytime Home Curtains Blackout and Sheer Layered Solid Window Curtain Panel Pair with Grommet Top, 52Wx63L,Grey" src="https://m.media-amazon.com/images/I/51IW9S3V-aL._SL500_.jpg"/></a>
 
 
 The **Anytime Home Curtains Blackout and Sheer Layered Solid Window Curtain Panel Pair** in **Grey** is ideal for homeowners and renters looking to enhance their living spaces with stylish, functional window treatments. This product is perfect for those who want to reduce light intrusion, improve privacy, and add a modern touch to their rooms. If you value both aesthetic appeal and practical benefits like energy efficiency, these curtains are an excellent choice.
@@ -126,10 +126,10 @@ The **Anytime Home Curtains** feature a unique layered combination of blackout a
 
 The **grommet top design** enhances usability by making these curtains easy to hang on most curtain rods and enables smooth sliding for quick adjustments. The solid **grey color** is both modern and neutral, fitting seamlessly into a variety of décor themes, from contemporary to classic. Additionally, the lightweight yet durable fabric makes these panels easy to clean and maintain, ensuring long-lasting performance in any room.
 
-## <a href="https://www.amazon.com/dp/B0BWDK5SD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estelar Textiler Grey And Greyish White Blackout Curtains &amp; Drapes</a>
+## <a href="https://www.amazon.com/dp/B0BWDK5SD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estelar Textiler Grey And Greyish White Blackout Curtains &amp; Drapes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWDK5SD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estelar Textiler Grey and Greyish White Blackout Curtains &amp; Drapes for Bedroom,Thermal Insulated Ombre Blackout Drapes,Full Room Darkening Energy Saving Gray Curtains for Living Room,52Wx84L,2 Panels" src="https://m.media-amazon.com/images/I/417oAeZfDHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWDK5SD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estelar Textiler Grey and Greyish White Blackout Curtains &amp; Drapes for Bedroom,Thermal Insulated Ombre Blackout Drapes,Full Room Darkening Energy Saving Gray Curtains for Living Room,52Wx84L,2 Panels" src="https://m.media-amazon.com/images/I/417oAeZfDHL._SL500_.jpg"/></a>
 
 
 The **Estelar Textiler Grey and Greyish White Blackout Curtains & Drapes** are ideal for homeowners and renters seeking effective **room darkening** solutions with a modern aesthetic. If you want to enhance privacy, reduce outside light, and improve energy efficiency in your **bedroom** or **living room**, these thermal insulated **ombre blackout drapes** are an excellent choice. They are perfect for light-sensitive sleepers, shift workers needing daytime rest, or anyone looking to lower heating and cooling costs.
@@ -151,10 +151,10 @@ These **Estelar Textiler blackout curtains** are crafted with **thermal insulate
 
 Beyond darkening, these curtains contribute to **energy savings** by insulating windows against heat loss in winter and heat gain in summer. This makes your living space more comfortable year-round and can reduce utility bills. The durable material also promises longevity and easy maintenance, making the **Estelar Textiler curtains** a practical and stylish addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0CRTNDGZQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Dove Grey Linen Curtains</a>
+## <a href="https://www.amazon.com/dp/B0CRTNDGZQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Dove Grey Linen Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRTNDGZQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Dove Grey Linen Curtains 100% Blackout 84 Inches Long,Room Darkening Textured Curtains for Living Room Thermal Grommet Bedroom Curtains 2 Panels with Greyish White Liner" src="https://m.media-amazon.com/images/I/41loxudHtuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRTNDGZQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Dove Grey Linen Curtains 100% Blackout 84 Inches Long,Room Darkening Textured Curtains for Living Room Thermal Grommet Bedroom Curtains 2 Panels with Greyish White Liner" src="https://m.media-amazon.com/images/I/41loxudHtuL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to enhance privacy and improve energy efficiency, the **Yakamok Dove Grey Linen Curtains** are perfect for anyone wanting to create a cozy and stylish atmosphere in their living room or bedroom. These curtains cater especially well to those who prefer a subtle yet sophisticated color palette and desire effective **room darkening** features without sacrificing texture and aesthetic appeal.
@@ -177,10 +177,10 @@ The **Yakamok Dove Grey Linen Curtains** are crafted with 100% blackout fabric, 
 
 In addition to functionality, the textured linen fabric and elegant dove grey color provide a sophisticated aesthetic that enhances any living space. The easy-to-use grommet top ensures hassle-free installation and smooth operation, while the included greyish white liner adds an extra layer of light control and privacy. Together, these features make the Yakamok curtains both practical and stylish, offering users a perfect blend of comfort and design.
 
-## <a href="https://www.amazon.com/dp/B095P8FWY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beauoop Floral Blackout Curtains 2 Panels</a>
+## <a href="https://www.amazon.com/dp/B095P8FWY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beauoop Floral Blackout Curtains 2 Panels</a>
 
 
-<a href="https://www.amazon.com/dp/B095P8FWY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beauoop Floral 100% Blackout Curtains 84 Inches Long 2 Panels for Bedroom Living Room Grey White Flower Patterned Room Darkening Thermal Insulated Soundproof Grommet Window Treatments Drapes, 52X84" src="https://m.media-amazon.com/images/I/41ON7e7ei5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095P8FWY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beauoop Floral 100% Blackout Curtains 84 Inches Long 2 Panels for Bedroom Living Room Grey White Flower Patterned Room Darkening Thermal Insulated Soundproof Grommet Window Treatments Drapes, 52X84" src="https://m.media-amazon.com/images/I/41ON7e7ei5L._SL500_.jpg"/></a>
 
 
 The **Beauoop Floral 100% Blackout Curtains** are ideal for homeowners or renters looking to enhance privacy, reduce outside light, and improve energy efficiency in their living spaces. Perfect for bedrooms, living rooms, or any room where controlling natural light and maintaining a stylish décor is essential, these curtains cater to individuals who value both functionality and aesthetics.
@@ -202,10 +202,10 @@ These **Beauoop curtains** are crafted with premium materials that combine both 
 
 Beyond functionality, the **grey white flower pattern** offers a subtle yet elegant visual appeal, making these curtains a versatile addition to various interior design styles. The **soundproofing** feature further enhances comfort by reducing external noise, making these drapes particularly beneficial for urban dwellers or those sensitive to sound disturbances. Overall, the **Beauoop Floral 100% Blackout Curtains** balance aesthetics and performance, elevating the ambiance and comfort of any room.
 
-## <a href="https://www.amazon.com/dp/B073VD778L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Exclusive Home Kochi Light Filtering Linen Blend Grommet Top Curtain Panel Pair</a>
+## <a href="https://www.amazon.com/dp/B073VD778L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Exclusive Home Kochi Light Filtering Linen Blend Grommet Top Curtain Panel Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B073VD778L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EXCLUSIVE HOME Kochi Light Filtering Linen Blend Grommet Top Curtain Panel Pair, 52x84, Dove Grey" src="https://m.media-amazon.com/images/I/51tp8fLq8QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073VD778L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EXCLUSIVE HOME Kochi Light Filtering Linen Blend Grommet Top Curtain Panel Pair, 52x84, Dove Grey" src="https://m.media-amazon.com/images/I/51tp8fLq8QL._SL500_.jpg"/></a>
 
 
 The **EXCLUSIVE HOME Kochi Light Filtering Linen Blend Grommet Top Curtain Panel Pair** in **Dove Grey** is ideal for homeowners and renters looking to enhance their living spaces with elegant yet functional window treatments. This curtain pair is perfect for those who want a balance between privacy and natural light, making it a great choice for living rooms, bedrooms, or home offices. If you appreciate a modern, neutral color palette and durable fabric, this product is tailored for you.
@@ -228,10 +228,10 @@ The **EXCLUSIVE HOME Kochi Curtain Panel Pair** boasts a **linen blend** fabric 
 
 Measuring **52 inches wide by 84 inches long**, these panels provide ample coverage for standard-sized windows, giving rooms a cohesive and polished look. The subtle **Dove Grey** color acts as a versatile neutral, blending seamlessly with various décor styles, from modern minimalist to classic traditional. Overall, these curtains offer a practical and stylish window treatment solution that elevates home aesthetics while meeting functional needs.
 
-## <a href="https://www.amazon.com/dp/B09XGJFX2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hiasan Grey Blackout Curtains With Sheer Overlay</a>
+## <a href="https://www.amazon.com/dp/B09XGJFX2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hiasan Grey Blackout Curtains With Sheer Overlay</a>
 
 
-<a href="https://www.amazon.com/dp/B09XGJFX2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hiasan Grey Blackout Curtains with Sheer Overlay, Grommet Thermal Insulated Privacy Mix &amp; Match Double Layer Room Darkneing Curtains for Bedroom, Living Room, 2 Window Panels with Tiebacks, 52W X 84L" src="https://m.media-amazon.com/images/I/41WyKIedVWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XGJFX2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hiasan Grey Blackout Curtains with Sheer Overlay, Grommet Thermal Insulated Privacy Mix &amp; Match Double Layer Room Darkneing Curtains for Bedroom, Living Room, 2 Window Panels with Tiebacks, 52W X 84L" src="https://m.media-amazon.com/images/I/41WyKIedVWL._SL500_.jpg"/></a>
 
 
 The **Hiasan Grey Blackout Curtains with Sheer Overlay** are ideal for homeowners and renters looking to enhance privacy and control light in their **bedroom** or **living room**. These curtains suit individuals who want a stylish yet functional window treatment that combines modern aesthetics with practical benefits like thermal insulation and room darkening.
@@ -253,10 +253,10 @@ The **Hiasan Grey Blackout Curtains** feature a smart combination of a blackout 
 
 Constructed with **thermal insulated fabric**, these curtains help regulate indoor temperatures by keeping cold air out during winter and blocking heat in summer. This energy-efficient feature can contribute to lower heating and cooling bills. Additionally, the **grommet design** makes hanging and adjusting the curtains effortless, while the included **tiebacks** offer convenience for pulling the curtains aside and letting in more light when desired.
 
-## <a href="https://www.amazon.com/dp/B08MVQ7GL8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Blue And Greyish White Ombre Curtains</a>
+## <a href="https://www.amazon.com/dp/B08MVQ7GL8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yakamok Blue And Greyish White Ombre Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B08MVQ7GL8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Blue and Greyish White Ombre Curtains, Room Darkening Gradient Color Curtains for Bedroom, Light Blocking Thermal Insulated Window Drapes for Living Room(2 Panels, 52x84 Inch)" src="https://m.media-amazon.com/images/I/417Hr+QoN7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MVQ7GL8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yakamok Blue and Greyish White Ombre Curtains, Room Darkening Gradient Color Curtains for Bedroom, Light Blocking Thermal Insulated Window Drapes for Living Room(2 Panels, 52x84 Inch)" src="https://m.media-amazon.com/images/I/417Hr+QoN7L._SL500_.jpg"/></a>
 
 
 The **Yakamok Blue and Greyish White Ombre Curtains** are ideal for homeowners or renters looking to enhance their living spaces with stylish yet functional window treatments. Perfect for those who want to combine aesthetic appeal with practical benefits such as light blocking and thermal insulation, these curtains are especially suited for bedrooms and living rooms where controlling natural light and maintaining privacy is essential. If you value both design and performance in your home décor, these gradient color curtains are an excellent choice.

@@ -23,10 +23,10 @@ Choose from elegant options like the Patio Country Danica or the Flora Grandeur 
 
 
 
-## <a href="https://www.amazon.com/dp/B07B7N6QJM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7N6QJM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7N6QJM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug, Black/Grey, 5'2" src="https://m.media-amazon.com/images/I/611R55ZXlIL._SL500_.jpg" x7'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7N6QJM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug, Black/Grey, 5'2" src="https://m.media-amazon.com/images/I/611R55ZXlIL._SL500_.jpg" x7'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug** in **Black/Grey** is ideal for homeowners or renters looking to enhance both indoor and outdoor living spaces with a stylish yet functional floor covering. This rug suits those who appreciate a blend of contemporary design and durability, making it perfect for patios, sunrooms, or living areas where a modern geometric pattern can complement existing decor. If you want a versatile area rug that withstands various environments without sacrificing style, this rug is a great choice.
@@ -49,10 +49,10 @@ The **Nicole Miller New York Patio Country Danica Rug** offers a thoughtful comb
 
 Additionally, the rug’s dimensions of **5'2"x7'2"** make it versatile enough to fit in both smaller and medium-sized areas, while its light weight of **9 pounds** makes handling and repositioning hassle-free. Crafted by **Town & Country Living** under the **Nicole Miller New York** brand, this rug balances aesthetic appeal with practical use, making it an excellent investment for anyone looking to enhance their living space with a durable, fashionable area rug.
 
-## <a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61d3ZS8bUUL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61d3ZS8bUUL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug** in **Blue/Grey** is perfect for homeowners and decorators seeking a stylish yet durable rug that can seamlessly transition between indoor and outdoor spaces. Ideal for those who want to enhance their patio, deck, or living room with a modern design without sacrificing practicality, this rug offers both aesthetic appeal and resilience.
@@ -74,10 +74,10 @@ Crafted by **Nicole Miller New York** and manufactured by **Home Dynamix**, this
 
 Thanks to its robust construction, this rug stands up well to both indoor living and outdoor exposure, making it a versatile choice for patios or sunrooms. The generous dimensions allow it to anchor furniture arrangements effectively, while the color palette offers flexibility for matching with existing decor. Overall, this rug provides a perfect blend of style, comfort, and durability for those looking to enhance their home ambiance.
 
-## <a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Taupe, 8'x10'" src="https://m.media-amazon.com/images/I/51IGC+no3sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ5JCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Taupe, 8'x10'" src="https://m.media-amazon.com/images/I/51IGC+no3sL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts looking to elevate their living spaces with a combination of style and durability. Perfect for those who appreciate high-quality craftsmanship and desire a versatile rug that complements a variety of décor styles, this rug fits well in living rooms, bedrooms, or offices where both aesthetics and comfort matter.
@@ -101,10 +101,10 @@ The **Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug** showcase
 
 Measuring **8'x10'**, this area rug covers ample floor space, making it suitable for large living rooms or master bedrooms. The low pile height of **0.5 inches** not only adds to its sleek appearance but also simplifies cleaning and maintenance, a key benefit for busy households. Backed by reputable brands, this wool rug is a smart investment for anyone seeking a blend of aesthetic appeal, quality, and functionality in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B0DVBX5FFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Ombre Geo Indoor Outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DVBX5FFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Ombre Geo Indoor Outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVBX5FFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Ombre Geo Indoor Outdoor Area Rug, UV Fade Resistant, Low Pile, Navy Blue/Cream, 7'9" src="https://m.media-amazon.com/images/I/51p7wppOPQL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B0DVBX5FFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Ombre Geo Indoor Outdoor Area Rug, UV Fade Resistant, Low Pile, Navy Blue/Cream, 7'9" src="https://m.media-amazon.com/images/I/51p7wppOPQL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Ombre Geo Indoor Outdoor Area Rug** is ideal for homeowners and outdoor enthusiasts looking to enhance their patio, porch, or indoor space with a stylish yet durable floor covering. If you want a versatile rug that combines aesthetic appeal with practical features like UV fade resistance and a low pile for easy maintenance, this rug is perfect for you. It suits those who appreciate modern design and need a rug that withstands outdoor elements without compromising on comfort or style.
@@ -127,10 +127,10 @@ Crafted by **Nicole Miller New York** and manufactured by **Home Dynamix**, this
 
 The **ombre geo design** introduces a contemporary geometric pattern that complements various décor styles, enhancing both indoor living rooms and outdoor patios. Its sizeable dimensions provide generous floor coverage, creating a cozy and inviting atmosphere. Additionally, the rug’s lightweight construction allows for hassle-free relocation, enabling users to effortlessly switch between indoor and outdoor environments as needed.
 
-## <a href="https://www.amazon.com/dp/B0F7ZFF1RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Julia Transitional Geometric Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0F7ZFF1RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Julia Transitional Geometric Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7ZFF1RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Julia Transitional Geometric Indoor/Outdoor Area Rug, Blue/Grey, 3'11" src="https://m.media-amazon.com/images/I/51OeHdo4JwL._SL500_.jpg" x5'2""=""/></a>
+<a href="https://www.amazon.com/dp/B0F7ZFF1RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Julia Transitional Geometric Indoor/Outdoor Area Rug, Blue/Grey, 3'11" src="https://m.media-amazon.com/images/I/51OeHdo4JwL._SL500_.jpg" x5'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Julia Transitional Geometric Indoor/Outdoor Area Rug** in **Blue/Grey** is ideal for homeowners and renters looking to enhance both indoor and outdoor spaces with a stylish, durable, and easy-to-maintain rug. This product suits those who appreciate contemporary design and want to add a subtle yet sophisticated touch to patios, sunrooms, or living areas without compromising on functionality.
@@ -153,10 +153,10 @@ The **Nicole Miller New York Patio Country Julia Rug** features a transitional g
 
 Crafted by **Home Dynamix**, this rug is designed to withstand outdoor elements while retaining its vibrant colors and shape. Its **0.4-inch thickness** ensures a sleek look and facilitates easy cleaning, making it a practical choice for high-traffic areas. Whether placed indoors or outdoors, this rug enhances the ambiance while offering durability and style, making it a smart investment for those seeking both form and function.
 
-## <a href="https://www.amazon.com/dp/B07B7MKTB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Azalea Transitional Medallion Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7MKTB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Patio Country Azalea Transitional Medallion Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7MKTB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug, Grey/Black, 7'9" src="https://m.media-amazon.com/images/I/61+-ybobsWL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7MKTB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug, Grey/Black, 7'9" src="https://m.media-amazon.com/images/I/61+-ybobsWL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug** is ideal for homeowners and decorators seeking a stylish yet durable floor covering that complements both indoor and outdoor spaces. Perfect for those who want to enhance their patio, living room, or sunroom with a sophisticated grey and black color scheme, this rug suits anyone looking for a blend of functionality and classic design in a medium-large size.
@@ -179,10 +179,10 @@ Crafted with attention to detail, this **transitional medallion area rug** combi
 
 The rug's **dimensions** offer ample coverage, making it an excellent choice for defining seating areas or creating a cohesive look in a room. The **low pile height** ensures comfort underfoot and makes it easier to clean, which is especially beneficial for outdoor or high-traffic areas. Overall, this rug balances style, functionality, and durability, making it a smart investment for those who value both form and function in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B07B7N4CTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7N4CTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7N4CTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 4151-123,="" alt="Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug 7'9" damask="" distressed="" gray="" ivory="" juniper"="" src="https://m.media-amazon.com/images/I/61dekJoB8pL._SL500_.jpg" x10'2",=""/></a>
+<a href="https://www.amazon.com/dp/B07B7N4CTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 4151-123,="" alt="Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug 7'9" damask="" distressed="" gray="" ivory="" juniper"="" src="https://m.media-amazon.com/images/I/61dekJoB8pL._SL500_.jpg" x10'2",=""/></a>
 
 
 The **Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug** is ideal for homeowners and renters seeking a versatile and stylish floor covering that enhances both indoor and outdoor spaces. If you want a durable, easy-to-maintain rug that combines elegant design with functional performance, this rug is perfect for your living room, patio, or porch area.
@@ -204,10 +204,10 @@ The **Home Dynamix Nicole Miller Patio Sofia Juniper Rug** features a sophistica
 
 Crafted to the specifications of **93 inches width and 122 inches length**, this rug covers a large area, making it ideal for living rooms, dining spaces, or spacious outdoor seating areas. The combination of style, size, and resilience offers users a practical yet beautiful accent piece that enhances their home’s aesthetic while withstanding everyday wear and tear.
 
-## <a href="https://www.amazon.com/dp/B0DQYB7G3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Garveehome Washable Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DQYB7G3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Garveehome Washable Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQYB7G3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GarveeHome Washable Area Rugs 5x7 Vintage Printed Accent with Non-Slip Backing, Stain-Resistant Oriental Throw Rugs, Farmhouse Low Pile Rugs for Bedroom, Living Room, Blue" src="https://m.media-amazon.com/images/I/51As4MDNh8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQYB7G3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GarveeHome Washable Area Rugs 5x7 Vintage Printed Accent with Non-Slip Backing, Stain-Resistant Oriental Throw Rugs, Farmhouse Low Pile Rugs for Bedroom, Living Room, Blue" src="https://m.media-amazon.com/images/I/51As4MDNh8L._SL500_.jpg"/></a>
 
 
 The **GarveeHome Washable Area Rugs 5x7 Vintage Printed Accent** is ideal for homeowners and renters looking to add a stylish yet practical touch to their **bedrooms**, **living rooms**, or farmhouse-style interiors. This rug is perfect for those who want a blend of vintage charm and modern functionality, especially individuals who prioritize easy maintenance and slip resistance in their home décor.
@@ -230,10 +230,10 @@ The **GarveeHome Washable Area Rug** features a charming **vintage printed** des
 
 Additionally, the **non-slip backing** provides enhanced safety by keeping the rug securely in place, which is especially valuable in high-traffic areas like living rooms and bedrooms. The rug’s washable nature means you can maintain its fresh appearance with minimal effort, making it an ideal solution for anyone seeking both style and practicality in home décor. Its compact size and attractive **denim/multi** color scheme further ensure it fits seamlessly into various room layouts and design preferences.
 
-## <a href="https://www.amazon.com/dp/B085K32MDW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom 5x8 Ansley Moroccan Tassel Area Rug</a>
+## <a href="https://www.amazon.com/dp/B085K32MDW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom 5x8 Ansley Moroccan Tassel Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B085K32MDW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM 5x8 Ansley Moroccan Tassel Area Rug, Light Grey, High-Low Textured Bohemian Design, Plush High Pile, Stain Resistant, For Bedroom, Living Room, Hallway, Entryway" src="https://m.media-amazon.com/images/I/51OQmCfrz+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085K32MDW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM 5x8 Ansley Moroccan Tassel Area Rug, Light Grey, High-Low Textured Bohemian Design, Plush High Pile, Stain Resistant, For Bedroom, Living Room, Hallway, Entryway" src="https://m.media-amazon.com/images/I/51OQmCfrz+L._SL500_.jpg"/></a>
 
 
 The **nuLOOM 5x8 Ansley Moroccan Tassel Area Rug** in **Light Grey** is ideal for homeowners and renters looking to add a touch of **bohemian style** and texture to their **bedroom, living room, hallway, or entryway**. This rug suits those who want a plush, comfortable floor covering that is also **stain resistant** and easy to maintain, making it perfect for busy households or pet owners.
@@ -255,10 +255,10 @@ The **nuLOOM Ansley Moroccan Tassel Area Rug** combines aesthetic appeal with pr
 
 Additionally, the **stain-resistant** feature is particularly beneficial for families or pet owners, as it simplifies maintenance and keeps the rug looking fresh. Its versatile **light grey color** and generous dimensions make it easy to coordinate with existing furniture and décor, ensuring it can be a lasting element in your home design.
 
-## <a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 5'x7’" src="https://m.media-amazon.com/images/I/51Ymp3LiEuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ97KF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 5'x7’" src="https://m.media-amazon.com/images/I/51Ymp3LiEuL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug** is perfect for homeowners and interior design enthusiasts seeking to add a touch of elegance and bold style to their living spaces. Ideal for those who appreciate quality craftsmanship and want a durable yet visually striking centerpiece, this **natural wool rug** suits both modern and classic decor themes. If you desire a statement piece that combines artistic floral design with functionality, this **grey area rug** measuring **5'x7’** is an excellent choice.

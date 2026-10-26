@@ -23,10 +23,10 @@ Some pads come with magnetic locks or customizable cuts for a perfect fit. Wheth
 
 
 
-## <a href="https://www.amazon.com/dp/B08G7JN6SR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tablecloths By Design - Quality Table Pad Protector</a>
+## <a href="https://www.amazon.com/dp/B08G7JN6SR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tablecloths By Design - Quality Table Pad Protector</a>
 
 
-<a href="https://www.amazon.com/dp/B08G7JN6SR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 54"="" alt="tablecloths by design - Quality Table Pad Protector, Superior Protection from Spills, Scratches &amp; Heat - Reusable Table Cloth with Cushion Flannel Backing (90" l="" src="https://m.media-amazon.com/images/I/41XTc0DYR7L._SL500_.jpg" w)"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B08G7JN6SR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 54"="" alt="tablecloths by design - Quality Table Pad Protector, Superior Protection from Spills, Scratches &amp; Heat - Reusable Table Cloth with Cushion Flannel Backing (90" l="" src="https://m.media-amazon.com/images/I/41XTc0DYR7L._SL500_.jpg" w)"="" x=""/></a>
 
 
 The **tablecloths by design - Quality Table Pad Protector** is ideal for homeowners and hosts who want to maintain the pristine condition of their dining tables. If you frequently entertain guests or have children at home, this **reusable table cloth** offers excellent protection against everyday spills, scratches, and heat damage, ensuring your table remains flawless over time.
@@ -48,10 +48,10 @@ Crafted by the trusted brand **tablecloths by design**, this **Quality Table Pad
 
 Its large size of **90 inches by 54 inches** ensures ample coverage for most dining tables, providing edge-to-edge protection. Additionally, the lightweight and flexible design make it easy to place and remove, while the **reusable nature** allows you to maintain a tidy dining space with minimal effort. Overall, this table pad protector offers a practical and elegant solution for anyone looking to prolong the life and beauty of their furniture.
 
-## <a href="https://www.amazon.com/dp/B08HG22DF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newbridge Quilted Waterproof Cut To Fit Table Pad Protector</a>
+## <a href="https://www.amazon.com/dp/B08HG22DF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newbridge Quilted Waterproof Cut To Fit Table Pad Protector</a>
 
 
-<a href="https://www.amazon.com/dp/B08HG22DF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 120""="" alt="Newbridge Quilted Waterproof Cut to Fit Table Pad Protector with Flannel Backing, Heat Resistant, Wipe Clean, Cushioned Pad Protects Table from Spills and Scratches, 52" src="https://m.media-amazon.com/images/I/419ib2C7glL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B08HG22DF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 120""="" alt="Newbridge Quilted Waterproof Cut to Fit Table Pad Protector with Flannel Backing, Heat Resistant, Wipe Clean, Cushioned Pad Protects Table from Spills and Scratches, 52" src="https://m.media-amazon.com/images/I/419ib2C7glL._SL500_.jpg" x=""/></a>
 
 
 The **Newbridge Quilted Waterproof Cut to Fit Table Pad Protector** is ideal for homeowners and families who want to safeguard their dining or workspace tables from everyday wear and tear. If you are someone who frequently hosts meals, enjoys crafts, or wants a durable, easy-to-maintain surface protector, this product is perfect for you. It suits anyone looking for a custom-sized, cushioned, and heat-resistant pad that combines protection with comfort.
@@ -75,10 +75,10 @@ The **Newbridge Quilted Table Pad Protector** is designed with a quilted, waterp
 
 In addition to its protective qualities, this table pad is **heat resistant**, allowing users to place hot pots and dishes directly on the surface without fear of heat damage. The wipe-clean surface makes maintenance straightforward, ideal for busy households or craft areas where spills are common. Overall, this pad offers a practical and versatile solution to extend the life and appearance of your tables while providing a comfortable and safe surface for everyday use.
 
-## <a href="https://www.amazon.com/dp/B01EITPEQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Laminet Deluxe Cushioned Heavy-duty Customizable Quilted Table Pad</a>
+## <a href="https://www.amazon.com/dp/B01EITPEQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Laminet Deluxe Cushioned Heavy-duty Customizable Quilted Table Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B01EITPEQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108"="" alt="LAMINET - Deluxe Cushioned Heavy-Duty Customizable Quilted Table Pad - 52" oblong"="" src="https://m.media-amazon.com/images/I/41BXdvL1yUL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B01EITPEQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108"="" alt="LAMINET - Deluxe Cushioned Heavy-Duty Customizable Quilted Table Pad - 52" oblong"="" src="https://m.media-amazon.com/images/I/41BXdvL1yUL._SL500_.jpg" x=""/></a>
 
 
 The **LAMINET Deluxe Cushioned Heavy-Duty Customizable Quilted Table Pad** is ideal for homeowners and professionals who want to protect their tables from scratches, spills, and heat damage while adding a touch of elegance. If you have valuable wooden or glass tables and desire a durable, cushioned cover that fits perfectly, this **52" x 108" oblong table pad** is designed especially for you.
@@ -101,10 +101,10 @@ The **LAMINET Deluxe Quilted Table Pad** features a uniquely cushioned design th
 
 Beyond protection, this table pad enhances the aesthetic appeal of your furniture with its elegant quilted finish. Despite its robust build, it remains lightweight and easy to install or remove. Whether you want to safeguard a cherished heirloom table or provide a comfortable surface for meals and work, this **LAMINET table pad** offers an effective solution combining functionality and style.
 
-## <a href="https://www.amazon.com/dp/B0F9HR99XH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lsk Creations Llc Table Pads</a>
+## <a href="https://www.amazon.com/dp/B0F9HR99XH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lsk Creations Llc Table Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9HR99XH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LSK Creations LLC Table Pads Premium Custom Table Pads for Dining Tables | Heat-Resistant Protection with Magnetic Lock System | Handcrafted in USA" src="https://m.media-amazon.com/images/I/51kowcX+3kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9HR99XH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LSK Creations LLC Table Pads Premium Custom Table Pads for Dining Tables | Heat-Resistant Protection with Magnetic Lock System | Handcrafted in USA" src="https://m.media-amazon.com/images/I/51kowcX+3kL._SL500_.jpg"/></a>
 
 
 The **LSK Creations LLC Table Pads Premium Custom Table Pads** are ideal for homeowners and dining enthusiasts who want to protect their dining tables from heat, scratches, and spills while maintaining an elegant look. If you value both durability and style, and prefer a custom fit that enhances your table's appearance, this handcrafted product is perfect for you.
@@ -126,10 +126,10 @@ The **LSK Creations LLC Table Pads** feature a premium, heat-resistant surface t
 
 Crafted with attention to detail in the USA, these table pads combine functionality with style. The multi-color finish not only enhances your dining space but also makes maintenance easier by hiding minor stains or marks. Overall, these custom table pads offer a balance of elegance, protection, and convenience, making them an excellent investment for anyone looking to preserve their dining table's condition without compromising on aesthetics.
 
-## <a href="https://www.amazon.com/dp/B077ZMW1NY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homecrate Premium Cushioned Heavy Duty Vinyl Table Pad</a>
+## <a href="https://www.amazon.com/dp/B077ZMW1NY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homecrate Premium Cushioned Heavy Duty Vinyl Table Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B077ZMW1NY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108""="" alt="HomeCrate Premium Cushioned Heavy Duty Vinyl Table Pad with Flannel Backing, 52" src="https://m.media-amazon.com/images/I/41MhqdDYBFL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B077ZMW1NY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108""="" alt="HomeCrate Premium Cushioned Heavy Duty Vinyl Table Pad with Flannel Backing, 52" src="https://m.media-amazon.com/images/I/41MhqdDYBFL._SL500_.jpg" x=""/></a>
 
 
 The **HomeCrate Premium Cushioned Heavy Duty Vinyl Table Pad** is ideal for homeowners and families looking to protect their dining or work tables from scratches, spills, and heat damage. This product is perfect for those who want a durable, easy-to-clean surface that also adds a layer of comfort and style to their table setup. If you often host gatherings or have children, this table pad offers practical protection while maintaining an elegant appearance.
@@ -152,10 +152,10 @@ The **HomeCrate Premium Cushioned Heavy Duty Vinyl Table Pad** combines function
 
 In addition to protection, this table pad adds a subtle elegance with its cream color, blending seamlessly with most interior designs. The lightweight design allows for quick installation and removal, ideal for those who want flexible table coverage during special occasions or daily use. While it may be thin for those seeking extra cushioning, its durability and practical features make it a valuable investment for preserving the longevity and appearance of your tables.
 
-## <a href="https://www.amazon.com/dp/B004L2JKQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Benson Mills Deluxe Heavy Duty Vinyl Table Pad</a>
+## <a href="https://www.amazon.com/dp/B004L2JKQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Benson Mills Deluxe Heavy Duty Vinyl Table Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B004L2JKQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 70"="" alt="Benson Mills Deluxe Heavy Duty Vinyl Table Pad, Premium Table Protector, Waterproof with Flannel Backing, Quilted Design and Customizable (Off-White, 52" rectangular)"="" src="https://m.media-amazon.com/images/I/31-2JC4I6QL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B004L2JKQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 70"="" alt="Benson Mills Deluxe Heavy Duty Vinyl Table Pad, Premium Table Protector, Waterproof with Flannel Backing, Quilted Design and Customizable (Off-White, 52" rectangular)"="" src="https://m.media-amazon.com/images/I/31-2JC4I6QL._SL500_.jpg" x=""/></a>
 
 
 The **Benson Mills Deluxe Heavy Duty Vinyl Table Pad** is ideal for homeowners, families with children, or anyone who wants to protect their dining or work surfaces from spills, scratches, and heat damage. If you are looking for a durable, waterproof, and customizable table protector that combines functionality with a subtle, elegant design, this product is perfect for you.
@@ -178,10 +178,10 @@ The **Benson Mills Deluxe Heavy Duty Vinyl Table Pad** features a high-quality v
 
 Measuring 52 by 70 inches, this table pad fits most rectangular tables and can be customized to suit your specific needs. The off-white color offers a neutral and clean look that blends well with various decor styles. Weighing only 2.15 pounds, it is easy to handle, install, and clean, ensuring convenience for everyday use. Overall, this table pad offers a practical and stylish solution for protecting your surfaces while enhancing your home environment.
 
-## <a href="https://www.amazon.com/dp/B0DS2B5KD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Table Protector Pad</a>
+## <a href="https://www.amazon.com/dp/B0DS2B5KD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Table Protector Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS2B5KD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Table Protector Pad with Flannel Backing, Heavy-Duty Vinyl Table Padding Under Tablecloth, Waterproof, Heat Resistant, 90 x 54 inches, Rectangular" src="https://m.media-amazon.com/images/I/41O5wOG3gjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS2B5KD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Table Protector Pad with Flannel Backing, Heavy-Duty Vinyl Table Padding Under Tablecloth, Waterproof, Heat Resistant, 90 x 54 inches, Rectangular" src="https://m.media-amazon.com/images/I/41O5wOG3gjL._SL500_.jpg"/></a>
 
 
 The **Table Protector Pad with Flannel Backing** is ideal for homeowners and families who want to safeguard their dining or work tables from spills, scratches, and heat damage. If you frequently entertain guests, have children, or enjoy meals at your table, this heavy-duty, waterproof, and heat-resistant pad provides excellent protection while maintaining comfort and style.
@@ -205,10 +205,10 @@ This **Table Protector Pad** by LotuFlor offers a combination of practical featu
 
 In addition to protection, the pad’s **waterproof** and **heat-resistant** qualities add convenience and safety during everyday use. Spills can be cleaned effortlessly, preventing permanent stains or water marks. The heat resistance means you can place hot dishes directly on the table without worry, making this pad an excellent choice for families and hosts looking to combine function with peace of mind.
 
-## <a href="https://www.amazon.com/dp/B0794R66XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovepads Clear Table Cover Protector</a>
+## <a href="https://www.amazon.com/dp/B0794R66XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovepads Clear Table Cover Protector</a>
 
 
-<a href="https://www.amazon.com/dp/B0794R66XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovePads Clear Table Cover Protector 36 x 60 Inch, 1.5mm Thick Plastic Table Cover, Table Protector for Dining Room Table, Waterproof Vinyl Tablecloth Table Pad Mat for Kitchen, Dresser, Writing Desk" src="https://m.media-amazon.com/images/I/51d4AOe1B8S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0794R66XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovePads Clear Table Cover Protector 36 x 60 Inch, 1.5mm Thick Plastic Table Cover, Table Protector for Dining Room Table, Waterproof Vinyl Tablecloth Table Pad Mat for Kitchen, Dresser, Writing Desk" src="https://m.media-amazon.com/images/I/51d4AOe1B8S._SL500_.jpg"/></a>
 
 
 The **LovePads Clear Table Cover Protector 36 x 60 Inch** is ideal for homeowners, families with children, and anyone looking to preserve the surface of their dining room table, kitchen counter, dresser, or writing desk. This product is perfect for those who want a durable and transparent solution to protect their furniture from spills, scratches, and daily wear without compromising the natural look of their table.
@@ -231,10 +231,10 @@ The **LovePads Clear Table Cover Protector** is crafted from durable **waterproo
 
 Users benefit from the easy maintenance of this plastic table cover, as it can be quickly wiped clean with a damp cloth, saving time and effort in upkeep. Its versatility allows it to be used not only on dining tables but also on dressers, kitchen counters, and writing desks, protecting a variety of surfaces. Although it is not designed to withstand direct heat, its robust construction ensures long-lasting protection against common household wear and tear, making it a practical investment for preserving your furniture’s appearance.
 
-## <a href="https://www.amazon.com/dp/B07ZC6WCP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homestyle Felt Back Vinyl Table Pad</a>
+## <a href="https://www.amazon.com/dp/B07ZC6WCP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homestyle Felt Back Vinyl Table Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZC6WCP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 90"="" alt="Homestyle Felt Back Vinyl Table Pad Size 52" cut="" fit="" src="https://m.media-amazon.com/images/I/41UvsGFR3RL._SL500_.jpg" to="" white"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B07ZC6WCP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 90"="" alt="Homestyle Felt Back Vinyl Table Pad Size 52" cut="" fit="" src="https://m.media-amazon.com/images/I/41UvsGFR3RL._SL500_.jpg" to="" white"="" x=""/></a>
 
 
 The **Homestyle Felt Back Vinyl Table Pad Size 52" x 90" Cut to Fit White** is ideal for homeowners and event planners who want to protect their tables while maintaining a clean, elegant look. This item is perfect for anyone seeking a durable, easy-to-clean surface protector that fits standard table sizes and blends seamlessly into various décor styles. Whether you have a dining room table at home or need protection for tables during gatherings, this table pad offers a practical and stylish solution.
@@ -256,10 +256,10 @@ The **Homestyle Felt Back Vinyl Table Pad** features a unique combination of a f
 
 Additionally, the sleek white color of the pad adds a subtle elegance to your dining area without overpowering your existing décor. Its lightweight nature means you can easily remove or reposition it as needed, making it a flexible option for daily use or special occasions. Manufactured by Dependable Industries under the trusted Homestyle brand, this table pad balances functionality and style, offering a reliable surface protector that enhances your table’s longevity and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0DCRGK8RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rinozo Table Protector Waterproof Deluxe Heavy Duty Vinyl Tablecloth</a>
+## <a href="https://www.amazon.com/dp/B0DCRGK8RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rinozo Table Protector Waterproof Deluxe Heavy Duty Vinyl Tablecloth</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCRGK8RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108"="" alt="RINOZO Table Protector Waterproof Deluxe Heavy Duty Vinyl Tablecloth with Flannel Backing Protects Tables from Spills and Scratches Cut to Fit Table Pad for Dining Room Table, 54" rectangle"="" src="https://m.media-amazon.com/images/I/41NjuxcueCL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DCRGK8RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 108"="" alt="RINOZO Table Protector Waterproof Deluxe Heavy Duty Vinyl Tablecloth with Flannel Backing Protects Tables from Spills and Scratches Cut to Fit Table Pad for Dining Room Table, 54" rectangle"="" src="https://m.media-amazon.com/images/I/41NjuxcueCL._SL500_.jpg" x=""/></a>
 
 
 The **RINOZO Table Protector Waterproof Deluxe Heavy Duty Vinyl Tablecloth** is ideal for homeowners and families looking to safeguard their dining room tables from everyday spills, scratches, and stains. This product is perfect for those who want a durable, easy-to-clean solution that maintains the aesthetic appeal of their furniture while providing reliable protection. If you have children, frequently host meals, or simply want to extend the life of your table, this tablecloth is an excellent choice.

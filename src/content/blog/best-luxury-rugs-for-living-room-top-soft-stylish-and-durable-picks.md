@@ -23,10 +23,10 @@ Colors like dark grey, navy blue, and cream suit many decor styles. Some rugs fe
 
 
 
-## <a href="https://www.amazon.com/dp/B0DYTK12WP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6x9 Ft Large Shag Rugs For Living Room Decor</a>
+## <a href="https://www.amazon.com/dp/B0DYTK12WP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6x9 Ft Large Shag Rugs For Living Room Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYTK12WP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6x9 Ft Large Shag Rugs for Living Room Decor, Tie-Dyed Ultra Soft Fluffy Furry Area Rugs for Bedroom Indoor Floor, Aesthetic Carpet for Kids Home (Dark Grey)" src="https://m.media-amazon.com/images/I/51e7nvTtsxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYTK12WP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6x9 Ft Large Shag Rugs for Living Room Decor, Tie-Dyed Ultra Soft Fluffy Furry Area Rugs for Bedroom Indoor Floor, Aesthetic Carpet for Kids Home (Dark Grey)" src="https://m.media-amazon.com/images/I/51e7nvTtsxL._SL500_.jpg"/></a>
 
 
 The **6x9 Ft Large Shag Rug** in **Dark Grey** is perfect for individuals looking to enhance their living spaces with a combination of comfort and style. Ideal for homeowners, renters, and families who want a cozy, ultra-soft carpet that adds an aesthetic touch to bedrooms, living rooms, or kids' play areas. This rug is especially suited for those who appreciate a modern, tie-dyed design and desire a plush, fluffy texture underfoot.
@@ -50,10 +50,10 @@ The **6x9 Ft Large Shag Rug** by **Cuzwlovita** features a thick pile height of 
 
 Crafted with attention to detail, this shag rug is not only visually appealing but also practical. Its dense fibers help to insulate floors, making spaces warmer during colder months. Additionally, the **ultra-soft, furry texture** makes it an excellent choice for families with children, offering a comfortable area for playtime. The durable construction ensures it withstands daily wear, maintaining its softness and aesthetic appeal over time.
 
-## <a href="https://www.amazon.com/dp/B08BXCZ7ZP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Fairmont Collection Huntington Grey Gold &amp; Ivory Marble Border Area Rug</a>
+## <a href="https://www.amazon.com/dp/B08BXCZ7ZP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Fairmont Collection Huntington Grey Gold &amp; Ivory Marble Border Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B08BXCZ7ZP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Well Woven Fairmont Collection Huntington Grey Gold &amp; Ivory Marble Border Elegant &amp; Soft 5x7 Area Rug Perfect for Bedroom &amp; Living Room Durable Stain Resistant &amp; Easy to Clean" src="https://m.media-amazon.com/images/I/513t5D5ShiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BXCZ7ZP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Well Woven Fairmont Collection Huntington Grey Gold &amp; Ivory Marble Border Elegant &amp; Soft 5x7 Area Rug Perfect for Bedroom &amp; Living Room Durable Stain Resistant &amp; Easy to Clean" src="https://m.media-amazon.com/images/I/513t5D5ShiL._SL500_.jpg"/></a>
 
 
 The **Well Woven Fairmont Collection Huntington Grey Gold & Ivory Marble Border Elegant & Soft 5x7 Area Rug** is ideal for homeowners or renters looking to enhance their **bedroom** or **living room** with a stylish yet functional floor covering. This rug is perfect for those who value **durability**, **stain resistance**, and ease of cleaning, making it suitable for busy households, pet owners, or anyone seeking a low-maintenance decorative rug.
@@ -75,10 +75,10 @@ The **Well Woven Fairmont Collection Huntington Rug** boasts a blend of aestheti
 
 Beyond its visual appeal, this rug is crafted to be **durable** and **stain resistant**, addressing the common concerns of maintaining cleanliness in high-traffic areas. The **easy-to-clean** nature of the rug ensures that it remains fresh and inviting with minimal effort, making it an excellent choice for families and pet owners. Its dimensions of 5x7 feet make it versatile for different spaces without overwhelming the room.
 
-## <a href="https://www.amazon.com/dp/B09MVZ3T2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tabayon Luxury 6x9 Modern Indoor Home Living Room Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B09MVZ3T2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tabayon Luxury 6x9 Modern Indoor Home Living Room Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B09MVZ3T2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TABAYON Luxury 6x9 Modern Indoor Home Living Room Area Rugs, Anti-Skid Soft Fluffy Shag Fur Bedroom Rugs for Home Decor Tie-Dyed Light Grey" src="https://m.media-amazon.com/images/I/5110yP0xSwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MVZ3T2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TABAYON Luxury 6x9 Modern Indoor Home Living Room Area Rugs, Anti-Skid Soft Fluffy Shag Fur Bedroom Rugs for Home Decor Tie-Dyed Light Grey" src="https://m.media-amazon.com/images/I/5110yP0xSwL._SL500_.jpg"/></a>
 
 
 The **TABAYON Luxury 6x9 Modern Indoor Home Living Room Area Rugs** are ideal for homeowners and renters looking to add a touch of elegance and comfort to their living spaces. Perfect for those who appreciate both style and functionality, this **anti-skid soft fluffy shag fur rug** is especially suited for bedrooms, living rooms, or any indoor area where a cozy, modern aesthetic is desired. If you want a durable yet plush rug to enhance your home decor, this product is a great choice.
@@ -100,10 +100,10 @@ The **TABAYON Luxury 6x9 Modern Indoor Home Living Room Area Rug** stands out wi
 
 Crafted by **TABAYON**, this rug combines quality materials with thoughtful design. The **soft shag fur** not only looks luxurious but also feels gentle on bare feet, offering a cozy retreat after a long day. Its durability ensures that it will maintain its lush appearance over time, contributing to the aesthetic and functional appeal of your home environment. Whether placed in a bedroom or living room, this rug is sure to elevate your interior space.
 
-## <a href="https://www.amazon.com/dp/B0CWVF1WTT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glory Rugs Area Rugs Marble</a>
+## <a href="https://www.amazon.com/dp/B0CWVF1WTT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glory Rugs Area Rugs Marble</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWVF1WTT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLORY RUGS Area Rugs Marble 8x10 Cream Gold Carpet Modern Abstract Rug Living Room Dining Bedroom Rug" src="https://m.media-amazon.com/images/I/51WK6i3CmEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWVF1WTT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLORY RUGS Area Rugs Marble 8x10 Cream Gold Carpet Modern Abstract Rug Living Room Dining Bedroom Rug" src="https://m.media-amazon.com/images/I/51WK6i3CmEL._SL500_.jpg"/></a>
 
 
 The **GLORY RUGS Area Rugs Marble 8x10 Cream Gold Carpet** is ideal for homeowners or renters looking to enhance their living room, dining area, or bedroom with a stylish and modern touch. If you appreciate contemporary design and want a durable yet elegant rug to complement your interior decor, this rug is a perfect choice. It is especially suited for those who favor a neutral color palette with a hint of luxury through subtle gold accents.
@@ -125,10 +125,10 @@ The **GLORY RUGS Marble 8x10 Area Rug** boasts a contemporary abstract design wi
 
 In addition to its aesthetic appeal, this rug enhances the comfort of your space by providing a soft surface that reduces noise and adds insulation. The neutral tones make it easy to pair with a variety of furnishings and color schemes, allowing for versatile styling options. Whether placed under a dining table or as a centerpiece in your living area, this rug elevates your home’s ambiance with both function and fashion.
 
-## <a href="https://www.amazon.com/dp/B0CBBSJRJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxmas Soft Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CBBSJRJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxmas Soft Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBBSJRJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foxmas Soft Area Rug for Living Room 8x10 Feet, Washable Large Fluffy Bedroom Rugs Thick Shaggy Carpet with Non-Slip Bottom for Kids Girls Dorm Room Modern Indoor Home Decor, Black" src="https://m.media-amazon.com/images/I/51kFgcxc5RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBBSJRJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foxmas Soft Area Rug for Living Room 8x10 Feet, Washable Large Fluffy Bedroom Rugs Thick Shaggy Carpet with Non-Slip Bottom for Kids Girls Dorm Room Modern Indoor Home Decor, Black" src="https://m.media-amazon.com/images/I/51kFgcxc5RL._SL500_.jpg"/></a>
 
 
 The **Foxmas Soft Area Rug for Living Room 8x10 Feet** is ideal for anyone looking to add a cozy and stylish touch to their indoor space. Perfect for **kids, girls, dorm rooms**, or anyone wanting a **modern home decor** element, this large and fluffy rug fits well in living rooms, bedrooms, or study areas. Those who value both comfort and practicality, including easy maintenance, will find this rug an excellent choice.
@@ -151,10 +151,10 @@ The **Foxmas Soft Area Rug** boasts a plush height of 1.57 inches, offering a lu
 
 Designed with functionality in mind, this rug features a **non-slip bottom** that keeps it securely in place, making it a safe choice for homes with children or high foot traffic. Additionally, the **washable fabric** allows for hassle-free cleaning, ensuring the rug maintains its softness and appearance over time. Whether placed in a dorm room, kid’s bedroom, or living space, this rug combines style, comfort, and practicality for everyday use.
 
-## <a href="https://www.amazon.com/dp/B0CS6JGXBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Releany Area Rugs 8'x10' Washable Non-slip</a>
+## <a href="https://www.amazon.com/dp/B0CS6JGXBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Releany Area Rugs 8'x10' Washable Non-slip</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS6JGXBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RELEANY Area Rugs 8'x10' Washable Non-Slip, Floral Vintage Distress Print Pattern Medallion Carpet for Living Room Bedroom Dining Room, Brick Red Rust Neutral Brown Burnt Orange Green" src="https://m.media-amazon.com/images/I/51ZexMtwKqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS6JGXBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RELEANY Area Rugs 8'x10' Washable Non-Slip, Floral Vintage Distress Print Pattern Medallion Carpet for Living Room Bedroom Dining Room, Brick Red Rust Neutral Brown Burnt Orange Green" src="https://m.media-amazon.com/images/I/51ZexMtwKqL._SL500_.jpg"/></a>
 
 
 The **RELEANY Area Rugs 8'x10'** with a **Floral Vintage Distress Print Pattern** is ideal for homeowners and renters looking to add a touch of elegance and warmth to their living spaces. This rug is perfect for those who value both style and functionality, especially in areas like the living room, bedroom, or dining room where comfort and durability are essential. If you want a rug that combines a rich color palette of **Brick Red**, **Rust**, **Neutral Brown**, **Burnt Orange**, and **Green** with easy maintenance, this product is a great choice.
@@ -177,10 +177,10 @@ The **RELEANY Area Rug** stands out due to its blend of practicality and design.
 
 With its robust construction by the trusted **RELEANY brand**, this rug delivers durability and aesthetic appeal. The warm, earthy tones like **brick red** and **burnt orange** create a cozy atmosphere, perfect for relaxing or entertaining guests. Overall, this area rug is a versatile and stylish addition that balances function and beauty, enhancing the ambiance of any living space.
 
-## <a href="https://www.amazon.com/dp/B0CWNYWDZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuttumico Extra Large Fluffy Shag Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CWNYWDZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuttumico Extra Large Fluffy Shag Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWNYWDZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuttumico Extra Large Fluffy Shag Area Rug for Living Room, 8x10 ft Navy Blue Fuzzy Plush Rugs for Bedroom, Kids Girls Boys Room, Nursery Dorm Room, Office, Luxury Home Decor" src="https://m.media-amazon.com/images/I/51sdgrbVcJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWNYWDZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuttumico Extra Large Fluffy Shag Area Rug for Living Room, 8x10 ft Navy Blue Fuzzy Plush Rugs for Bedroom, Kids Girls Boys Room, Nursery Dorm Room, Office, Luxury Home Decor" src="https://m.media-amazon.com/images/I/51sdgrbVcJL._SL500_.jpg"/></a>
 
 
 The **Nuttumico Extra Large Fluffy Shag Area Rug** is ideal for individuals seeking to add a touch of luxury and comfort to their living spaces. Perfect for homeowners, parents decorating kids' rooms, or anyone looking to elevate their **home decor** with a plush, cozy feel, this rug suits living rooms, bedrooms, nurseries, dorm rooms, and offices. Its generous size and soft texture make it especially appealing for families with children or pet owners who want a durable yet comfortable floor covering.
@@ -203,10 +203,10 @@ The **Nuttumico Extra Large Fluffy Shag Area Rug** by Larhom features a plush 4.
 
 Beyond aesthetics, this shag area rug offers practical benefits such as sound absorption and added insulation, making rooms feel cozier and quieter. It’s an excellent choice for nurseries and kids’ rooms, providing a cushioned play area that is gentle for little feet. Additionally, the thick shag pile helps protect flooring underneath from scratches or wear, extending the life of your hardwood or tile surfaces. Overall, this luxurious rug combines style, comfort, and functionality, making it a valuable addition to any home or office setting.
 
-## <a href="https://www.amazon.com/dp/B0DDZT7KYN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camilson Micro Loop Rug</a>
+## <a href="https://www.amazon.com/dp/B0DDZT7KYN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camilson Micro Loop Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDZT7KYN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAMILSON Micro Loop Rug 9x12 Modern Luxury Geometric Arch Large Area Rugs Soft High and Low Pile Stain Resistant Easy-Cleaning Non-Shedding for Living Room Office Indoor Carpet (9 x 12 / White)" src="https://m.media-amazon.com/images/I/51TCWZaZ9DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDZT7KYN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAMILSON Micro Loop Rug 9x12 Modern Luxury Geometric Arch Large Area Rugs Soft High and Low Pile Stain Resistant Easy-Cleaning Non-Shedding for Living Room Office Indoor Carpet (9 x 12 / White)" src="https://m.media-amazon.com/images/I/51TCWZaZ9DL._SL500_.jpg"/></a>
 
 
 The **CAMILSON Micro Loop Rug 9x12** is an excellent choice for homeowners and office managers seeking a combination of style, comfort, and practicality. Ideal for those who want to elevate their living room or office space with a modern luxury geometric design, this rug suits individuals who value both aesthetics and functionality in their indoor decor. Its large size and stain-resistant properties make it perfect for high-traffic areas where durability and easy maintenance are priorities.
@@ -228,10 +228,10 @@ The **CAMILSON Micro Loop Rug** boasts a unique blend of soft high and low pile 
 
 Beyond aesthetics, this rug offers significant benefits through its **stain-resistant** and **non-shedding** features, ensuring that it remains attractive and clean with minimal effort. The easy-cleaning material helps busy households and offices maintain a fresh look without the hassle of deep cleaning sessions. Overall, the CAMILSON rug combines style, comfort, and durability, making it a smart investment for anyone looking to upgrade their indoor flooring.
 
-## <a href="https://www.amazon.com/dp/B0DHP8LC3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Textured Tufted Boho Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DHP8LC3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Textured Tufted Boho Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHP8LC3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Textured Tufted Boho 8x10 Area Rugs for Living Room Rug Carpet Bedroom Rug Nursery Rugs Washable Neutral Modern Farmhouse Luxury Non Slip Beige Brown" src="https://m.media-amazon.com/images/I/51KjWZhvRmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHP8LC3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Textured Tufted Boho 8x10 Area Rugs for Living Room Rug Carpet Bedroom Rug Nursery Rugs Washable Neutral Modern Farmhouse Luxury Non Slip Beige Brown" src="https://m.media-amazon.com/images/I/51KjWZhvRmL._SL500_.jpg"/></a>
 
 
 The **Textured Tufted Boho 8x10 Area Rug** is perfect for those seeking a stylish yet functional addition to their living spaces. Ideal for homeowners or renters who want to elevate their **living room**, **bedroom**, or **nursery** with a cozy, modern farmhouse aesthetic, this rug caters to individuals who appreciate both luxury and practicality. If you're looking for a **washable**, **non-slip** carpet that blends seamlessly with neutral tones, this rug is an excellent choice.
@@ -255,10 +255,10 @@ Crafted by the reputable brand **Engiw**, this **Textured Tufted Boho Area Rug**
 
 Additionally, the **non-slip backing** offers peace of mind by preventing unwanted movement, which is especially beneficial in homes with children or pets. The spacious **8x10 dimension** provides ample coverage, tying together furniture arrangements and anchoring the room’s design. Overall, this rug balances luxury and functionality, making it a versatile investment for anyone looking to enhance their home's ambiance with ease.
 
-## <a href="https://www.amazon.com/dp/B0D9Y26MGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Caromio Ultra-thin Marble Abstract Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0D9Y26MGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Caromio Ultra-thin Marble Abstract Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9Y26MGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAROMIO Ultra-Thin Marble Abstract Area Rug, Modern Marble Rug 6'x9' Luxury Living Room Rug Boho Area Rug for Bedroom Dinning Room Non Slip Abstract Floor Carpet Indoor, Black" src="https://m.media-amazon.com/images/I/513dRA54TZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9Y26MGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAROMIO Ultra-Thin Marble Abstract Area Rug, Modern Marble Rug 6'x9' Luxury Living Room Rug Boho Area Rug for Bedroom Dinning Room Non Slip Abstract Floor Carpet Indoor, Black" src="https://m.media-amazon.com/images/I/513dRA54TZL._SL500_.jpg"/></a>
 
 
 The **CAROMIO Ultra-Thin Marble Abstract Area Rug** is ideal for homeowners and interior design enthusiasts who want to add a touch of modern elegance to their living spaces. Perfect for those looking to enhance their **living room**, **bedroom**, or **dining room** with a stylish, non-slip, and easy-to-maintain floor covering that complements contemporary décor themes. This rug suits individuals who appreciate luxury aesthetics combined with practical functionality.

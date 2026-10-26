@@ -23,10 +23,10 @@ Patterns and colors can match your home decor, from vintage floral to modern geo
 
 
 
-## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps</a>
+## <a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kooteta Stair Treads For Wooden Steps</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCNF224L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CCNF224L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" adhesive="" alt="KOOTETA Stair Treads for Wooden Steps Indoor, 15 Pack 8" and="" backing="" carpet="" dark="" dogs,="" elders="" for="" grey"="" kids="" non="" polyester="" reusable="" rugs,="" runner="" slip="" src="https://m.media-amazon.com/images/I/41kovtgm4vL._SL500_.jpg" stair="" surface="" tpr="" treads="" with="" x=""/></a>
 
 
 The **KOOTETA Stair Treads for Wooden Steps Indoor** are ideal for homeowners seeking a safe and stylish solution to prevent slips on wooden stairs. Perfect for families with **kids, elders, and dogs**, these non-slip carpet stair treads provide added security and comfort, making staircases safer for everyone in the household.
@@ -48,10 +48,10 @@ The **KOOTETA Stair Treads** feature a durable **polyester surface** that provid
 
 Installation is straightforward thanks to the included **reusable adhesive**, which allows for hassle-free placement and repositioning without leaving sticky residues or causing damage. This makes the treads a versatile option for those who want to maintain their wooden stairs’ aesthetic appeal while adding a layer of protection. Overall, these stair runner rugs combine safety, style, and convenience to create a safer home environment.
 
-## <a href="https://www.amazon.com/dp/B0DPB9NCGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Boho Washable Hallway Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0DPB9NCGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Boho Washable Hallway Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPB9NCGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Boho Washable 2x10 Hallway Runner Rug - Extra Long Runners for Kitchen, Bathroom, Stair, Non-Slip Floor Carpet Rugs for Large Entryway Indoor, Vintage Multi Ashen Floral Decor" src="https://m.media-amazon.com/images/I/51MCkTR11bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPB9NCGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Boho Washable 2x10 Hallway Runner Rug - Extra Long Runners for Kitchen, Bathroom, Stair, Non-Slip Floor Carpet Rugs for Large Entryway Indoor, Vintage Multi Ashen Floral Decor" src="https://m.media-amazon.com/images/I/51MCkTR11bL._SL500_.jpg"/></a>
 
 
 The **Black Boho Washable 2x10 Hallway Runner Rug** is ideal for homeowners and renters looking to enhance their indoor spaces with a stylish yet functional floor covering. Perfect for those who need an **extra-long runner** for areas like kitchens, bathrooms, stairs, or large entryways, this rug suits anyone wanting to add a touch of **vintage multi ashen floral decor** while maintaining easy care and safety with its **non-slip** backing.
@@ -73,10 +73,10 @@ The **Black Boho Washable 2x10 Hallway Runner Rug** by **Hazo Haus** combines bo
 
 Moreover, the **non-slip backing** adds an important safety feature, reducing the risk of slips and falls on tile or hardwood floors. The rug’s vintage multi ashen floral pattern brings a charming, bohemian vibe that can complement a variety of decor styles, from rustic to modern. Its thin 0.25-inch profile ensures it lies flat without causing obstructions, making it perfect for use under doors or in narrow spaces.
 
-## <a href="https://www.amazon.com/dp/B0BVD25S89?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Asha Collection Elegant Charcoal Grey Oriental Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0BVD25S89?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Asha Collection Elegant Charcoal Grey Oriental Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVD25S89?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Well Woven Asha Collection Elegant Charcoal Grey Oriental 25' Foot Runner Rug Perfect for Hallway Staircase Ideal for High-Traffic Areas with Vintage-Inspired Low Pile" src="https://m.media-amazon.com/images/I/51XOkBsQ2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVD25S89?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Well Woven Asha Collection Elegant Charcoal Grey Oriental 25' Foot Runner Rug Perfect for Hallway Staircase Ideal for High-Traffic Areas with Vintage-Inspired Low Pile" src="https://m.media-amazon.com/images/I/51XOkBsQ2SL._SL500_.jpg"/></a>
 
 
 The **Well Woven Asha Collection Elegant Charcoal Grey Oriental 25' Foot Runner Rug** is ideal for homeowners or renters looking to enhance high-traffic areas such as hallways and staircases. This runner rug is perfect for those who want to combine style and durability, especially in spaces that require a low-maintenance yet visually appealing floor covering. If you appreciate vintage-inspired designs and need a rug that can withstand daily wear, this product is a great fit.
@@ -98,10 +98,10 @@ The **Well Woven Asha Collection runner rug** features a low pile height of 0.2 
 
 Measuring 297 inches in length and 27 inches in width, this runner rug provides ample coverage for long corridors and staircases. The low pile also means it’s easier to vacuum and keep clean, making it practical for busy households or commercial spaces. Additionally, the charcoal grey color not only conceals dirt but also blends well with various interior color schemes, enhancing the overall ambiance without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B0CXDBQF27?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kuta Extra Long Runner Rug For Hallway</a>
+## <a href="https://www.amazon.com/dp/B0CXDBQF27?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kuta Extra Long Runner Rug For Hallway</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXDBQF27?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTA Extra Long Runner Rug for Hallway 2.6x18ft, Oriental Washable Kitchen Rugs, Ivory Grey Yellow Non-Slip Stair Runners Indoor Soft Printed Vintage Floral Carpet for Bedroom Living Room Nursery" src="https://m.media-amazon.com/images/I/51m5QgKbCdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXDBQF27?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTA Extra Long Runner Rug for Hallway 2.6x18ft, Oriental Washable Kitchen Rugs, Ivory Grey Yellow Non-Slip Stair Runners Indoor Soft Printed Vintage Floral Carpet for Bedroom Living Room Nursery" src="https://m.media-amazon.com/images/I/51m5QgKbCdL._SL500_.jpg"/></a>
 
 
 The **KUTA Extra Long Runner Rug for Hallway 2.6x18ft** is ideal for homeowners looking to add a stylish yet functional piece to their narrow spaces such as hallways, kitchens, or staircases. This rug suits those who appreciate a vintage floral design combined with modern practicality, especially people who want a washable, non-slip, and soft runner that complements multiple room decors including bedrooms, living rooms, and nurseries.
@@ -123,10 +123,10 @@ The **KUTA Extra Long Runner Rug** stands out with its combination of size and d
 
 With a **non-slip backing**, this rug prioritizes safety, preventing slips and falls on stairs or smooth floors. The color palette of ivory, grey, and yellow is subtle yet inviting, matching a wide range of interior styles from classic to contemporary. Overall, this rug combines functionality with aesthetics, making it a versatile and valuable addition to any home looking to upgrade its indoor flooring with a durable, attractive, and easy-to-maintain runner.
 
-## <a href="https://www.amazon.com/dp/B0BTHYNGSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Boho Hallway Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0BTHYNGSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pauwer Boho Hallway Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTHYNGSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Boho Hallway Runner Rug 2x10 Washable Entryway Area Rugs Non Slip Farmhouse Vintage Floor Mat Carpet Runner for Hallways Laundry Room Kitchen Bathroom Bedroom" src="https://m.media-amazon.com/images/I/51xdFz0SRDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTHYNGSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pauwer Boho Hallway Runner Rug 2x10 Washable Entryway Area Rugs Non Slip Farmhouse Vintage Floor Mat Carpet Runner for Hallways Laundry Room Kitchen Bathroom Bedroom" src="https://m.media-amazon.com/images/I/51xdFz0SRDL._SL500_.jpg"/></a>
 
 
 The **Pauwer Boho Hallway Runner Rug 2x10** is ideal for homeowners and renters looking to add a touch of **farmhouse vintage charm** to their entryways, hallways, kitchens, or laundry rooms. If you want a stylish yet practical floor covering that is easy to maintain and fits narrow spaces, this **non-slip area rug** is a perfect choice. It’s especially suitable for those who prioritize both aesthetics and functionality in high-traffic areas of their home.
@@ -149,10 +149,10 @@ The **Pauwer Boho Hallway Runner Rug** features a durable and lightweight constr
 
 Beyond functionality, the rug’s **vintage farmhouse design** in grey and white adds a cozy and elegant touch to your home decor. Its long runner size (2x10 feet) fits perfectly in tight spaces where a larger area rug would be impractical. Overall, this rug combines style, safety, and ease of maintenance, making it a versatile choice for enhancing the look and feel of your living spaces.
 
-## <a href="https://www.amazon.com/dp/B0CLNG2X97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchaioak Non-slip Carpet Floor Protector Rug Mat</a>
+## <a href="https://www.amazon.com/dp/B0CLNG2X97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchaioak Non-slip Carpet Floor Protector Rug Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLNG2X97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MuChaIOAK 6m/20Fft Non-Slip Carpet, Floor Protector Rug Mat, Stair Hallway Runner Rug Large Size Protective Stair Cover, Indoor Carpet for Bedrooms Living Rooms Balconies Entryways Stairs (Black Grey)" src="https://m.media-amazon.com/images/I/41Vzzuc5e8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLNG2X97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MuChaIOAK 6m/20Fft Non-Slip Carpet, Floor Protector Rug Mat, Stair Hallway Runner Rug Large Size Protective Stair Cover, Indoor Carpet for Bedrooms Living Rooms Balconies Entryways Stairs (Black Grey)" src="https://m.media-amazon.com/images/I/41Vzzuc5e8L._SL500_.jpg"/></a>
 
 
 The **MuChaIOAK 6m/20Fft Non-Slip Carpet** is ideal for homeowners and renters looking to protect their floors and stairs from wear and tear while adding a touch of style. This **floor protector rug mat** is perfect for those with high foot traffic areas such as hallways, staircases, entryways, and living rooms. If you want a durable, non-slip solution that enhances safety and preserves your flooring, this **indoor carpet runner** is a great choice.
@@ -174,10 +174,10 @@ The **MuChaIOAK Non-Slip Carpet** features a practical design with a length of 2
 
 In addition to safety, this protective stair cover acts as a shield against damage from daily foot traffic, pets, and moving furniture. The **durable material** is easy to clean, requiring minimal maintenance to keep it looking fresh and new. Whether placed in bedrooms, living rooms, balconies, or entryways, the MuChaIOAK carpet helps extend the life of your floors while providing comfort underfoot. Its versatility and protective benefits make it an excellent investment for anyone wanting to maintain beautiful and safe flooring throughout their home.
 
-## <a href="https://www.amazon.com/dp/B0DF94HH9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway &amp; Stair Runner- Ethos Harmony Beige</a>
+## <a href="https://www.amazon.com/dp/B0DF94HH9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway &amp; Stair Runner- Ethos Harmony Beige</a>
 
 
-<a href="https://www.amazon.com/dp/B0DF94HH9Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 3')="" alt="Well Woven Custom Size Hallway &amp; Stair Runner- Ethos Harmony Beige 27 Inches Wide x 3 Feet Long Runner (27" asian="" central="" clean,="" dense="" easy="" inspired,="" rug="" src="https://m.media-amazon.com/images/I/51txJq5icLL._SL500_.jpg" stain-resistant"="" tekke="" textural,="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DF94HH9Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 3')="" alt="Well Woven Custom Size Hallway &amp; Stair Runner- Ethos Harmony Beige 27 Inches Wide x 3 Feet Long Runner (27" asian="" central="" clean,="" dense="" easy="" inspired,="" rug="" src="https://m.media-amazon.com/images/I/51txJq5icLL._SL500_.jpg" stain-resistant"="" tekke="" textural,="" x=""/></a>
 
 
 The **Well Woven Custom Size Hallway & Stair Runner - Ethos Harmony Beige** is ideal for homeowners and interior enthusiasts looking to enhance their narrow spaces like hallways or staircases with a stylish, functional, and durable rug. If you want a runner that blends traditional Central Asian Tekke patterns with modern stain-resistant technology, this **27 Inches Wide x 3 Feet Long** runner is perfect for adding warmth and texture without overwhelming your space.
@@ -200,10 +200,10 @@ The **Well Woven Ethos Harmony Beige runner** stands out due to its meticulous c
 
 Additionally, the runner's stain-resistant and easy-clean properties mean that it is well suited for busy homes or areas prone to spills and dirt. This practical feature allows users to maintain its pristine appearance with minimal effort. The neutral beige color pairs well with various décor styles, providing both versatility and a subtle sophistication to your interior space. Overall, this runner combines aesthetic appeal with functional benefits, making it a smart investment for enhancing your home's style and safety.
 
-## <a href="https://www.amazon.com/dp/B09D5LQ9ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway Stair Runner</a>
+## <a href="https://www.amazon.com/dp/B09D5LQ9ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway Stair Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B09D5LQ9ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 25'="" alt="Well Woven Custom Size Hallway Stair Runner - Choose Your Length - Piano Beige Tribal Diamond Geometric 27 Inches Wide x 25 Feet Long Runner (27" runner)"="" src="https://m.media-amazon.com/images/I/51vf-ZyykXL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B09D5LQ9ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 25'="" alt="Well Woven Custom Size Hallway Stair Runner - Choose Your Length - Piano Beige Tribal Diamond Geometric 27 Inches Wide x 25 Feet Long Runner (27" runner)"="" src="https://m.media-amazon.com/images/I/51vf-ZyykXL._SL500_.jpg" x=""/></a>
 
 
 The **Well Woven Custom Size Hallway Stair Runner** is ideal for homeowners and renters looking to enhance the aesthetic and safety of their staircases or hallways. If you want a durable, stylish, and customizable runner that fits perfectly in narrow spaces or long corridors, this **27 Inches Wide x 25 Feet Long Runner** is an excellent choice. It suits those who appreciate geometric designs and neutral tones, making it a great fit for modern and traditional interiors alike.
@@ -225,10 +225,10 @@ The **Well Woven Custom Size Hallway Stair Runner** features a thoughtfully desi
 
 Beyond aesthetics, this runner is crafted to withstand daily wear and tear, making it ideal for busy households or commercial settings. Its 0.7-inch thickness offers a cushioned feel underfoot, reducing noise and providing added safety by preventing slips. Lightweight yet sturdy, the runner is easy to install and clean, ensuring your floors stay protected while maintaining an elegant look for years to come.
 
-## <a href="https://www.amazon.com/dp/B0F49CWC7K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway Stair Runner</a>
+## <a href="https://www.amazon.com/dp/B0F49CWC7K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Well Woven Custom Size Hallway Stair Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0F49CWC7K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10'="" alt="Well Woven Custom Size Hallway Stair Runner - Made-to-Measure - Fairmont Collection Lezlee Black Gold Abstract Marble Border 3x10 (2'7" runner)"="" src="https://m.media-amazon.com/images/I/51wvYCdMWzL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F49CWC7K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10'="" alt="Well Woven Custom Size Hallway Stair Runner - Made-to-Measure - Fairmont Collection Lezlee Black Gold Abstract Marble Border 3x10 (2'7" runner)"="" src="https://m.media-amazon.com/images/I/51wvYCdMWzL._SL500_.jpg" x=""/></a>
 
 
 The **Well Woven Custom Size Hallway Stair Runner** from the **Fairmont Collection** is perfect for homeowners looking to add a touch of elegance and durability to their hallways or staircases. Ideal for those who want a **made-to-measure** rug that fits perfectly in narrow spaces, this runner suits individuals seeking both style and function in high-traffic areas of their home.
@@ -251,10 +251,10 @@ The **Well Woven Fairmont Collection Lezlee Black Gold Abstract Marble Border Ru
 
 Crafted by Well Woven, a reputable manufacturer known for quality, this runner is built to withstand frequent foot traffic while maintaining its appearance. The low profile thickness minimizes tripping risks and makes it easy to clean and maintain. Overall, this stair runner delivers both style and functionality, making it an excellent investment for anyone looking to enhance their home's interior with a tailored, elegant solution.
 
-## <a href="https://www.amazon.com/dp/B0F26HWDCB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iohouze Washable Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B0F26HWDCB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iohouze Washable Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F26HWDCB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IOHOUZE Washable Runner Rug 2x12 Non Slip Rubber Backed Extra Long Hallway Runner Entryway Runner Indoor, Kitchen Rug Woven Cotton Carpet for Hall Entrance Stair, Warm Beige/Orange/Apricot" src="https://m.media-amazon.com/images/I/51xHOvu+37L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F26HWDCB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IOHOUZE Washable Runner Rug 2x12 Non Slip Rubber Backed Extra Long Hallway Runner Entryway Runner Indoor, Kitchen Rug Woven Cotton Carpet for Hall Entrance Stair, Warm Beige/Orange/Apricot" src="https://m.media-amazon.com/images/I/51xHOvu+37L._SL500_.jpg"/></a>
 
 
 The **IOHOUZE Washable Runner Rug 2x12** is ideal for homeowners looking to enhance their **hallways, entryways, or kitchens** with a stylish yet functional floor covering. This **extra long runner rug** is perfect for those who need a durable, non-slip, and easy-to-maintain solution that complements warm, earthy color palettes. If you want to add comfort, safety, and aesthetic appeal to narrow spaces while ensuring easy cleaning, this rug is an excellent choice.

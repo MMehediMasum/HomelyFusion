@@ -20,10 +20,10 @@ For small items, a portable light box like Glendan gives a clean background and 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CF44WSPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Torjim Softbox Photography Lighting Kit</a>
+## <a href="https://www.amazon.com/dp/B0CF44WSPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Torjim Softbox Photography Lighting Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF44WSPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Torjim Softbox Photography Lighting Kit, 16'' x 16'' Professional Softbox Lighting Kit with 85W 3000-7500K LED Bulbs, Studio Lights for Photography/Video Recording/Live Streaming/Portraits Shooting" src="https://m.media-amazon.com/images/I/41xS9nm2FJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF44WSPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Torjim Softbox Photography Lighting Kit, 16'' x 16'' Professional Softbox Lighting Kit with 85W 3000-7500K LED Bulbs, Studio Lights for Photography/Video Recording/Live Streaming/Portraits Shooting" src="https://m.media-amazon.com/images/I/41xS9nm2FJL._SL500_.jpg"/></a>
 
 
 The **Torjim Softbox Photography Lighting Kit** is ideal for photographers, videographers, and content creators seeking professional-quality lighting solutions. Whether you are involved in **studio photography**, **video recording**, **live streaming**, or **portrait shooting**, this kit offers a versatile and effective lighting setup to enhance your work. It is perfect for both beginners looking to improve their lighting skills and experienced professionals needing reliable, adjustable light sources.
@@ -46,10 +46,10 @@ The **Torjim Softbox Photography Lighting Kit** features adjustable LED bulbs wi
 
 In addition to its lighting capabilities, the kit’s design emphasizes portability and ease of use. The lightweight softboxes and simple assembly process make it convenient for photographers and videographers to set up quickly on location or in a home studio. Its compatibility with various camera setups and shooting styles makes this kit a valuable investment for anyone looking to elevate their visual content quality with professional-grade lighting from a trusted brand like **Torjim**.
 
-## <a href="https://www.amazon.com/dp/B0D8PWTYXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 2 Pack Led Video Light Kit</a>
+## <a href="https://www.amazon.com/dp/B0D8PWTYXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 2 Pack Led Video Light Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8PWTYXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 65"="" alt="UBeesize 2 Pack LED Video Light Kit, Photography Lighting, 13" and="" for="" holders,="" lighting="" lights="" phone="" podcast="" recording,tiktok,youtube"="" src="https://m.media-amazon.com/images/I/41iwxsbcAUL._SL500_.jpg" stand="" studio="" tripod="" video="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D8PWTYXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 65"="" alt="UBeesize 2 Pack LED Video Light Kit, Photography Lighting, 13" and="" for="" holders,="" lighting="" lights="" phone="" podcast="" recording,tiktok,youtube"="" src="https://m.media-amazon.com/images/I/41iwxsbcAUL._SL500_.jpg" stand="" studio="" tripod="" video="" with=""/></a>
 
 
 The **UBeesize 2 Pack LED Video Light Kit** is ideal for content creators, vloggers, podcasters, and anyone looking to enhance their video recording or photography setup. Whether you are a beginner or a professional, these **13" studio lights** with adjustable tripods and phone holders provide versatile lighting solutions perfect for platforms like **TikTok** and **YouTube**.
@@ -72,10 +72,10 @@ The **UBeesize LED Video Light Kit** features two 13-inch LED lights that delive
 
 Additionally, the built-in **phone holders** add convenience by securely holding smartphones during recording, eliminating the need for separate mounts. This all-in-one setup is especially beneficial for creators using mobile devices for content creation, streamlining the process and improving efficiency. Overall, this kit offers excellent value with its combination of lighting power, portability, and ease of use, making it a smart investment for enhancing video and photography projects.
 
-## <a href="https://www.amazon.com/dp/B0BYNHCYTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Softbox Lighting Kit</a>
+## <a href="https://www.amazon.com/dp/B0BYNHCYTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Softbox Lighting Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYNHCYTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Softbox Lighting Kit, NiceVeedi 16'' x 16'' Softbox Photography Lighting Kit with 63” Tripod Stand &amp; 5400K 450W Equivalent LED Bulb, Continuous Lighting for Photography/Video Record/Live Streaming" src="https://m.media-amazon.com/images/I/41kY+w9FzDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYNHCYTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Softbox Lighting Kit, NiceVeedi 16'' x 16'' Softbox Photography Lighting Kit with 63” Tripod Stand &amp; 5400K 450W Equivalent LED Bulb, Continuous Lighting for Photography/Video Record/Live Streaming" src="https://m.media-amazon.com/images/I/41kY+w9FzDL._SL500_.jpg"/></a>
 
 
 The **Softbox Lighting Kit** by **NiceVeedi** is ideal for photographers, videographers, and live streamers who require consistent and professional lighting. If you are someone looking to enhance your content quality with soft, even lighting that reduces harsh shadows, this lighting kit is perfect for your setup, whether at home or in a studio.
@@ -97,10 +97,10 @@ The **NiceVeedi Softbox Lighting Kit** features a compact **16'' x 16'' softbox*
 
 Moreover, the included **63-inch tripod stand** provides excellent flexibility and stability, allowing users to adjust the lighting angle and height to suit various shooting environments. Its lightweight and portable design make it a convenient choice for both studio and on-location shoots, enhancing the overall user experience by combining ease of use with quality lighting performance.
 
-## <a href="https://www.amazon.com/dp/B0BF976MJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2-pack Led Video Light Kit</a>
+## <a href="https://www.amazon.com/dp/B0BF976MJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2-pack Led Video Light Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BF976MJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2-Pack LED Video Light Kit, NiceVeedi Studio Light, 2800-6500K Dimmable Photography Lighting Kit with Tripod Stand&amp;Phone Holder, 73" for="" game="" light="" recording,="" src="https://m.media-amazon.com/images/I/41pUs+qY36L._SL500_.jpg" stream="" streaming,="" video="" youtube"=""/></a>
+<a href="https://www.amazon.com/dp/B0BF976MJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2-Pack LED Video Light Kit, NiceVeedi Studio Light, 2800-6500K Dimmable Photography Lighting Kit with Tripod Stand&amp;Phone Holder, 73" for="" game="" light="" recording,="" src="https://m.media-amazon.com/images/I/41pUs+qY36L._SL500_.jpg" stream="" streaming,="" video="" youtube"=""/></a>
 
 
 The **2-Pack LED Video Light Kit** by **NiceVeedi** is perfect for content creators, video streamers, and photographers who need versatile and reliable lighting solutions. If you are someone looking to enhance your video recording, live streaming, or YouTube setup with professional-grade lighting, this kit is designed for you. Its dimmable feature and adjustable color temperature make it ideal for both beginners and experienced users who want to control the ambiance and quality of their shots.
@@ -123,10 +123,10 @@ The **NiceVeedi Studio Light Kit** offers a wide color temperature range between
 
 Another standout feature is the kit’s portability and ease of use. The included **tripod stands** extend up to **73 inches**, providing ample height for various shooting angles and setups. The **phone holder** makes it simple to mount smartphones for hands-free recording or streaming, catering to the growing number of mobile content creators. Additionally, the **USB-C power adapters** offer a modern and efficient way to power the lights, ensuring compatibility with a range of devices and power sources.
 
-## <a href="https://www.amazon.com/dp/B0B5QGZP6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Raleno Softbox Photography Lighting Kit</a>
+## <a href="https://www.amazon.com/dp/B0B5QGZP6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Raleno Softbox Photography Lighting Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5QGZP6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RALENO Softbox Photography Lighting Kit, 16'' x 16'' Softbox Lighting for TikTok with LED Bulb (50W | 5500K | 97 CRI | TLCI≥97), Continuous Lighting for Video Recording &amp; Photography Shooting" src="https://m.media-amazon.com/images/I/41HRfRzOh7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5QGZP6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RALENO Softbox Photography Lighting Kit, 16'' x 16'' Softbox Lighting for TikTok with LED Bulb (50W | 5500K | 97 CRI | TLCI≥97), Continuous Lighting for Video Recording &amp; Photography Shooting" src="https://m.media-amazon.com/images/I/41HRfRzOh7L._SL500_.jpg"/></a>
 
 
 The **RALENO Softbox Photography Lighting Kit** is ideal for content creators, photographers, and videographers who demand high-quality, continuous lighting for their shoots. Whether you're a TikTok creator, a YouTuber, or a professional photographer, this lighting kit offers the perfect balance of brightness and color accuracy to enhance your video recordings and photo shoots.
@@ -149,10 +149,10 @@ The **RALENO Softbox Photography Lighting Kit** features a 16'' x 16'' softbox t
 
 Designed with portability in mind, this lighting kit is compact and lightweight, making it suitable for creators who often shoot in different locations. The continuous lighting capability allows for seamless video recording without flickering, which is essential for professional-quality content. Overall, the **RALENO Softbox Photography Lighting Kit** offers an excellent combination of performance and convenience, making it a valuable tool for enhancing the visual quality of your creative projects.
 
-## <a href="https://www.amazon.com/dp/B08L5VKNWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 12'' Selfie Ring Light With 62’’ Tripod Stand</a>
+## <a href="https://www.amazon.com/dp/B08L5VKNWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ubeesize 12'' Selfie Ring Light With 62’’ Tripod Stand</a>
 
 
-<a href="https://www.amazon.com/dp/B08L5VKNWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand for Video Recording, Live Streaming(YouTube, Instagram, TIK Tok), Compatible with Phones, Cameras and Webcams" src="https://m.media-amazon.com/images/I/41fDvi1ZJEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L5VKNWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand for Video Recording, Live Streaming(YouTube, Instagram, TIK Tok), Compatible with Phones, Cameras and Webcams" src="https://m.media-amazon.com/images/I/41fDvi1ZJEL._SL500_.jpg"/></a>
 
 
 The **UBeesize 12'' Selfie Ring Light with 62’’ Tripod Stand** is an ideal choice for content creators, live streamers, and video enthusiasts who want to enhance their video quality with professional lighting. Whether you are a YouTuber, Instagram influencer, TikTok creator, or someone who frequently participates in video calls, this versatile ring light setup is perfect for improving your appearance on camera and creating well-lit, engaging content.
@@ -175,10 +175,10 @@ The **UBeesize 12'' Selfie Ring Light** stands out for its combination of size a
 
 Compatibility is another key advantage of this product. Designed to work seamlessly with smartphones, cameras, and webcams, it caters to a wide audience and diverse content creation needs. The lightweight and compact design makes it easy to transport, making it a great tool for creators who travel or shoot in various locations. Overall, the UBeesize ring light provides a professional lighting solution that improves video clarity, boosts confidence on camera, and elevates the quality of live streams and recordings.
 
-## <a href="https://www.amazon.com/dp/B096THSHLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skytex Softbox Lighting Kit</a>
+## <a href="https://www.amazon.com/dp/B096THSHLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skytex Softbox Lighting Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B096THSHLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skytex Softbox Lighting Kit(2Pack), 20x28in Soft Box | 85W 2700-6400K E27 LED Bulb Continuous Photography Lighting, Photo Studio Lights Equipment for Camera Shooting, Video Recording" src="https://m.media-amazon.com/images/I/41NVdDjov9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096THSHLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skytex Softbox Lighting Kit(2Pack), 20x28in Soft Box | 85W 2700-6400K E27 LED Bulb Continuous Photography Lighting, Photo Studio Lights Equipment for Camera Shooting, Video Recording" src="https://m.media-amazon.com/images/I/41NVdDjov9L._SL500_.jpg"/></a>
 
 
 The **Skytex Softbox Lighting Kit (2Pack)** is ideal for photographers, videographers, and content creators who require consistent, high-quality lighting for their projects. Whether you're shooting portraits, product photos, or recording videos, this lighting kit is perfect for those seeking professional-grade illumination with adjustable color temperatures and easy setup.
@@ -201,10 +201,10 @@ The **Skytex Softbox Lighting Kit** features large softboxes that diffuse light 
 
 Additionally, the continuous lighting provided by this kit ensures that photographers and videographers have steady illumination without flicker, which is crucial for video recording and long photo sessions. The substantial **78-inch height** of the stands offers versatile positioning options, making it easier to achieve the desired lighting angles and effects. Overall, this kit is a reliable and cost-effective solution for anyone looking to enhance their studio lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0F6YG2KFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neewer Basics Rgb Photography Flashlight</a>
+## <a href="https://www.amazon.com/dp/B0F6YG2KFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neewer Basics Rgb Photography Flashlight</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6YG2KFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEEWER BASICS RGB Photography Flashlight with 4 Colors/20 Gobo Filters/7500mAh, 10W Portable LED Video Spotlight Aluminum Alloy Patterned Ambient Sunset Light for Video Recording Studio Lighting, FL10" src="https://m.media-amazon.com/images/I/41KGyfBScTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6YG2KFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEEWER BASICS RGB Photography Flashlight with 4 Colors/20 Gobo Filters/7500mAh, 10W Portable LED Video Spotlight Aluminum Alloy Patterned Ambient Sunset Light for Video Recording Studio Lighting, FL10" src="https://m.media-amazon.com/images/I/41KGyfBScTL._SL500_.jpg"/></a>
 
 
 The **NEEWER BASICS RGB Photography Flashlight** is ideal for photographers, videographers, and content creators who require versatile and portable lighting solutions. Whether you are shooting in a studio or on location, this flashlight offers a compact and powerful option for enhancing your visuals with creative lighting effects. If you want to add dynamic colors and patterns to your videos or photos, this item is a perfect fit.
@@ -226,10 +226,10 @@ The **NEEWER BASICS RGB Photography Flashlight** stands out with its wide range 
 
 Crafted from sturdy **aluminum alloy**, the flashlight is both durable and lightweight, ensuring easy portability without sacrificing build quality. Its compact size and powerful **10W LED** make it suitable for various environments, from small studios to outdoor locations. Overall, this flashlight is a versatile and reliable lighting tool designed to meet the creative demands of modern visual content producers.
 
-## <a href="https://www.amazon.com/dp/B0C1MYB5KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Torjim Softbox Photography Lighting Kit</a>
+## <a href="https://www.amazon.com/dp/B0C1MYB5KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Torjim Softbox Photography Lighting Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1MYB5KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Torjim Softbox Photography Lighting Kit, 16'' x 16'' Professional Softbox Lighting Kit with 85W 3000-7500K LED Bulbs, Studio Lights for Photography/Video Recording/Live Streaming/Portraits Shooting" src="https://m.media-amazon.com/images/I/41MWQAc2QJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1MYB5KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Torjim Softbox Photography Lighting Kit, 16'' x 16'' Professional Softbox Lighting Kit with 85W 3000-7500K LED Bulbs, Studio Lights for Photography/Video Recording/Live Streaming/Portraits Shooting" src="https://m.media-amazon.com/images/I/41MWQAc2QJL._SL500_.jpg"/></a>
 
 
 The **Torjim Softbox Photography Lighting Kit** is ideal for professional photographers, videographers, and live streamers who require consistent, high-quality lighting for their work. Whether you're shooting portraits, recording videos, or streaming live content, this kit is designed to enhance your visual output with ease and precision. If you value adjustable lighting and a portable setup, this product is an excellent choice.
@@ -250,10 +250,10 @@ The **Torjim Softbox Photography Lighting Kit** features an adjustable color tem
 
 Designed with portability in mind, the **16'' x 16'' softbox** is compact yet effective in diffusing light evenly, resulting in soft, flattering illumination ideal for portraits and video recording. This lighting kit supports a wide range of creative projects, from professional studio shoots to live streaming setups, making it a versatile tool for content creators who demand reliable and high-quality lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B08PDP3YSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glendan Portable Photo Studio Light Box</a>
+## <a href="https://www.amazon.com/dp/B08PDP3YSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glendan Portable Photo Studio Light Box</a>
 
 
-<a href="https://www.amazon.com/dp/B08PDP3YSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 112="" 6="" alt="Glendan Portable Photo Studio Light Box,12" and="" backdrops="" dimmable="" for="" items="" jewelry="" kit="" led="" lights="" photography"="" product="" professional="" shooting="" small="" src="https://m.media-amazon.com/images/I/41cR+vdKtEL._SL500_.jpg" tent="" with="" x12"=""/></a>
+<a href="https://www.amazon.com/dp/B08PDP3YSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 112="" 6="" alt="Glendan Portable Photo Studio Light Box,12" and="" backdrops="" dimmable="" for="" items="" jewelry="" kit="" led="" lights="" photography"="" product="" professional="" shooting="" small="" src="https://m.media-amazon.com/images/I/41cR+vdKtEL._SL500_.jpg" tent="" with="" x12"=""/></a>
 
 
 The **Glendan Portable Photo Studio Light Box** is ideal for photographers, small business owners, and hobbyists who require a compact, professional setup for capturing high-quality images of **jewelry** and other **small items**. If you are looking to enhance your product photography with consistent lighting and minimal shadows, this dimmable shooting tent kit is perfect for you.

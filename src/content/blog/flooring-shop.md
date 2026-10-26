@@ -23,10 +23,10 @@ FloorPops provides various stylish patterns like Bonneville Grey Marble and Cany
 
 
 
-## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sorbus Wood Grain Floor Tiles Foam Mat Eva Interlocking Mats</a>
+## <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sorbus Wood Grain Floor Tiles Foam Mat Eva Interlocking Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat EVA Interlocking Mats Tile 3/8-Inch Thick Flooring Wood Puzzle Exercise Mats w/Borders - Home Playroom Basement, Apartment, Trade Show, Baby, Dance" src="https://m.media-amazon.com/images/I/51nJ9RU6Y5L._SL500_.jpg"/></a>
 
 
 The **Sorbus 96 Sq. Ft. Wood Grain Floor Tiles Foam Mat** is ideal for homeowners and renters looking to enhance their **home playrooms, basements, apartments, or trade show booths** with comfortable, durable flooring. It is especially suited for families with **babies or children** who need a safe, cushioned surface for play and exercise, as well as individuals interested in **dance or fitness activities** that require supportive floor padding.
@@ -50,12 +50,12 @@ The **Sorbus Wood Grain Floor Tiles** feature a durable **EVA foam construction*
 
 Additionally, the **3/8-inch thickness** offers ample cushioning to protect joints during exercise, play, or dance routines, while the included **borders** give the floor a clean, finished look that enhances safety by eliminating exposed edges. This flooring solution is versatile enough to be used in diverse settings, from a baby’s play area to a professional trade show booth, providing comfort and style wherever it is installed.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D54FNZFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B004L7EMNO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive 12-inch Vinyl Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B004L7EMNO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nexus Self Adhesive 12-inch Vinyl Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B004L7EMNO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",oak="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" decor"="" dining="" diy="" flooring="" for="" home="" kitchen,="" pattern="" peel="" plank="" room,="" src="https://m.media-amazon.com/images/I/51BEtP8EbUL._SL500_.jpg" stick,="" x=""/></a>
+<a href="https://www.amazon.com/dp/B004L7EMNO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" 12",oak="" achim="" alt="Nexus Self Adhesive 12-Inch Vinyl Floor Tiles, 20 Tiles - 12" bathrooms="" bedrooms="" by="" decor"="" dining="" diy="" flooring="" for="" home="" kitchen,="" pattern="" peel="" plank="" room,="" src="https://m.media-amazon.com/images/I/51BEtP8EbUL._SL500_.jpg" stick,="" x=""/></a>
 
 
 The **Nexus Self Adhesive 12-Inch Vinyl Floor Tiles** are perfect for homeowners and DIY enthusiasts looking to upgrade their flooring without professional help. Ideal for those who want a quick, affordable, and stylish solution, these tiles are especially suited for kitchens, dining rooms, bedrooms, and bathrooms. If you seek an easy-to-install, durable, and visually appealing flooring option, this product is a great choice.
@@ -78,12 +78,12 @@ Featuring a realistic **Medium Oak Plank-Look**, these tiles add warmth and eleg
 
 The durable vinyl construction ensures the tiles withstand daily wear and tear, moisture, and stains, making them ideal for high-traffic areas such as kitchens and bathrooms. Additionally, the water-resistant surface simplifies cleaning and maintenance, contributing to a hygienic living environment. Overall, the **Nexus Self Adhesive 12-Inch Vinyl Floor Tiles** by Achim Home Decor combine functionality, style, and convenience, making them a smart flooring solution for various home improvement projects.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B004L7EMNO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B004L7EMNO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops X Chris Loves Julia Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops X Chris Loves Julia Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles, FP4421" src="https://m.media-amazon.com/images/I/41rI-dJTCOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey &amp; White Marble Peel &amp; Stick Floor Tiles, FP4421" src="https://m.media-amazon.com/images/I/41rI-dJTCOL._SL500_.jpg"/></a>
 
 
 The **FloorPops x Chris Loves Julia 12-in by 12-in Bonneville Grey & White Marble Peel & Stick Floor Tiles** are ideal for homeowners and renters looking for an affordable, stylish, and easy-to-install flooring solution. If you want to refresh your space without the hassle and expense of traditional flooring installation, these tiles are perfect for you. They cater especially well to those who appreciate modern design and want a durable option that can handle everyday wear.
@@ -106,12 +106,12 @@ The **FloorPops Bonneville Grey & White Marble Tiles** showcase a beautiful blen
 
 Each tile measures **12 inches by 12 inches**, providing ample coverage and making it easier to create a seamless pattern. The thin profile of 0.1 inches allows the tiles to lay flat and maintain a low profile, reducing trip hazards. Additionally, the tiles are manufactured by **FloorPops**, a brand known for quality and durability, ensuring that your new floor will look great and stand up well to daily use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CBCTDS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B083X2SWSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3325 Canyon Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B083X2SWSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3325 Canyon Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B083X2SWSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3325 Canyon Peel &amp; Stick Floor Tiles, Brown" src="https://m.media-amazon.com/images/I/41K8bI26MYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083X2SWSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3325 Canyon Peel &amp; Stick Floor Tiles, Brown" src="https://m.media-amazon.com/images/I/41K8bI26MYL._SL500_.jpg"/></a>
 
 
 The **FloorPops FP3325 Canyon Peel & Stick Floor Tiles** in **Brown** are ideal for homeowners and renters looking for an affordable, easy-to-install flooring solution that can instantly refresh any room. These tiles are perfect for DIY enthusiasts who want to avoid the hassle of traditional flooring installation and those seeking a temporary or semi-permanent upgrade to their floors without professional help.
@@ -134,12 +134,12 @@ The **FloorPops FP3325 Canyon Peel & Stick Floor Tiles** feature a convenient de
 
 The brown color option adds a warm, natural aesthetic to any room, enhancing the overall ambiance and complementing various décor themes. Additionally, the durable, water-resistant surface protects against everyday spills and stains, ensuring longevity and easy upkeep. This makes the **FloorPops FP3325 Canyon Peel & Stick Floor Tiles** an excellent choice for kitchens, bathrooms, and living areas where both style and practicality are important.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B083X2SWSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B083X2SWSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07QFBX8R1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp2942 Medina Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B07QFBX8R1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp2942 Medina Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B07QFBX8R1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP2942 Medina Peel &amp; Stick Floor Tiles, Grey" src="https://m.media-amazon.com/images/I/41KA2zfDO8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QFBX8R1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP2942 Medina Peel &amp; Stick Floor Tiles, Grey" src="https://m.media-amazon.com/images/I/41KA2zfDO8L._SL500_.jpg"/></a>
 
 
 The **FloorPops FP2942 Medina Peel & Stick Floor Tiles** in **Grey** are ideal for homeowners, renters, or DIY enthusiasts looking to upgrade their flooring without the hassle of professional installation. If you want a quick, affordable, and stylish flooring solution that requires minimal effort, these tiles are perfect for you. They are especially suitable for those who want to refresh small spaces like kitchens, bathrooms, or laundry rooms with a modern look.
@@ -162,12 +162,12 @@ The **FloorPops FP2942 Medina Peel & Stick Floor Tiles** feature a straightforwa
 
 Beyond ease of installation, these floor tiles offer a sleek and contemporary aesthetic with their neutral **grey color**. This color choice allows for seamless integration into various décor themes, from minimalist to industrial styles. Additionally, the large tile size means fewer seams and a more uniform appearance, enhancing the overall look of your flooring. While these tiles are not intended for heavy commercial use, they provide an excellent balance of style, function, and affordability for residential applications.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07QFBX8R1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07QFBX8R1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01MDQRQO1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Climatex Indoor/outdoor Rubber Scraper Mat</a>
+## <a href="https://www.amazon.com/dp/B01MDQRQO1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Climatex Indoor/outdoor Rubber Scraper Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B01MDQRQO1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CLIMATEX Indoor/Outdoor Rubber Scraper Mat, 36 in. x 6﻿ ft., Black" src="https://m.media-amazon.com/images/I/31FyUmVga9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MDQRQO1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CLIMATEX Indoor/Outdoor Rubber Scraper Mat, 36 in. x 6﻿ ft., Black" src="https://m.media-amazon.com/images/I/31FyUmVga9L._SL500_.jpg"/></a>
 
 
 The **CLIMATEX Indoor/Outdoor Rubber Scraper Mat** is ideal for homeowners and business owners looking for a durable and efficient solution to keep entryways clean. If you want a mat that effectively removes dirt and moisture from shoes while withstanding heavy foot traffic, this product is perfect for you. Its robust design makes it suitable for both indoor and outdoor use, especially in high-traffic areas such as entrances, hallways, and commercial spaces.
@@ -190,12 +190,12 @@ The **CLIMATEX Rubber Scraper Mat** boasts a sturdy rubber material that is resi
 
 This mat’s scraping surface is designed to efficiently remove debris from footwear, reducing the need for frequent cleaning of floors inside the building. Additionally, its lightweight nature means it can be moved or cleaned with ease, while still providing a stable footing. Whether placed in a busy office entrance or a residential doorway, the **CLIMATEX Indoor/Outdoor Rubber Scraper Mat** combines practicality and durability to keep your spaces cleaner and safer.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01MDQRQO1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01MDQRQO1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B086CSBM69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3298 Foliage Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B086CSBM69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3298 Foliage Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B086CSBM69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3298 Foliage Peel &amp; Stick Floor Tiles, Neutral" src="https://m.media-amazon.com/images/I/61KUCprAn8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086CSBM69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3298 Foliage Peel &amp; Stick Floor Tiles, Neutral" src="https://m.media-amazon.com/images/I/61KUCprAn8L._SL500_.jpg"/></a>
 
 
 The **FloorPops FP3298 Foliage Peel & Stick Floor Tiles** in **Neutral** are ideal for homeowners and renters looking for an easy and stylish way to update their flooring without a permanent commitment. These tiles are perfect for those who want a quick DIY solution to enhance their space, particularly in areas like kitchens, bathrooms, or laundry rooms. If you're someone who values convenience, affordability, and flexibility in home decor, these peel and stick tiles offer a practical and attractive option.
@@ -218,12 +218,12 @@ The **FloorPops FP3298** tiles feature a practical **12 x 12 inch** size that al
 
 Users benefit from the versatility of these tiles, as they can be easily removed and repositioned if needed, making them perfect for renters or anyone who likes to frequently update their living space. The lightweight nature of the tiles, combined with their sturdy construction, ensures they can withstand everyday foot traffic while enhancing the aesthetic appeal of any room. This combination of style, convenience, and functionality makes the **FloorPops FP3298 Foliage Peel & Stick Floor Tiles** a smart choice for anyone seeking a budget-friendly flooring upgrade.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B086CSBM69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B086CSBM69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B003A74HT0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dap Flexible Floor Patch And Leveler</a>
+## <a href="https://www.amazon.com/dp/B003A74HT0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dap Flexible Floor Patch And Leveler</a>
 
 
-<a href="https://www.amazon.com/dp/B003A74HT0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DAP Flexible Floor Patch and Leveler, Light Gray, 32 Oz (7079859184)" src="https://m.media-amazon.com/images/I/41bqNQvg9QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003A74HT0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DAP Flexible Floor Patch and Leveler, Light Gray, 32 Oz (7079859184)" src="https://m.media-amazon.com/images/I/41bqNQvg9QL._SL500_.jpg"/></a>
 
 
 The **DAP Flexible Floor Patch and Leveler, Light Gray, 32 Oz** is ideal for homeowners, contractors, and DIY enthusiasts who need a reliable solution for repairing and leveling interior floors. If you are looking to fix minor cracks, holes, or uneven surfaces on concrete or wood floors before installing new flooring, this product offers an easy-to-use, flexible patch that adapts to floor movements without cracking.
@@ -246,12 +246,12 @@ The **DAP Flexible Floor Patch and Leveler** features a unique flexible formula 
 
 Measuring 32 ounces with compact dimensions, this patch and leveler is easy to handle and store. Its quick drying properties mean users can proceed with flooring installation without long wait times, enhancing overall efficiency. Additionally, its versatility to work on both concrete and wood surfaces makes it a practical choice for various repair projects, ensuring a smooth, level foundation that extends the life and durability of your floors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B003A74HT0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B003A74HT0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08MGZ44NF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3566 Cecilia Peel Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B08MGZ44NF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Fp3566 Cecilia Peel Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B08MGZ44NF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3566 Cecilia Peel Stick Floor Tiles, White &amp; Off-White" src="https://m.media-amazon.com/images/I/512pTLkonTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MGZ44NF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops FP3566 Cecilia Peel Stick Floor Tiles, White &amp; Off-White" src="https://m.media-amazon.com/images/I/512pTLkonTL._SL500_.jpg"/></a>
 
 
 The **FloorPops FP3566 Cecilia Peel Stick Floor Tiles** in **White & Off-White** are ideal for homeowners, renters, and DIY enthusiasts looking to quickly and affordably upgrade their flooring. If you want a stylish, easy-to-install solution that doesn't require professional help or permanent changes, these tiles are perfect for you. They suit spaces such as kitchens, bathrooms, and dorm rooms where a fresh look is desired without the hassle of traditional flooring installation.
@@ -274,12 +274,12 @@ The **FloorPops FP3566 Cecilia Peel Stick Floor Tiles** feature a user-friendly 
 
 These tiles provide a practical solution for those seeking a temporary or semi-permanent flooring upgrade. The durable surface resists daily wear, making them suitable for moderate use areas such as kitchens and bathrooms. Additionally, the lightweight nature and easy application make them an excellent choice for renters or anyone who wants to refresh their floors without long-term commitments or damage to the underlying surface.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08MGZ44NF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08MGZ44NF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B724R64X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Estate Peel &amp; Stick Floor Tiles</a>
+## <a href="https://www.amazon.com/dp/B0B724R64X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Floorpops Estate Peel &amp; Stick Floor Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0B724R64X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops Estate Peel &amp; Stick Floor Tiles, Gray" src="https://m.media-amazon.com/images/I/51Hesw3ChLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B724R64X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FloorPops Estate Peel &amp; Stick Floor Tiles, Gray" src="https://m.media-amazon.com/images/I/51Hesw3ChLL._SL500_.jpg"/></a>
 
 
 The **FloorPops Estate Peel & Stick Floor Tiles in Gray** are perfect for homeowners and renters looking to easily update their flooring without the hassle of professional installation. Ideal for those who want a stylish yet practical solution for kitchens, bathrooms, or laundry rooms, these tiles offer a quick and affordable way to refresh your space. If you value convenience, durability, and modern design, this product is a great fit for your home improvement needs.
@@ -302,7 +302,7 @@ These **FloorPops Estate Peel & Stick Floor Tiles** feature a simple yet effecti
 
 The **gray color** provides a neutral and contemporary look that blends seamlessly with most decor styles, from modern to traditional. Manufactured by **WallPops**, these tiles are designed to withstand moisture and everyday wear, making them particularly beneficial for kitchens and bathrooms. The water-resistant nature helps maintain the floor's appearance over time, ensuring both style and longevity.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B724R64X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B724R64X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

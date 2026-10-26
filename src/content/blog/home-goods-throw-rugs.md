@@ -23,10 +23,10 @@ Some rugs also trap dirt at doors to keep floors clean. Affordable options suit 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DCZTP68L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ophanie Small Rug</a>
+## <a href="https://www.amazon.com/dp/B0DCZTP68L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ophanie Small Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCZTP68L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ophanie Small Rug Upgrade Non Slip Throw Bedside Area Rugs, Fluffy Soft Grey Mini Bedroom Carpet, Affordable Door Entryway Indoor Inside Front Entrance Dog 2x3 Mat, Home Decor Aesthetic, Nursery" src="https://m.media-amazon.com/images/I/51mQzP74sCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCZTP68L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ophanie Small Rug Upgrade Non Slip Throw Bedside Area Rugs, Fluffy Soft Grey Mini Bedroom Carpet, Affordable Door Entryway Indoor Inside Front Entrance Dog 2x3 Mat, Home Decor Aesthetic, Nursery" src="https://m.media-amazon.com/images/I/51mQzP74sCL._SL500_.jpg"/></a>
 
 
 The **Ophanie Small Rug Upgrade Non Slip Throw** is ideal for homeowners or renters looking to enhance their living spaces with a cozy and stylish touch. Perfect for those who want a **soft, durable, and affordable mini rug** to place beside beds, in nurseries, or at entryways, this rug suits pet owners, families, and anyone seeking a practical yet aesthetic floor covering.
@@ -49,10 +49,10 @@ The **Ophanie Small Rug** features a **plush, soft fabric** that adds warmth and
 
 Additionally, the rug’s **compact size and lightweight construction** make it easy to position wherever a cozy accent is needed without overwhelming the space. It is an excellent option for pet owners who want a comfortable spot for their dogs to rest while also protecting floors from dirt and wear. Overall, this **affordable and aesthetically pleasing rug** elevates home decor while providing practical benefits, making it a smart investment for enhancing comfort and style.
 
-## <a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hebe Boho Kitchen Rug Sets 3 Piece With Runner</a>
+## <a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hebe Boho Kitchen Rug Sets 3 Piece With Runner</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEBE Boho Kitchen Rug Sets 3 Piece with Runner Non Slip Kitchen Rugs and Mats Washable Kitchen Mats for Floor Thick Kitchen Floor Mat Carpet Runner Rugs for Hallway Laundry Holiday Decor" src="https://m.media-amazon.com/images/I/61VM75cihiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEBE Boho Kitchen Rug Sets 3 Piece with Runner Non Slip Kitchen Rugs and Mats Washable Kitchen Mats for Floor Thick Kitchen Floor Mat Carpet Runner Rugs for Hallway Laundry Holiday Decor" src="https://m.media-amazon.com/images/I/61VM75cihiL._SL500_.jpg"/></a>
 
 
 The **HEBE Boho Kitchen Rug Sets 3 Piece** is ideal for homeowners and renters looking to add a stylish yet functional touch to their kitchen, hallway, or laundry area. Those who prioritize both aesthetics and practicality in home decor, especially individuals who want a non-slip and washable option, will find this set perfect for daily use and holiday decorating.
@@ -74,10 +74,10 @@ The **HEBE Boho Kitchen Rug Sets** come with thoughtfully designed features such
 
 With a natural and grey color palette, these rugs blend seamlessly with a variety of interior styles, from modern to rustic boho themes. The set includes multiple pieces, allowing users to coordinate rugs throughout connected spaces such as hallways and kitchens, creating a cohesive and inviting atmosphere. Overall, the **HEBE Boho Kitchen Rug Sets** offer a perfect balance of style, comfort, and functionality for everyday home use.
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** are perfect for individuals seeking a combination of comfort, style, and practicality in their home decor. Ideal customers include parents looking to create a cozy and safe play area for **kids**, college students wanting to add warmth and aesthetic appeal to their **dorm rooms**, and anyone interested in enhancing their **nursery** or bedroom with a soft, fluffy, and easy-to-maintain carpet. Those who appreciate both functionality and a modern look will find this **machine washable shaggy rug** a great addition to their living space.
@@ -99,10 +99,10 @@ The **OLANLY Area Rug** features a plush, shaggy pile that adds a luxurious feel
 
 One of the standout benefits of this rug is its **machine washable** quality, which simplifies cleaning and upkeep. This feature ensures that the rug remains fresh and hygienic, making it ideal for homes with children or pets. Additionally, the soft and fluffy texture not only provides a comfortable surface to walk or sit on but also helps to add warmth and a cozy atmosphere to any room. Overall, the OLANLY rug combines practicality and style, catering to a wide range of users who value both comfort and ease of maintenance.
 
-## <a href="https://www.amazon.com/dp/B0B8512Y27?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kitinjoy Indoor Outdoor Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0B8512Y27?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kitinjoy Indoor Outdoor Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8512Y27?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kitinjoy Indoor Outdoor Door Mat, 32x20 Non-Slip Absorbent Dirt Trapper, Low-Profile Washable Inside Entrance Front Floor Mat, Sturdy Soft Entry Doormats for Entryway, Grey" src="https://m.media-amazon.com/images/I/61EdzdmwCxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8512Y27?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kitinjoy Indoor Outdoor Door Mat, 32x20 Non-Slip Absorbent Dirt Trapper, Low-Profile Washable Inside Entrance Front Floor Mat, Sturdy Soft Entry Doormats for Entryway, Grey" src="https://m.media-amazon.com/images/I/61EdzdmwCxL._SL500_.jpg"/></a>
 
 
 The **Kitinjoy Indoor Outdoor Door Mat** is an excellent choice for homeowners and renters who want to maintain cleanliness at their entrance while adding a touch of style. Ideal for those living in high-traffic areas or households with pets and children, this mat effectively traps dirt and moisture, keeping floors spotless and safe. If you’re looking for a durable, low-maintenance, and functional door mat, this product is designed with you in mind.
@@ -126,10 +126,10 @@ The **Kitinjoy Indoor Outdoor Door Mat** features a thoughtfully designed surfac
 
 In addition, the mat’s **low-profile** design ensures that it fits snugly under doors without hindering their operation, making it a practical choice for tight spaces. The washable fabric allows for easy upkeep, meaning the mat can be refreshed regularly without much effort. Overall, this door mat combines functionality, safety, and style, making it a smart investment for anyone seeking a reliable and attractive entryway solution.
 
-## <a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Bathroom Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanly Bathroom Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Bathroom Rugs 30x20, Extra Soft Absorbent Chenille Bath Rugs, Rubber Backing Quick Dry, Machine Washable Bath Mats for Bathroom Floor, Tub and Shower, Home Decor Accessories, Grey" src="https://m.media-amazon.com/images/I/51kr9wGrijL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANLY Bathroom Rugs 30x20, Extra Soft Absorbent Chenille Bath Rugs, Rubber Backing Quick Dry, Machine Washable Bath Mats for Bathroom Floor, Tub and Shower, Home Decor Accessories, Grey" src="https://m.media-amazon.com/images/I/51kr9wGrijL._SL500_.jpg"/></a>
 
 
 The **OLANLY Bathroom Rugs 30x20** are ideal for homeowners and renters seeking a combination of comfort, functionality, and style in their bathroom decor. If you want an **extra soft**, **absorbent**, and easy-to-maintain bath mat that enhances safety and aesthetics around your tub or shower, this product is perfect for you. It suits families, individuals with sensitive feet, and anyone looking to upgrade their bathroom flooring with a durable yet cozy accessory.
@@ -152,10 +152,10 @@ The **OLANLY Bathroom Rugs** feature a plush chenille surface that is not only v
 
 Additionally, these bath rugs are designed for durability and ease of care. The ability to toss them into the washing machine means users can keep their rugs fresh and hygienic without extra hassle. Their moderate size and stylish grey color make them versatile enough to fit seamlessly into various bathroom layouts and decors, enhancing both function and aesthetic appeal. Overall, the OLANLY Bathroom Rugs offer a practical and comfortable solution for anyone looking to improve their bathroom experience with a quality, reliable bath mat.
 
-## <a href="https://www.amazon.com/dp/B0CZ3J9GFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ailyei Soft Runner Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CZ3J9GFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ailyei Soft Runner Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ3J9GFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ailyei Soft Runner Rugs for Bedroom Hallways, 2x6 Beige Fluffy Shag Throw Area Rug Non Slip for Bedside Dorm, Long Shaggy Furry Carpet for Nursery Living Room" src="https://m.media-amazon.com/images/I/51JjrTeUbwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ3J9GFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ailyei Soft Runner Rugs for Bedroom Hallways, 2x6 Beige Fluffy Shag Throw Area Rug Non Slip for Bedside Dorm, Long Shaggy Furry Carpet for Nursery Living Room" src="https://m.media-amazon.com/images/I/51JjrTeUbwL._SL500_.jpg"/></a>
 
 
 The **Ailyei Soft Runner Rugs for Bedroom Hallways** is ideal for anyone looking to add a touch of comfort and style to narrow spaces such as hallways, bedrooms, or nurseries. Perfect for homeowners, dorm residents, or parents seeking a cozy, non-slip area rug that enhances warmth and safety in frequently used walkways. If you want a soft, fluffy carpet that combines durability with aesthetic appeal, this **2x6 beige shag throw rug** is an excellent choice.
@@ -177,10 +177,10 @@ The **Ailyei Soft Runner Rug** features a plush, shaggy surface that not only en
 
 Measuring 24 inches in width and 72 inches in length, this runner rug fits perfectly in narrow spaces without overwhelming the room. Its lightweight design allows for easy repositioning and cleaning, making maintenance hassle-free. Whether placed beside the bed, in a hallway, or in a dorm room, this shaggy furry carpet brings both functional and aesthetic value, enhancing the overall ambiance of your living space.
 
-## <a href="https://www.amazon.com/dp/B0DCS3XC4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iseau Indoor Entryway 2x3 Vintage Rug</a>
+## <a href="https://www.amazon.com/dp/B0DCS3XC4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iseau Indoor Entryway 2x3 Vintage Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCS3XC4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ISEAU Indoor Entryway 2x3 Vintage Rug - Small Machine Washable Area Rug with Non-Slip Backing, Low Pile Throw Rugs for Door, Entrance, Kids Room, Classroom, Bedside, Bedroom, Kitchen" src="https://m.media-amazon.com/images/I/611AAIFdnBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCS3XC4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ISEAU Indoor Entryway 2x3 Vintage Rug - Small Machine Washable Area Rug with Non-Slip Backing, Low Pile Throw Rugs for Door, Entrance, Kids Room, Classroom, Bedside, Bedroom, Kitchen" src="https://m.media-amazon.com/images/I/611AAIFdnBL._SL500_.jpg"/></a>
 
 
 The **ISEAU Indoor Entryway 2x3 Vintage Rug** is perfect for homeowners and renters looking to add a touch of style and functionality to small spaces such as doorways, entrances, kids' rooms, classrooms, or kitchens. If you want an easy-to-maintain, durable, and aesthetically pleasing rug that fits into compact areas, this rug is an ideal choice.
@@ -203,10 +203,10 @@ The **ISEAU Indoor Entryway Vintage Rug** stands out with its **machine washable
 
 Crafted with a compact **2x3 size** and lightweight build, this rug is versatile enough to use in a variety of spaces without overwhelming the area. The **brick red vintage color** brings a cozy and elegant vibe, enhancing the aesthetic appeal of entryways, bedrooms, or kitchens. Overall, this rug combines style, safety, and easy maintenance, making it a smart addition to any small space needing a functional yet decorative floor covering.
 
-## <a href="https://www.amazon.com/dp/B01CZR2QMA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cotton Craft Cotton Chindi Rag Rug</a>
+## <a href="https://www.amazon.com/dp/B01CZR2QMA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cotton Craft Cotton Chindi Rag Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B01CZR2QMA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COTTON CRAFT Cotton Chindi Rag Rug - 2 Pack - Boho Farmhouse Rustic Area Accent Throw Rug - Handwoven Reversible Natural Recycled Yarn - Living Room Den Study Home Décor Gift -20 x 32 in - Multi Color" src="https://m.media-amazon.com/images/I/51MvhBoxIKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01CZR2QMA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COTTON CRAFT Cotton Chindi Rag Rug - 2 Pack - Boho Farmhouse Rustic Area Accent Throw Rug - Handwoven Reversible Natural Recycled Yarn - Living Room Den Study Home Décor Gift -20 x 32 in - Multi Color" src="https://m.media-amazon.com/images/I/51MvhBoxIKL._SL500_.jpg"/></a>
 
 
 The **COTTON CRAFT Cotton Chindi Rag Rug - 2 Pack** is ideal for individuals seeking a stylish yet eco-friendly addition to their home décor. Perfect for those who appreciate **boho farmhouse rustic accents** and want to enhance their living room, den, or study with a versatile, handwoven piece crafted from **natural recycled yarn**. This set is especially suited for homeowners and gift shoppers looking for durable, reversible rugs that bring warmth and texture to any space.
@@ -228,10 +228,10 @@ The **COTTON CRAFT Cotton Chindi Rag Rug** offers a distinctive blend of rustic 
 
 Designed and manufactured by **Orient Originals Inc.**, this rug’s lightweight build ensures easy handling while maintaining durability. Its boho farmhouse aesthetic complements a wide range of décor styles, making it an excellent choice for anyone looking to add warmth, texture, and character to their home or to give as a thoughtful gift.
 
-## <a href="https://www.amazon.com/dp/B092YPS21N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Finchitty Indoor Door Mat</a>
+## <a href="https://www.amazon.com/dp/B092YPS21N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Finchitty Indoor Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B092YPS21N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 20",="" alt="Finchitty Indoor Door Mat, Dirt Resistant and Absorbent, Low-Profile, Non-Slip, Washable Inside Floor Mats for Front Door, Back, and Entrance, 32" grey"="" src="https://m.media-amazon.com/images/I/61RAuIgUDNL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B092YPS21N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 20",="" alt="Finchitty Indoor Door Mat, Dirt Resistant and Absorbent, Low-Profile, Non-Slip, Washable Inside Floor Mats for Front Door, Back, and Entrance, 32" grey"="" src="https://m.media-amazon.com/images/I/61RAuIgUDNL._SL500_.jpg" x=""/></a>
 
 
 The **Finchitty Indoor Door Mat** is perfect for homeowners and renters looking to keep their entryways clean and stylish. Ideal for those who want a durable, low-profile mat that fits seamlessly inside front doors, back doors, or entrances, this mat caters to individuals who value both function and aesthetics in their home accessories. If you need a reliable, easy-to-maintain mat that handles dirt and moisture effectively, this product is a great choice.
@@ -254,10 +254,10 @@ The **Finchitty Indoor Door Mat** boasts a sleek, low-profile design measuring *
 
 Crafted with easy maintenance in mind, this mat is fully **washable**, allowing users to keep it fresh and hygienic with simple cleaning routines. The neutral **grey color** blends effortlessly with most interior styles, making it a versatile addition to any home. Lightweight at just over 1.4 pounds, it is easy to move and reposition as needed, ensuring convenience alongside its practical features.
 
-## <a href="https://www.amazon.com/dp/B0D91H3SB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Washable Entry Rug</a>
+## <a href="https://www.amazon.com/dp/B0D91H3SB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Washable Entry Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D91H3SB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Washable Entry Rug, 2x3 Small Rugs for Entryway Kitchen Bathroom Door Mat Indoor Entrance, Non Slip Rubber Backing, Stain &amp; Fade Resistant, Ashen Charcoal Floral Decor" src="https://m.media-amazon.com/images/I/61NlpU4+j9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D91H3SB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Washable Entry Rug, 2x3 Small Rugs for Entryway Kitchen Bathroom Door Mat Indoor Entrance, Non Slip Rubber Backing, Stain &amp; Fade Resistant, Ashen Charcoal Floral Decor" src="https://m.media-amazon.com/images/I/61NlpU4+j9L._SL500_.jpg"/></a>
 
 
 The **Black Washable Entry Rug** is ideal for homeowners or renters looking for a stylish yet practical solution to keep their **entryway, kitchen, or bathroom** floors clean and safe. If you want a **durable, easy-to-maintain rug** that blends well with various decor styles and offers protection against slips and stains, this rug is perfect for you.

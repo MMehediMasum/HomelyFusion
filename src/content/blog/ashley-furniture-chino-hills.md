@@ -23,10 +23,10 @@ The collection also includes a five-drawer chest in a charming chipped white fin
 
 
 
-## <a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
+## <a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Distressed Dining Room Buffet Cabinet Or Server</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMT815?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMT815?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server, Chipped White" src="https://m.media-amazon.com/images/I/41h7THBRXqL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Distressed Dining Room Buffet Cabinet or Server** in **Chipped White** is ideal for homeowners looking to enhance their dining space with a piece that combines rustic charm and functional storage. Perfect for those who appreciate **French country style** and need an elegant yet practical solution to organize dining essentials, this buffet cabinet suits both traditional and farmhouse-inspired interiors.
@@ -47,10 +47,10 @@ The **buffet cabinet's design** features a distressed whitewash color that beaut
 
 Constructed with quality materials by Signature Design by Ashley, this cabinet promises durability and stability, even with frequent use. Its thoughtfully designed layout allows easy access to stored items, enhancing the dining experience by keeping everything organized and within reach. The distressed finish adds warmth and character, making it more than just a storage unit—it becomes a charming focal point that complements your home's overall décor.
 
-## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
+## <a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country 7 Drawer Two Tone Dresser</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGMQ8LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser, Chipped White" src="https://m.media-amazon.com/images/I/4106-TbKR3L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country 7 Drawer Two Tone Dresser** in **Chipped White** is ideal for individuals seeking a stylish and functional storage solution that complements a classic or rustic decor. Perfect for homeowners or renters who appreciate the charm of French country design, this dresser suits those who want to combine elegance with practicality in their bedroom or living space.
@@ -73,10 +73,10 @@ Crafted by **Ashley Furniture**, this dresser combines functionality with aesthe
 
 Its sturdy build and balanced dimensions ensure that it occupies space without overwhelming it, making it suitable for bedrooms of various sizes. The dresser’s design also emphasizes durability, so users can enjoy long-lasting use. Overall, this piece is a smart investment for those who value both style and practicality in their furniture choices.
 
-## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
+## <a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Realyn French Country Two Tone 5 Drawer Chest Of Drawers</a>
 
 
-<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KGLKXQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers, Chipped White" src="https://m.media-amazon.com/images/I/41qzJmpEU+L._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Realyn French Country Two Tone 5 Drawer Chest of Drawers** in **Chipped White** is ideal for homeowners and interior enthusiasts looking to add a charming, rustic touch to their living space. This piece is perfect for those who appreciate a blend of classic French country style with practical storage solutions, making it suitable for bedrooms, hallways, or even living rooms. If you want a versatile and elegant chest that complements various decor themes, this item is a great choice.
@@ -99,10 +99,10 @@ Crafted by the trusted **Signature Design by Ashley** brand, this chest of drawe
 
 The **two tone chipped white finish** beautifully enhances the French country charm, creating a warm and inviting atmosphere. This finish not only adds visual interest but also helps to mask minor wear over time. The sturdy build ensures the chest remains a reliable storage solution, while its elegant design elevates any room’s décor, making it a worthwhile investment for those seeking both style and utility.
 
-## <a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Keerwick Scandinavian Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Keerwick Scandinavian Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Keerwick Scandinavian Sofa with 4 Toss Pillows, Blue" src="https://m.media-amazon.com/images/I/41U95SoUbwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Keerwick Scandinavian Sofa with 4 Toss Pillows, Blue" src="https://m.media-amazon.com/images/I/41U95SoUbwL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Keerwick Scandinavian Sofa** with 4 toss pillows in **Blue** is ideal for individuals seeking a stylish yet comfortable seating solution that complements modern and Scandinavian-inspired interiors. This sofa is perfect for homeowners, apartment dwellers, or anyone looking to elevate their living space with a durable and aesthetically pleasing furniture piece. If you value both form and function, this sofa offers an excellent balance of design and comfort.
@@ -125,10 +125,10 @@ The **Signature Design by Ashley Keerwick Scandinavian Sofa** boasts a sleek and
 
 Measuring 39 inches in height and 41 inches in depth, this sofa strikes a perfect balance between spaciousness and compactness, suitable for living rooms, offices, or guest areas. The vibrant blue upholstery adds a refreshing pop of color, energizing your space while maintaining a sophisticated look. Overall, this piece delivers both aesthetic appeal and functional benefits, making it an excellent choice for those who want to enhance their home environment with a reliable and chic seating option.
 
-## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Karinne Coastal Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLF82KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White" src="https://m.media-amazon.com/images/I/41M5-6eyKgL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Karinne Coastal Sofa with Non-skid Legs, White** is ideal for individuals seeking a stylish yet practical seating solution for their living room or coastal-themed space. Perfect for homeowners who appreciate a clean, modern aesthetic combined with functional features, this sofa suits those who want durable furniture that complements bright, airy interiors.

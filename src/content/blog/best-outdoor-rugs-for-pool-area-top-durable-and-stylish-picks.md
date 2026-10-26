@@ -23,10 +23,10 @@ Rugs also add comfort and a cozy look to hard pool decks. Some designs bring col
 
 
 
-## <a href="https://www.amazon.com/dp/B0DSL3WQSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tinideya Poolside Non Slip Mat</a>
+## <a href="https://www.amazon.com/dp/B0DSL3WQSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tinideya Poolside Non Slip Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSL3WQSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 47.24")"="" alt="Tinideya Poolside Non Slip Mat Walk Pool Mats for Floor Outdoor Rubber Mats with Drainage Outdoor and Indoor Dock Safety Pool Mat(Teal,23.62" src="https://m.media-amazon.com/images/I/51RtRnCbcWL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0DSL3WQSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 47.24")"="" alt="Tinideya Poolside Non Slip Mat Walk Pool Mats for Floor Outdoor Rubber Mats with Drainage Outdoor and Indoor Dock Safety Pool Mat(Teal,23.62" src="https://m.media-amazon.com/images/I/51RtRnCbcWL._SL500_.jpg" x=""/></a>
 
 
 The **Tinideya Poolside Non Slip Mat** is ideal for homeowners and facility managers seeking a reliable and safe solution for wet and slippery surfaces around pools, docks, and outdoor walkways. If you want to enhance safety while adding a stylish touch to your outdoor or indoor areas, this **rubber mat** with drainage capabilities is a perfect choice.
@@ -49,10 +49,10 @@ The **Tinideya Poolside Non Slip Mat** features a thoughtfully designed surface 
 
 Measuring approximately **24 inches wide** and **48 inches long**, this mat provides ample coverage for busy poolside areas, docks, or indoor wet zones. Its moderate thickness of **2.95 inches** offers comfort underfoot while maintaining stability. The vibrant **teal color** not only enhances safety by increasing visibility but also complements various outdoor decors, making it a functional and attractive safety accessory.
 
-## <a href="https://www.amazon.com/dp/B0CTMS9JZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pusetaer Front Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CTMS9JZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pusetaer Front Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTMS9JZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PuseTaer Front Door Mat Funny Poolside Flip Flops Indoor Outdoor Area Mat Multi Welcome Mats for Front Door Doormat Non Slip Mat for Porch Home Indoor Funny Kitchen Mats 18x30inch" src="https://m.media-amazon.com/images/I/51rE5b0ip-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTMS9JZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PuseTaer Front Door Mat Funny Poolside Flip Flops Indoor Outdoor Area Mat Multi Welcome Mats for Front Door Doormat Non Slip Mat for Porch Home Indoor Funny Kitchen Mats 18x30inch" src="https://m.media-amazon.com/images/I/51rE5b0ip-L._SL500_.jpg"/></a>
 
 
 The **PuseTaer Front Door Mat Funny Poolside Flip Flops** is ideal for homeowners or renters looking to add a touch of humor and personality to their entryway. This **multi welcome mat** is perfect for those who want a durable, **non slip mat** that works well both **indoor and outdoor**, especially near pools, porches, or kitchens. If you seek a functional yet entertaining doormat that keeps your floors clean while welcoming guests, this mat suits your needs perfectly.
@@ -74,10 +74,10 @@ The **PuseTaer Front Door Mat** features a humorous poolside flip flop graphic i
 
 In addition to its fun appearance, this mat is highly practical. It is designed by the reputable **PuseTaer** brand, ensuring quality and durability. Its size of **18 by 30 inches** makes it a perfect fit for various spaces, from porch entrances to indoor kitchens. Whether you're protecting your floors from wet shoes or just want to greet guests with a smile, this mat provides both function and flair.
 
-## <a href="https://www.amazon.com/dp/B0876W1LQH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nourison Home Positano Aqua Fabric Modern Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0876W1LQH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nourison Home Positano Aqua Fabric Modern Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0876W1LQH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nourison Home Positano 8' x 10' Aqua Fabric Modern Area Rug (8' x 10')" src="https://m.media-amazon.com/images/I/51vgMygKbiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0876W1LQH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nourison Home Positano 8' x 10' Aqua Fabric Modern Area Rug (8' x 10')" src="https://m.media-amazon.com/images/I/51vgMygKbiL._SL500_.jpg"/></a>
 
 
 The **Nourison Home Positano 8' x 10' Aqua Fabric Modern Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a splash of color and contemporary style to their living spaces. Perfect for those who appreciate both aesthetics and functionality, this rug suits anyone wanting to enhance their room’s ambiance with a durable and visually appealing floor covering.
@@ -100,10 +100,10 @@ The **Nourison Home Positano 8' x 10' Aqua Fabric Modern Area Rug** boasts a vib
 
 With a low profile height of 0.25 inches, this rug is practical for rooms with high foot traffic or where furniture needs to sit firmly on the floor without causing imbalance. Manufactured by **Nourison**, a trusted name in home textiles, it promises durability and long-lasting appeal. Overall, this rug offers a stylish and functional solution for those looking to elevate their home décor with a splash of color and contemporary flair.
 
-## <a href="https://www.amazon.com/dp/B07T7L441K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07T7L441K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07T7L441K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug, Bohemian, Rustic, Scandinavian Easy, Bedroom,Kitchen,Backyard,Patio,Non Shedding, Natural/Black, 8 X 10" src="https://m.media-amazon.com/images/I/61QsxfIfjBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T7L441K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Indoor Outdoor Area Rug, Bohemian, Rustic, Scandinavian Easy, Bedroom,Kitchen,Backyard,Patio,Non Shedding, Natural/Black, 8 X 10" src="https://m.media-amazon.com/images/I/61QsxfIfjBL._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a versatile and stylish rug that complements both indoor and outdoor spaces, the **JONATHAN Y SMB108D-8 Ourika Moroccan Geometric Textured Weave Area Rug** is perfect for homeowners wanting to add a touch of **Bohemian, Rustic, and Scandinavian** charm to bedrooms, kitchens, patios, or backyards. This rug suits individuals who value durability, easy maintenance, and a non-shedding design in an attractive size of **8 x 10 feet**.
@@ -125,10 +125,10 @@ The **JONATHAN Y SMB108D-8 Ourika Rug** boasts a unique **Moroccan geometric tex
 
 Constructed with durability in mind, this rug is designed for both **indoor and outdoor environments**, providing flexibility for use in bedrooms, kitchens, patios, or backyards. Its **non-shedding** feature ensures minimal mess and easy upkeep, while the lightweight build allows for effortless relocation or cleaning. Overall, this rug delivers a blend of aesthetic charm and practical functionality for modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B00PP4RFCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nourison Aloha Indoor/outdoor Multicolor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B00PP4RFCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nourison Aloha Indoor/outdoor Multicolor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B00PP4RFCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (8x10)"="" 10'6"="" alt="Nourison Aloha Indoor/Outdoor Multicolor 7'10" area="" backyard,="" bed="" botanical,="" clean,="" deck,="" dining="" easy="" living="" non="" patio="" room,="" rug,="" shedding,="" src="https://m.media-amazon.com/images/I/5107tTF0NxL._SL500_.jpg" tropical,="" x=""/></a>
+<a href="https://www.amazon.com/dp/B00PP4RFCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (8x10)"="" 10'6"="" alt="Nourison Aloha Indoor/Outdoor Multicolor 7'10" area="" backyard,="" bed="" botanical,="" clean,="" deck,="" dining="" easy="" living="" non="" patio="" room,="" rug,="" shedding,="" src="https://m.media-amazon.com/images/I/5107tTF0NxL._SL500_.jpg" tropical,="" x=""/></a>
 
 
 The **Nourison Aloha Indoor/Outdoor Multicolor Area Rug** is ideal for homeowners and renters looking to enhance their living spaces with a vibrant, tropical touch. Perfect for those who want a durable yet stylish rug that works well in both indoor and outdoor settings such as bedrooms, living rooms, dining rooms, decks, backyards, and patios. If you need an easy-to-clean, non-shedding rug that adds a botanical flair to your décor, this rug is a great choice.
@@ -151,10 +151,10 @@ The **Nourison Aloha Area Rug** combines style and functionality through its vib
 
 Designed with versatility in mind, this rug’s ability to function well both indoors and outdoors allows users to seamlessly transition their décor from living rooms to patios or decks. The non-shedding fabric ensures minimal mess, while the relatively lightweight construction makes it easy to lift or reposition when needed. Overall, the Nourison Aloha Area Rug offers a practical yet visually appealing solution for those seeking a tropical vibe without compromising on convenience or durability.
 
-## <a href="https://www.amazon.com/dp/B0F31S123Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camilson Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B0F31S123Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camilson Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F31S123Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAMILSON Outdoor Rug, 5x7 Bordered Navy Blue Gray Modern Area Rugs for Indoor and Outdoor Patios, Porches Waterproof Washable Porch Deck Outside Carpet (Bordered Navy, 5 x 7)" src="https://m.media-amazon.com/images/I/612NyDWzCFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F31S123Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAMILSON Outdoor Rug, 5x7 Bordered Navy Blue Gray Modern Area Rugs for Indoor and Outdoor Patios, Porches Waterproof Washable Porch Deck Outside Carpet (Bordered Navy, 5 x 7)" src="https://m.media-amazon.com/images/I/612NyDWzCFL._SL500_.jpg"/></a>
 
 
 The **CAMILSON Outdoor Rug** in **Bordered Navy Blue** is ideal for homeowners and outdoor enthusiasts looking to enhance their patios, porches, or decks with a durable and stylish floor covering. If you want a **waterproof** and **washable** rug that can withstand outdoor elements while adding a modern touch to your space, this 5x7 area rug is a perfect choice. It suits anyone who values both functionality and aesthetic appeal in outdoor decor.
@@ -176,10 +176,10 @@ The **CAMILSON Outdoor Rug** features a sturdy build with a thickness of 1.25 in
 
 Additionally, the rug is washable, allowing for easy upkeep to keep it looking fresh and new. The 5 x 7 size offers ample coverage, making it perfect for medium-sized patios, porches, or decks. Whether you’re hosting gatherings or enjoying a quiet morning outside, this rug adds both style and practicality, elevating your outdoor experience with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B088CR5P8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom 4' X 6' Outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B088CR5P8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom 4' X 6' Outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B088CR5P8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM 4' x 6' Outdoor Area Rug, Casual Design With Striped Border, Stain Resistant, Highly Durable, For Patio, Balcony, Bedroom, Living Room, Dining Room, Bathroom, Dark Grey" src="https://m.media-amazon.com/images/I/51Ly++pTCqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088CR5P8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM 4' x 6' Outdoor Area Rug, Casual Design With Striped Border, Stain Resistant, Highly Durable, For Patio, Balcony, Bedroom, Living Room, Dining Room, Bathroom, Dark Grey" src="https://m.media-amazon.com/images/I/51Ly++pTCqL._SL500_.jpg"/></a>
 
 
 The **nuLOOM 4' x 6' Outdoor Area Rug** is ideal for homeowners or renters looking to enhance their outdoor or indoor spaces with a stylish yet practical floor covering. Perfect for those who want a **durable**, **stain-resistant** rug that can handle high-traffic areas such as patios, balconies, living rooms, and dining rooms, this rug suits anyone seeking an easy-to-maintain and visually appealing addition to their home decor.
@@ -202,10 +202,10 @@ The **nuLOOM Outdoor Area Rug** features a low profile with a height of only 0.4
 
 Constructed by **nuLOOM**, a trusted manufacturer known for quality rugs, this item offers both style and function. The **dark grey color** provides a neutral base that complements various color schemes while hiding dirt between cleanings. Whether placed in a bedroom, bathroom, or outdoor patio, the rug’s durable material stands up well to weather elements and foot traffic, ensuring it remains a reliable and attractive feature of your home for years to come.
 
-## <a href="https://www.amazon.com/dp/B01B9AHI4K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Courtyard Collection Runner Rug</a>
+## <a href="https://www.amazon.com/dp/B01B9AHI4K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Courtyard Collection Runner Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B01B9AHI4K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 8'="" alt="SAFAVIEH Courtyard Collection 2'3" aqua="" backyard="" cy8520="" easy-cleaning="" indoor-outdoor="" mudroom="" patio="" runner-rug"="" src="https://m.media-amazon.com/images/I/61AOBOvVN5L._SL500_.jpg" waterproof="" x=""/></a>
+<a href="https://www.amazon.com/dp/B01B9AHI4K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 8'="" alt="SAFAVIEH Courtyard Collection 2'3" aqua="" backyard="" cy8520="" easy-cleaning="" indoor-outdoor="" mudroom="" patio="" runner-rug"="" src="https://m.media-amazon.com/images/I/61AOBOvVN5L._SL500_.jpg" waterproof="" x=""/></a>
 
 
 The **SAFAVIEH Courtyard Collection 2'3" x 8' Aqua CY8520** is an ideal choice for homeowners looking to enhance their indoor or outdoor spaces with a stylish, durable, and easy-to-maintain runner rug. Perfect for those who want to add a splash of color and functionality to patios, backyards, mudrooms, or hallways, this rug suits anyone seeking a waterproof and easy-cleaning solution that combines aesthetics with practicality.
@@ -228,10 +228,10 @@ The **SAFAVIEH Courtyard Collection runner rug** features a waterproof surface t
 
 Measuring **27 inches wide and 8 feet long**, this runner fits snugly in narrow spaces without overwhelming the area. The vibrant **Aqua** color adds a refreshing touch to your decor, brightening the surroundings while complementing various design styles. At just 7 pounds, the rug is easy to move or reposition as needed, offering flexibility in how you use your space. Overall, this rug blends functionality with style, making it a smart investment for anyone looking to upgrade their indoor or outdoor flooring with minimal fuss.
 
-## <a href="https://www.amazon.com/dp/B0BWDJPVJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uniboho Outdoor Rubber Floor Mats Anti Slip Restaurant Commercial Kitchen Mat</a>
+## <a href="https://www.amazon.com/dp/B0BWDJPVJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uniboho Outdoor Rubber Floor Mats Anti Slip Restaurant Commercial Kitchen Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWDJPVJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Uniboho Outdoor Rubber Floor Mats Anti Slip Restaurant Commercial Kitchen Mat Rubber Drainage Mat 60 x 35 Heavy Duty Door Mat for Garage Garden Indoor Outside Industral Pool Entrance Bar Wet Area" src="https://m.media-amazon.com/images/I/51AKte2YVaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWDJPVJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Uniboho Outdoor Rubber Floor Mats Anti Slip Restaurant Commercial Kitchen Mat Rubber Drainage Mat 60 x 35 Heavy Duty Door Mat for Garage Garden Indoor Outside Industral Pool Entrance Bar Wet Area" src="https://m.media-amazon.com/images/I/51AKte2YVaL._SL500_.jpg"/></a>
 
 
 The **Uniboho Outdoor Rubber Floor Mats** are ideal for individuals and businesses seeking a durable and reliable anti-slip mat solution. Perfect for commercial kitchens, restaurants, garages, gardens, and wet areas such as pool entrances and bars, this mat is designed for those who need heavy-duty protection against slips and spills in high-traffic or moisture-prone environments. If you want to enhance safety and cleanliness in both indoor and outdoor spaces, this mat is an excellent choice.
@@ -254,10 +254,10 @@ The **Uniboho Rubber Drainage Mat** features a smart design that incorporates dr
 
 Additionally, the mat’s robust rubber material delivers excellent durability against heavy foot traffic and harsh conditions, making it suitable for both indoor and outdoor usage. Its sizeable dimensions of 60 by 35 inches cover a broad area, offering protection at entrances and work zones. Whether you need a dependable mat for a restaurant kitchen, a garage floor, or a garden pathway, this mat combines practicality with safety, ensuring it meets the demands of diverse settings.
 
-## <a href="https://www.amazon.com/dp/B09NLM3M6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug</a>
+## <a href="https://www.amazon.com/dp/B09NLM3M6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montvoo Outdoor Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09NLM3M6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo-Outdoor Rug Waterproof 6x9 ft Outdoor Carpet Patio Rug Mat Reversible RV Camping Rug-Plastic Straw Rug Outside Outdoor Area Rug for Patio Deck Balcony Backyard Picnic Beach -Boho Grey" src="https://m.media-amazon.com/images/I/61QlJH1ZfmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NLM3M6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MontVoo-Outdoor Rug Waterproof 6x9 ft Outdoor Carpet Patio Rug Mat Reversible RV Camping Rug-Plastic Straw Rug Outside Outdoor Area Rug for Patio Deck Balcony Backyard Picnic Beach -Boho Grey" src="https://m.media-amazon.com/images/I/61QlJH1ZfmL._SL500_.jpg"/></a>
 
 
 The **MontVoo-Outdoor Rug Waterproof 6x9 ft** is ideal for individuals who enjoy spending time outdoors and want to enhance their patio, deck, balcony, or backyard space with a stylish yet practical accessory. This **reversible RV camping rug** suits campers, picnic lovers, and beachgoers looking for a durable, easy-to-clean, and weather-resistant **outdoor carpet** that combines functionality with boho chic design.

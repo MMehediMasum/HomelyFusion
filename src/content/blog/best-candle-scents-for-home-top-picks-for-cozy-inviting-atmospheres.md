@@ -23,10 +23,10 @@ Men often prefer leather, smoke, or mahogany fragrances that add depth. Long-las
 
 
 
-## <a href="https://www.amazon.com/dp/B0F3DS9VN9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Large Jar Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0F3DS9VN9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Large Jar Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3DS9VN9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Large Jar Scented Candle with up to 150 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 22 oz Jar Candle with Room Filling Fragrance, Home Sweet Home" src="https://m.media-amazon.com/images/I/41XeUxievsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3DS9VN9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Large Jar Scented Candle with up to 150 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 22 oz Jar Candle with Room Filling Fragrance, Home Sweet Home" src="https://m.media-amazon.com/images/I/41XeUxievsL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Large Jar Scented Candle** is ideal for individuals who love to create a warm and inviting atmosphere in their homes. This candle is perfect for those who appreciate long-lasting fragrances and are looking for a high-quality product that fills rooms with delightful scents. If you enjoy relaxing evenings, cozy gatherings, or simply enhancing your living space with a soothing aroma, this **22 oz jar candle** is an excellent choice.
@@ -49,10 +49,10 @@ The **Yankee Candle Large Jar Scented Candle** stands out due to its impressive 
 
 Designed with an elegant **pink jar**, this candle adds a touch of style to any room, enhancing both the visual and sensory experience. The quality craftsmanship from **Newell Brands** under the **Yankee Candle** name assures users of a premium product that combines aesthetics with functionality. Whether used during quiet evenings, social gatherings, or as a decorative accent, this candle offers a harmonious blend of fragrance, design, and performance.
 
-## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
+## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
 
 
-<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar** is perfect for individuals seeking a calming and elegant ambiance in their living space. Ideal for those who appreciate soothing fragrances and want to create a peaceful environment, this candle suits anyone looking to enhance relaxation at home or in an office setting. It’s especially beneficial for people who enjoy aromatherapy or want to add a stylish yet functional decor piece to their coffee table or countertop.
@@ -75,10 +75,10 @@ This **3-wick coffee table jar candle** is designed to fill your space with a de
 
 Crafted by **Chesapeake Bay Candle**, a brand renowned for quality scented candles, this product offers long-lasting burn time and consistent scent release. The elegant **Peace + Tranquility** color adds a touch of sophistication, making it suitable for various interior styles. Whether you want to unwind after a busy day or create a welcoming atmosphere for guests, this candle delivers both aesthetic appeal and functional benefits.
 
-## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Vanilla Apple</a>
+## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Vanilla Apple</a>
 
 
-<a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
 
 
 The **Village Candle Spiced Vanilla Apple** in a large glass apothecary jar is perfect for individuals who love cozy, inviting fragrances in their living spaces. Ideal for those who enjoy seasonal aromas or want to create a warm atmosphere during the fall and winter months, this candle suits homeowners, gift shoppers, and candle enthusiasts looking for a high-quality, long-lasting scented candle.
@@ -100,10 +100,10 @@ This **Village Candle Spiced Vanilla Apple** features a beautifully designed lar
 
 Its elegant **ivory** jar adds a touch of sophistication to any room, blending seamlessly with various decor styles. Additionally, the trusted **Village Candle** brand guarantees quality craftsmanship and use of premium ingredients, which means this candle burns cleanly and consistently. Whether used as a centerpiece or a gift, this candle enhances the ambiance and invites a sense of warmth and comfort to any space.
 
-## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC5Q5QRR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles Set | Men Candle Set, Scented Candles for Home, Gifts for Men Aromatherapy Gift Set - 4 Pack Manly Gifts for Dad Fathers Day, Soy Candle of Leather/Smoke &amp; Vanilla/Oak/Lavender" src="https://m.media-amazon.com/images/I/41Z-9f8B87L._SL500_.jpg"/></a>
 
 
 The **Scented Candles Set | Men Candle Set** is perfect for anyone looking to add a touch of sophistication and warmth to their living space or to give a thoughtful, masculine gift. Ideal for men who appreciate subtle aromatherapy, this set is especially suited for **dads**, husbands, or friends who enjoy unique and relaxing scents in their home environment. Whether for **Father’s Day** or any special occasion, these candles offer a refined sensory experience tailored for men.
@@ -125,10 +125,10 @@ The **Auelife Scented Candles Set** features a carefully curated blend of mascul
 
 Beyond aesthetics, these candles provide a calming ambiance and can transform any room into a cozy retreat. The variety of scents caters to different moods and preferences, from the earthy richness of oak to the soothing lavender. This versatility means users can easily switch between scents depending on their mood or the setting, enhancing relaxation or focus. Overall, this set offers both functional benefits and stylish appeal, making it a thoughtful and practical gift for men who appreciate quality and fragrance.
 
-## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
+## <a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lulu Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07J5S5Z9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lulu Candles | Jasmine, Oud &amp; Sandalwood | Luxury Scented Soy Jar Candle | Hand Poured in The USA | Highly Scented &amp; Long Lasting (9 Oz.)" src="https://m.media-amazon.com/images/I/414mUJ1MuuL._SL500_.jpg"/></a>
 
 
 The **Lulu Candles | Jasmine, Oud & Sandalwood | Luxury Scented Soy Jar Candle** is ideal for individuals who appreciate a sophisticated and long-lasting fragrance experience in their living or working spaces. Perfect for those who seek a blend of **luxury scented** ambiance with natural, hand-poured quality, this candle suits anyone looking to enhance relaxation, meditation, or home décor with an elegant aroma.
@@ -151,10 +151,10 @@ This **luxury scented soy jar candle** combines the natural elegance of **Jasmin
 
 Crafted with attention to detail and care, this candle is **hand poured in the USA**, reflecting a commitment to quality and artisanal standards. Its compact yet elegant size makes it perfect for both personal relaxation spaces and stylish home décor accents. Users will appreciate how the rich scent profile envelops their surroundings, creating a calming and inviting environment ideal for unwinding after a long day or setting a serene mood for guests.
 
-## <a href="https://www.amazon.com/dp/B0CW5ZVKSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aoovoo Scented Candles For Men</a>
+## <a href="https://www.amazon.com/dp/B0CW5ZVKSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aoovoo Scented Candles For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW5ZVKSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOVOO Scented Candles for Men - 4 Pack Candles for Home Scented, 36oz Soy Wax, 200 Hour Burn Time, Men Candle Set, Sandalwood Oud/Mahogany Teakwood/Smoke Vanilla/Jasmine Candle Set A" src="https://m.media-amazon.com/images/I/51QL0pqsneL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW5ZVKSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AOOVOO Scented Candles for Men - 4 Pack Candles for Home Scented, 36oz Soy Wax, 200 Hour Burn Time, Men Candle Set, Sandalwood Oud/Mahogany Teakwood/Smoke Vanilla/Jasmine Candle Set A" src="https://m.media-amazon.com/images/I/51QL0pqsneL._SL500_.jpg"/></a>
 
 
 The **AOOVOO Scented Candles for Men - 4 Pack** are perfect for individuals who appreciate a sophisticated and masculine ambiance in their living or working spaces. Ideal for men looking to enhance their home environment with rich, long-lasting aromas, these candles are also great gifts for those who enjoy premium scented products that combine style and functionality.
@@ -176,10 +176,10 @@ The **AOOVOO Scented Candles for Men** feature a carefully selected blend of fra
 
 These candles are crafted with durability and style in mind. The **200-hour burn time** ensures that users get excellent value, while the sleek black container adds a touch of masculinity and sophistication. Whether used during a quiet evening, for meditation, or to set the mood for social gatherings, the AOOVOO candle set provides both ambiance and aroma, making it a versatile addition to any man's home.
 
-## <a href="https://www.amazon.com/dp/B0CC98RMFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Auelife Fall Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0CC98RMFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Auelife Fall Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC98RMFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Auelife Fall Candle Set | 4 Pack Scented Candles for Home - Candle Gifts for Women Men, Soy Candles Home Scented | Autumn Fragrance of - Apple Pie/Cinnamon/Harvest/Wreath" src="https://m.media-amazon.com/images/I/51v6Tp8kPXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC98RMFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Auelife Fall Candle Set | 4 Pack Scented Candles for Home - Candle Gifts for Women Men, Soy Candles Home Scented | Autumn Fragrance of - Apple Pie/Cinnamon/Harvest/Wreath" src="https://m.media-amazon.com/images/I/51v6Tp8kPXL._SL500_.jpg"/></a>
 
 
 The **Auelife Fall Candle Set** is perfect for anyone looking to create a warm and inviting atmosphere in their home during the autumn season. Ideal for both women and men who appreciate high-quality, aromatic candles, this set is especially suited for those who enjoy cozying up with seasonal fragrances like **Apple Pie**, **Cinnamon**, **Harvest**, and **Wreath**. It also makes a thoughtful gift for friends or family who love home décor and scented candles.
@@ -202,10 +202,10 @@ The **Auelife Fall Candle Set** features beautifully crafted candles housed in e
 
 These candles not only fill your home with delightful aromas but also add a charming decorative touch. Their compact size makes them versatile for use in living rooms, bedrooms, or bathrooms without overwhelming the space. Additionally, the set makes an excellent gift option, combining practicality with seasonal festivity, perfect for anyone looking to enhance their home’s comfort and style during the fall months.
 
-## <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hotel Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hotel Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hotel Scented Candles Set, 6 Pack Candles for Home Scented, Luxury Aromatherapy Jar Candle Gifts for Men &amp; Women, Natural Soy Wax Long Lasting Candle Kit for Fathers Day, Birthday, Christmas" src="https://m.media-amazon.com/images/I/41rrquhS2eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hotel Scented Candles Set, 6 Pack Candles for Home Scented, Luxury Aromatherapy Jar Candle Gifts for Men &amp; Women, Natural Soy Wax Long Lasting Candle Kit for Fathers Day, Birthday, Christmas" src="https://m.media-amazon.com/images/I/41rrquhS2eL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate a touch of **luxury aromatherapy** in their living spaces, the **Hotel Scented Candles Set** by **Hanolly** is perfect for individuals seeking a premium, long-lasting fragrance experience. Whether you're shopping for a thoughtful gift for **men and women** on special occasions like **Father’s Day, birthdays, or Christmas**, or looking to elevate your home ambiance, this set offers a sophisticated solution.
@@ -227,10 +227,10 @@ The **Hotel Scented Candles Set** features premium-quality **natural soy wax** t
 
 Each candle delivers a rich, balanced fragrance that fills the room without overwhelming the senses, making it ideal for relaxation, meditation, or simply enhancing the atmosphere during gatherings. Additionally, the set’s thoughtful design and presentation make it an excellent gift choice, combining practicality with luxury for occasions like **Father’s Day**, birthdays, or Christmas celebrations.
 
-## <a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fissiworx Vanilla Scented Candle Set 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY225YND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY225YND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fissiworx Vanilla Scented Candle Set 2 Pack, Candle for Home Scented, Odor Eliminating, Stress Relief, total15oz, 110 Hours Long Lasting Candles, Soy Candle Gift Set for Women" src="https://m.media-amazon.com/images/I/511PX2U2ayL._SL500_.jpg"/></a>
 
 
 The **Fissiworx Vanilla Scented Candle Set 2 Pack** is ideal for individuals seeking a soothing and aromatic ambiance in their home. Perfect for those who enjoy relaxation, stress relief, and eliminating unwanted odors, this set is especially suitable for women looking for a thoughtful and elegant gift or anyone who appreciates long-lasting, natural **soy candles**.
@@ -252,10 +252,10 @@ The **Fissiworx Vanilla Scented Candle Set** features high-quality soy wax that 
 
 Each candle’s compact size and elegant design make it a beautiful addition to any room, from living rooms to bedrooms. The extensive burn time of **110 hours** means you can enjoy the soothing scent for weeks without frequent replacements. Additionally, the set is thoughtfully packaged, making it a perfect gift option for women who appreciate both style and functionality in home scent products.
 
-## <a href="https://www.amazon.com/dp/B0D3GXYMTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles For Home Scented Aromatherapy Candles</a>
+## <a href="https://www.amazon.com/dp/B0D3GXYMTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles For Home Scented Aromatherapy Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3GXYMTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles for Home Scented Aromatherapy Candles, 4 Pack 28 Oz Soy Wax Candle Gift Set for Women Men (Lemon Lavender/Vanilla Sugar/Sandalwood Rose/Moroccan Amber)" src="https://m.media-amazon.com/images/I/51+EDb7gFUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3GXYMTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles for Home Scented Aromatherapy Candles, 4 Pack 28 Oz Soy Wax Candle Gift Set for Women Men (Lemon Lavender/Vanilla Sugar/Sandalwood Rose/Moroccan Amber)" src="https://m.media-amazon.com/images/I/51+EDb7gFUL._SL500_.jpg"/></a>
 
 
 The **Scented Candles for Home** are perfect for anyone looking to enhance their living space with soothing aromas. Ideal for both **men and women** who appreciate the benefits of **aromatherapy**, this 4-pack set offers a variety of fragrances to suit different moods and occasions. Whether you want to create a calming atmosphere in your bedroom or add a warm, inviting scent to your living room, these **soy wax candles** provide a natural and long-lasting solution.

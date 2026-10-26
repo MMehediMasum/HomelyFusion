@@ -23,10 +23,10 @@ Colors like blue, grey, and gold offer versatile options to match your decor. Th
 
 
 
-## <a href="https://www.amazon.com/dp/B07B7MQ99K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7MQ99K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7MQ99K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61vw8xMAEpL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7MQ99K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61vw8xMAEpL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Danica Transitional Geometric Indoor/Outdoor Area Rug** in **Blue/Grey** is ideal for homeowners and outdoor enthusiasts looking to enhance their living spaces with a stylish yet durable floor covering. This rug is perfect for those who want a versatile piece that complements both indoor and outdoor environments, offering a blend of aesthetic appeal and practical functionality. If you seek a rug that withstands the elements while adding a modern geometric touch to your patio, porch, or living room, this is an excellent choice.
@@ -50,10 +50,10 @@ Featuring a transitional geometric pattern, the **Nicole Miller New York Patio C
 
 Crafted by **Town & Country Living** under the reputable Nicole Miller New York brand, this rug offers a lightweight and easy-to-handle solution for busy households. The 0.4-inch thickness strikes a balance between durability and comfort, making it ideal for high-traffic areas without feeling cumbersome. Its resilience to outdoor conditions means it can withstand exposure to sun and moisture, extending its usability beyond traditional indoor rugs. This combination of aesthetic appeal and practical benefits makes it a smart investment for anyone looking to elevate their home's ambiance.
 
-## <a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61d3ZS8bUUL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7LXKCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/61d3ZS8bUUL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Calla Contemporary Herringbone Indoor/Outdoor Area Rug** in **Blue/Grey** is perfect for homeowners and decorators looking to enhance both indoor and outdoor living spaces with a stylish yet durable flooring option. Ideal for those who want a sophisticated design that complements modern and traditional decor, this rug suits patios, sunrooms, and living areas where comfort and aesthetics are equally important.
@@ -75,10 +75,10 @@ The **Nicole Miller New York Patio Country Calla Rug** features a contemporary h
 
 With dimensions of **7'9"x10'2"** and a slim profile of **0.4 inches**, this rug fits comfortably under furniture and is easy to maintain. The blend of **blue and grey hues** provides a calming, neutral base that pairs well with various color schemes, enhancing the overall ambiance. Whether you want to create a cozy outdoor seating area or add texture to your indoor flooring, this rug offers both aesthetic appeal and practical benefits.
 
-## <a href="https://www.amazon.com/dp/B07B7MKTB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Azalea Transitional Medallion Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7MKTB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Country Azalea Transitional Medallion Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7MKTB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug, Grey/Black, 7'9" src="https://m.media-amazon.com/images/I/61+-ybobsWL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7MKTB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug, Grey/Black, 7'9" src="https://m.media-amazon.com/images/I/61+-ybobsWL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Country Azalea Transitional Medallion Indoor/Outdoor Area Rug** in **Grey/Black** is ideal for homeowners and decorators seeking a versatile and stylish rug that seamlessly blends indoor comfort with outdoor durability. Perfect for those who want to enhance their living spaces, patios, or decks with an elegant yet practical floor covering, this rug suits anyone looking for a high-quality, weather-resistant area rug that adds a touch of sophistication.
@@ -101,10 +101,10 @@ Crafted by **Nicole Miller New York** and manufactured by **Home Dynamix**, this
 
 With a thickness of just **0.4 inches**, this rug provides a comfortable surface while allowing furniture to sit securely without wobbling. The **grey and black color palette** not only hides dirt and stains effectively but also coordinates effortlessly with a wide range of color schemes. At nearly 8 by 10 feet, it offers ample coverage for various room sizes, making it a versatile addition to both indoor living rooms and outdoor entertaining areas.
 
-## <a href="https://www.amazon.com/dp/B0DNQ5GV96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ5GV96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ5GV96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug, 100% Wool Rug, Gold, 8'x10'" src="https://m.media-amazon.com/images/I/51bkrCJP8hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ5GV96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug, 100% Wool Rug, Gold, 8'x10'" src="https://m.media-amazon.com/images/I/51bkrCJP8hL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Kendall Fluted Geo Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts looking to add a touch of elegance and warmth to their living spaces. This **100% wool rug** is perfect for those who appreciate high-quality craftsmanship and desire a statement piece that blends both style and durability. If you want a luxurious yet functional rug in a classic **gold color** to complement your décor, this area rug is an excellent choice.
@@ -127,10 +127,10 @@ This **Nicole Miller New York area rug** features a fluted geometric pattern tha
 
 Its generous **8'x10'** dimensions make it suitable for larger rooms, providing a cozy foundation for furniture arrangements. The **gold hue** complements a variety of color palettes, enhancing the ambiance with warmth and brightness. While the rug’s weight reflects its density and quality, it also means it stays firmly in place without slipping, ensuring safety and comfort in your living space.
 
-## <a href="https://www.amazon.com/dp/B094KXZVM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Dynamix Nicole Miller New York Patio Country Luna Contemporary Geometric Area Rug</a>
+## <a href="https://www.amazon.com/dp/B094KXZVM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Dynamix Nicole Miller New York Patio Country Luna Contemporary Geometric Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B094KXZVM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Dynamix Nicole Miller New York Patio Country Luna Contemporary Geometric Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/6117Ef5SjeS._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B094KXZVM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Dynamix Nicole Miller New York Patio Country Luna Contemporary Geometric Indoor/Outdoor Area Rug, Blue/Grey, 7'9" src="https://m.media-amazon.com/images/I/6117Ef5SjeS._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Home Dynamix Nicole Miller New York Patio Country Luna Contemporary Geometric Indoor/Outdoor Area Rug** in **Blue/Grey** is ideal for homeowners and renters looking to enhance both indoor and outdoor spaces with a stylish yet durable floor covering. This rug is perfect for those who want a blend of modern design and functional use in high-traffic areas such as patios, living rooms, or sunrooms. If you value easy maintenance alongside aesthetic appeal, this rug is an excellent choice.
@@ -153,10 +153,10 @@ The **Home Dynamix Nicole Miller New York Patio Country Luna Rug** features a co
 
 Measuring **7'9"x10'2"** with a slim profile of **0.4 inches**, this rug fits well under furniture and in narrow spaces, making it practical for patios, decks, or large living rooms. The easy-to-clean materials ensure that maintaining its fresh appearance is hassle-free, providing long-term value. Overall, this rug combines style, size, and functionality, making it a smart investment for anyone looking to enhance their living or outdoor area.
 
-## <a href="https://www.amazon.com/dp/B07B7N4CTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7N4CTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7N4CTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 4151-123,="" alt="Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug 7'9" damask="" distressed="" gray="" ivory="" juniper"="" src="https://m.media-amazon.com/images/I/61dekJoB8pL._SL500_.jpg" x10'2",=""/></a>
+<a href="https://www.amazon.com/dp/B07B7N4CTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 4151-123,="" alt="Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug 7'9" damask="" distressed="" gray="" ivory="" juniper"="" src="https://m.media-amazon.com/images/I/61dekJoB8pL._SL500_.jpg" x10'2",=""/></a>
 
 
 The **Home Dynamix Nicole Miller Patio Sofia Juniper Indoor/Outdoor Area Rug** is perfect for homeowners and renters looking to enhance their living spaces with a stylish yet durable floor covering. Ideal for those who want an elegant design that works both indoors and outdoors, this rug suits individuals who appreciate a blend of functionality and aesthetic appeal in their home decor.
@@ -178,10 +178,10 @@ The **Home Dynamix Nicole Miller Patio Sofia Juniper Rug** stands out with its e
 
 Measuring over 7 by 10 feet, this rug offers substantial coverage for patios, decks, or interior living spaces, enhancing comfort and visual warmth. The lightweight construction allows for easy repositioning, while the trusted **Nicole Miller New York** brand ensures superior quality and design excellence. Whether placed in a cozy living room or a vibrant outdoor patio, this rug brings both beauty and practicality to your home.
 
-## <a href="https://www.amazon.com/dp/B0DNQ4Z6YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ4Z6YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ4Z6YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Blue, 8'x10'" src="https://m.media-amazon.com/images/I/51HnONHFomL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ4Z6YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug, 100% Wool Rug, Blue, 8'x10'" src="https://m.media-amazon.com/images/I/51HnONHFomL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Mod Damask Chambray Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts looking to enhance their living spaces with a touch of elegance and durability. Those who appreciate high-quality craftsmanship and want a stylish yet functional rug for medium to large rooms will find this **100% wool rug** a perfect fit. Its soothing **blue color** and sizable dimensions (8'x10') make it a great choice for living rooms, bedrooms, or dining areas.
@@ -203,10 +203,10 @@ Crafted by **Home Dynamix** under the **Nicole Miller New York** brand, this are
 
 The rug's sizable dimensions (8'x10') and subtle height of 0.5 inches make it versatile for different room layouts, allowing easy placement of furniture without causing imbalance. The calming **blue hue** adds a serene and inviting atmosphere to any space, enhancing the overall aesthetic while providing warmth and comfort. This combination of design, material, and size offers both practical benefits and a stylish upgrade to your home décor.
 
-## <a href="https://www.amazon.com/dp/B07B7N99CY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Sofia Ivy Transitional Distressed Indoor/outdoor Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07B7N99CY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Patio Sofia Ivy Transitional Distressed Indoor/outdoor Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7N99CY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Sofia Ivy Transitional Distressed Indoor/Outdoor Area Rug, Grey/Aqua, 7'9" src="https://m.media-amazon.com/images/I/611OqWwgIEL._SL500_.jpg" x10'2""=""/></a>
+<a href="https://www.amazon.com/dp/B07B7N99CY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Patio Sofia Ivy Transitional Distressed Indoor/Outdoor Area Rug, Grey/Aqua, 7'9" src="https://m.media-amazon.com/images/I/611OqWwgIEL._SL500_.jpg" x10'2""=""/></a>
 
 
 The **Nicole Miller New York Patio Sofia Ivy Transitional Distressed Indoor/Outdoor Area Rug** in **Grey/Aqua** is ideal for homeowners and decorators seeking a versatile, stylish, and durable rug that enhances both indoor and outdoor spaces. If you want to add a splash of color and elegance to your patio, living room, or sunroom while ensuring easy maintenance and long-lasting wear, this rug is a perfect choice.
@@ -228,10 +228,10 @@ Crafted by **Home Dynamix** and branded under **Nicole Miller New York**, this *
 
 Measuring **7'9"x10'2"** with a slim profile of **0.3 inches**, the rug fits comfortably in spacious areas without overwhelming the room. Its lightweight design allows for easy movement and repositioning, which is particularly beneficial for outdoor settings where you might want to change layouts seasonally. Overall, the Nicole Miller New York Patio Sofia Ivy rug not only enhances your space visually but also offers practical benefits like durability and ease of maintenance.
 
-## <a href="https://www.amazon.com/dp/B0DNQ8DJSR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ8DJSR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ8DJSR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug, 100% Wool Rug, Rose, 8'x10'" src="https://m.media-amazon.com/images/I/51ZJJrUD9CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ8DJSR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug, 100% Wool Rug, Rose, 8'x10'" src="https://m.media-amazon.com/images/I/51ZJJrUD9CL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area Rug** is ideal for homeowners and interior design enthusiasts who want to add a touch of elegance and warmth to their living spaces. Perfect for those seeking a combination of durability, style, and comfort, this **100% wool rug** is especially suited for people who appreciate handcrafted quality and modern abstract designs in a soft **rose** color palette. If you desire a statement piece that enhances both contemporary and classic decor, this rug is a perfect choice.
@@ -254,10 +254,10 @@ The **Nicole Miller New York Mod Weave Abstract Knotted Texture Handcrafted Area
 
 With dimensions of **8'x10'**, this rug covers ample floor space, perfect for defining seating areas or anchoring furniture arrangements. The soft **rose hue** complements a variety of color schemes, enhancing both modern and traditional interiors. Despite its substantial **59-pound weight**, the rug’s manageable thickness of **0.5 inches** allows for easy maintenance and helps prevent tripping hazards. Overall, it’s a stylish and functional investment for those looking to elevate their home decor with a handcrafted touch.
 
-## <a href="https://www.amazon.com/dp/B0DNQ584TG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0DNQ584TG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNQ584TG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 8'x10'" src="https://m.media-amazon.com/images/I/51BsCBgFBVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNQ584TG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug, Natural Wool Rug, Bold Floral Rug, Grey, 8'x10'" src="https://m.media-amazon.com/images/I/51BsCBgFBVL._SL500_.jpg"/></a>
 
 
 The **Nicole Miller New York Flora Grandeur Bloom Handcrafted Area Rug** is perfect for homeowners and interior designers looking to add a bold yet elegant touch to their living spaces. Ideal for those who appreciate high-quality craftsmanship and want to enhance their home with a stylish, durable, and naturally beautiful floor covering. This rug suits individuals seeking a statement piece that combines artistry with functionality.

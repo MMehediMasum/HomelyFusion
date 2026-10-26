@@ -23,10 +23,10 @@ The designs vary from traditional Oriental patterns to modern abstract styles. S
 
 
 
-## <a href="https://www.amazon.com/dp/B01B9A2L92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Adirondack Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B01B9A2L92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Adirondack Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B01B9A2L92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Adirondack Collection Area Rug - 9' x 12', Ivory &amp; Slate, Oriental Distressed Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas in Living Room, Bedroom (ADR109S)" src="https://m.media-amazon.com/images/I/51zzez5xLGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01B9A2L92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Adirondack Collection Area Rug - 9' x 12', Ivory &amp; Slate, Oriental Distressed Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas in Living Room, Bedroom (ADR109S)" src="https://m.media-amazon.com/images/I/51zzez5xLGL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Adirondack Collection Area Rug** is perfect for homeowners seeking a stylish yet durable floor covering that can withstand high traffic areas. Ideal for those who want to enhance their living room or bedroom with an elegant **Oriental Distressed Design** in versatile **Ivory & Slate** colors, this rug suits anyone looking for a blend of classic aesthetics and practical functionality.
@@ -48,10 +48,10 @@ The **SAFAVIEH Adirondack Collection Area Rug** combines aesthetic appeal with f
 
 Crafted by **Safavieh**, this rug's durable construction is specifically tailored for **high traffic areas**, ensuring it can handle daily wear and tear without shedding or fading. The easy-care feature simplifies maintenance, allowing homeowners to preserve the rug’s beauty with minimal effort. Overall, this rug offers a perfect balance between style, comfort, and durability for busy households.
 
-## <a href="https://www.amazon.com/dp/B0F41NNN1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Henley Collection Hny-01 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0F41NNN1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Magnolia Home By Joanna Gaines Henley Collection Hny-01 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0F41NNN1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Henley Collection HNY-01 Ivory/Brown 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51KqdK+htDL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0F41NNN1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-6"="" alt="Loloi Magnolia Home by Joanna Gaines Henley Collection HNY-01 Ivory/Brown 5'-0" area="" rug"="" src="https://m.media-amazon.com/images/I/51KqdK+htDL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Magnolia Home by Joanna Gaines Henley Collection HNY-01 Ivory/Brown 5'-0" x 7'-6" Area Rug** is ideal for homeowners and interior enthusiasts seeking to add a touch of elegance and warmth to their living spaces. Perfect for those who appreciate a blend of classic and contemporary design, this rug suits living rooms, bedrooms, or dining areas where comfort and style are equally important. If you want a durable and visually appealing area rug that complements neutral or rustic décor, this piece is a great choice.
@@ -72,10 +72,10 @@ The **Loloi Magnolia Home Henley Collection area rug** features a sophisticated 
 
 Beyond its visual appeal, this area rug provides practical benefits such as noise reduction and added warmth to your floors. The neutral color palette allows it to complement a wide range of furniture styles and color schemes, making redecorating easier without the need for a new rug. Overall, this rug combines style, comfort, and functionality, making it a smart investment for anyone looking to enhance their living environment.
 
-## <a href="https://www.amazon.com/dp/B08TG7RH1X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Livabliss Ivor Outdoor Textured Area Rug</a>
+## <a href="https://www.amazon.com/dp/B08TG7RH1X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Livabliss Ivor Outdoor Textured Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B08TG7RH1X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10',="" alt="Livabliss Ivor Outdoor Textured Area Rug, 7'10" cream"="" src="https://m.media-amazon.com/images/I/51ADf1ZJNpL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B08TG7RH1X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10',="" alt="Livabliss Ivor Outdoor Textured Area Rug, 7'10" cream"="" src="https://m.media-amazon.com/images/I/51ADf1ZJNpL._SL500_.jpg" x=""/></a>
 
 
 The **Livabliss Ivor Outdoor Textured Area Rug** is an excellent choice for homeowners and outdoor enthusiasts looking to enhance their patio, deck, or garden space with a stylish yet durable flooring option. Ideal for those who want a combination of aesthetic appeal and functionality, this rug suits anyone seeking a low-maintenance, weather-resistant solution that complements outdoor decor while providing comfort underfoot.
@@ -98,10 +98,10 @@ Crafted by **Livabliss** and manufactured under the code **SURN7**, this outdoor
 
 The **cream color** of the Livabliss Ivor rug offers a neutral yet elegant backdrop that easily blends with various outdoor furniture styles and natural surroundings. Despite its lightweight nature, the rug is sturdy enough to handle foot traffic and outdoor conditions, making it an ideal choice for patios, porches, or poolside areas. Overall, this rug delivers a perfect balance of style, durability, and comfort for outdoor living enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09HN1PJ2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Home Capitola Rug</a>
+## <a href="https://www.amazon.com/dp/B09HN1PJ2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Home Capitola Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09HN1PJ2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand Tufted Traditional Wool Area Rugs by Allen Home Capitola Rug - Durable - 100% Wool - Living Room, Dining Room, Bedroom, and Entryway Area Rugs - 8’ x 10’ - Capitola Blue" src="https://m.media-amazon.com/images/I/41QChARiY4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HN1PJ2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hand Tufted Traditional Wool Area Rugs by Allen Home Capitola Rug - Durable - 100% Wool - Living Room, Dining Room, Bedroom, and Entryway Area Rugs - 8’ x 10’ - Capitola Blue" src="https://m.media-amazon.com/images/I/41QChARiY4L._SL500_.jpg"/></a>
 
 
 The **Hand Tufted Traditional Wool Area Rug by Allen Home Capitola** is perfect for homeowners looking to add a touch of elegance and durability to their living spaces. Ideal for those who appreciate quality craftsmanship and natural materials, this rug suits anyone wanting to enhance their **living room**, **dining room**, **bedroom**, or **entryway** with a stylish, long-lasting floor covering. If you value comfort, aesthetic appeal, and robust construction, this 8’ x 10’ blue wool rug is an excellent choice.
@@ -123,10 +123,10 @@ This **Allen Home Capitola Rug** combines traditional hand tufting techniques wi
 
 Featuring a rich **Capitola Blue** shade, this rug serves as a focal point that complements a variety of interior styles, from classic to contemporary. Its sturdy construction by **AH ALLEN HOME** ensures that it will withstand daily wear and tear, maintaining its vibrant color and texture for years. Whether placed under a dining table or as a centerpiece in a bedroom, this rug balances aesthetics and functionality seamlessly.
 
-## <a href="https://www.amazon.com/dp/B073Q6TRSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug</a>
+## <a href="https://www.amazon.com/dp/B073Q6TRSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B073Q6TRSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Abstract Collection - Large - Blue &amp; Grey, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (ABT201A)" src="https://m.media-amazon.com/images/I/61D0HjqB70L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073Q6TRSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Area Rug 8x10 - Abstract Collection - Large - Blue &amp; Grey, Handmade Wool, Ideal for Living Room, Bedroom, Office, Dining Space (ABT201A)" src="https://m.media-amazon.com/images/I/61D0HjqB70L._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Area Rug 8x10** from the **Abstract Collection** is perfect for homeowners and interior enthusiasts looking to enhance their **living room**, **bedroom**, **office**, or **dining space** with a stylish and durable floor covering. Ideal for those who appreciate **handmade wool rugs** with a modern aesthetic, this rug suits individuals seeking a blend of comfort, quality, and contemporary design.
@@ -149,10 +149,10 @@ The **SAFAVIEH Area Rug 8x10** features a rich blend of **blue and grey hues** w
 
 Furthermore, the rug’s substantial size and weight contribute to its stability, keeping it firmly in place and minimizing the need for additional rug pads. Whether placed under a dining table or as a centerpiece in an office, this rug’s design and quality craftsmanship bring both aesthetic appeal and functional benefits, making it a valuable addition to any modern home environment.
 
-## <a href="https://www.amazon.com/dp/B0CJVJDRZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Revival Rugs Soloba Washable Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CJVJDRZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Revival Rugs Soloba Washable Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJVJDRZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 100%="" alt="Revival Rugs Soloba 6'7" area="" bedroom="" beige,="" certified,="" cream"="" for="" living="" medium="" oeko-tex="" pile,="" recycled="" room="" rug="" src="https://m.media-amazon.com/images/I/41v11ByX6OL._SL500_.jpg" washable="" x9'=""/></a>
+<a href="https://www.amazon.com/dp/B0CJVJDRZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img -="" 100%="" alt="Revival Rugs Soloba 6'7" area="" bedroom="" beige,="" certified,="" cream"="" for="" living="" medium="" oeko-tex="" pile,="" recycled="" room="" rug="" src="https://m.media-amazon.com/images/I/41v11ByX6OL._SL500_.jpg" washable="" x9'=""/></a>
 
 
 The **Revival Rugs Soloba 6'7"x9' Washable Area Rug** is an excellent choice for environmentally conscious homeowners and renters who want a stylish yet practical addition to their living room or bedroom. Ideal for those who prioritize sustainability without compromising on comfort and design, this rug suits individuals seeking easy maintenance and a cozy ambiance through a medium pile texture.
@@ -175,10 +175,10 @@ The **Revival Rugs Soloba** area rug combines eco-conscious materials with a cla
 
 This rug’s **bone beige** shade provides a neutral yet warm tone that easily integrates with diverse décor styles, from modern to traditional. Furthermore, the **Oeko-TEX certification** guarantees that the rug is safe for families, including children, by limiting exposure to harmful chemicals. Overall, the Revival Rugs Soloba area rug offers a blend of sustainability, comfort, and style that appeals to conscientious consumers looking to elevate their living spaces.
 
-## <a href="https://www.amazon.com/dp/B0CZ4BT75B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Honora Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CZ4BT75B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Amber Lewis Honora Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ4BT75B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-9"="" alt="Loloi Amber Lewis Honora Collection HON-05 Bone/Multi 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51SNlMXqr3L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CZ4BT75B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-9"="" alt="Loloi Amber Lewis Honora Collection HON-05 Bone/Multi 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/51SNlMXqr3L._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Amber Lewis Honora Collection HON-05 Bone/Multi 5'-3" x 7'-9" Area Rug** is ideal for homeowners and interior designers seeking a stylish yet versatile floor covering that complements various decor styles. If you want to add a touch of elegance and warmth to your living space while enjoying durable craftsmanship, this rug is a perfect choice. It suits those who appreciate quality, intricate design, and a neutral color palette that blends seamlessly with multiple room aesthetics.
@@ -200,10 +200,10 @@ The **Loloi Amber Lewis Honora Collection HON-05** area rug stands out with its 
 
 Beyond aesthetics, this rug offers practical benefits such as comfort underfoot and the ability to tie together different elements of a room's design. Its neutral tones serve as a perfect backdrop for both vibrant and muted furnishings, making it a flexible choice for evolving interior styles. Although it requires some upkeep due to its light color, the overall craftsmanship and beauty make it a worthwhile addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0BRYP9YC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Odette Collection Odt-05 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BRYP9YC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Odette Collection Odt-05 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRYP9YC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Odette Collection ODT-05 Beige/Silver 6'-7" area="" rug"="" src="https://m.media-amazon.com/images/I/410PCfZVmQL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0BRYP9YC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'-6"="" alt="Loloi Odette Collection ODT-05 Beige/Silver 6'-7" area="" rug"="" src="https://m.media-amazon.com/images/I/410PCfZVmQL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Odette Collection ODT-05 Beige/Silver 6'-7" x 9'-6" Area Rug** is ideal for homeowners and interior designers looking to add a touch of elegance and warmth to living rooms, bedrooms, or dining areas. This rug is perfect for those who appreciate a subtle color palette and want a durable, stylish floor covering that complements both traditional and contemporary decor.
@@ -226,10 +226,10 @@ The **Loloi Odette Collection ODT-05 area rug** features a sophisticated design 
 
 Constructed with quality materials by **Loloi Rugs**, this area rug offers both durability and comfort. The neutral color palette enhances the ambiance while complementing a wide range of furniture and decor styles. Whether placed under a dining table, in a living area, or as a bedroom accent, the rug delivers a cozy, polished look that elevates the overall interior design.
 
-## <a href="https://www.amazon.com/dp/B0BRYPPXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Kamala Collection Kam-02 Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0BRYPPXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Loloi Kamala Collection Kam-02 Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRYPPXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-9"="" alt="Loloi Kamala Collection KAM-02 Ivory/Silver 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/41wGgHYA0pL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0BRYPPXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'-9"="" alt="Loloi Kamala Collection KAM-02 Ivory/Silver 5'-3" area="" rug"="" src="https://m.media-amazon.com/images/I/41wGgHYA0pL._SL500_.jpg" x=""/></a>
 
 
 The **Loloi Kamala Collection KAM-02 Ivory/Silver 5'-3" x 7'-9" Area Rug** is ideal for homeowners and interior enthusiasts looking to add a touch of elegance and sophistication to their living spaces. This rug suits those who appreciate a subtle yet stylish design in a neutral color palette, perfect for complementing various décor styles, from modern to traditional. If you want a durable and beautifully crafted area rug to enhance your room’s ambiance, this item is an excellent choice.
@@ -252,10 +252,10 @@ The **Loloi Kamala Collection KAM-02** stands out with its sophisticated blend o
 
 Crafted by **Loloi Rugs**, a reputable manufacturer known for quality and style, this area rug offers durability and long-lasting beauty. The neutral color palette allows for easy coordination with existing furniture and décor, while its elegant pattern adds subtle texture and interest. Users will appreciate the balance of aesthetic appeal and practical design, making it a valuable addition to any home looking for timeless charm and comfort.
 
-## <a href="https://www.amazon.com/dp/B086KW7GCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Madison Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B086KW7GCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Safavieh Madison Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B086KW7GCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Madison Collection Area Rug - 9' x 12', Green &amp; Turquoise, Boho Chic Medallion Distressed Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas in Living Room, Bedroom (MAD473Y)" src="https://m.media-amazon.com/images/I/61gv1oTLeZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086KW7GCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SAFAVIEH Madison Collection Area Rug - 9' x 12', Green &amp; Turquoise, Boho Chic Medallion Distressed Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas in Living Room, Bedroom (MAD473Y)" src="https://m.media-amazon.com/images/I/61gv1oTLeZL._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Madison Collection Area Rug** in **Green & Turquoise** with its **Boho Chic Medallion Distressed Design** is perfect for homeowners and renters who want to add a stylish yet functional element to their **living rooms** or **bedrooms**. Ideal for those with high foot traffic areas, this rug suits individuals seeking both durability and easy maintenance without compromising on aesthetic appeal. If you value a non-shedding, easy-care rug that enhances your space with a pop of color and texture, this is the rug for you.

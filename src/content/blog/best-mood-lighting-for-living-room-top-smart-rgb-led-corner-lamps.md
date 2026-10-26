@@ -22,10 +22,10 @@ Options like the OIYN and Miortior lamps provide bright, colorful light that cha
 
 
 
-## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oiyn Smart Rgbicw Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRFPCJ49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OIYN Smart RGBICW LED Corner Floor Lamp - 16 Million DIY Colors, 68+ Scenes, Music Sync, App &amp; Remote Control, Color-Changing Ambient Lighting for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41AGfUFExOL._SL500_.jpg"/></a>
 
 
 The **OIYN Smart RGBICW LED Corner Floor Lamp** is ideal for tech-savvy individuals and home decorators who want to elevate the ambiance of their **living rooms, bedrooms, or gaming rooms**. If you enjoy customizing your space with dynamic lighting and syncing your lights with music for immersive experiences, this lamp is perfect for you. It’s also suited for users who appreciate convenient control through an app or remote.
@@ -49,10 +49,10 @@ The **OIYN Smart RGBICW LED Corner Floor Lamp** stands out with its ability to d
 
 Additionally, the lamp’s **music sync feature** enables it to react dynamically to sound, adding a layer of interactivity that is especially appealing for gamers and party hosts. The dual control options, via an intuitive **mobile app** or a handy **remote control**, ensure that adjusting lighting is effortless and accessible from anywhere in the room. Its sleek **black finish** and slim profile make it an unobtrusive yet stylish addition to any corner, blending functionality with modern design.
 
-## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
 
 
 The **Miortior Corner Floor Lamp** is perfect for individuals looking to enhance their living spaces with versatile and customizable lighting. Ideal for **living rooms, bedrooms, and gaming rooms**, this smart RGB LED lamp caters to tech-savvy users and interior enthusiasts who want to create the perfect ambiance with ease. If you value vibrant colors, smart control options, and dynamic lighting effects, this lamp is a great choice.
@@ -76,10 +76,10 @@ The **Miortior Corner Floor Lamp** boasts a slim and stylish design with dimensi
 
 Control convenience is a standout feature, as the lamp integrates with both an **app and remote control**, making adjustments effortless from anywhere in the room. The **music sync** functionality further enhances the user experience by synchronizing lights with your favorite tunes, creating immersive environments for parties or relaxation. Additionally, the **timer setting** ensures that your lighting operates on your schedule, promoting energy efficiency and peace of mind. Manufactured by **Shenzhen lizhi Technology Co.,Ltd**, this lamp combines quality craftsmanship with innovative smart features to elevate any modern living space.
 
-## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
 
 
 The **Keepsmile Smart RGB LED Corner Floor Lamp** is ideal for tech-savvy homeowners and decor enthusiasts who want to enhance their living spaces with customizable and modern lighting solutions. This product is perfect for those looking to add vibrant, adjustable ambient lighting to their **living room** or **bedroom**, especially individuals who appreciate smart home integration and dynamic lighting effects. If you enjoy controlling your environment through an app or remote and desire a lamp that doubles as a stylish décor piece, this smart floor lamp is an excellent choice.
@@ -102,10 +102,10 @@ The **Keepsmile Smart RGB LED Corner Floor Lamp** boasts a remarkable design wit
 
 Beyond aesthetics, the lamp’s smart features stand out. With both an **APP and remote control**, adjusting brightness, color, and lighting modes is intuitive and convenient. The innovative **music sync** feature allows the lamp to pulse and change colors in harmony with your music, creating an immersive sensory experience. This makes it not only a lighting fixture but also a dynamic entertainment accessory, perfect for parties or relaxing evenings.
 
-## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
+## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
 
 
-<a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
 
 
 The **Govee RGBIC Floor Lamp Basic** is perfect for tech-savvy individuals looking to enhance their home ambiance with customizable lighting. Ideal for those who enjoy smart home integration, music synchronization, and vibrant color options, this **LED corner lamp** suits bedrooms, living rooms, or any modern space where mood lighting is desired.
@@ -129,10 +129,10 @@ The **Govee RGBIC Floor Lamp Basic** shines with its ability to transform any ro
 
 Additionally, the lamp’s compatibility with **Alexa** enables seamless voice commands, making it effortless to adjust brightness, change colors, or switch modes without lifting a finger. Its sleek, modern design in **black** complements various interior styles while its compact footprint fits neatly into corners, optimizing space usage. Overall, this smart floor lamp offers both functional lighting and aesthetic appeal, perfect for users seeking both technology and style in home lighting.
 
-## <a href="https://www.amazon.com/dp/B0925LXDSG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projector</a>
+## <a href="https://www.amazon.com/dp/B0925LXDSG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tsrarey Sunset Lamp Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0925LXDSG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projector,180 Degree Rotation Sun Projection Light Led Night Light Floor Lamp with USB Port,Sunset Lamps for Photography Party Bedroom Decor,Christmas Gifts for Women" src="https://m.media-amazon.com/images/I/31Dk3WMBdCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0925LXDSG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tsrarey Sunset Lamp Projector,180 Degree Rotation Sun Projection Light Led Night Light Floor Lamp with USB Port,Sunset Lamps for Photography Party Bedroom Decor,Christmas Gifts for Women" src="https://m.media-amazon.com/images/I/31Dk3WMBdCL._SL500_.jpg"/></a>
 
 
 The **Tsrarey Sunset Lamp Projector** is perfect for individuals looking to enhance their living spaces with vibrant and calming ambiance. Ideal for **photography enthusiasts**, **party hosts**, or anyone wanting to add a touch of warmth to their **bedroom decor**, this lamp is also a thoughtful **Christmas gift for women** who appreciate stylish and functional lighting solutions.
@@ -154,10 +154,10 @@ The **Tsrarey Sunset Lamp Projector** stands out with its ability to cast a beau
 
 Designed with portability in mind, this lamp’s compact size and lightweight build make it easy to move and position in various settings such as bedrooms, living rooms, or party venues. The integrated **USB port** offers flexible power options, allowing users to connect to laptops, power banks, or wall adapters. Overall, the **Tsrarey Sunset Lamp Projector** combines style, functionality, and convenience, making it a must-have accessory for those who appreciate unique lighting experiences.
 
-## <a href="https://www.amazon.com/dp/B0DG92NWYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mubarek Crystal Light Projector</a>
+## <a href="https://www.amazon.com/dp/B0DG92NWYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mubarek Crystal Light Projector</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG92NWYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mubarek Crystal Light Projector for Bedroom, 216 Modes Mood Lighting for Bedroom, Remote&amp;USB Control Kids Room Lights for Bedroom, Ambient Lighting Projector Lights for Room Decor for Teen Girls Gifts" src="https://m.media-amazon.com/images/I/51PNJhndaCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG92NWYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mubarek Crystal Light Projector for Bedroom, 216 Modes Mood Lighting for Bedroom, Remote&amp;USB Control Kids Room Lights for Bedroom, Ambient Lighting Projector Lights for Room Decor for Teen Girls Gifts" src="https://m.media-amazon.com/images/I/51PNJhndaCL._SL500_.jpg"/></a>
 
 
 The **Mubarek Crystal Light Projector for Bedroom** is ideal for individuals looking to enhance their room ambiance with versatile and colorful lighting. Perfect for **teen girls**, children’s rooms, or anyone who enjoys mood lighting, this projector offers an engaging and soothing atmosphere, making it a great gift or a decorative addition for bedrooms and living spaces.
@@ -179,10 +179,10 @@ The **Mubarek Crystal Light Projector** features a compact and stylish design th
 
 With the included **remote control**, users can easily switch between modes, adjust brightness, and set timers without interrupting their activities. This projector not only serves as a functional light source but also as a decorative element that adds charm and personality to room decor. Its user-friendly features and durable build make it an excellent choice for those seeking both style and practicality in ambient lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B074KFP426?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maylit Led Strip Lights For 40-60in Tv</a>
+## <a href="https://www.amazon.com/dp/B074KFP426?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maylit Led Strip Lights For 40-60in Tv</a>
 
 
-<a href="https://www.amazon.com/dp/B074KFP426?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tv Led Backlight, Maylit 8.2ft Led Strip Lights for 40-60in Tv, USB Powered Tv Lights kit with Remote, RGB Bias Lighting for Room Decor" src="https://m.media-amazon.com/images/I/51TRGU4RkHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074KFP426?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tv Led Backlight, Maylit 8.2ft Led Strip Lights for 40-60in Tv, USB Powered Tv Lights kit with Remote, RGB Bias Lighting for Room Decor" src="https://m.media-amazon.com/images/I/51TRGU4RkHL._SL500_.jpg"/></a>
 
 
 The **Maylit 8.2ft LED Strip Lights** are perfect for anyone looking to enhance their viewing experience with vibrant, customizable lighting. Ideal for owners of **40-60 inch TVs** who want to reduce eye strain, improve ambiance, or add a modern touch to their room decor, this **USB-powered TV lights kit** offers ease of installation and versatile lighting options. Whether you're a gamer, movie enthusiast, or someone who enjoys stylish lighting setups, this product is designed to meet your needs.
@@ -205,10 +205,10 @@ The **Maylit LED Strip Lights** come with a flexible design that fits most TVs b
 
 Powered by a convenient **USB connection**, the installation process is straightforward and does not require additional adapters or complicated wiring. The included remote control provides easy access to multiple color settings and brightness adjustments, enhancing user experience. Overall, the Maylit TV LED Backlight is a practical and stylish accessory that elevates both the aesthetics and comfort of your entertainment space.
 
-## <a href="https://www.amazon.com/dp/B0DZ6G1B4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vexinat Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DZ6G1B4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vexinat Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ6G1B4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vexinat Corner Floor Lamp, Smart RGB LED Corner Lamp with App &amp; Remote, Modern Floor Lamp with 16 Million Colors, Music Sync, Scene Modes, Color Changing Standing Lamps for Living Room, Bedroom" src="https://m.media-amazon.com/images/I/411MHQL04OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ6G1B4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vexinat Corner Floor Lamp, Smart RGB LED Corner Lamp with App &amp; Remote, Modern Floor Lamp with 16 Million Colors, Music Sync, Scene Modes, Color Changing Standing Lamps for Living Room, Bedroom" src="https://m.media-amazon.com/images/I/411MHQL04OL._SL500_.jpg"/></a>
 
 
 The **Vexinat Corner Floor Lamp** is perfect for individuals looking to enhance their living spaces with a versatile and modern lighting solution. Ideal for tech-savvy homeowners, apartment dwellers, or anyone wanting to add vibrant ambiance through smart lighting, this lamp fits seamlessly into living rooms, bedrooms, or entertainment areas. If you appreciate customizable lighting that syncs with music and offers a wide range of colors, this lamp is designed for you.
@@ -232,10 +232,10 @@ The **Vexinat Corner Floor Lamp** stands out due to its impressive feature set p
 
 Beyond aesthetics, this smart lamp provides practical benefits such as remote and app control, letting users adjust brightness, color, and modes from anywhere in the room. The inclusion of various **scene modes** makes it easy to switch between settings like relaxation, reading, or party mode, enhancing the overall user experience. Lightweight and easy to move, the lamp balances style, function, and convenience, making it a smart addition to any modern home.
 
-## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rootro Touch Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rootro Touch Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BR5JHB3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROOTRO Touch Bedside Table Lamp, [Sleek Design &amp; RGB Mode] 3 Way Dimmable Small Lamp for Bedroom, LED Lamp with Warm White Lights, Multi-Color Smart Nightstand Lamp for for Living Room Home Gifts" src="https://m.media-amazon.com/images/I/31HBCOIqHyL._SL500_.jpg"/></a>
 
 
 The **ROOTRO Touch Bedside Table Lamp** is ideal for individuals seeking a **stylish** and **functional lighting solution** for their bedroom or living space. Whether you want a cozy ambiance for relaxation or a vibrant multi-color display to enhance your room’s atmosphere, this **small LED lamp** is perfect for those who appreciate **modern design** combined with smart features. It’s especially suitable for people who value easy-to-use, touch-sensitive controls and customizable lighting options.
@@ -259,10 +259,10 @@ The **ROOTRO Touch Bedside Table Lamp** stands out with its **elegant white fini
 
 Beyond its aesthetic appeal, the lamp’s **warm white light** setting is perfect for nighttime use, creating a soothing environment conducive to relaxation or winding down before sleep. The RGB mode adds a fun, customizable element for users who enjoy experimenting with colors or want to enhance their home décor. Lightweight and easy to move, the lamp also serves well as a thoughtful gift option for friends and family who appreciate modern, functional home accessories.
 
-## <a href="https://www.amazon.com/dp/B09T92F9Z8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maticod Led Lights For Tv</a>
+## <a href="https://www.amazon.com/dp/B09T92F9Z8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maticod Led Lights For Tv</a>
 
 
-<a href="https://www.amazon.com/dp/B09T92F9Z8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATICOD LED Lights for TV Led Backlight, 9.84 RGB Led Strip Lights USB TV Lights Behind 32-43 TV, APP Remote Control Music Sync TV LED Lights" src="https://m.media-amazon.com/images/I/41PCOgu4-DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09T92F9Z8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATICOD LED Lights for TV Led Backlight, 9.84 RGB Led Strip Lights USB TV Lights Behind 32-43 TV, APP Remote Control Music Sync TV LED Lights" src="https://m.media-amazon.com/images/I/41PCOgu4-DL._SL500_.jpg"/></a>
 
 
 The **MATICOD LED Lights for TV** are perfect for anyone looking to enhance their home entertainment experience with vibrant and customizable lighting. Ideal for owners of 32-43 inch TVs who want to create an immersive atmosphere, these LED strip lights are especially suited for gamers, movie enthusiasts, and those who enjoy dynamic room lighting synchronized with their media.

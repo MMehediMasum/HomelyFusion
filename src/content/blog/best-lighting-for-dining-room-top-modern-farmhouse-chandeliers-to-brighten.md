@@ -23,10 +23,10 @@ Clear glass shades add elegance while spreading light evenly. For smaller spaces
 
 
 
-## <a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Chandelier</a>
+## <a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Chandelier, 6-Light Farmhouse Chandelier for Dining Room Lighting Fixtures Hanging, Dining Light Fixtures Industrial Modern Chandelier for Bedroom, Foyer, Hall, Kitchen, Living Room and Entryway" src="https://m.media-amazon.com/images/I/41uJy3bIv0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Chandelier, 6-Light Farmhouse Chandelier for Dining Room Lighting Fixtures Hanging, Dining Light Fixtures Industrial Modern Chandelier for Bedroom, Foyer, Hall, Kitchen, Living Room and Entryway" src="https://m.media-amazon.com/images/I/41uJy3bIv0L._SL500_.jpg"/></a>
 
 
 The **Black Chandelier, 6-Light Farmhouse Chandelier** is ideal for homeowners and interior designers looking to add a touch of **industrial modern style** to their living spaces. Perfect for those who want a striking yet functional lighting fixture for areas like the **dining room, bedroom, foyer, kitchen, living room,** or **entryway**, this chandelier suits individuals who appreciate a blend of rustic charm and contemporary design.
@@ -49,10 +49,10 @@ This **6-light farmhouse chandelier** by **Lynnoland** combines both form and fu
 
 Additionally, the chandelier's lightweight design and pre-assembled nature make it a convenient choice for many buyers, reducing installation complexity. Whether placed over a dining table or in an entryway, this fixture serves as a stunning focal point while delivering reliable illumination. Its versatility across multiple rooms underscores its value for anyone seeking to enhance their home's lighting with a stylish and functional piece.
 
-## <a href="https://www.amazon.com/dp/B09XMLJ29P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruiyey Modern Chandelier Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B09XMLJ29P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruiyey Modern Chandelier Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B09XMLJ29P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUIYEY Modern Chandelier Ceiling Light Fixture Sputnik Chandeliers Gold and Black Farmhouse Chandelier Over Table 12-Light Height Adjustable Chandeliers for Dining Room, Living Room,Kitchen Island" src="https://m.media-amazon.com/images/I/41dJyErzgUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XMLJ29P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUIYEY Modern Chandelier Ceiling Light Fixture Sputnik Chandeliers Gold and Black Farmhouse Chandelier Over Table 12-Light Height Adjustable Chandeliers for Dining Room, Living Room,Kitchen Island" src="https://m.media-amazon.com/images/I/41dJyErzgUL._SL500_.jpg"/></a>
 
 
 The **RUIYEY Modern Chandelier Ceiling Light Fixture** is ideal for homeowners and interior designers looking to add a stylish and contemporary touch to their living spaces. Perfect for those who appreciate a blend of modern and farmhouse aesthetics, this chandelier suits dining rooms, living rooms, and kitchen islands. If you want an eye-catching centerpiece that combines functionality with artistic design, this **12-light height adjustable chandelier** is an excellent choice.
@@ -74,10 +74,10 @@ The **RUIYEY Modern Chandelier** features a unique Sputnik-inspired design that 
 
 With 12 individual lights, this chandelier delivers bright and even illumination, enhancing the atmosphere while also serving as a focal point. The premium craftsmanship by the **manufacturer KUCICO** guarantees durability and a high-quality finish. Whether you want to elevate a modern farmhouse décor or add a contemporary edge to your home, this chandelier offers both style and function in one elegant package.
 
-## <a href="https://www.amazon.com/dp/B0BZYQ6N6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amico Dining Room Light Fixture 5-light Kitchen Island Lighting</a>
+## <a href="https://www.amazon.com/dp/B0BZYQ6N6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amico Dining Room Light Fixture 5-light Kitchen Island Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZYQ6N6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amico Dining Room Light Fixture 5-Light Kitchen Island Lighting with Adjustable Rods, Farmhouse Decor Black Metal &amp; Wood Chandelier with Seeded Glass Shade, Island Lights for Kitchen" src="https://m.media-amazon.com/images/I/41+la8u7GBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZYQ6N6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amico Dining Room Light Fixture 5-Light Kitchen Island Lighting with Adjustable Rods, Farmhouse Decor Black Metal &amp; Wood Chandelier with Seeded Glass Shade, Island Lights for Kitchen" src="https://m.media-amazon.com/images/I/41+la8u7GBL._SL500_.jpg"/></a>
 
 
 The **Amico Dining Room Light Fixture 5-Light Kitchen Island Lighting** is ideal for homeowners and interior enthusiasts looking to enhance their kitchen or dining space with a stylish yet functional lighting solution. Those who appreciate a blend of **farmhouse decor** and modern design will find this chandelier an excellent choice, especially if they need versatile lighting for a kitchen island or dining area.
@@ -100,10 +100,10 @@ The **Amico Dining Room Light Fixture** features five lights housed within elega
 
 Built with a combination of **black metal and wood materials**, this chandelier offers a sturdy construction while adding a warm and natural touch to any kitchen or dining area. The sizable dimensions ensure broad light distribution, making it perfect for illuminating kitchen islands or large dining tables. Overall, the fixture balances style, versatility, and practicality, making it a smart investment for those seeking to elevate their home's ambiance with a farmhouse-inspired lighting centerpiece.
 
-## <a href="https://www.amazon.com/dp/B09686SZJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Espird Farmhouse Dining Room Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B09686SZJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Espird Farmhouse Dining Room Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B09686SZJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Espird Farmhouse Dining Room Light Fixture - 5 Light Matte Black Rectangle Light Fixture with Adjustable Height &amp; Thickened Metal Dining Table Fixture Chandeliers for Dining Room&amp;Kitchen Island" src="https://m.media-amazon.com/images/I/41jg9CM4tHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09686SZJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Espird Farmhouse Dining Room Light Fixture - 5 Light Matte Black Rectangle Light Fixture with Adjustable Height &amp; Thickened Metal Dining Table Fixture Chandeliers for Dining Room&amp;Kitchen Island" src="https://m.media-amazon.com/images/I/41jg9CM4tHL._SL500_.jpg"/></a>
 
 
 The **Espird Farmhouse Dining Room Light Fixture** is ideal for homeowners and interior enthusiasts looking to enhance their dining or kitchen island spaces with a stylish, functional lighting solution. Those who appreciate a blend of modern and rustic design elements, and need an adjustable, durable fixture will find this product especially appealing.
@@ -126,10 +126,10 @@ The **Espird Farmhouse Dining Room Light Fixture** offers an elegant yet sturdy 
 
 Beyond aesthetics, the fixture’s five light setup provides ample illumination, ideal for gatherings, meals, or workspaces. Its rectangular shape distributes light evenly across the table surface, reducing shadows and enhancing visibility. With dimensions thoughtfully designed to fit larger tables, this light fixture balances form and function, making it a valuable addition to contemporary farmhouse or industrial-inspired interiors.
 
-## <a href="https://www.amazon.com/dp/B09NL52QL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Chandelier</a>
+## <a href="https://www.amazon.com/dp/B09NL52QL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B09NL52QL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Chandelier,6-Light Rustic Industrial Iron Chandeliers for Dining Room Lighting Fixtures Hanging,Candle Hanging Hallway, Living Room, Foyer, Bedroom, Office, Bar,Island Lights" src="https://m.media-amazon.com/images/I/31ZIZo2QtnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NL52QL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Chandelier,6-Light Rustic Industrial Iron Chandeliers for Dining Room Lighting Fixtures Hanging,Candle Hanging Hallway, Living Room, Foyer, Bedroom, Office, Bar,Island Lights" src="https://m.media-amazon.com/images/I/31ZIZo2QtnL._SL500_.jpg"/></a>
 
 
 The **Black Chandelier** by **Miluolan** is perfect for individuals seeking to enhance their living or working spaces with a touch of rustic industrial charm. Ideal customers include homeowners, interior designers, and business owners who want a distinctive **lighting fixture** that combines both style and functionality. Whether it's for a **dining room**, **living room**, **foyer**, or even a **bar** or **office**, this chandelier adds a dramatic yet elegant ambiance to any setting.
@@ -151,10 +151,10 @@ This **6-Light Rustic Industrial Iron Chandelier** is thoughtfully designed to c
 
 Additionally, the versatility of this **hanging lighting fixture** means it can adapt to various interior themes, from rustic farmhouse to contemporary industrial. Its robust iron construction offers durability, ensuring that it remains a staple in your décor for years. Whether mounted over an island, in a hallway, or as a focal point in a living area, this chandelier provides both style and functional lighting that enhances the overall ambiance.
 
-## <a href="https://www.amazon.com/dp/B0DFNTGQ4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cnratye 6-light Brushed Nickel Chandeliers</a>
+## <a href="https://www.amazon.com/dp/B0DFNTGQ4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cnratye 6-light Brushed Nickel Chandeliers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFNTGQ4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CNRATYE 6-Light Brushed Nickel Chandeliers for Dining Room Light Fixtures Over Table, Adjustable Height Hanging Industrial Pendant Lighting for Kitchen Island Bedroom, Clear Glass Shade" src="https://m.media-amazon.com/images/I/41BbGI14pcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFNTGQ4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CNRATYE 6-Light Brushed Nickel Chandeliers for Dining Room Light Fixtures Over Table, Adjustable Height Hanging Industrial Pendant Lighting for Kitchen Island Bedroom, Clear Glass Shade" src="https://m.media-amazon.com/images/I/41BbGI14pcL._SL500_.jpg"/></a>
 
 
 The **CNRATYE 6-Light Brushed Nickel Chandeliers** are perfect for homeowners and interior enthusiasts looking to enhance their dining room or kitchen island with a touch of industrial elegance. If you want a versatile lighting fixture that combines style and functionality, especially in spaces like dining rooms, kitchens, or bedrooms, this chandelier is an ideal choice.
@@ -177,10 +177,10 @@ The **CNRATYE 6-Light Brushed Nickel Chandeliers** feature a spacious design mea
 
 One of the standout features is the **adjustable height**, which provides flexibility during installation, allowing users to set the chandelier at the perfect level for their space. Whether hung over a kitchen island or a dining table, this feature ensures optimal lighting without obstructing sightlines or room flow. Overall, this pendant lighting fixture balances aesthetics with practicality, offering a durable and elegant solution for modern home lighting needs.
 
-## <a href="https://www.amazon.com/dp/B0CBH926P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diduio Semi Flush Mount Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B0CBH926P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diduio Semi Flush Mount Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBH926P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIDUIO Semi Flush Mount Ceiling Light Kitchen Lighting Fixtures Ceiling Brushed Nickel Kitchen Cieling Light Fixtures with Clear Glass Shade for Dining Room Bedroom Living Room Hallway E26 Scoket" src="https://m.media-amazon.com/images/I/41eQTQWOkLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBH926P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIDUIO Semi Flush Mount Ceiling Light Kitchen Lighting Fixtures Ceiling Brushed Nickel Kitchen Cieling Light Fixtures with Clear Glass Shade for Dining Room Bedroom Living Room Hallway E26 Scoket" src="https://m.media-amazon.com/images/I/41eQTQWOkLL._SL500_.jpg"/></a>
 
 
 The **DIDUIO Semi Flush Mount Ceiling Light** is ideal for homeowners and interior designers looking to enhance the ambiance of kitchens, dining rooms, bedrooms, living rooms, or hallways. This lighting fixture is perfect for those who appreciate a blend of modern and classic aesthetics, especially in spaces that require a stylish yet practical lighting solution with an elegant touch of brushed nickel and clear glass shade.
@@ -203,10 +203,10 @@ The **DIDUIO Semi Flush Mount Ceiling Light** features a sleek brushed nickel fi
 
 With dimensions of 8.64 inches in height and nearly 13 inches in width and length, this ceiling light is compact yet impactful. Its lightweight construction of just over 4.5 pounds makes it manageable for installation and reduces strain on mounting surfaces. The inclusion of an E26 socket broadens your bulb options, allowing for energy-efficient LEDs or warm incandescent bulbs to suit your mood and decor.
 
-## <a href="https://www.amazon.com/dp/B0BCWMX2TQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dining Room Light Fixture Chandelier Over Table 5-light Kitchen Island Lighting Hanging</a>
+## <a href="https://www.amazon.com/dp/B0BCWMX2TQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dining Room Light Fixture Chandelier Over Table 5-light Kitchen Island Lighting Hanging</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCWMX2TQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dining Room Light Fixture/Chandelier Over Table,5-Light Kitchen Island Lighting Hanging for Farmhouse Linear Chandeliers Matte Black Rustic Wood Ceiling Pendant Light Fixtures with Clear Glass Shade" src="https://m.media-amazon.com/images/I/51D713Q6qrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCWMX2TQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dining Room Light Fixture/Chandelier Over Table,5-Light Kitchen Island Lighting Hanging for Farmhouse Linear Chandeliers Matte Black Rustic Wood Ceiling Pendant Light Fixtures with Clear Glass Shade" src="https://m.media-amazon.com/images/I/51D713Q6qrL._SL500_.jpg"/></a>
 
 
 The **Dining Room Light Fixture/Chandelier** is ideal for homeowners or interior designers looking to enhance their kitchen or dining area with a stylish yet functional lighting solution. If you appreciate the charm of a **farmhouse aesthetic** combined with modern durability, this **5-light kitchen island lighting fixture** with a matte black finish and rustic wood elements is perfect for you. It suits those who want to create a warm, inviting atmosphere over their dining table or kitchen island.
@@ -230,10 +230,10 @@ This **farmhouse linear chandelier** blends rustic wood with a sleek **matte bla
 
 Additionally, the fixture’s durable build by the trusted brand **TWIG** guarantees long-lasting performance. The combination of classic and contemporary elements makes it a versatile choice, providing both functional illumination and aesthetic appeal. Whether hosting family dinners or casual gatherings, this chandelier elevates your space with rustic charm and practical lighting.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is perfect for individuals seeking a stylish yet functional lighting solution for their **living room, bedroom, office, or dining room**. Ideal for those who appreciate modern design combined with energy-efficient features, this lamp suits homeowners, renters, and professionals looking to enhance their space with warm, adjustable lighting. If you want a tall, elegant floor lamp that complements contemporary interiors and offers customizable brightness, this product is an excellent choice.
@@ -257,10 +257,10 @@ The **Nintiue Dimmable Floor Lamp** combines modern aesthetics with practical fu
 
 Featuring a **dimmable 1000 Lumens LED Edison bulb**, this lamp offers users the flexibility to adjust lighting levels according to different activities or moods, whether reading, relaxing, or working. The energy-efficient LED bulb ensures long-lasting performance and cost savings on electricity. Overall, this standing lamp is a stylish, adaptable lighting solution that elevates both the functionality and decor of your home or office.
 
-## <a href="https://www.amazon.com/dp/B0DYJ8M3Q5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Farmhouse Chandelier</a>
+## <a href="https://www.amazon.com/dp/B0DYJ8M3Q5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Farmhouse Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYJ8M3Q5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Farmhouse Chandelier, 6 Light Geometric Dining Room Light Fixture, Modern Industrial Metal Ceiling Light Rustic Hanging Pendant Lights with E12 base for Kitchen Island Entryway Foyer, Indoor" src="https://m.media-amazon.com/images/I/41Ph6N3vNgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYJ8M3Q5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Farmhouse Chandelier, 6 Light Geometric Dining Room Light Fixture, Modern Industrial Metal Ceiling Light Rustic Hanging Pendant Lights with E12 base for Kitchen Island Entryway Foyer, Indoor" src="https://m.media-amazon.com/images/I/41Ph6N3vNgL._SL500_.jpg"/></a>
 
 
 The **Black Farmhouse Chandelier** is ideal for homeowners and interior enthusiasts who seek to blend **modern industrial** style with rustic charm in their living spaces. Perfect for those looking to enhance areas such as the **dining room**, **kitchen island**, **entryway**, or **foyer**, this lighting fixture suits individuals who appreciate both functionality and aesthetic appeal in their home decor.

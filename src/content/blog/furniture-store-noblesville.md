@@ -23,10 +23,10 @@ Choosing furniture locally supports the community and helps you get advice from 
 
 
 
-## <a href="https://www.amazon.com/dp/B083ZM1HSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garland Family Register</a>
+## <a href="https://www.amazon.com/dp/B083ZM1HSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garland Family Register</a>
 
 
-<a href="https://www.amazon.com/dp/B083ZM1HSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Garland Family Register,Noblesville,Indiana,in,Births,Marriages,Deaths" src="https://m.media-amazon.com/images/I/51uOSx2D+qL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083ZM1HSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Garland Family Register,Noblesville,Indiana,in,Births,Marriages,Deaths" src="https://m.media-amazon.com/images/I/51uOSx2D+qL._SL500_.jpg"/></a>
 
 
 The **HistoricalFindings Photo: Garland Family Register, Noblesville, Indiana, in Births, Marriages, Deaths** is ideal for **genealogy enthusiasts**, historians, and individuals looking to preserve or explore their **family heritage**. Anyone interested in tracing their **ancestral records** or studying historical family documents will find this item invaluable. It is perfect for those who appreciate authentic historical artifacts and want a tangible connection to past generations.
@@ -49,10 +49,10 @@ The **HistoricalFindings Photo** captures a significant aspect of family history
 
 Crafted by the reputable **HistoricalFindings** brand, the photo's **white color** background enhances clarity, making it easier to read and analyze the records. Whether displayed as part of a personal collection or used as a research tool, this item combines historical significance with practical usability. The photo is an excellent resource for anyone passionate about uncovering family roots and preserving history for future generations.
 
-## <a href="https://www.amazon.com/dp/B07MRD8TPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">William Conner Prairie Farm</a>
+## <a href="https://www.amazon.com/dp/B07MRD8TPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">William Conner Prairie Farm</a>
 
 
-<a href="https://www.amazon.com/dp/B07MRD8TPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: William Conner Prairie Farm,State Highway 234,Noblesville,Hamilton County,in" src="https://m.media-amazon.com/images/I/5106VobAFtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MRD8TPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: William Conner Prairie Farm,State Highway 234,Noblesville,Hamilton County,in" src="https://m.media-amazon.com/images/I/5106VobAFtL._SL500_.jpg"/></a>
 
 
 The **HistoricalFindings Photo: William Conner Prairie Farm, State Highway 234, Noblesville, Hamilton County** is ideal for history enthusiasts, collectors of vintage imagery, and those interested in preserving or showcasing significant local heritage. If you appreciate detailed historical documentation and want to add a unique piece of Americana to your collection, this item is perfectly suited for you.
@@ -73,10 +73,10 @@ This photo captures the essence of the **William Conner Prairie Farm** along **S
 
 Beyond its aesthetic value, this photo serves as an educational tool that highlights an important landmark, offering viewers insight into the area's heritage. Whether used for personal enjoyment or as part of a curated exhibition, the image's authenticity and craftsmanship offer lasting benefits that enrich historical appreciation and preservation efforts.
 
-## <a href="https://www.amazon.com/dp/B07MR9ZV2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hamilton County Bridge</a>
+## <a href="https://www.amazon.com/dp/B07MR9ZV2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hamilton County Bridge</a>
 
 
-<a href="https://www.amazon.com/dp/B07MR9ZV2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Hamilton County Bridge,Greenfield Pike,Stoney Creek,Noblesville,Indiana,in" src="https://m.media-amazon.com/images/I/6143WTEdniL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MR9ZV2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Hamilton County Bridge,Greenfield Pike,Stoney Creek,Noblesville,Indiana,in" src="https://m.media-amazon.com/images/I/6143WTEdniL._SL500_.jpg"/></a>
 
 
 The **HistoricalFindings Photo: Hamilton County Bridge, Greenfield Pike, Stoney Creek, Noblesville, Indiana** is ideal for history enthusiasts, collectors of vintage photography, and anyone interested in preserving and showcasing historical landmarks. This item is perfect for those who appreciate detailed and authentic representations of significant local infrastructure and want to add a unique piece of Americana to their collection or home decor.
@@ -97,10 +97,10 @@ This photo captures the essence of the **Greenfield Pike Bridge over Stoney Cree
 
 Manufactured by **HistoricalFindings**, this item boasts authenticity and attention to detail, making it a valuable addition for collectors and historians alike. Its visual clarity and historical significance provide users with a meaningful artifact that goes beyond mere decoration, fostering a deeper connection to the community's heritage and enriching any historical archive or display.
 
-## <a href="https://www.amazon.com/dp/B00UGDQ24O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garland Family Register</a>
+## <a href="https://www.amazon.com/dp/B00UGDQ24O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Garland Family Register</a>
 
 
-<a href="https://www.amazon.com/dp/B00UGDQ24O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Garland Family Register,Noblesville,Indiana,in,Births,Marriages,Deaths" src="https://m.media-amazon.com/images/I/51tjX6U8PvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00UGDQ24O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HistoricalFindings Photo: Garland Family Register,Noblesville,Indiana,in,Births,Marriages,Deaths" src="https://m.media-amazon.com/images/I/51tjX6U8PvL._SL500_.jpg"/></a>
 
 
 The **HistoricalFindings Photo: Garland Family Register, Noblesville, Indiana, in Births, Marriages, Deaths** is ideal for **genealogy enthusiasts**, **family historians**, and anyone interested in preserving or exploring their **ancestral roots**. This item is perfect for those who want an authentic and detailed record of vital family events, providing a tangible connection to the past.

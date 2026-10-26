@@ -23,10 +23,10 @@ Washable rugs help maintain cleanliness easily. Foam and interlocking carpet til
 
 
 
-## <a href="https://www.amazon.com/dp/B092YPS21N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Finchitty Indoor Door Mat</a>
+## <a href="https://www.amazon.com/dp/B092YPS21N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Finchitty Indoor Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B092YPS21N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 20",="" alt="Finchitty Indoor Door Mat, Dirt Resistant and Absorbent, Low-Profile, Non-Slip, Washable Inside Floor Mats for Front Door, Back, and Entrance, 32" grey"="" src="https://m.media-amazon.com/images/I/61RAuIgUDNL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B092YPS21N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 20",="" alt="Finchitty Indoor Door Mat, Dirt Resistant and Absorbent, Low-Profile, Non-Slip, Washable Inside Floor Mats for Front Door, Back, and Entrance, 32" grey"="" src="https://m.media-amazon.com/images/I/61RAuIgUDNL._SL500_.jpg" x=""/></a>
 
 
 The **Finchitty Indoor Door Mat** is ideal for homeowners and renters looking to keep their entryways clean and stylish. If you want a durable, **low-profile**, and **non-slip** floor mat that effectively traps dirt and absorbs moisture, this mat is a perfect choice. It suits anyone seeking a functional yet modern addition to their front door, back entrance, or indoor floor space.
@@ -49,10 +49,10 @@ Crafted with a focus on practicality, the **Finchitty Indoor Door Mat** offers e
 
 Additionally, the mat's **washable** design simplifies maintenance, allowing users to refresh it easily and extend its lifespan. The stylish **grey color** blends seamlessly with various interior themes, providing both functionality and aesthetic appeal. Lightweight yet durable, this indoor floor mat is a practical investment for anyone who values cleanliness and convenience in their home environment.
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs** are perfect for individuals looking to add a touch of comfort and style to their **living rooms, bedrooms, dorms, or nursery rooms**. Ideal for parents seeking a soft and safe floor covering for their **kids, girls, and boys**, or anyone who appreciates a cozy and **machine washable** rug that is easy to maintain. This rug caters especially well to those who want a combination of aesthetic appeal and practical functionality in their home decor.
@@ -75,10 +75,10 @@ The **OLANLY Area Rug** boasts a plush and soft shaggy surface with a height of 
 
 Designed with a versatile **grey color**, this rug blends seamlessly with various interior styles, from modern to traditional. Its dimensions make it suitable for use beside beds, in dorm rooms, or as a decorative accent in living rooms and nurseries. The combination of softness, practicality, and appealing design makes the OLANLY Area Rug a smart choice for anyone seeking to elevate their indoor space with both comfort and style.
 
-## <a href="https://www.amazon.com/dp/B092VC7VK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rabenda 12 Pcs Rug Tape</a>
+## <a href="https://www.amazon.com/dp/B092VC7VK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rabenda 12 Pcs Rug Tape</a>
 
 
-<a href="https://www.amazon.com/dp/B092VC7VK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rabenda 12 Pcs Rug Tape, Non Slip Rug Pads Grippers for Hardwood Floors and Tiles, Reusable Carpet Tape for Area Rugs, Double-Sided Adhesive Rug Stickers Keep Corners Flat (Black)" src="https://m.media-amazon.com/images/I/51ZHr3ZJ8gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092VC7VK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rabenda 12 Pcs Rug Tape, Non Slip Rug Pads Grippers for Hardwood Floors and Tiles, Reusable Carpet Tape for Area Rugs, Double-Sided Adhesive Rug Stickers Keep Corners Flat (Black)" src="https://m.media-amazon.com/images/I/51ZHr3ZJ8gL._SL500_.jpg"/></a>
 
 
 The **Rabenda 12 Pcs Rug Tape** is perfect for homeowners and renters looking to secure their area rugs on **hardwood floors** or **tiles** without damaging the surface. Ideal for those who want a **non-slip** solution that is both **reusable** and easy to apply, this product is great for anyone aiming to keep their rugs flat and prevent tripping hazards.
@@ -101,10 +101,10 @@ The **Rabenda Rug Tape** features a reliable **double-sided adhesive** that effe
 
 Additionally, the tape’s **non-slip properties** provide peace of mind, especially in high-traffic areas where rugs tend to shift. Being **reusable** adds value by allowing users to reposition or replace rugs without constantly buying new tape, making it a cost-effective and practical solution for securing rugs on delicate flooring.
 
-## <a href="https://www.amazon.com/dp/B0DKFN3MWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12 Pcs Plush Foam Interlocking Carpet Tiles</a>
+## <a href="https://www.amazon.com/dp/B0DKFN3MWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12 Pcs Plush Foam Interlocking Carpet Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKFN3MWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pcs Plush Foam Interlocking Carpet Tiles,Soft Shaggy Fluffy Floor Area Rugs with Padding,Colorful Floor Protective Mats for Home Kids Room Playroom (White and Black, 11.8 x 11.8 x 0.39)" src="https://m.media-amazon.com/images/I/51qpEkwHubL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKFN3MWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pcs Plush Foam Interlocking Carpet Tiles,Soft Shaggy Fluffy Floor Area Rugs with Padding,Colorful Floor Protective Mats for Home Kids Room Playroom (White and Black, 11.8 x 11.8 x 0.39)" src="https://m.media-amazon.com/images/I/51qpEkwHubL._SL500_.jpg"/></a>
 
 
 Ideal for parents looking to create a safe and comfortable play area for their children, the **12 Pcs Plush Foam Interlocking Carpet Tiles** by **LOWEMN** are perfect for homes, kids' rooms, and playrooms. These **soft shaggy fluffy floor area rugs** provide a colorful and protective flooring solution that combines comfort and durability, making them suitable for families who prioritize both style and safety in their living spaces.
@@ -127,10 +127,10 @@ The **LOWEMN 12 Pcs Plush Foam Interlocking Carpet Tiles** feature a unique inte
 
 Designed with both functionality and aesthetics in mind, these carpet tiles offer a sleek black and white pattern that complements various interior styles. Their lightweight design makes them easy to move and rearrange, allowing for flexible use in different rooms or settings. Additionally, the durable material ensures longevity, making them a worthwhile investment for families seeking a practical and attractive flooring solution.
 
-## <a href="https://www.amazon.com/dp/B0CLNS53QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarnscape Vintage Washable Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CLNS53QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yarnscape Vintage Washable Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLNS53QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YARNSCAPE Vintage 5' x 7' Washable Area Rug - Stylish Indoor Rug for Living, Dining or Bedroom - Lightweight Carpet with Non-Slip Backing - Foldable for Easy Placement and Maintenance - Grey" src="https://m.media-amazon.com/images/I/61UADk21zRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLNS53QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YARNSCAPE Vintage 5' x 7' Washable Area Rug - Stylish Indoor Rug for Living, Dining or Bedroom - Lightweight Carpet with Non-Slip Backing - Foldable for Easy Placement and Maintenance - Grey" src="https://m.media-amazon.com/images/I/61UADk21zRL._SL500_.jpg"/></a>
 
 
 The **YARNSCAPE Vintage 5' x 7' Washable Area Rug** is ideal for homeowners or renters looking to enhance their living, dining, or bedroom spaces with a stylish yet practical floor covering. It is perfect for those who value easy maintenance, lightweight design, and non-slip safety features in their home décor. This rug suits individuals who want a versatile and foldable carpet that combines aesthetic appeal with everyday functionality.
@@ -152,10 +152,10 @@ The **YARNSCAPE Vintage Area Rug** boasts a sleek **vintage-grey hue** that effo
 
 Additionally, the rug’s **lightweight and foldable design** makes it easy to move and position, perfect for those who like to redecorate or rearrange their furniture frequently. Measuring 5 feet by 7 feet with a slim profile, it fits comfortably in various rooms without overwhelming the space. Overall, the **YARNSCAPE Vintage Rug** offers a blend of style, convenience, and safety, making it an excellent choice for anyone looking to update their home décor with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
+## <a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smabee Interlocking Carpet Shaggy Soft Eva Foam Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B08NYF645Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NYF645Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="smabee Interlocking Carpet Shaggy Soft EVA Foam Mats Fluffy Area Rugs Protective Floor Tiles Exercise Play Mat for Children Kids Room Home Parlor Bedroom (12 pcs, Gray)" src="https://m.media-amazon.com/images/I/51cOa6Jxe6L._SL500_.jpg"/></a>
 
 
 The **smabee Interlocking Carpet Shaggy Soft EVA Foam Mats** are ideal for parents and caregivers looking to create a comfortable, safe, and stylish play area for children. Perfect for kids’ rooms, playrooms, or any home space where children spend time, these mats provide a soft and protective surface that encourages safe play and reduces the risk of injury from hard floors.
@@ -177,10 +177,10 @@ The **smabee Shaggy Soft EVA Foam Mats** feature a plush, shaggy texture that en
 
 These mats are designed with versatility in mind, allowing users to create custom-sized areas by connecting the 12 included pieces. The foam material is lightweight yet durable, making it easy to rearrange or transport. Additionally, the mats protect hard floors from scratches and wear, ensuring the longevity of your home surfaces while providing a cozy environment for kids to play, exercise, or relax.
 
-## <a href="https://www.amazon.com/dp/B0CMTDP6H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16 Pcs Shaggy Interlocking Foam Carpet Tiles</a>
+## <a href="https://www.amazon.com/dp/B0CMTDP6H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16 Pcs Shaggy Interlocking Foam Carpet Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMTDP6H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16 Pcs Shaggy Interlocking Foam Carpet Tiles - Coverage 49” x 49”, Kids Carpet Squares Protective Floor Mats Crawling Exercise Area Rugs for Children Room, Home or Classroom Use, Grey" src="https://m.media-amazon.com/images/I/51JdTFHfqhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMTDP6H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16 Pcs Shaggy Interlocking Foam Carpet Tiles - Coverage 49” x 49”, Kids Carpet Squares Protective Floor Mats Crawling Exercise Area Rugs for Children Room, Home or Classroom Use, Grey" src="https://m.media-amazon.com/images/I/51JdTFHfqhL._SL500_.jpg"/></a>
 
 
 The **16 Pcs Shaggy Interlocking Foam Carpet Tiles** are ideal for parents and educators looking to create a safe, comfortable, and stylish play area for children. Perfect for a **kids' room, home play area, or classroom**, these carpet squares offer a protective floor covering that enhances both safety and comfort during playtime and exercise. If you want a soft, durable, and easy-to-clean floor mat that cushions falls and adds warmth, this product is a perfect choice.
@@ -204,10 +204,10 @@ The **16 Pcs Shaggy Interlocking Foam Carpet Tiles** cover an area of 49” x 49
 
 Beyond comfort, the foam material serves a critical protective function by cushioning falls and reducing the risk of injuries on hard floors. The foam’s durability ensures long-lasting use, while the easy-to-clean surface makes maintenance hassle-free for busy parents or teachers. The neutral grey tone is versatile enough to blend with various interior styles, making it a practical addition to any child-focused environment. Overall, these carpet tiles combine functionality, safety, and style to create an ideal floor covering solution for children’s play areas.
 
-## <a href="https://www.amazon.com/dp/B0DHNV21YC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shaggy Soft Eva Foam Interlocking Carpet Fluffy Rugs Protective Floor Tiles Sport Play Mats</a>
+## <a href="https://www.amazon.com/dp/B0DHNV21YC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shaggy Soft Eva Foam Interlocking Carpet Fluffy Rugs Protective Floor Tiles Sport Play Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHNV21YC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 pcs Shaggy Soft EVA Foam Interlocking Carpet Fluffy Rugs Protective Floor Tiles Sport Play mats for Home Parlor, Bedroom, Children Kids Room (Black)" src="https://m.media-amazon.com/images/I/41GdP4ceVwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHNV21YC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 pcs Shaggy Soft EVA Foam Interlocking Carpet Fluffy Rugs Protective Floor Tiles Sport Play mats for Home Parlor, Bedroom, Children Kids Room (Black)" src="https://m.media-amazon.com/images/I/41GdP4ceVwL._SL500_.jpg"/></a>
 
 
 The **12 pcs Shaggy Soft EVA Foam Interlocking Carpet Fluffy Rugs** are ideal for families looking to enhance comfort and safety in areas like the **home parlor, bedroom, or children's kids room**. This set is perfect for parents who want a soft, cushioned play area for their children, as well as anyone who desires protective floor tiles that combine functionality with a cozy aesthetic.
@@ -231,10 +231,10 @@ These **soft EVA foam interlocking carpet tiles** are designed to provide a safe
 
 Additionally, the protective nature of these floor tiles helps safeguard your existing flooring from scratches and impacts, making them a practical choice for busy households. Their lightweight yet durable construction ensures that they are easy to move and clean, while still offering lasting support and comfort. Overall, this product is a smart investment for anyone seeking a blend of safety, comfort, and style in their living spaces.
 
-## <a href="https://www.amazon.com/dp/B07ZSWRKZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Veken Rug Gripper Pad</a>
+## <a href="https://www.amazon.com/dp/B07ZSWRKZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Veken Rug Gripper Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZSWRKZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Veken Rug Gripper Pad for Hardwood Floors, Non Slip Rug Pads for Area Rugs, Thick Rug Grippers for Tile Floors, Under Carpet Anti Skid Mat, Keep Your Rugs Safe and in Place, 2x3 Ft" src="https://m.media-amazon.com/images/I/61v05qwyjVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZSWRKZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Veken Rug Gripper Pad for Hardwood Floors, Non Slip Rug Pads for Area Rugs, Thick Rug Grippers for Tile Floors, Under Carpet Anti Skid Mat, Keep Your Rugs Safe and in Place, 2x3 Ft" src="https://m.media-amazon.com/images/I/61v05qwyjVL._SL500_.jpg"/></a>
 
 
 The **Veken Rug Gripper Pad for Hardwood Floors** is ideal for homeowners and renters who want to keep their area rugs securely in place without damaging their **hardwood, tile, or carpeted floors**. If you often find your rugs slipping or bunching up, this non-slip rug pad is a perfect solution to enhance safety and maintain the aesthetic appeal of your living spaces.
@@ -257,10 +257,10 @@ The **Veken Rug Gripper Pad** features a strong adhesive grip that securely hold
 
 In addition to keeping rugs stable, this pad serves as a protective barrier that safeguards your flooring from scratches and wear caused by rug movement. Its versatile size of **2x3 feet** fits most area rugs, and it can be trimmed for custom fits. Whether you want to enhance safety, preserve your floors, or improve the look of your rugs, the **Veken Rug Gripper Pad** is an excellent choice for any household.
 
-## <a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Bathroom Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Bathroom Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Bathroom Rugs 30x20, Extra Soft Absorbent Chenille Bath Rugs, Rubber Backing Quick Dry, Machine Washable Bath Mats for Bathroom Floor, Tub and Shower, Home Decor Accessories, Grey" src="https://m.media-amazon.com/images/I/51kr9wGrijL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFGYFCYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Bathroom Rugs 30x20, Extra Soft Absorbent Chenille Bath Rugs, Rubber Backing Quick Dry, Machine Washable Bath Mats for Bathroom Floor, Tub and Shower, Home Decor Accessories, Grey" src="https://m.media-amazon.com/images/I/51kr9wGrijL._SL500_.jpg"/></a>
 
 
 The **OLANLY Bathroom Rugs 30x20** are perfect for homeowners or renters looking to enhance their bathroom comfort and style. Ideal for those who want a soft, absorbent, and quick-drying bath mat that is also easy to maintain, these rugs suit anyone aiming to improve safety and aesthetics in their bathroom space. If you prioritize durability, machine-washable convenience, and a modern look in **grey**, this product is an excellent choice.

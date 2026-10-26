@@ -23,10 +23,10 @@ Colors and patterns can brighten the room or blend with your decor. Washable and
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQLNJHDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earthall Woven Area Rug 4x6 Ft</a>
+## <a href="https://www.amazon.com/dp/B0CQLNJHDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earthall Woven Area Rug 4x6 Ft</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQLNJHDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARTHALL Woven Area Rug 4x6 Ft Washable Rugs for Entryway Non Slip Braided Throw Rugs Bedroom Carpet Cotton Entry Rug Cotton Floor Carpets for Bedroom Dining Room Living Room, Orange/Tan/Brown" src="https://m.media-amazon.com/images/I/516fXRnRgnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQLNJHDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARTHALL Woven Area Rug 4x6 Ft Washable Rugs for Entryway Non Slip Braided Throw Rugs Bedroom Carpet Cotton Entry Rug Cotton Floor Carpets for Bedroom Dining Room Living Room, Orange/Tan/Brown" src="https://m.media-amazon.com/images/I/516fXRnRgnL._SL500_.jpg"/></a>
 
 
 The **EARTHALL Woven Area Rug 4x6 Ft** is ideal for homeowners or renters looking to add a touch of warmth and style to their **entryway, bedroom, dining room, or living room**. If you want a **washable, non-slip, and durable rug** that combines both functionality and aesthetic appeal, this rug is a perfect choice. It’s especially suitable for those who appreciate natural materials like **cotton** and desire easy maintenance along with a cozy, welcoming atmosphere.
@@ -48,10 +48,10 @@ The **EARTHALL Woven Area Rug** features a beautifully braided cotton constructi
 
 Additionally, the rug’s **non-slip backing** is a crucial feature that adds safety, especially in households with children or elderly members. The warm **orange, tan, and brown hues** create an inviting ambiance, complementing a wide range of interior decor styles. Its dimensions and lightweight design make it versatile for various spaces, from entryways to dining areas, enhancing both functionality and style effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furkit Vinyl Floor Mat</a>
+## <a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furkit Vinyl Floor Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FURKIT Vinyl Floor Mat for Home, Black Waterproof Area Mat for Under Dining Room Table, Sturdy Plastic Rug Protector for Kitchen, Living Room, Yard, Garage, Large Baby Play Mat (3'×5')" src="https://m.media-amazon.com/images/I/41oJmbVqlAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYCDLMR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FURKIT Vinyl Floor Mat for Home, Black Waterproof Area Mat for Under Dining Room Table, Sturdy Plastic Rug Protector for Kitchen, Living Room, Yard, Garage, Large Baby Play Mat (3'×5')" src="https://m.media-amazon.com/images/I/41oJmbVqlAL._SL500_.jpg"/></a>
 
 
 The **FURKIT Vinyl Floor Mat** is ideal for homeowners looking to protect their floors in high-traffic areas such as under dining room tables, kitchens, garages, or play areas. If you want a durable, waterproof, and easy-to-clean floor protector that combines functionality with style, this sturdy **black vinyl mat** is a great choice.
@@ -74,10 +74,10 @@ The **FURKIT Vinyl Floor Mat** features a sleek black design that fits seamlessl
 
 This mat is crafted from sturdy plastic, providing a robust barrier without compromising on easy maintenance. Users benefit from its lightweight yet durable construction, allowing for hassle-free cleaning and repositioning when needed. Its versatility means it can double as a protective surface in the garage or as a large baby play mat, offering peace of mind in multiple home environments.
 
-## <a href="https://www.amazon.com/dp/B0D91HNJ9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boho Dining Room Rugs For Under Table</a>
+## <a href="https://www.amazon.com/dp/B0D91HNJ9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boho Dining Room Rugs For Under Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0D91HNJ9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Boho Dining Room Rugs for Under Table - 6x9 Washable Black Area Rug for Living Room, Low Pile Non-Slip Rugs for Bedroom, Office - Charming Farmhouse Decor &amp; Stain Resistance (6x9 Black/Multi)" src="https://m.media-amazon.com/images/I/51LzJkSjXtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D91HNJ9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Boho Dining Room Rugs for Under Table - 6x9 Washable Black Area Rug for Living Room, Low Pile Non-Slip Rugs for Bedroom, Office - Charming Farmhouse Decor &amp; Stain Resistance (6x9 Black/Multi)" src="https://m.media-amazon.com/images/I/51LzJkSjXtL._SL500_.jpg"/></a>
 
 
 The **Boho Dining Room Rugs for Under Table** by **Hazo Haus** are ideal for homeowners and renters who want to enhance their living room, bedroom, or office space with stylish yet functional decor. If you are looking for a **low pile, non-slip rug** that combines **charming farmhouse aesthetics** with practical features like **washability** and **stain resistance**, this 6x9 black area rug is a perfect choice. It suits those who prioritize durability and ease of maintenance without compromising on style.
@@ -99,10 +99,10 @@ Crafted by **Hazo Haus**, this **6x9 washable black area rug** measures 0.25 inc
 
 The **boho farmhouse design** features an ashen and multi-color blend that adds warmth and character to any room, complementing both modern and traditional decor styles. Its versatile size and durable construction make it suitable not only for dining rooms but also for bedrooms and offices, providing comfort underfoot and enhancing the overall ambiance of your space. Investing in this rug means combining practical benefits with a timeless decorative touch.
 
-## <a href="https://www.amazon.com/dp/B0CN9SVLDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Washable Area Rug Gray Vintage Traditional</a>
+## <a href="https://www.amazon.com/dp/B0CN9SVLDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Washable Area Rug Gray Vintage Traditional</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN9SVLDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT 5x7 Washable Area Rug Gray Vintage Traditional Floor Cover Foldable Thin Kitchen Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51ZT5NDLAhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN9SVLDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT 5x7 Washable Area Rug Gray Vintage Traditional Floor Cover Foldable Thin Kitchen Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51ZT5NDLAhL._SL500_.jpg"/></a>
 
 
 The **CHAMPLANT 5x7 Washable Area Rug Gray Vintage Traditional Floor Cover** is ideal for homeowners and renters looking to add a touch of elegance and comfort to their indoor spaces. This rug is perfect for those who want a versatile, stylish, and easy-to-maintain floor covering that works well in kitchens, bedrooms, living rooms, and bathrooms. If you value both aesthetics and practicality in home decor, this rug is a great choice.
@@ -124,10 +124,10 @@ The **CHAMPLANT Gray Vintage Traditional Rug** features a delicate floral print 
 
 Beyond its visual appeal, this rug offers practical benefits such as a **non-slip backing** that improves safety, especially on smooth or tiled floors. Additionally, it is **washable**, which simplifies cleaning and helps maintain a fresh, hygienic environment. Overall, this rug combines functionality and traditional design, making it a smart choice for those seeking an attractive yet practical floor covering.
 
-## <a href="https://www.amazon.com/dp/B0C2Y3T5LN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Steprite Kitchen Mats</a>
+## <a href="https://www.amazon.com/dp/B0C2Y3T5LN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Steprite Kitchen Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2Y3T5LN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StepRite Kitchen Mats, 2PCS Kitchen Rugs, Cushioned Anti Fatigue Kitchen Mats for Floor, Non-Slip Standing Desk Mat, Waterproof Kitchen Rug Set for Kitchen, Floor, Office, 17.3" black"="" src="https://m.media-amazon.com/images/I/51V1BHC9wWL._SL500_.jpg" x30"+17.3"x47",=""/></a>
+<a href="https://www.amazon.com/dp/B0C2Y3T5LN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StepRite Kitchen Mats, 2PCS Kitchen Rugs, Cushioned Anti Fatigue Kitchen Mats for Floor, Non-Slip Standing Desk Mat, Waterproof Kitchen Rug Set for Kitchen, Floor, Office, 17.3" black"="" src="https://m.media-amazon.com/images/I/51V1BHC9wWL._SL500_.jpg" x30"+17.3"x47",=""/></a>
 
 
 The **StepRite Kitchen Mats, 2PCS Kitchen Rugs** are ideal for individuals who spend long hours standing in the kitchen or at a standing desk. Whether you are a home cook, a busy professional working from home, or someone looking to add comfort and safety to their workspace, these cushioned, anti-fatigue mats provide excellent support and protection for your floors. If you want to reduce foot and leg fatigue while enhancing your kitchen or office environment, this product is a perfect choice.
@@ -149,10 +149,10 @@ The **StepRite Kitchen Mats** feature a thick, cushioned core that effectively a
 
 Additionally, the **non-slip backing** provides reliable traction on tile, hardwood, or laminate floors, reducing the risk of accidents in busy areas. The two sizes included in the set allow for flexible placement, whether you want coverage near the sink and stove or to create a comfortable standing zone at your desk. Overall, these mats combine practicality with comfort, making them a valuable addition to any kitchen or workspace.
 
-## <a href="https://www.amazon.com/dp/B0D129PSBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Botanical Boho Dining Room Rug</a>
+## <a href="https://www.amazon.com/dp/B0D129PSBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Botanical Boho Dining Room Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D129PSBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Botanical Boho Dining Room Rug, Soft Modern Area Rug for Living Room, Machine Washable Leaf Area Rugs for Bedroom, Non Slip Non Shedding Plant Rug for Dining Room Table (5'x8', Beige)" src="https://m.media-amazon.com/images/I/51BNLFPYX4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D129PSBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Botanical Boho Dining Room Rug, Soft Modern Area Rug for Living Room, Machine Washable Leaf Area Rugs for Bedroom, Non Slip Non Shedding Plant Rug for Dining Room Table (5'x8', Beige)" src="https://m.media-amazon.com/images/I/51BNLFPYX4L._SL500_.jpg"/></a>
 
 
 The **Lahome Botanical Boho Dining Room Rug** is perfect for individuals seeking a stylish yet functional area rug to enhance their living or dining spaces. Ideal customers include those who appreciate modern, nature-inspired designs and desire a soft, comfortable rug that is easy to maintain. This rug suits homeowners or renters who want a durable, non-slip, and non-shedding floor covering that complements a boho or botanical decor theme.
@@ -175,10 +175,10 @@ The **Lahome Botanical Boho Dining Room Rug** features a beautifully crafted lea
 
 One of the standout features is its **machine washable** fabric, which simplifies cleaning and ensures the rug maintains its fresh appearance over time. Additionally, the rug’s **non-slip backing** prevents slips and keeps it securely in place, providing peace of mind in homes with children or pets. The **non-shedding** quality also means less mess and easier upkeep, making this rug a practical yet stylish choice for busy households.
 
-## <a href="https://www.amazon.com/dp/B0D14TP68F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Area Rug 5x7 Vintage Rug</a>
+## <a href="https://www.amazon.com/dp/B0D14TP68F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Area Rug 5x7 Vintage Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D14TP68F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Area Rug 5x7 Vintage Rug: Washable Indoor Medallion Rugs Low Pile Distressed Floor Carpet Retro Accent Rug for Living Room Bedroom Kitchen Dining Table Home Office(Beige, 5'x7')" src="https://m.media-amazon.com/images/I/51iWModxUiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D14TP68F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Area Rug 5x7 Vintage Rug: Washable Indoor Medallion Rugs Low Pile Distressed Floor Carpet Retro Accent Rug for Living Room Bedroom Kitchen Dining Table Home Office(Beige, 5'x7')" src="https://m.media-amazon.com/images/I/51iWModxUiL._SL500_.jpg"/></a>
 
 
 The **Area Rug 5x7 Vintage Rug** by **Zomfy** is ideal for homeowners and renters looking to add a touch of classic elegance and warmth to their living spaces. Perfect for those who appreciate a blend of **retro style** and practicality, this rug suits individuals seeking a durable, washable, and low-maintenance floor covering for areas such as the living room, bedroom, kitchen, dining table, or home office.
@@ -202,10 +202,10 @@ Featuring a **60 by 84 inches** dimension, this **vintage rug** offers ample cov
 
 One of the standout benefits of this rug is its **washable feature**, which significantly simplifies upkeep compared to traditional rugs that require professional cleaning. This makes it particularly suitable for busy homes or offices where spills and dirt are common. Additionally, the rug’s lightweight design allows for easy relocation or storage, enhancing its practicality. Overall, the **Zomfy Area Rug 5x7 Vintage Rug** combines functionality with aesthetic charm, making it a smart choice for anyone looking to enhance their home or office flooring with a durable and stylish accent.
 
-## <a href="https://www.amazon.com/dp/B0CYSYPXJR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sooalmost 5x7 Area Rugs Beige Low Pile Indoor Washable</a>
+## <a href="https://www.amazon.com/dp/B0CYSYPXJR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sooalmost 5x7 Area Rugs Beige Low Pile Indoor Washable</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYSYPXJR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soalmost 5x7 Area Rugs Beige Low Pile Indoor Washable Trendy Faded Style Rugs for Bedroom Living Room Dining Room Foldable Non-Slip Thin Print Home Office Mat" src="https://m.media-amazon.com/images/I/51p-wgrGaKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYSYPXJR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soalmost 5x7 Area Rugs Beige Low Pile Indoor Washable Trendy Faded Style Rugs for Bedroom Living Room Dining Room Foldable Non-Slip Thin Print Home Office Mat" src="https://m.media-amazon.com/images/I/51p-wgrGaKL._SL500_.jpg"/></a>
 
 
 The **Soalmost 5x7 Area Rug** in **Beige** is ideal for homeowners and renters looking to enhance their **indoor living spaces** with a stylish yet functional floor covering. This rug is perfect for those who want a **low-maintenance, washable, and trendy** rug that fits well in bedrooms, living rooms, dining rooms, or home offices. If you seek a **thin, foldable, and non-slip mat** that combines aesthetic appeal with practicality, this rug is an excellent choice.
@@ -229,10 +229,10 @@ The **Soalmost 5x7 Area Rug** boasts a **low pile** height that makes it an exce
 
 Additionally, the **non-slip backing** enhances safety by preventing slips and falls, making it suitable for households with children or elderly members. Its **foldable and thin** construction allows for convenient storage and transport, ideal for those who like to rearrange their space or move frequently. Overall, this rug is a practical and stylish addition to any indoor space seeking a balance of comfort, safety, and modern design.
 
-## <a href="https://www.amazon.com/dp/B08R3QZ99Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hausattire Hand Woven Jute Braided Rug</a>
+## <a href="https://www.amazon.com/dp/B08R3QZ99Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hausattire Hand Woven Jute Braided Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B08R3QZ99Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hausattire Hand Woven Jute Braided Rug, 4’ Round – Natural, Reversible Boho Entry Area Rugs for Kitchen, Living Room I Farmhouse Decorative Floor Rug, 4 Feet Round" src="https://m.media-amazon.com/images/I/61MlcpvfPYS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08R3QZ99Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hausattire Hand Woven Jute Braided Rug, 4’ Round – Natural, Reversible Boho Entry Area Rugs for Kitchen, Living Room I Farmhouse Decorative Floor Rug, 4 Feet Round" src="https://m.media-amazon.com/images/I/61MlcpvfPYS._SL500_.jpg"/></a>
 
 
 The **Hausattire Hand Woven Jute Braided Rug** is ideal for individuals looking to add a touch of natural, rustic charm to their home decor. Perfect for those who appreciate **boho** and **farmhouse styles**, this 4-foot round rug is suited for entryways, kitchens, and living rooms. If you want a durable, eco-friendly, and stylish floor covering that complements a variety of interior themes, this rug is an excellent choice.
@@ -255,10 +255,10 @@ The **Hausattire Hand Woven Jute Braided Rug** stands out due to its meticulous 
 
 Another key feature is its **reversible design**, which maximizes usability and allows users to rotate the rug, reducing wear and extending its lifespan. Its lightweight nature facilitates easy cleaning and relocation, making it ideal for those who like to frequently refresh their living spaces. Overall, this rug offers a beautiful balance of form and function, providing a charming, eco-friendly floor covering that enhances the ambiance of your home.
 
-## <a href="https://www.amazon.com/dp/B0D2W12KPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Macgace Washable Abstract Rug</a>
+## <a href="https://www.amazon.com/dp/B0D2W12KPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Macgace Washable Abstract Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2W12KPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Macgace Washable Abstract Rug, 4x6 Modern Area Rugs with Non-Slip Rubber Backed for Living Room, Thin but Soft Contemporary Carpet Kitchen Bedroom Decor, Black Grey" src="https://m.media-amazon.com/images/I/51JPRritoKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2W12KPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Macgace Washable Abstract Rug, 4x6 Modern Area Rugs with Non-Slip Rubber Backed for Living Room, Thin but Soft Contemporary Carpet Kitchen Bedroom Decor, Black Grey" src="https://m.media-amazon.com/images/I/51JPRritoKL._SL500_.jpg"/></a>
 
 
 The **Macgace Washable Abstract Rug** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. If you want a **modern area rug** that combines contemporary design with easy maintenance, this rug is perfect for your **living room, kitchen, or bedroom**. Its **thin but soft texture** makes it suitable for those who prefer comfort without bulk, and the **non-slip rubber backing** ensures safety on various floor types.

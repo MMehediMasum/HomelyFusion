@@ -23,10 +23,10 @@ Sizes vary to fit different spaces, from small mats to longer runners. Colors an
 
 
 
-## <a href="https://www.amazon.com/dp/B092MK3QNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kitchen Rugs And Mats</a>
+## <a href="https://www.amazon.com/dp/B092MK3QNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kitchen Rugs And Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B092MK3QNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kitchen Rugs and Mats Non Skid Washable, Absorbent Runner Rugs for Kitchen, Front of Sink, Kitchen Mats for Floor (Beige, 20" src="https://m.media-amazon.com/images/I/51UzLeT3l-S._SL500_.jpg" x47")"=""/></a>
+<a href="https://www.amazon.com/dp/B092MK3QNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kitchen Rugs and Mats Non Skid Washable, Absorbent Runner Rugs for Kitchen, Front of Sink, Kitchen Mats for Floor (Beige, 20" src="https://m.media-amazon.com/images/I/51UzLeT3l-S._SL500_.jpg" x47")"=""/></a>
 
 
 The **Kitchen Rugs and Mats Non Skid Washable** by **MontVoo** are perfect for individuals who spend a lot of time cooking or washing dishes and want to add comfort and safety to their kitchen floor. Ideal for homeowners, renters, or anyone looking to enhance their kitchen space with a practical and stylish solution, these **absorbent runner rugs** are especially suited for placement in front of the sink or other high-traffic kitchen areas.
@@ -50,10 +50,10 @@ The **MontVoo Kitchen Rugs and Mats** combine functionality with convenience. Th
 
 Crafted with a thin yet comfortable material, these mats provide a cushioned surface that reduces fatigue during long cooking or cleaning sessions. The **neutral beige color** ensures they blend seamlessly with most kitchen styles, adding a subtle touch of warmth without overpowering the decor. Overall, this **kitchen mat** offers a practical, safe, and aesthetically pleasing solution for anyone looking to enhance their kitchen workspace.
 
-## <a href="https://www.amazon.com/dp/B08HVC4MC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiselife Kitchen Mat And Rugs Cushioned Anti-fatigue</a>
+## <a href="https://www.amazon.com/dp/B08HVC4MC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiselife Kitchen Mat And Rugs Cushioned Anti-fatigue</a>
 
 
-<a href="https://www.amazon.com/dp/B08HVC4MC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 28",non="" alt="WISELIFE Kitchen Mat and Rugs Cushioned Anti-Fatigue,17.3" comfort="" ergonomic="" floor="" for="" grey"="" home,="" kitchen,="" laundry,="" mat="" office,="" sink,="" slip="" src="https://m.media-amazon.com/images/I/51nsqKwRATL._SL500_.jpg" waterproof="" x=""/></a>
+<a href="https://www.amazon.com/dp/B08HVC4MC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 28",non="" alt="WISELIFE Kitchen Mat and Rugs Cushioned Anti-Fatigue,17.3" comfort="" ergonomic="" floor="" for="" grey"="" home,="" kitchen,="" laundry,="" mat="" office,="" sink,="" slip="" src="https://m.media-amazon.com/images/I/51nsqKwRATL._SL500_.jpg" waterproof="" x=""/></a>
 
 
 The **WISELIFE Kitchen Mat and Rugs Cushioned Anti-Fatigue** is ideal for individuals who spend long hours standing in the kitchen, laundry room, or office. Whether you're a home cook, a professional chef, or someone who works at a standing desk, this mat provides the perfect blend of comfort and functionality to reduce fatigue and enhance your workspace.
@@ -75,10 +75,10 @@ The **WISELIFE Kitchen Mat** features a cushioned anti-fatigue design that provi
 
 Measuring 17.3 inches in width and 28 inches in length, this mat is compact yet effective, perfect for placing in front of sinks, counters, or standing desks. The ergonomic comfort it offers helps improve posture and circulation, making daily tasks less tiring. Additionally, the lightweight build allows for easy movement and cleaning, making it a practical addition to any home or office environment.
 
-## <a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Moroccan Trellis Washable Rug</a>
+## <a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lahome Moroccan Trellis Washable Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Moroccan Trellis Washable Rug, 2x3 Kitchen Rugs for Entryway Bathroom, Non-Slip Indoor Door Mat Ultra-Thin, Small Oriental Throw Carpet for Bedroom Entry, Cream/Multi" src="https://m.media-amazon.com/images/I/513YQG3GJbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BP9MZQW7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lahome Moroccan Trellis Washable Rug, 2x3 Kitchen Rugs for Entryway Bathroom, Non-Slip Indoor Door Mat Ultra-Thin, Small Oriental Throw Carpet for Bedroom Entry, Cream/Multi" src="https://m.media-amazon.com/images/I/513YQG3GJbL._SL500_.jpg"/></a>
 
 
 The **Lahome Moroccan Trellis Washable Rug** is ideal for homeowners or renters looking to add a stylish yet practical accent to smaller spaces such as kitchens, entryways, bathrooms, or bedrooms. If you want a durable, easy-to-clean, and visually appealing rug that fits compact areas, this **2x3 kitchen rug** is a perfect choice. Its non-slip feature makes it especially suited for households with children or elderly members who need extra safety on slippery floors.
@@ -101,10 +101,10 @@ The **Lahome Moroccan Trellis Washable Rug** combines aesthetic appeal with prac
 
 Made by the reputable brand **Lahome**, this rug is crafted for durability and ease of care. The ability to machine wash the rug means users can maintain its fresh appearance effortlessly, which is particularly beneficial in areas prone to spills or dirt like kitchens and bathrooms. Overall, this small oriental throw carpet offers a blend of style, safety, and convenience, making it a smart purchase for those seeking a versatile and attractive indoor rug solution.
 
-## <a href="https://www.amazon.com/dp/B09Q5PKHJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Kitchen Floor Mats</a>
+## <a href="https://www.amazon.com/dp/B09Q5PKHJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosy Homeer Soft Kitchen Floor Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B09Q5PKHJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Kitchen Floor Mats for in Front of Sink Super Absorbent Kitchen Rugs 20" grey"="" mat="" non-skid="" src="https://m.media-amazon.com/images/I/51dHOReHOLL._SL500_.jpg" standing="" washable,polyester,dark="" x59"=""/></a>
+<a href="https://www.amazon.com/dp/B09Q5PKHJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COSY HOMEER Soft Kitchen Floor Mats for in Front of Sink Super Absorbent Kitchen Rugs 20" grey"="" mat="" non-skid="" src="https://m.media-amazon.com/images/I/51dHOReHOLL._SL500_.jpg" standing="" washable,polyester,dark="" x59"=""/></a>
 
 
 The **COSY HOMEER Soft Kitchen Floor Mats** are ideal for homeowners and renters who spend a lot of time cooking or washing dishes and want to add comfort and safety to their kitchen space. If you are looking for a durable, super absorbent, and non-skid mat to place in front of your sink, this **20"x59"** kitchen rug in **dark grey** is an excellent choice. It suits anyone wanting to reduce fatigue from standing and keep their kitchen floor dry and clean.
@@ -127,10 +127,10 @@ The **COSY HOMEER Soft Kitchen Floor Mats** feature a highly absorbent surface t
 
 Crafted from easy-to-clean **polyester**, this mat can be washed to maintain hygiene and freshness, making it a practical addition to any kitchen. The sleek **dark grey** color adds a modern touch that blends well with different kitchen styles. Overall, this mat combines functionality and style, making daily kitchen tasks more comfortable and safer for users.
 
-## <a href="https://www.amazon.com/dp/B0C3V2C35D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artoid Mode Washable Non Slip Kitchen Rugs And Mats Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C3V2C35D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artoid Mode Washable Non Slip Kitchen Rugs And Mats Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3V2C35D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artoid Mode Washable Non Slip Kitchen Rugs and Mats Set of 2, Rubber Backing Absorbent Kitchen Mats for Floor Front of Sink - 17x29 and 17x47 Inch" src="https://m.media-amazon.com/images/I/51fOf-XMnQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3V2C35D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artoid Mode Washable Non Slip Kitchen Rugs and Mats Set of 2, Rubber Backing Absorbent Kitchen Mats for Floor Front of Sink - 17x29 and 17x47 Inch" src="https://m.media-amazon.com/images/I/51fOf-XMnQL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Washable Non Slip Kitchen Rugs and Mats Set of 2** is ideal for homeowners and renters looking to enhance their kitchen comfort and safety. If you spend a lot of time cooking or washing dishes, these **absorbent kitchen mats** provide a practical solution to reduce fatigue and prevent slips, especially in front of the sink or other high-traffic kitchen areas. Their washable and durable design makes them perfect for busy families or anyone seeking easy maintenance and long-lasting floor protection.
@@ -152,10 +152,10 @@ The **Artoid Mode kitchen rugs** are designed with a practical rubber backing th
 
 Made from durable, washable materials, these mats are easy to maintain and keep fresh-looking even after repeated use. Their lightweight construction and neutral linen color provide both functionality and subtle style without overwhelming your kitchen's aesthetic. Whether you're a professional chef or someone who enjoys home cooking, these mats offer comfort and practicality to enhance your kitchen experience.
 
-## <a href="https://www.amazon.com/dp/B0DRJHG7MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ydkgl Kitchen Mats For Floor</a>
+## <a href="https://www.amazon.com/dp/B0DRJHG7MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ydkgl Kitchen Mats For Floor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRJHG7MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YDKGL Kitchen Mats for Floor, Super Absorbent Kitchen Rugs Non Slip Washable, Rubber Backing Soft Chenille Braided Kitchen Floor Mat Standing Mat Sink Mat, Easy to Clean, Brown 17" src="https://m.media-amazon.com/images/I/51IheoLyK2L._SL500_.jpg" x28""=""/></a>
+<a href="https://www.amazon.com/dp/B0DRJHG7MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YDKGL Kitchen Mats for Floor, Super Absorbent Kitchen Rugs Non Slip Washable, Rubber Backing Soft Chenille Braided Kitchen Floor Mat Standing Mat Sink Mat, Easy to Clean, Brown 17" src="https://m.media-amazon.com/images/I/51IheoLyK2L._SL500_.jpg" x28""=""/></a>
 
 
 The **YDKGL Kitchen Mats for Floor** are ideal for homeowners and renters who spend a lot of time cooking or washing dishes and want to enhance comfort and safety in their kitchen. If you’re looking for a **soft, absorbent, and non-slip kitchen rug** that adds a touch of warmth and practicality to your cooking space, this mat is a perfect choice.
@@ -178,10 +178,10 @@ The **YDKGL Kitchen Mat** is designed with a soft chenille braided surface that 
 
 Additionally, the mat’s **easy-to-clean** and washable nature means you can maintain a hygienic kitchen environment without much effort. Its compact dimensions of **17"x28"** make it versatile enough to use near sinks, dishwashers, or cooking stations, offering both functional and aesthetic benefits. The warm brown shade blends seamlessly with most kitchen styles, making it a practical and attractive addition to your home.
 
-## <a href="https://www.amazon.com/dp/B00N4TF37O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ritz Solid Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B00N4TF37O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ritz Solid Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B00N4TF37O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" alt="Ritz Solid Accent Rug: 18" backing,="" floor="" kitchen="" latex="" living="" machine="" mat,="" or="" red"="" resistant="" room="" src="https://m.media-amazon.com/images/I/41S-jXbw3uL._SL500_.jpg" stain="" washable,="" x=""/></a>
+<a href="https://www.amazon.com/dp/B00N4TF37O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 30"="" alt="Ritz Solid Accent Rug: 18" backing,="" floor="" kitchen="" latex="" living="" machine="" mat,="" or="" red"="" resistant="" room="" src="https://m.media-amazon.com/images/I/41S-jXbw3uL._SL500_.jpg" stain="" washable,="" x=""/></a>
 
 
 The **Ritz Solid Accent Rug** is ideal for homeowners or renters seeking a stylish yet practical addition to their **kitchen** or **living room** floors. If you want a compact, **stain resistant** mat that adds a pop of **red color** while protecting your floors from spills and wear, this rug is a perfect choice. It is especially suitable for those who value easy maintenance and durability in their floor coverings.
@@ -205,10 +205,10 @@ The **Ritz Solid Accent Rug** combines functionality with style, featuring a **s
 
 Users will appreciate the **machine washable** feature, which simplifies routine cleaning and upkeep, ensuring the rug remains fresh and inviting. Despite its slim profile, the rug provides enough protection to keep floors clean and shielded from minor wear. Overall, this accent rug is a practical and vibrant addition that balances ease of care with aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0DY728943?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ydkgl Kitchen Mats For Floor</a>
+## <a href="https://www.amazon.com/dp/B0DY728943?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ydkgl Kitchen Mats For Floor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY728943?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YDKGL Kitchen Mats for Floor, Soft Anti Fatigue Super Absorbent Kitchen Rugs Non Slip Washable, Linen-Look Woven Kitchen Runner Rug Sink Mat Standing Mat for Kitchen, Easy Care, Brown 17" src="https://m.media-amazon.com/images/I/51bGf6L9nHL._SL500_.jpg" x30""=""/></a>
+<a href="https://www.amazon.com/dp/B0DY728943?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YDKGL Kitchen Mats for Floor, Soft Anti Fatigue Super Absorbent Kitchen Rugs Non Slip Washable, Linen-Look Woven Kitchen Runner Rug Sink Mat Standing Mat for Kitchen, Easy Care, Brown 17" src="https://m.media-amazon.com/images/I/51bGf6L9nHL._SL500_.jpg" x30""=""/></a>
 
 
 The **YDKGL Kitchen Mats for Floor** are ideal for homeowners and cooking enthusiasts who spend extended periods standing in the kitchen. If you're looking for a **soft, anti-fatigue** solution that provides comfort and safety while preparing meals or washing dishes, this **kitchen runner rug** is designed to meet your needs. Its compact size and stylish **linen-look woven** design make it perfect for placement near the sink or any high-traffic kitchen area.
@@ -230,10 +230,10 @@ The **YDKGL Kitchen Mats** feature a thoughtfully designed **soft anti-fatigue s
 
 With a **non-slip backing**, this mat stays firmly in place, reducing the risk of slips and falls on wet or greasy floors. Its **easy-care** washable feature means it can be cleaned regularly without losing shape or texture, ensuring long-lasting durability. The **brown linen-look woven design** adds a touch of elegance and warmth to your kitchen space, making it both functional and stylish.
 
-## <a href="https://www.amazon.com/dp/B0CFQXYLHD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jeedovia Kitchen Rugs Non Slip Kitchen Mats</a>
+## <a href="https://www.amazon.com/dp/B0CFQXYLHD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jeedovia Kitchen Rugs Non Slip Kitchen Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFQXYLHD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="JEEDOVIA Kitchen Rugs Non Slip Kitchen Mats for Floor Kitchen Runner Rug, 20" comfort="" dirt="" entryway,hallway,="" for="" front="" machine="" mat="" of="" resist="" sink,="" src="https://m.media-amazon.com/images/I/51snsSbQvsL._SL500_.jpg" standing="" washable"="" x31.5"grey=""/></a>
+<a href="https://www.amazon.com/dp/B0CFQXYLHD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="JEEDOVIA Kitchen Rugs Non Slip Kitchen Mats for Floor Kitchen Runner Rug, 20" comfort="" dirt="" entryway,hallway,="" for="" front="" machine="" mat="" of="" resist="" sink,="" src="https://m.media-amazon.com/images/I/51snsSbQvsL._SL500_.jpg" standing="" washable"="" x31.5"grey=""/></a>
 
 
 The **JEEDOVIA Kitchen Rugs Non Slip Kitchen Mats** are ideal for homeowners and renters who spend a lot of time standing in the kitchen, especially in areas like in front of the sink or stove. If you are looking for a comfortable, durable, and absorbent mat that can help reduce fatigue and prevent slips on slippery floors, this **kitchen runner rug** in **grey** is a perfect choice. It also suits those who prioritize easy maintenance with its **machine washable** feature.
@@ -256,10 +256,10 @@ The **JEEDOVIA Kitchen Rugs** boast a slim profile with a height of just 0.41 in
 
 Additionally, the rug’s cushioning offers superior comfort, helping to alleviate foot and leg fatigue during cooking or cleaning sessions. The machine washable feature means you can easily keep the mat fresh and hygienic without hassle. Weighing only 1.57 pounds, this lightweight kitchen mat is easy to move or reposition as needed, making it a practical and stylish addition to any kitchen space.
 
-## <a href="https://www.amazon.com/dp/B0C4DSXZYQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artoid Mode Washable Non Slip Rubber Backing Kitchen Rugs Doormat</a>
+## <a href="https://www.amazon.com/dp/B0C4DSXZYQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artoid Mode Washable Non Slip Rubber Backing Kitchen Rugs Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4DSXZYQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artoid Mode Washable Non Slip Rubber Backing Kitchen Rugs Doormat, Absorbent Kitchen Floor Mats Front of Sink Kitchen Mats for Floor Home Decor 17x29 Inch" src="https://m.media-amazon.com/images/I/51akq9b3BFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4DSXZYQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Artoid Mode Washable Non Slip Rubber Backing Kitchen Rugs Doormat, Absorbent Kitchen Floor Mats Front of Sink Kitchen Mats for Floor Home Decor 17x29 Inch" src="https://m.media-amazon.com/images/I/51akq9b3BFL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Washable Non Slip Rubber Backing Kitchen Rugs Doormat** is ideal for homeowners and renters looking to enhance their kitchen comfort and safety. If you spend a lot of time cooking or washing dishes at the sink, this **absorbent kitchen floor mat** helps reduce fatigue and prevents slips, making it perfect for busy kitchens. Its compact size of **17x29 inches** fits conveniently in front of most kitchen sinks or workstations.

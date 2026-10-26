@@ -23,10 +23,10 @@ Whether you want a subtle scent or a strong holiday fragrance, these candles sui
 
 
 
-## <a href="https://www.amazon.com/dp/B08LYCHZ7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colonial Candle Winter Woods Scented Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B08LYCHZ7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colonial Candle Winter Woods Scented Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B08LYCHZ7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colonial Candle Winter Woods Scented Jar Candle, 2 Wick, 3.5 oz, Mottled Wax Candle" src="https://m.media-amazon.com/images/I/31sr96iVjjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LYCHZ7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colonial Candle Winter Woods Scented Jar Candle, 2 Wick, 3.5 oz, Mottled Wax Candle" src="https://m.media-amazon.com/images/I/31sr96iVjjL._SL500_.jpg"/></a>
 
 
 The **Colonial Candle Winter Woods Scented Jar Candle** is ideal for individuals who appreciate a cozy, aromatic ambiance in their living space, especially during the colder months. If you enjoy the fresh, woodsy scent of winter forests and want a charming, decorative candle that enhances relaxation or festive decor, this product is perfect for you. It suits those looking for a compact yet effective candle with a long-lasting fragrance.
@@ -48,10 +48,10 @@ The **Winter Woods Scented Jar Candle** by **Colonial Candle** boasts a dual-wic
 
 Crafted with quality in mind, this candle’s compact size makes it versatile for use in various settings, from bedrooms to office spaces. The **3.5 oz weight** and balanced dimensions mean it burns cleanly without excessive wax waste. Users will find the candle easy to handle and store, while the trusted manufacturing by **MVP Group International Inc.** guarantees a reliable, enjoyable product. Whether for personal use or as a thoughtful gift, this candle brings both aesthetic and aromatic benefits to any environment.
 
-## <a href="https://www.amazon.com/dp/B000JDGC78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Balsam &amp; Cedar Scented Classic Large Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B000JDGC78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Balsam &amp; Cedar Scented Classic Large Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B000JDGC78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Balsam &amp; Cedar Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Ideal Holiday Gift" src="https://m.media-amazon.com/images/I/418mGpjbZEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000JDGC78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Balsam &amp; Cedar Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Ideal Holiday Gift" src="https://m.media-amazon.com/images/I/418mGpjbZEL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Balsam & Cedar Scented Classic 22oz Large Jar Candle** is perfect for individuals who love to create a cozy, festive atmosphere in their homes. Ideal for holiday enthusiasts, gift shoppers, and anyone who appreciates a long-lasting, high-quality scented candle, this product brings the refreshing and natural aroma of balsam and cedar right into your living space. If you want a candle that combines both style and functionality with an impressive burn time, this is the perfect choice.
@@ -74,10 +74,10 @@ The **Yankee Candle Balsam & Cedar** features a substantial **22oz jar** with di
 
 Beyond its impressive burn time of over 110 hours, this candle offers a practical and aromatic solution for those seeking to enrich their living spaces with natural scents. The large jar makes it an excellent gift option for friends and family who enjoy home fragrances, while its sturdy construction promises safety and durability. By choosing this candle, users benefit from a trusted brand’s commitment to quality and a scent that refreshes and uplifts any environment.
 
-## <a href="https://www.amazon.com/dp/B08DTMYKJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Warm And Cozy Candle</a>
+## <a href="https://www.amazon.com/dp/B08DTMYKJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Warm And Cozy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B08DTMYKJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Warm and Cozy Candle | Pine, Orange, Cinnamon, and Fir Balsam Winter Scented Soy Candles for Home | 9oz Amber Jar with Black Lid, 40 Hour Burn Time, Made in the USA" src="https://m.media-amazon.com/images/I/41mYX3Jq3WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DTMYKJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Warm and Cozy Candle | Pine, Orange, Cinnamon, and Fir Balsam Winter Scented Soy Candles for Home | 9oz Amber Jar with Black Lid, 40 Hour Burn Time, Made in the USA" src="https://m.media-amazon.com/images/I/41mYX3Jq3WL._SL500_.jpg"/></a>
 
 
 The **Sweet Water Decor Warm and Cozy Candle** is perfect for anyone looking to create a comforting and inviting atmosphere in their home, especially during the winter months. Ideal customers include those who appreciate seasonal fragrances, enjoy cozy home decor, or seek a long-lasting, high-quality soy candle that fills their space with a blend of **pine, orange, cinnamon, and fir balsam** scents. This candle is also a great choice for gift-givers who want to present a stylish and aromatic addition to someone's home.
@@ -99,10 +99,10 @@ The **Sweet Water Decor Warm and Cozy Candle** features a thoughtfully crafted b
 
 Encased in a stylish **9oz amber jar** with a classic black lid, this candle complements a variety of home decor styles, from rustic to modern. The generous **40 hour burn time** ensures that users can enjoy the soothing aroma for many hours, creating a welcoming ambiance perfect for relaxing or entertaining. Being **made in the USA** adds a layer of trust and quality assurance for buyers who value locally crafted products.
 
-## <a href="https://www.amazon.com/dp/B07HJB8LMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Warm And Cozy Candle</a>
+## <a href="https://www.amazon.com/dp/B07HJB8LMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Warm And Cozy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B07HJB8LMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Warm and Cozy Candle - Pine Cinnamon &amp; Fir Winter Scented Orange Candle - Scented Soy Candles for Home with 40 Hour Burn Time - 9oz Clear Jar Winter Candle Made in the USA" src="https://m.media-amazon.com/images/I/41w4OyXo2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HJB8LMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Warm and Cozy Candle - Pine Cinnamon &amp; Fir Winter Scented Orange Candle - Scented Soy Candles for Home with 40 Hour Burn Time - 9oz Clear Jar Winter Candle Made in the USA" src="https://m.media-amazon.com/images/I/41w4OyXo2SL._SL500_.jpg"/></a>
 
 
 The **Sweet Water Decor Warm and Cozy Candle** is perfect for anyone looking to enhance their living space with a comforting and festive aroma. Ideal customers include those who enjoy seasonal scents, particularly the warm blend of **pine, cinnamon, and fir**, and prefer eco-friendly, long-lasting candles made in the USA. This candle suits individuals who want to create a cozy atmosphere during the winter months or add a delightful fragrance to their home decor.
@@ -126,10 +126,10 @@ This **Sweet Water Decor Warm and Cozy Candle** is crafted from high-quality **s
 
 Packaged in a sleek **9oz clear jar**, this candle not only smells wonderful but also serves as a stylish decorative piece that fits seamlessly into any room. Its compact size allows it to be placed on shelves, coffee tables, or bedside stands without taking up too much space. Additionally, being **made in the USA**, it reflects a commitment to quality and local manufacturing standards, appealing to customers who prioritize supporting domestic products.
 
-## <a href="https://www.amazon.com/dp/B0DG625WQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles</a>
+## <a href="https://www.amazon.com/dp/B0DG625WQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG625WQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-Lite Scented Candles, Winter Fleece Scent, 10 oz 3-Wick Jar Candle, 40 Hours Burn Time, Perfect for Gifting and Celebration" src="https://m.media-amazon.com/images/I/31edhb2nQ8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG625WQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-Lite Scented Candles, Winter Fleece Scent, 10 oz 3-Wick Jar Candle, 40 Hours Burn Time, Perfect for Gifting and Celebration" src="https://m.media-amazon.com/images/I/31edhb2nQ8L._SL500_.jpg"/></a>
 
 
 The **Candle-Lite Scented Candles, Winter Fleece Scent** are ideal for anyone looking to enhance their living space with a cozy and inviting aroma. Perfect for those who enjoy seasonal fragrances, want to create a warm ambiance during celebrations, or are searching for a thoughtful gift, this candle offers both style and functionality. Whether you're decorating your home for winter or aiming to relax after a long day, this candle is designed for you.
@@ -151,10 +151,10 @@ The **Candle-Lite Scented Candles** feature a thoughtfully crafted **3-wick jar*
 
 Beyond its aesthetic and olfactory appeal, the candle’s **40-hour burn time** offers excellent value, allowing users to enjoy the comforting atmosphere created by the scent for an extended period. The **Winter Fleece fragrance** evokes a sense of warmth and relaxation, making it perfect for gatherings, celebrations, or quiet evenings at home. Additionally, the elegant **diamond jar** design enhances its suitability as a gift, combining practicality with a touch of luxury.
 
-## <a href="https://www.amazon.com/dp/B0DHNRRLXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Winter Candles For Home Scented Aromatherapy</a>
+## <a href="https://www.amazon.com/dp/B0DHNRRLXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">6 Pack Winter Candles For Home Scented Aromatherapy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHNRRLXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Winter Candles for Home Scented, Aromatherapy Candles Gift for Women Men, 42oz 300 Hour Long Lasting Candle, Winter Candle Gift for Holiday, Gifts for Birthday, Valentine's Day" src="https://m.media-amazon.com/images/I/51n+WmYh29L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHNRRLXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pack Winter Candles for Home Scented, Aromatherapy Candles Gift for Women Men, 42oz 300 Hour Long Lasting Candle, Winter Candle Gift for Holiday, Gifts for Birthday, Valentine's Day" src="https://m.media-amazon.com/images/I/51n+WmYh29L._SL500_.jpg"/></a>
 
 
 The **6 Pack Winter Candles for Home Scented** are perfect for anyone looking to create a cozy and inviting atmosphere during the colder months. Ideal for those who appreciate **aromatherapy candles** or are searching for a thoughtful **gift for women, men, or loved ones** for occasions like **holidays, birthdays, or Valentine's Day**. If you want long-lasting, fragrant candles that enhance your home ambiance, this set is an excellent choice.
@@ -177,10 +177,10 @@ These **winter scented candles** by Feibao are thoughtfully designed to combine 
 
 Additionally, these candles serve as a versatile gift option, suitable for various celebrations including holidays, birthdays, and Valentine's Day. The aromatherapy benefits can help enhance mental well-being, reduce stress, and foster a sense of calm. Whether used individually or together, this 6 pack provides great value and a warm, inviting fragrance that transforms any space into a cozy retreat.
 
-## <a href="https://www.amazon.com/dp/B0DHNPRLMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Scented Candle Gift Set For Women</a>
+## <a href="https://www.amazon.com/dp/B0DHNPRLMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christmas Scented Candle Gift Set For Women</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHNPRLMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Scented Candle Gift Set for Women – 4 Pack Winter Soy Candles with Apple Cinnamon, Fir Balsam, Mulled Cider, Sandalwood – Holiday Gifts for Her, Home Décor" src="https://m.media-amazon.com/images/I/51q726U+XYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHNPRLMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christmas Scented Candle Gift Set for Women – 4 Pack Winter Soy Candles with Apple Cinnamon, Fir Balsam, Mulled Cider, Sandalwood – Holiday Gifts for Her, Home Décor" src="https://m.media-amazon.com/images/I/51q726U+XYL._SL500_.jpg"/></a>
 
 
 The **Christmas Scented Candle Gift Set for Women** is perfect for anyone looking to bring a warm, festive ambiance to their home during the holiday season. Ideal for women who appreciate cozy, aromatic décor or those searching for a thoughtful **holiday gift** that combines both style and scent, this 4-pack set offers an inviting sensory experience with its carefully curated winter fragrances. Whether you're decorating your living space or gifting a loved one, this set is designed to enhance the festive mood.
@@ -202,10 +202,10 @@ This **Christmas Scented Candle Gift Set** features four distinct fragrances, ea
 
 Crafted with natural **soy wax**, the candles provide a cleaner burn compared to traditional paraffin candles, reducing soot and toxins in the air. Their compact **amber-colored** glass containers not only complement any home décor but also help preserve the candle’s scent and quality. This set is an excellent choice for those who want both aesthetic appeal and functional performance in their holiday decorations, making it a versatile gift option for friends, family, or personal use during the winter months.
 
-## <a href="https://www.amazon.com/dp/B0DCGCPGT9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Scented Candle Set </a>
+## <a href="https://www.amazon.com/dp/B0DCGCPGT9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Scented Candle Set </a>
 
 
-<a href="https://www.amazon.com/dp/B0DCGCPGT9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candle Set, Winter Scented Candles for Home, Holiday Candle Gifts for Women Men, 4 Pack 36oz Soy Candles, Winter Scents of Balsam Cedar/Sugar Cookies/Vanilla Cupcake/Sparkling Cinnamon" src="https://m.media-amazon.com/images/I/51vJfwIVnFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCGCPGT9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candle Set, Winter Scented Candles for Home, Holiday Candle Gifts for Women Men, 4 Pack 36oz Soy Candles, Winter Scents of Balsam Cedar/Sugar Cookies/Vanilla Cupcake/Sparkling Cinnamon" src="https://m.media-amazon.com/images/I/51vJfwIVnFL._SL500_.jpg"/></a>
 
 
 The **Scented Candle Set** by **Molensun** is perfect for anyone looking to infuse their home with cozy, festive aromas during the winter season. Ideal for those who enjoy creating a warm and inviting atmosphere, this set is also a thoughtful **holiday gift** for both **women** and **men** who appreciate high-quality, handcrafted candles. Whether you want to enhance your living space or surprise a loved one with a seasonal treat, this collection suits candle enthusiasts and gift givers alike.
@@ -227,10 +227,10 @@ This **Scented Candle Set** features four distinct fragrances inspired by the es
 
 The candles' elegant design in **brown and beige** tones easily blends into any home setting, adding both aesthetic appeal and a warm ambiance. The variety of fragrances—from the fresh, woody **Balsam Cedar** to the sweet, nostalgic **Sugar Cookies**—caters to diverse preferences, making the set versatile for different moods and occasions. Overall, this set enhances both relaxation and holiday spirit, making it a valuable addition to any home or gift collection.
 
-## <a href="https://www.amazon.com/dp/B0DH2KLXJF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holiday Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0DH2KLXJF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holiday Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DH2KLXJF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holiday Candle Set, Winter Scented Candle, 4 Pack Soy Candles for Home Scented, Holiday Candles Gifts for Women Men, Winter Scents of Christmas Tree/Cookies/Spices/Fireside Wood" src="https://m.media-amazon.com/images/I/51Irx5YbzAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DH2KLXJF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holiday Candle Set, Winter Scented Candle, 4 Pack Soy Candles for Home Scented, Holiday Candles Gifts for Women Men, Winter Scents of Christmas Tree/Cookies/Spices/Fireside Wood" src="https://m.media-amazon.com/images/I/51Irx5YbzAL._SL500_.jpg"/></a>
 
 
 The **Holiday Candle Set** by **DL DREAMY DEWLA** is perfect for anyone looking to infuse their home with cozy, festive aromas during the winter season. This set is ideal for those who enjoy seasonal decorations, want to create a warm ambiance, or are searching for thoughtful **holiday gifts** for both **women and men**. If you appreciate **natural soy candles** with authentic winter scents like **Christmas Tree, Cookies, Spices,** and **Fireside Wood**, this set is designed for you.
@@ -252,10 +252,10 @@ The **Holiday Candle Set** offers a delightful blend of classic winter fragrance
 
 Crafted with **100% soy wax**, these candles ensure a clean, eco-friendly burn that is safer for your family and the environment. The compact dimensions and festive colors make them an ideal addition to holiday tables, mantels, or gift packages. Whether you're decorating your own home or searching for a meaningful gift, this set delivers both aesthetic appeal and aromatic pleasure, making winter moments truly special.
 
-## <a href="https://www.amazon.com/dp/B0CJ81XLGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colonial Candle Winter Woods Scented Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B0CJ81XLGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colonial Candle Winter Woods Scented Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ81XLGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colonial Candle Winter Woods Scented Jar Candle, Pop of Color Collection, 3 Wick, Green, 14.5 oz - Up to 60 Hours Burn" src="https://m.media-amazon.com/images/I/41xvSKH7KRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ81XLGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colonial Candle Winter Woods Scented Jar Candle, Pop of Color Collection, 3 Wick, Green, 14.5 oz - Up to 60 Hours Burn" src="https://m.media-amazon.com/images/I/41xvSKH7KRL._SL500_.jpg"/></a>
 
 
 The **Colonial Candle Winter Woods Scented Jar Candle** is perfect for those who appreciate a cozy, inviting atmosphere in their home during the colder months. Ideal for individuals who enjoy rich, woodsy fragrances and want a long-lasting, visually appealing candle to enhance their living space or as a thoughtful gift for loved ones.

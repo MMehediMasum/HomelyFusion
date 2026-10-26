@@ -23,10 +23,10 @@ Designs in gentle colors or fun patterns brighten the room and match nursery the
 
 
 
-## <a href="https://www.amazon.com/dp/B0CGVRLR97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nursery Rug For Baby Girl</a>
+## <a href="https://www.amazon.com/dp/B0CGVRLR97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nursery Rug For Baby Girl</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGVRLR97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nursery Rug for Baby Girl,Neutral Blush Pink Boho Cute Floral Foldable Machine Washable Soft Faux Wool Carpet Area Rugs for Living Room Bedroom Dorm Kids Playroom,5x7" src="https://m.media-amazon.com/images/I/51EMiA4dkJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGVRLR97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nursery Rug for Baby Girl,Neutral Blush Pink Boho Cute Floral Foldable Machine Washable Soft Faux Wool Carpet Area Rugs for Living Room Bedroom Dorm Kids Playroom,5x7" src="https://m.media-amazon.com/images/I/51EMiA4dkJL._SL500_.jpg"/></a>
 
 
 The **Nursery Rug for Baby Girl** in a **Neutral Blush Pink Boho** design is ideal for parents and caregivers looking to add a soft, stylish, and functional rug to a baby's nursery, playroom, or bedroom. This rug is perfect for those who value both aesthetics and practicality, especially families who want a safe, comfortable surface for their little ones to play on while maintaining an elegant decor.
@@ -49,10 +49,10 @@ Crafted by **BILEEHOME**, this **pink nursery rug** combines both style and func
 
 The beautiful **boho floral pattern** in a neutral blush pink shade creates a warm and inviting atmosphere, enhancing any nursery or kids' play area. Additionally, being **machine washable** ensures that the rug remains clean and fresh, providing a hygienic environment for your child. Overall, this rug is a practical and charming addition for those looking to blend comfort with an elegant design.
 
-## <a href="https://www.amazon.com/dp/B0D6YXXHVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Soft Rug For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D6YXXHVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Soft Rug For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6YXXHVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Soft Rug for Bedroom, 5x7 Ft Beige and White Area Rug Classic Checkered Shaggy Anti-Skid High Pile Soft Fluffy Rug Fuzzy Carpet for Living Room Bedroom Kids Room Nursery, Dorm Home Decor" src="https://m.media-amazon.com/images/I/51scbGMrUhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6YXXHVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Soft Rug for Bedroom, 5x7 Ft Beige and White Area Rug Classic Checkered Shaggy Anti-Skid High Pile Soft Fluffy Rug Fuzzy Carpet for Living Room Bedroom Kids Room Nursery, Dorm Home Decor" src="https://m.media-amazon.com/images/I/51scbGMrUhL._SL500_.jpg"/></a>
 
 
 The **Super Soft Rug for Bedroom** is perfect for anyone looking to add a cozy and stylish touch to their living space. Ideal for homeowners, renters, or dorm dwellers who want a comfortable and visually appealing **area rug** that fits well in bedrooms, living rooms, kids’ rooms, nurseries, or dorms. If you value softness, warmth, and safety with an elegant design, this rug is a great choice.
@@ -74,10 +74,10 @@ Featuring a **5x7 feet** dimension, this rug from **TOOHUB** offers ample covera
 
 The **anti-skid backing** is a crucial feature, especially for households with children or elderly family members, as it helps keep the rug securely in place and prevents accidents. Additionally, the rug's lightweight nature makes it highly manageable for cleaning or repositioning, enhancing convenience for busy lifestyles. Overall, this rug not only elevates the room's decor but also delivers practical benefits in comfort and safety.
 
-## <a href="https://www.amazon.com/dp/B0F9P4KK79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pink Rug For Bedroom Girl Nursery 5x7</a>
+## <a href="https://www.amazon.com/dp/B0F9P4KK79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pink Rug For Bedroom Girl Nursery 5x7</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9P4KK79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pink Rug for Bedroom Girl Nursey 5x7 - Bow Dorm Rug for College,Cute Coquette Teen Room Decor Aesthetic Washable Vintage Cottage Core Area Rugs for Kids Playroom Toddler Baby" src="https://m.media-amazon.com/images/I/51KWhE2a4ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9P4KK79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pink Rug for Bedroom Girl Nursey 5x7 - Bow Dorm Rug for College,Cute Coquette Teen Room Decor Aesthetic Washable Vintage Cottage Core Area Rugs for Kids Playroom Toddler Baby" src="https://m.media-amazon.com/images/I/51KWhE2a4ZL._SL500_.jpg"/></a>
 
 
 The **Pink Rug for Bedroom Girl Nursery 5x7** is ideal for parents and caregivers looking to enhance a child's playroom or bedroom with a soft, stylish, and functional area rug. Perfect for toddlers, babies, and teens who appreciate a **cute coquette** aesthetic, this rug suits those who want to add a touch of **vintage cottage core** charm and a splash of **pink** to their living space. College students or dorm residents seeking a cozy and washable decor piece will also find this rug a practical and charming choice.
@@ -99,10 +99,10 @@ This **Pink Rug** combines both aesthetic appeal and practical features that cat
 
 Designed with a charming **vintage cottage core** style and a bright pink hue, this rug adds a warm and inviting atmosphere to any room. Whether placed in a girl's bedroom, nursery, or a college dorm, it brings a cozy and personalized touch that enhances the overall decor. Its lightweight design ensures it can be easily moved or rearranged as needed, making it a versatile addition to your child's environment.
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** is ideal for individuals looking to add a touch of cozy elegance to their home decor. Perfect for families with **kids, girls, and boys**, as well as college students living in dorms or parents decorating nursery rooms, this rug suits anyone who values comfort and style in their indoor spaces.
@@ -125,10 +125,10 @@ The **OLANLY Area Rug** features a plush, shaggy design made from soft fibers th
 
 Additionally, the rug’s size and lightweight nature make it versatile and easy to place in various indoor settings, such as bedrooms, nurseries, or dorm rooms. The 1.5-inch thickness adds a layer of cushioning that enhances comfort, making it ideal for bare feet or play areas. Overall, this **indoor floor carpet** balances aesthetic appeal with practical features to improve home comfort and style.
 
-## <a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nakagishi Area Rug Living Room Rugs</a>
+## <a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nakagishi Area Rug Living Room Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nakagishi Area Rug Living Room Rugs: 5x7 Washable Boho Large Neutral Farmhouse Soft Moroccan Stain Resistant Indoor Carpet for Bedroom Nursery Kids Playroom Office Dining Room Home House Decor- Brown" src="https://m.media-amazon.com/images/I/51Tg3WSlI+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2Z1T5GV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nakagishi Area Rug Living Room Rugs: 5x7 Washable Boho Large Neutral Farmhouse Soft Moroccan Stain Resistant Indoor Carpet for Bedroom Nursery Kids Playroom Office Dining Room Home House Decor- Brown" src="https://m.media-amazon.com/images/I/51Tg3WSlI+L._SL500_.jpg"/></a>
 
 
 The **Nakagishi Area Rug Living Room Rugs** is ideal for homeowners and renters looking to add a touch of **boho farmhouse charm** to their living spaces. Perfect for those who value both style and practicality, this rug suits individuals who want a **soft, stain-resistant**, and **washable** carpet that complements various rooms including the **bedroom, nursery, kids playroom, office, dining room**, or any area in their **home decor**.
@@ -151,10 +151,10 @@ The **Nakagishi Area Rug** boasts a **large 5x7 dimension** with a slim profile 
 
 Additionally, the rug’s **washable quality** enhances its convenience, allowing users to freshen up the carpet easily without professional cleaning. Its lightweight nature, at just under 9 pounds, means it can be moved or repositioned with minimal effort. Whether placed in a nursery for a cozy play area or in an office to soften hard floors, this rug adds warmth and comfort. The blend of functional durability and decorative appeal makes the Nakagishi Area Rug a smart investment for anyone looking to elevate their home’s ambiance while keeping maintenance simple.
 
-## <a href="https://www.amazon.com/dp/B0D1QJVGMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Capslpad Area Rugs 5x7</a>
+## <a href="https://www.amazon.com/dp/B0D1QJVGMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Capslpad Area Rugs 5x7</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1QJVGMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Capslpad Area Rugs 5x7, Washable Nursery Rug, Low Pile Soft Non-Shedding Playroom Carpet, Botanical Print Pink Rugs for Bedroom, Classroom, Living Room" src="https://m.media-amazon.com/images/I/51Akp+Fx8lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1QJVGMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Capslpad Area Rugs 5x7, Washable Nursery Rug, Low Pile Soft Non-Shedding Playroom Carpet, Botanical Print Pink Rugs for Bedroom, Classroom, Living Room" src="https://m.media-amazon.com/images/I/51Akp+Fx8lL._SL500_.jpg"/></a>
 
 
 The **Capslpad Area Rugs 5x7** is perfect for parents and caregivers looking to add a soft, safe, and stylish surface to a nursery, playroom, or bedroom. Ideal for those who want an easy-to-clean, durable rug that can withstand daily use while providing comfort for children and adults alike. This **botanical print pink rug** is also suitable for classrooms and living rooms where a cozy and inviting atmosphere is desired.
@@ -177,10 +177,10 @@ The **Capslpad Area Rugs** are designed with a low pile height of just 0.2 inche
 
 Crafted by **Capslpad**, this rug balances functionality with style. Its washable nature makes it incredibly easy to maintain, ideal for families with young children or pets. Weighing just 8.77 pounds, it's lightweight and simple to relocate or store when necessary. Overall, this rug offers a practical and aesthetically pleasing solution for anyone seeking a comfortable, safe, and visually appealing floor covering for their home or classroom.
 
-## <a href="https://www.amazon.com/dp/B0F1S697FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 5x7 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0F1S697FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srugn Washable Rugs 5x7 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1S697FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 5x7 Area Rugs for Living Room,Bedroom,Dining Room- Ultra Soft Faux Wool Nursery Rug for Baby Girl,Neutral Light Pink Low Pile Vintage Carpets for Dorm Kids Playroom,Non Slip" src="https://m.media-amazon.com/images/I/41dOtoOAFIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1S697FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Srugn Washable Rugs 5x7 Area Rugs for Living Room,Bedroom,Dining Room- Ultra Soft Faux Wool Nursery Rug for Baby Girl,Neutral Light Pink Low Pile Vintage Carpets for Dorm Kids Playroom,Non Slip" src="https://m.media-amazon.com/images/I/41dOtoOAFIL._SL500_.jpg"/></a>
 
 
 The **Srugn Washable Rugs 5x7 Area Rugs** are perfect for individuals seeking a stylish yet functional addition to their **living room, bedroom, dining room,** or nursery. Ideal for parents wanting a soft, safe surface for their baby girl or anyone looking to enhance their space with a **neutral light pink, low pile vintage carpet** that is easy to maintain and slip-resistant. This rug suits dorm rooms, kids' playrooms, and any area requiring both comfort and practicality.
@@ -202,10 +202,10 @@ Crafted by **Srugn**, this **5x7 area rug** combines aesthetic appeal with pract
 
 Additionally, the rug’s **non-slip** backing enhances safety by preventing slips and falls, which is especially important in homes with children or elderly individuals. Weighing just 6.0 pounds and measuring 60 by 84 inches, it is versatile enough for various settings such as dorm rooms, bedrooms, or dining spaces. Overall, the Srugn washable rug offers a practical and stylish flooring solution for anyone wanting a durable, easy-care rug with a soft touch and timeless look.
 
-## <a href="https://www.amazon.com/dp/B0DW8TPGCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugalia Pink Floral Round Rugs</a>
+## <a href="https://www.amazon.com/dp/B0DW8TPGCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugalia Pink Floral Round Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DW8TPGCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugalia Pink Floral Round Rugs 4ft, Washable Boho Circle Rug for Girls Bedroom, Soft Non-Slip Botanical Nursery Circular Carpet, Modern Flower Birds Throw Rug for Kids Room Living Room" src="https://m.media-amazon.com/images/I/51Sx00TuydL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DW8TPGCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rugalia Pink Floral Round Rugs 4ft, Washable Boho Circle Rug for Girls Bedroom, Soft Non-Slip Botanical Nursery Circular Carpet, Modern Flower Birds Throw Rug for Kids Room Living Room" src="https://m.media-amazon.com/images/I/51Sx00TuydL._SL500_.jpg"/></a>
 
 
 The **Rugalia Pink Floral Round Rug** is an ideal choice for parents or guardians looking to enhance their **girls' bedrooms** or **nurseries** with a stylish yet functional decor piece. This **washable, soft, and non-slip rug** is perfect for creating a cozy and safe environment for children to play and relax. If you want to add a touch of **boho charm** with a botanical and modern floral design, this rug is tailored for your kids' rooms or even living spaces.
@@ -227,10 +227,10 @@ The **Rugalia Pink Floral Round Rug** combines both style and practicality by fe
 
 This circular **boho-style rug** is not only a decorative element but also a functional accessory that enhances room ambiance and comfort. Its **4ft size** fits well in various spaces without overwhelming the room, making it suitable for both small and larger areas. The **pink floral design** brings a cheerful and inviting atmosphere, inspiring creativity and relaxation for children and adults alike.
 
-## <a href="https://www.amazon.com/dp/B07L8YHD55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Carousel Kids Collection Accent Rug</a>
+## <a href="https://www.amazon.com/dp/B07L8YHD55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safavieh Carousel Kids Collection Accent Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07L8YHD55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Carousel Kids Collection Accent Rug - 4' x 6', Ivory, Animal Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas for Boys &amp; Girls in Playroom, Nursery, Bedroom (CRK120A)" src="https://m.media-amazon.com/images/I/51rZAHujS7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L8YHD55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAFAVIEH Carousel Kids Collection Accent Rug - 4' x 6', Ivory, Animal Design, Non-Shedding &amp; Easy Care, Ideal for High Traffic Areas for Boys &amp; Girls in Playroom, Nursery, Bedroom (CRK120A)" src="https://m.media-amazon.com/images/I/51rZAHujS7L._SL500_.jpg"/></a>
 
 
 The **SAFAVIEH Carousel Kids Collection Accent Rug** is perfect for parents looking to add a playful yet practical touch to their child’s **playroom, nursery, or bedroom**. Ideal for both boys and girls, this **animal design rug** combines fun aesthetics with durable features, making it a great choice for families with active children who need a **non-shedding**, easy-to-maintain floor covering that can handle **high traffic areas**.
@@ -252,10 +252,10 @@ The **SAFAVIEH Carousel Kids Collection Accent Rug** measures 4 feet by 6 feet, 
 
 This rug’s **non-shedding** feature is especially beneficial as it helps maintain a clean environment and reduces allergy risks, which is a crucial consideration for parents. The easy-care design means it can be quickly cleaned with simple vacuuming or spot cleaning, offering convenience without sacrificing style. Overall, this accent rug balances playful design and practical function, making it an excellent addition to any child’s living space.
 
-## <a href="https://www.amazon.com/dp/B0B5LZ2CGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom Gloria Abstract Shag Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B5LZ2CGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuloom Gloria Abstract Shag Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5LZ2CGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM Gloria Abstract 4x6 Shag Area Rug for Living Room Bedroom Dining Room Nursery Kitchen, Beige" src="https://m.media-amazon.com/images/I/51RjZfkL3cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5LZ2CGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="nuLOOM Gloria Abstract 4x6 Shag Area Rug for Living Room Bedroom Dining Room Nursery Kitchen, Beige" src="https://m.media-amazon.com/images/I/51RjZfkL3cL._SL500_.jpg"/></a>
 
 
 The **nuLOOM Gloria Abstract 4x6 Shag Area Rug** is perfect for individuals looking to add a cozy and stylish touch to their living spaces. Ideal customers include homeowners and renters wanting to enhance their **living room**, **bedroom**, **dining room**, **nursery**, or **kitchen** with a soft, durable, and visually appealing rug. Those who appreciate a blend of comfort and contemporary design will find this rug especially suitable.

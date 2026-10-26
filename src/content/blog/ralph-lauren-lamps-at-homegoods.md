@@ -22,10 +22,10 @@ The lamps often feature practical additions, such as USB ports and dimmable touc
 
 
 
-## <a href="https://www.amazon.com/dp/B07RHC298B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1072a-set2 Set Of 2 Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B07RHC298B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1072a-set2 Set Of 2 Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B07RHC298B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps Jennifer 25.25" bedroom="" bedside="" blue="" bookcase,="" ceramic="" college="" cottage="" desk="" for="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/417JmwLUVHL._SL500_.jpg" table="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07RHC298B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps Jennifer 25.25" bedroom="" bedside="" blue="" bookcase,="" ceramic="" college="" cottage="" desk="" for="" lamp="" led="" living="" metal="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/417JmwLUVHL._SL500_.jpg" table="" white"=""/></a>
 
 
 The **JONATHAN Y JYL1072A-SET2 Set of 2 Table Lamps** is ideal for individuals looking to enhance their bedroom, living room, office, or college space with stylish and functional lighting. Perfect for those who appreciate a blend of modern design and practicality, these lamps suit anyone wanting to brighten their space with a decorative yet efficient lighting solution.
@@ -48,10 +48,10 @@ The **JONATHAN Y JYL1072A-SET2** lamps feature a stylish combination of **cerami
 
 These lamps are not only functional but also add an artistic touch to any room. The color blend of **blue and white** brings a calming and fresh vibe, ideal for bedrooms or workspaces where a soothing atmosphere is desired. Additionally, the included set of two allows for balanced lighting arrangements, enhancing both aesthetics and functionality in your living environment.
 
-## <a href="https://www.amazon.com/dp/B07HZZF394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3043a Cleo 21.5" Ceramic/metal Ginger Jar Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07HZZF394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3043a Cleo 21.5" Ceramic/metal Ginger Jar Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07HZZF394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3043A Cleo 21.5" bedroom,="" bookcase,="" ceramic="" coffee="" college="" contemporary,transitional="" dorm,="" for="" ginger="" jar="" lamp="" led="" living="" metal="" navy"="" office,="" room,="" src="https://m.media-amazon.com/images/I/41krIxQyJHL._SL500_.jpg" table="" table,="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07HZZF394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3043A Cleo 21.5" bedroom,="" bookcase,="" ceramic="" coffee="" college="" contemporary,transitional="" dorm,="" for="" ginger="" jar="" lamp="" led="" living="" metal="" navy"="" office,="" room,="" src="https://m.media-amazon.com/images/I/41krIxQyJHL._SL500_.jpg" table="" table,="" white=""/></a>
 
 
 The **JONATHAN Y JYL3043A Cleo 21.5" Ceramic/Metal Ginger Jar LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution. Perfect for those who want to enhance their **bedroom**, **living room**, **office**, or even a **college dorm**, this lamp combines contemporary and transitional design elements. If you appreciate elegant decor with practical lighting, this lamp is an excellent choice.
@@ -73,10 +73,10 @@ The **JONATHAN Y JYL3043A Cleo LED Table Lamp** boasts a beautifully crafted cer
 
 Beyond its attractive appearance, this lamp offers practical benefits such as energy-efficient **LED lighting** that provides ample brightness for reading or working without consuming excessive electricity. Its compact size and lightweight nature make it an ideal choice for smaller spaces like dorm rooms or apartments, allowing users to easily relocate it as needed while maintaining stylish illumination.
 
-## <a href="https://www.amazon.com/dp/B07B5YVCVH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3008a Ellis 29.5" Ceramic Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07B5YVCVH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3008a Ellis 29.5" Ceramic Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07B5YVCVH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3008A Ellis 29.5" bedroom="" bedside="" blue="" bookcase="" bulb="" ceramic="" college="" desk="" for="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41opa4rrQpL._SL500_.jpg" table="" traditional="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07B5YVCVH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3008A Ellis 29.5" bedroom="" bedside="" blue="" bookcase="" bulb="" ceramic="" college="" desk="" for="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41opa4rrQpL._SL500_.jpg" table="" traditional="" white"=""/></a>
 
 
 The **JONATHAN Y JYL3008A Ellis 29.5" Ceramic LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, **office**, or **college dorm**. Perfect for those who value both aesthetics and energy efficiency, this lamp suits anyone wanting to enhance their space with a classic design paired with modern LED technology.
@@ -98,10 +98,10 @@ Featuring a sturdy **ceramic construction** with a classic blue and white color 
 
 Users benefit from the lamp’s versatile design, which fits seamlessly into various environments such as bedrooms, living rooms, offices, and college dorms. The combination of traditional style and modern LED technology ensures both aesthetic appeal and practical functionality, making it a smart investment for those looking to brighten their space with reliable, long-lasting lighting.
 
-## <a href="https://www.amazon.com/dp/B00H84J85E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Lantern 20" Classic Blue &amp; White Porcelain Jar Lamp</a>
+## <a href="https://www.amazon.com/dp/B00H84J85E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Red Lantern 20" Classic Blue &amp; White Porcelain Jar Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B00H84J85E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" alt="Red Lantern 20" blue="" classic="" jar="" lamp"="" porcelain="" src="https://m.media-amazon.com/images/I/3194bIrmZKL._SL500_.jpg" white=""/></a>
+<a href="https://www.amazon.com/dp/B00H84J85E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" alt="Red Lantern 20" blue="" classic="" jar="" lamp"="" porcelain="" src="https://m.media-amazon.com/images/I/3194bIrmZKL._SL500_.jpg" white=""/></a>
 
 
 The **Red Lantern 20" Classic Blue & White Porcelain Jar Lamp** is ideal for those who appreciate timeless elegance and want to add a touch of traditional charm to their living spaces. Perfect for homeowners, interior designers, and collectors of fine decorative pieces, this lamp suits anyone looking to enhance their home décor with a sophisticated yet functional accent. Its classic color scheme and porcelain craftsmanship make it a standout choice for both modern and vintage-inspired interiors.
@@ -124,10 +124,10 @@ The **Red Lantern 20" Classic Blue & White Porcelain Jar Lamp** boasts a beautif
 
 Beyond its aesthetic appeal, the lamp offers practical benefits such as lightweight construction at just 6.5 pounds, allowing for easy repositioning without hassle. The durable porcelain material ensures that the lamp remains a cherished part of your home for years to come. With the trusted craftsmanship from **Red Lantern** and **Oriental Furniture**, this lamp combines functionality and style, making it a valuable addition to any room looking for a classic touch.
 
-## <a href="https://www.amazon.com/dp/B0DN1J22HR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">26" Gold Glass Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DN1J22HR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">26" Gold Glass Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN1J22HR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2,="" 3-way="" ac="" alt="26" bedroom="" bedside="" c+a="" control="" desk"="" dimmable="" elegant="" end="" for="" glass="" glod="" lamp="" lamps="" lamps,="" living="" modern="" nightstand="" of="" outlet,="" ports="" room="" set="" side="" src="https://m.media-amazon.com/images/I/41lnyHW3IrL._SL500_.jpg" table="" touch="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0DN1J22HR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 2,="" 3-way="" ac="" alt="26" bedroom="" bedside="" c+a="" control="" desk"="" dimmable="" elegant="" end="" for="" glass="" glod="" lamp="" lamps="" lamps,="" living="" modern="" nightstand="" of="" outlet,="" ports="" room="" set="" side="" src="https://m.media-amazon.com/images/I/41lnyHW3IrL._SL500_.jpg" table="" touch="" usb="" with=""/></a>
 
 
 The **26" Gold Glass Table Lamps Set of 2** is perfect for individuals seeking a blend of modern elegance and functional lighting solutions. Ideal for those who want to enhance their living room, bedroom, or workspace with stylish yet practical lamps, this set is especially suited for users who value customizable lighting and convenient charging options right at their fingertips.
@@ -149,10 +149,10 @@ The **modern bedside lamps** feature a sleek gold glass exterior that not only a
 
 Beyond aesthetics, these lamps offer remarkable functionality with built-in **USB C+A ports** and an **AC outlet**, enabling you to charge multiple devices without cluttering your space with extra cords or adapters. Their dimensions, approximately 26 inches in height and 12 inches in width and length, make them an ideal fit for various surfaces including nightstands, side tables, or desks, providing both style and convenience in one package.
 
-## <a href="https://www.amazon.com/dp/B0875T8J36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005a-set2 Set Of 2 Table Lamps Penelope 22" Chinoiserie</a>
+## <a href="https://www.amazon.com/dp/B0875T8J36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3005a-set2 Set Of 2 Table Lamps Penelope 22" Chinoiserie</a>
 
 
-<a href="https://www.amazon.com/dp/B0875T8J36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope 22" bedroom,="" blue="" bookcase,="" chinoiserie="" classic,cottage,traditional,for="" coffee="" college="" dorm,="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/314nO6wAaUL._SL500_.jpg" table,="" white"=""/></a>
+<a href="https://www.amazon.com/dp/B0875T8J36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope 22" bedroom,="" blue="" bookcase,="" chinoiserie="" classic,cottage,traditional,for="" coffee="" college="" dorm,="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/314nO6wAaUL._SL500_.jpg" table,="" white"=""/></a>
 
 
 The **JONATHAN Y JYL3005A-SET2 Set of 2 Table Lamps Penelope 22"** is ideal for individuals looking to enhance the ambiance of their **bedroom**, **living room**, **office**, **college dorm**, or **coffee table** with a touch of classic elegance. Those who appreciate a blend of **Chinoiserie**, **classic**, **cottage**, and **traditional** design elements will find these lamps perfectly suited to their décor needs.
@@ -174,10 +174,10 @@ These **table lamps** feature a beautiful **Chinoiserie** pattern that adds a so
 
 Beyond aesthetics, the **JONATHAN Y** lamps offer practical benefits such as lightweight construction for easy relocation and a classic design that suits a wide range of settings—from **traditional** homes to **college dorm** rooms. Their versatility and balanced lighting make them an excellent choice for anyone seeking a stylish and functional lighting solution.
 
-## <a href="https://www.amazon.com/dp/B07BF1TF54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl4026a Julian 29" Ceramic Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF1TF54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl4026a Julian 29" Ceramic Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF1TF54?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL4026A Julian 29" bedroom="" bedside="" bookcase="" bulb="" ceramic="" college="" desk="" for="" gold"="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/315fyS4q7vL._SL500_.jpg" table="" traditional="" transitional="" white=""/></a>
+<a href="https://www.amazon.com/dp/B07BF1TF54?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL4026A Julian 29" bedroom="" bedside="" bookcase="" bulb="" ceramic="" college="" desk="" for="" gold"="" included,="" lamp="" led="" living="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/315fyS4q7vL._SL500_.jpg" table="" traditional="" transitional="" white=""/></a>
 
 
 The **JONATHAN Y JYL4026A Julian 29" Ceramic LED Table Lamp** is ideal for individuals seeking a stylish and functional lighting solution for their **bedroom, living room, office, or college dorm**. If you appreciate a blend of **traditional and transitional design** with modern LED technology, this lamp is perfect for you. It caters especially well to those who want an elegant yet practical bedside or desk lamp that complements various decor styles.
@@ -199,10 +199,10 @@ The **JONATHAN Y JYL4026A Julian Table Lamp** combines classic design with moder
 
 Designed to fit seamlessly in bedrooms, living rooms, offices, and college dorms, this lamp enhances both ambience and practicality. The traditional transitional style offers versatility, easily complementing various decor themes. Whether used as a bedside lamp for reading or a desk lamp for work, it delivers consistent, warm lighting that reduces eye strain and creates a welcoming atmosphere.
 
-## <a href="https://www.amazon.com/dp/B07BF2VBWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3009a Grace 24" Floral Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF2VBWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl3009a Grace 24" Floral Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF2VBWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3009A Grace 24" bedroom="" bedside="" bookcase="" bulb="" classic="" college="" cottage="" desk="" floral="" for="" included,="" lamp="" led="" living="" multicolor"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41KnEfZS8ZL._SL500_.jpg" table=""/></a>
+<a href="https://www.amazon.com/dp/B07BF2VBWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL3009A Grace 24" bedroom="" bedside="" bookcase="" bulb="" classic="" college="" cottage="" desk="" floral="" for="" included,="" lamp="" led="" living="" multicolor"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41KnEfZS8ZL._SL500_.jpg" table=""/></a>
 
 
 The **JONATHAN Y JYL3009A Grace 24" Floral LED Table Lamp** is ideal for individuals seeking a charming and functional lighting solution for their **bedroom**, **living room**, **office**, or **college bookcase**. This lamp suits those who appreciate classic cottage aesthetics combined with modern LED technology, making it perfect for both decorative and practical purposes. If you want a versatile, multicolor lamp that complements various interior styles while providing efficient lighting, this item is an excellent choice.
@@ -224,10 +224,10 @@ The **JONATHAN Y JYL3009A Grace 24" Floral LED Table Lamp** features a sturdy bu
 
 The lamp's **multicolor floral pattern** adds a touch of warmth and elegance, enhancing the aesthetic appeal of any room. Its classic cottage style brings a cozy, inviting atmosphere, making it a perfect complement to both traditional and eclectic interiors. Whether you need functional task lighting or decorative ambiance, this lamp provides a well-rounded solution for everyday use.
 
-## <a href="https://www.amazon.com/dp/B07XNLWZ6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oneach Modern Gold Brass Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B07XNLWZ6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oneach Modern Gold Brass Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B07XNLWZ6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Oneach Modern Gold Brass Table Lamp Set of 2 for Bedroom Living Room 19.5'' Traditional Bedside Desk Nightstand Buffet Candlestick Samll Lamps with White Drum Shade" src="https://m.media-amazon.com/images/I/41QLRTHe1dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XNLWZ6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Oneach Modern Gold Brass Table Lamp Set of 2 for Bedroom Living Room 19.5'' Traditional Bedside Desk Nightstand Buffet Candlestick Samll Lamps with White Drum Shade" src="https://m.media-amazon.com/images/I/41QLRTHe1dL._SL500_.jpg"/></a>
 
 
 The **Oneach Modern Gold Brass Table Lamp Set of 2** is ideal for individuals looking to elevate their **bedroom** or **living room** ambiance with a touch of classic elegance. Perfect for those who appreciate traditional design combined with modern functionality, these lamps suit anyone seeking stylish yet practical lighting solutions for their **bedside**, **desk**, or **nightstand**.
@@ -249,10 +249,10 @@ The **Oneach Modern Gold Brass Table Lamp Set** features a sturdy construction w
 
 Beyond aesthetics, these lamps provide functional benefits such as balanced illumination when used as a pair, making them excellent for reading or adding accent lighting. The combination of classic design and practical dimensions makes the set versatile enough to complement various room styles, from traditional to transitional interiors. With their durable build and elegant appearance, these lamps are a smart investment for anyone wanting to enhance their home’s lighting with style and grace.
 
-## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
 
 
 The **Nourison Home 23" Greyish Brown Earth Tone Rustic Farmhouse Ceramic Table Lamp** is ideal for individuals looking to add a warm, rustic charm to their **bedroom, living room, dining area, or office**. This lamp is perfect for homeowners and renters who appreciate **earthy tones** and a farmhouse aesthetic, and want a versatile lighting solution that complements a variety of décor styles.

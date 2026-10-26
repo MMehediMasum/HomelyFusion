@@ -23,10 +23,10 @@ Grommet tops and extra-wide panels make sliding doors easy to cover and open. Co
 
 
 
-## <a href="https://www.amazon.com/dp/B015KMICNE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Blackout Patio Sliding Door Curtains</a>
+## <a href="https://www.amazon.com/dp/B015KMICNE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Blackout Patio Sliding Door Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B015KMICNE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Blackout Patio Sliding Door Curtains 84 inch Length, Grommet Room Divider Thermal Insulated Curtain Drapes for French Door/Living Room (Gray, W100 x L84, 1 Panel)" src="https://m.media-amazon.com/images/I/5132HGC9f0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015KMICNE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Blackout Patio Sliding Door Curtains 84 inch Length, Grommet Room Divider Thermal Insulated Curtain Drapes for French Door/Living Room (Gray, W100 x L84, 1 Panel)" src="https://m.media-amazon.com/images/I/5132HGC9f0L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Grey Blackout Patio Sliding Door Curtains** are ideal for homeowners or renters looking to enhance their living space with both style and functionality. Perfect for those who want to improve privacy, reduce outside light, and regulate indoor temperature, these curtains suit individuals with sliding doors, French doors, or large windows in living rooms or patios. If you seek a durable, thermal insulated drape that also acts as a room divider, this product is designed for you.
@@ -49,10 +49,10 @@ The **NICETOWN Grey Blackout Patio Sliding Door Curtains** feature a smart therm
 
 Additionally, the **grommet design** facilitates smooth opening and closing, enhancing user convenience on sliding doors or French doors. The neutral grey shade brings a modern, stylish touch to any living room or patio setting without overpowering existing decor. The generous **dimensions** of 84 inches in length and nearly 84 inches in width provide ample coverage and versatility, making these curtains a practical choice for multiple applications including as room dividers.
 
-## <a href="https://www.amazon.com/dp/B07GBST8S6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen Blackout Curtain</a>
+## <a href="https://www.amazon.com/dp/B07GBST8S6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Linen Blackout Curtain</a>
 
 
-<a href="https://www.amazon.com/dp/B07GBST8S6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen Blackout Curtain Durable Thick Textured Linen Look 100% Blackout Patio Door Curtain Anti Rust Grommet Extra Wide Sliding Door Curtain Panel, W100 x L84 inch - Natural" src="https://m.media-amazon.com/images/I/51FlpFSmTEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GBST8S6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Linen Blackout Curtain Durable Thick Textured Linen Look 100% Blackout Patio Door Curtain Anti Rust Grommet Extra Wide Sliding Door Curtain Panel, W100 x L84 inch - Natural" src="https://m.media-amazon.com/images/I/51FlpFSmTEL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Linen Blackout Curtain** is ideal for homeowners and renters looking to enhance privacy, block out unwanted sunlight, and improve energy efficiency in their living spaces. This curtain is perfect for those who want a stylish yet functional solution for **patio doors** or large windows, especially in bedrooms, living rooms, or home offices where controlling light and temperature is crucial.
@@ -74,10 +74,10 @@ The **H.VERSAILTEX Linen Blackout Curtain** combines functionality with a stylis
 
 Designed with **anti-rust grommets**, this curtain panel is built to last while making installation and operation smooth and effortless. The natural color tone adds a subtle, sophisticated touch, allowing it to blend seamlessly with a variety of interior styles. Additionally, the heavy fabric contributes to thermal insulation, helping to reduce energy costs by keeping out heat in summer and retaining warmth in winter.
 
-## <a href="https://www.amazon.com/dp/B013PYXV1M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sun Zero Barrow Energy Efficient Grommet Sliding Patio Door Curtain Panel</a>
+## <a href="https://www.amazon.com/dp/B013PYXV1M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sun Zero Barrow Energy Efficient Grommet Sliding Patio Door Curtain Panel</a>
 
 
-<a href="https://www.amazon.com/dp/B013PYXV1M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 84",="" alt="Sun Zero Barrow Energy Efficient Grommet Sliding Patio Door Curtain Panel, 100" src="https://m.media-amazon.com/images/I/41TwP7j5RhL._SL500_.jpg" stone"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B013PYXV1M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 84",="" alt="Sun Zero Barrow Energy Efficient Grommet Sliding Patio Door Curtain Panel, 100" src="https://m.media-amazon.com/images/I/41TwP7j5RhL._SL500_.jpg" stone"="" x=""/></a>
 
 
 The **Sun Zero Barrow Energy Efficient Grommet Sliding Patio Door Curtain Panel** in **Stone Beige** is ideal for homeowners and renters looking to enhance their sliding patio doors with stylish, functional window treatments. Those seeking to improve energy efficiency while maintaining a modern aesthetic will find this curtain panel particularly beneficial. It’s perfect for individuals wanting to reduce heat loss during colder months and minimize heat gain in the summer, thereby lowering utility bills.
@@ -101,10 +101,10 @@ The **Sun Zero Barrow curtain panel** features an energy-efficient fabric that h
 
 Beyond functionality, the curtain panel’s **Stone Beige color** adds a subtle, elegant touch to any room without overpowering existing décor. Lightweight and easy to maintain, this panel offers a practical solution for energy-conscious consumers seeking both style and efficiency. Overall, it combines durability, aesthetic appeal, and performance to meet the needs of modern homeowners.
 
-## <a href="https://www.amazon.com/dp/B07ZH4ZRMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home French Door Curtain</a>
+## <a href="https://www.amazon.com/dp/B07ZH4ZRMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryb Home French Door Curtain</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZH4ZRMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME French Door Curtain - Privacy Thermal Insulated Door Window Curtain for Patio Front Tricia Sidelight Panel, W26 x L69 inch, 1 Panel, Gray" src="https://m.media-amazon.com/images/I/41AqA4zXnEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZH4ZRMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYB HOME French Door Curtain - Privacy Thermal Insulated Door Window Curtain for Patio Front Tricia Sidelight Panel, W26 x L69 inch, 1 Panel, Gray" src="https://m.media-amazon.com/images/I/41AqA4zXnEL._SL500_.jpg"/></a>
 
 
 The **RYB HOME French Door Curtain** is an excellent choice for homeowners seeking to enhance privacy and insulation for their **patio doors** or front sidelights. Ideal for those who want to maintain natural light while reducing energy loss, this curtain is perfect for individuals living in areas with fluctuating temperatures or anyone looking to add a stylish yet functional touch to their door windows.
@@ -127,10 +127,10 @@ The **RYB HOME French Door Curtain** boasts a **thermal insulated design** that 
 
 Crafted with a neutral **gray color**, this curtain blends seamlessly with various interior styles, from modern to traditional. The easy installation process allows users to quickly add functionality and style to their door windows. Overall, the RYB HOME French Door Curtain provides a practical, stylish, and energy-efficient solution for anyone looking to upgrade their door window treatments.
 
-## <a href="https://www.amazon.com/dp/B0BYSNXPR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco Blackout Patio Sliding Door Curtains</a>
+## <a href="https://www.amazon.com/dp/B0BYSNXPR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco Blackout Patio Sliding Door Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYSNXPR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco Blackout Patio Sliding Door Curtains 84 Inches Long, Grommet Privacy Room Divider Curtains, Extra Wide Thermal Blackout Drapes for Bedroom Living Room (Black, 100Wx84L, 1 Panel)" src="https://m.media-amazon.com/images/I/41NjskKfJKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYSNXPR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco Blackout Patio Sliding Door Curtains 84 Inches Long, Grommet Privacy Room Divider Curtains, Extra Wide Thermal Blackout Drapes for Bedroom Living Room (Black, 100Wx84L, 1 Panel)" src="https://m.media-amazon.com/images/I/41NjskKfJKL._SL500_.jpg"/></a>
 
 
 The **Joydeco Blackout Patio Sliding Door Curtains** are ideal for homeowners or renters looking to enhance their privacy and control light in living rooms, bedrooms, or any space with sliding doors. If you want to reduce glare, improve energy efficiency, and add a modern touch to your decor, these **extra wide thermal blackout drapes** are perfect for you.
@@ -152,10 +152,10 @@ Featuring a length of **84 inches** and a width of **100 inches**, the **Joydeco
 
 Beyond functionality, these curtains offer a sleek and modern aesthetic with their deep **black color**, making them an excellent choice for contemporary living spaces. Their ability to block out unwanted light creates a cozy and private environment, ideal for bedrooms or media rooms. Whether you want to improve your home's energy efficiency or simply create a more comfortable and stylish interior, these curtains provide a versatile and effective solution.
 
-## <a href="https://www.amazon.com/dp/B0BZDLT95R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco 100% Blackout Curtains For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BZDLT95R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joydeco 100% Blackout Curtains For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZDLT95R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco 100% Blackout Curtains for Bedroom - Natural Linen Curtains 84 Inch Long, Thermal Insulated 2 Panels Linen Light Blocking Drapes, Rod Pocket &amp; Back Tabs, Darkening Privacy for Living Room" src="https://m.media-amazon.com/images/I/41kVmf4U2yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZDLT95R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joydeco 100% Blackout Curtains for Bedroom - Natural Linen Curtains 84 Inch Long, Thermal Insulated 2 Panels Linen Light Blocking Drapes, Rod Pocket &amp; Back Tabs, Darkening Privacy for Living Room" src="https://m.media-amazon.com/images/I/41kVmf4U2yL._SL500_.jpg"/></a>
 
 
 The **Joydeco 100% Blackout Curtains** are perfect for individuals looking to enhance privacy and control light in their bedrooms or living rooms. Ideal for light-sensitive sleepers, home office users, or anyone seeking to improve energy efficiency with thermal insulation, these curtains blend functionality with style in a natural linen finish.
@@ -179,10 +179,10 @@ The **Joydeco Blackout Curtains** feature a high-quality natural linen fabric th
 
 Designed with convenience in mind, these curtains come with a rod pocket and back tabs, allowing for easy installation on various curtain rods. The neutral linen color blends seamlessly into both modern and traditional interiors, providing a sophisticated look while enhancing privacy. Whether you want to create a cozy sleeping environment or reduce glare in your living space, these curtains deliver both comfort and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B09N8ZDT99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Inovaday Thermal Sliding Door Curtains 100% Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B09N8ZDT99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Inovaday Thermal Sliding Door Curtains 100% Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B09N8ZDT99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INOVADAY Thermal Sliding Door Curtains 100% Blackout Curtains for Bedroom, Sliding Glass Door Drapes Extra Wide for Patio Linen Textured Farmhouse Window Treatment, Beige, 1 Panel, W100xL84" src="https://m.media-amazon.com/images/I/51rC75ET5jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09N8ZDT99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INOVADAY Thermal Sliding Door Curtains 100% Blackout Curtains for Bedroom, Sliding Glass Door Drapes Extra Wide for Patio Linen Textured Farmhouse Window Treatment, Beige, 1 Panel, W100xL84" src="https://m.media-amazon.com/images/I/51rC75ET5jL._SL500_.jpg"/></a>
 
 
 The **INOVADAY Thermal Sliding Door Curtains** are ideal for homeowners or renters looking to enhance privacy and control natural light in rooms with large sliding glass doors or patio areas. If you want a stylish yet functional window treatment that combines energy efficiency with a cozy farmhouse aesthetic, this **100% blackout curtain** is an excellent choice.
@@ -205,10 +205,10 @@ The **INOVADAY Thermal Sliding Door Curtains** feature a linen textured fabric t
 
 Thanks to its extra wide dimensions, this curtain panel is specifically designed for sliding glass doors or large patio windows, providing full coverage without the need for multiple panels. The beige color and farmhouse style easily blend with a variety of home decors, from modern minimalist to cozy country. Lightweight yet sturdy, it’s easy to handle and install, making it a practical and stylish window treatment solution.
 
-## <a href="https://www.amazon.com/dp/B07Q2RVMBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Patio White Curtains</a>
+## <a href="https://www.amazon.com/dp/B07Q2RVMBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">H.versailtex Patio White Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q2RVMBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Patio White Curtains 100x84 Inches for Sliding Door Extral Wide Blackout Curtain Panels Thermal Insulated Room Divider - Grommet Top, 7' Tall by 8.5' Wide" src="https://m.media-amazon.com/images/I/41Qe4BVkMAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q2RVMBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="H.VERSAILTEX Patio White Curtains 100x84 Inches for Sliding Door Extral Wide Blackout Curtain Panels Thermal Insulated Room Divider - Grommet Top, 7' Tall by 8.5' Wide" src="https://m.media-amazon.com/images/I/41Qe4BVkMAL._SL500_.jpg"/></a>
 
 
 The **H.VERSAILTEX Patio White Curtains 100x84 Inches** are ideal for homeowners or renters looking to enhance their living spaces with stylish and functional window treatments. Perfect for those who need **extra wide blackout curtain panels** for sliding doors or large windows, these curtains serve as an excellent choice for anyone wanting to improve privacy, reduce sunlight, and add a thermal insulating layer to their rooms. If you seek a combination of aesthetic appeal and practical benefits, these curtains are tailored for you.
@@ -230,10 +230,10 @@ The **H.VERSAILTEX Patio White Curtains** stand out due to their impressive size
 
 Featuring a convenient **grommet top design**, these curtains are easy to hang and glide smoothly along curtain rods, enhancing usability and convenience. The pure white color not only brightens up the room but also offers a versatile backdrop that complements a wide range of interior designs. Overall, these curtains offer a blend of style, practicality, and comfort, making them a valuable addition to any home that requires both aesthetic appeal and functional performance.
 
-## <a href="https://www.amazon.com/dp/B094FJBYW1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Blackout Curtains</a>
+## <a href="https://www.amazon.com/dp/B094FJBYW1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown Grey Blackout Curtains</a>
 
 
-<a href="https://www.amazon.com/dp/B094FJBYW1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Blackout Curtains for Living Room 84 inch Long 2 Panels Set, Noise Reducing Thermal Insulated Wave Line Foil Print Bedroom Drapes for Patio Sliding Glass Door (52 x 84)" src="https://m.media-amazon.com/images/I/41oDNi8UJ+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B094FJBYW1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN Grey Blackout Curtains for Living Room 84 inch Long 2 Panels Set, Noise Reducing Thermal Insulated Wave Line Foil Print Bedroom Drapes for Patio Sliding Glass Door (52 x 84)" src="https://m.media-amazon.com/images/I/41oDNi8UJ+L._SL500_.jpg"/></a>
 
 
 The **NICETOWN Grey Blackout Curtains** are ideal for homeowners and renters looking to enhance their living room or bedroom environment with stylish and functional window treatments. These curtains are perfect for those who want to reduce outside noise, block sunlight effectively, and improve energy efficiency in their homes. If you have a **patio sliding glass door** or large windows and need durable, thermal insulated drapes, this 2-panel set is an excellent choice.
@@ -256,10 +256,10 @@ The **NICETOWN Grey Blackout Curtains** feature a high-quality **thermal insulat
 
 Additionally, the stylish **wave line foil print** pattern adds a sophisticated aesthetic to your living spaces without compromising functionality. Measuring **52 x 84 inches**, these curtains are designed to fit most sliding glass doors and large windows, offering versatile use throughout your home. The easy-to-install panels combine convenience with durability, making them a smart investment for anyone seeking comfort, privacy, and energy efficiency.
 
-## <a href="https://www.amazon.com/dp/B01L71C9OU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown French Door Panel For Sidelights</a>
+## <a href="https://www.amazon.com/dp/B01L71C9OU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nicetown French Door Panel For Sidelights</a>
 
 
-<a href="https://www.amazon.com/dp/B01L71C9OU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN French Door Panel for Sidelights - Blackout Privacy Curtain Patio Thermal Insulated Drape and Blind for French Door Kitchen Lockdown Shade (25W by 72L Inches, Black, 1 Panel)" src="https://m.media-amazon.com/images/I/41qH0lK78EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01L71C9OU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICETOWN French Door Panel for Sidelights - Blackout Privacy Curtain Patio Thermal Insulated Drape and Blind for French Door Kitchen Lockdown Shade (25W by 72L Inches, Black, 1 Panel)" src="https://m.media-amazon.com/images/I/41qH0lK78EL._SL500_.jpg"/></a>
 
 
 The **NICETOWN French Door Panel for Sidelights** is ideal for homeowners or renters looking to enhance privacy and energy efficiency in rooms with French doors or sidelights. If you want a stylish yet functional curtain that blocks out light and helps regulate indoor temperature, this blackout privacy curtain is perfect for your **kitchen, patio, or any living space** requiring blackout and thermal insulation.

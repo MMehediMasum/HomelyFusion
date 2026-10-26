@@ -23,10 +23,10 @@ Need a chic design? The Regency Hill Paget lamp offers a tropical vibe with its 
 
 
 
-## <a href="https://www.amazon.com/dp/B0BG57JWQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Coastal Palm Tree Table Lamps</a>
+## <a href="https://www.amazon.com/dp/B0BG57JWQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Coastal Palm Tree Table Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0BG57JWQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Coastal Palm Tree Table Lamps with 2 USB Ports for Living Room Beach Nautical Bedside Lamps for Bedroom Tropical Nightstand Lamps for Home Decor" src="https://m.media-amazon.com/images/I/51cR0tB4fzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BG57JWQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Coastal Palm Tree Table Lamps with 2 USB Ports for Living Room Beach Nautical Bedside Lamps for Bedroom Tropical Nightstand Lamps for Home Decor" src="https://m.media-amazon.com/images/I/51cR0tB4fzL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to enhance their home with a touch of tropical elegance, the **Set of 2 Coastal Palm Tree Table Lamps** is perfect for beach lovers and nautical decor enthusiasts. These lamps are especially suited for individuals seeking both style and functionality in their **living room**, **bedroom**, or **nightstand** lighting options.
@@ -49,10 +49,10 @@ The **Hamucd** coastal palm tree lamps offer a unique blend of aesthetic appeal 
 
 Measuring **27.5 inches in height**, these lamps provide a balanced presence on bedside tables or living room side tables without overwhelming the space. Their **beige color** and moderate size allow them to complement a variety of interior design themes, from nautical to contemporary. Overall, this set combines decorative charm with modern-day convenience, making it a versatile addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0CDW5Q4Z2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">27” Natural Rattan Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CDW5Q4Z2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">27” Natural Rattan Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDW5Q4Z2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="27” Natural Rattan Table Lamps Set of 2,Touch Switch,3-Way Dimmable Bedside Lamps, with A+C USB Charging Ports,Oatmeal Lampshade,Farmhouse Table Lamp for Bedroom, Living Room(2 Bulbs Included)" src="https://m.media-amazon.com/images/I/51-6lsGbZ6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDW5Q4Z2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="27” Natural Rattan Table Lamps Set of 2,Touch Switch,3-Way Dimmable Bedside Lamps, with A+C USB Charging Ports,Oatmeal Lampshade,Farmhouse Table Lamp for Bedroom, Living Room(2 Bulbs Included)" src="https://m.media-amazon.com/images/I/51-6lsGbZ6L._SL500_.jpg"/></a>
 
 
 The **27” Natural Rattan Table Lamps Set of 2** is ideal for individuals seeking stylish yet functional lighting solutions for their **bedroom** or **living room**. Perfect for those who appreciate **farmhouse decor** and desire versatile lamps that combine aesthetic appeal with modern features like **touch switches** and **USB charging ports**. This set suits anyone who wants convenient bedside lighting with customizable brightness and the ability to charge devices without extra outlets.
@@ -75,10 +75,10 @@ These **farmhouse table lamps** blend natural textures with modern technology to
 
 Designed by HONTU and branded as Generic, each lamp stands 27 inches tall and measures 13 inches in width and length, providing a substantial presence that balances well on most tables. The inclusion of two bulbs means you don’t need to shop for separate lighting accessories, making this set an efficient and stylish upgrade for bedrooms or living spaces that value both form and function.
 
-## <a href="https://www.amazon.com/dp/B07GPCXHFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Collective Design Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07GPCXHFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Collective Design Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07GPCXHFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Collective Design Table Lamp, Dark Brown" src="https://m.media-amazon.com/images/I/410igqi6MzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GPCXHFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Collective Design Table Lamp, Dark Brown" src="https://m.media-amazon.com/images/I/410igqi6MzL._SL500_.jpg"/></a>
 
 
 The **Collective Design Table Lamp** in **Dark Brown** is perfect for individuals seeking to enhance their living spaces with a blend of modern elegance and natural textures. Ideal for those who appreciate sustainable design and want a versatile lighting solution that complements both contemporary and rustic interiors, this lamp offers a stylish yet functional addition to any room.
@@ -100,10 +100,10 @@ The **Collective Design Table Lamp** features a beautifully crafted **dark brown
 
 With dimensions of 26 inches in height and 16 inches in both width and length, this lamp offers a balanced size that fits well on side tables, consoles, or desks. Its weight of 8.8 pounds strikes the perfect balance between stability and portability, allowing users to easily reposition it as needed. Overall, the lamp’s design and features provide a harmonious combination of style, practicality, and ambient lighting, making it an excellent choice for those looking to elevate their home décor.
 
-## <a href="https://www.amazon.com/dp/B07P5PLPSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Regency Hill Paget Coastal Tropical Style Accent Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07P5PLPSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Regency Hill Paget Coastal Tropical Style Accent Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07P5PLPSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Regency Hill Paget Coastal Tropical Style Accent Table Lamp 23.75" beach="" bedroom="" bedside="" brown="" decor="" drum="" fabric="" for="" high="" home"="" house="" living="" nightstand="" oatmeal="" pineapple="" room="" shade="" src="https://m.media-amazon.com/images/I/412smFg71NL._SL500_.jpg" tapered=""/></a>
+<a href="https://www.amazon.com/dp/B07P5PLPSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Regency Hill Paget Coastal Tropical Style Accent Table Lamp 23.75" beach="" bedroom="" bedside="" brown="" decor="" drum="" fabric="" for="" high="" home"="" house="" living="" nightstand="" oatmeal="" pineapple="" room="" shade="" src="https://m.media-amazon.com/images/I/412smFg71NL._SL500_.jpg" tapered=""/></a>
 
 
 The **Regency Hill Paget Coastal Tropical Style Accent Table Lamp** is perfect for individuals looking to add a touch of beach house charm to their living room, bedroom, or bedside nightstand. Ideal customers include those who appreciate **coastal decor** and want a stylish yet functional lighting solution that complements a tropical or coastal interior design theme. If you’re seeking a lamp that combines aesthetic appeal with practical lighting, this lamp is a great choice.
@@ -125,10 +125,10 @@ The **Regency Hill Paget Accent Table Lamp** features a distinctive tropical pin
 
 Measuring 23.75 inches in height, this lamp is ideal for placement on nightstands or accent tables, providing balanced illumination without overwhelming the space. The lightweight construction at 4.4 pounds allows for easy repositioning as needed. Overall, this lamp merges style and functionality, creating a cozy atmosphere while serving as a tasteful decor accent in any coastal or tropical-inspired home setting.
 
-## <a href="https://www.amazon.com/dp/B07T81461V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6501a Alaro 24.5" Banana Leaf Basket Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07T81461V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl6501a Alaro 24.5" Banana Leaf Basket Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07T81461V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL6501A Alaro 24.5" banana="" basket="" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" cottage="" desk="" for="" included,="" industrial="" lamp="" leaf="" led="" living="" natural"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41eKOASsReL._SL500_.jpg" table=""/></a>
+<a href="https://www.amazon.com/dp/B07T81461V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL6501A Alaro 24.5" banana="" basket="" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" cottage="" desk="" for="" included,="" industrial="" lamp="" leaf="" led="" living="" natural"="" nightstand="" office="" room="" src="https://m.media-amazon.com/images/I/41eKOASsReL._SL500_.jpg" table=""/></a>
 
 
 The **JONATHAN Y JYL6501A Alaro 24.5" Banana Leaf Basket LED Table Lamp** is perfect for individuals looking to enhance their living space with a blend of coastal, cottage, and industrial design elements. Ideal for homeowners, college students, or office workers who want a stylish yet functional lighting solution for their bedroom, living room, desk, or bookcase. This lamp suits those who appreciate natural aesthetics combined with modern LED technology.
@@ -150,10 +150,10 @@ This table lamp features a thoughtfully crafted **banana leaf basket shade** tha
 
 The natural color and mixed coastal cottage and industrial design elements allow this lamp to seamlessly blend with a variety of interior styles. Users benefit from the lamp's ability to add character and texture to a room while providing reliable illumination. Whether used for reading, working, or decorating, this lamp offers both aesthetic appeal and functional lighting in one attractive package.
 
-## <a href="https://www.amazon.com/dp/B0CNWY13MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Table Lamps Set Of 2 Coastal Beach Living Lamps</a>
+## <a href="https://www.amazon.com/dp/B0CNWY13MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Table Lamps Set Of 2 Coastal Beach Living Lamps</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNWY13MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Table Lamps Set of 2 Coastal Beach Living Lamps for Bedroom with Dual USB Ports and One AC Outlet Brown Tropical Nautical Nightstand Bedside Lamps for End Table Home Decor with LED Bulbs" src="https://m.media-amazon.com/images/I/41kLH2+5YLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNWY13MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Table Lamps Set of 2 Coastal Beach Living Lamps for Bedroom with Dual USB Ports and One AC Outlet Brown Tropical Nautical Nightstand Bedside Lamps for End Table Home Decor with LED Bulbs" src="https://m.media-amazon.com/images/I/41kLH2+5YLL._SL500_.jpg"/></a>
 
 
 Ideal for those seeking a blend of style and functionality, the **Table Lamps Set of 2 Coastal Beach Living Lamps** is perfect for anyone looking to enhance their **bedroom** or **end table** with a touch of **tropical nautical decor**. These lamps are especially suited for individuals who value convenience, as they come equipped with **dual USB ports** and an **AC outlet**, making them a great choice for modern living spaces that require easy device charging options alongside ambient lighting.
@@ -175,10 +175,10 @@ The **Hamucd Table Lamps Set of 2** combines aesthetic appeal with practical fea
 
 Additionally, the lamps’ **brown tropical nautical design** brings a calming coastal vibe that enhances the ambiance of any room. Measuring 24 inches tall, they provide sufficient light coverage while the included **LED bulbs** ensure energy efficiency and durability. This makes the lamps ideal not only for reading or nighttime illumination but also as a decorative element that ties together beach-inspired home decor themes.
 
-## <a href="https://www.amazon.com/dp/B0BMFYG5B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cottage Nautical Accent Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0BMFYG5B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cottage Nautical Accent Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMFYG5B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cottage Nautical Accent Table Lamp Set of 2, Touch Control Coastal Blue Green Glass Rope Net Bedside Lamp with 2 USB Ports, 3-Way Dimmable Nightstand Lamps with White Shade for Living Room, Bedroom" src="https://m.media-amazon.com/images/I/51ET7bGxjTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMFYG5B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cottage Nautical Accent Table Lamp Set of 2, Touch Control Coastal Blue Green Glass Rope Net Bedside Lamp with 2 USB Ports, 3-Way Dimmable Nightstand Lamps with White Shade for Living Room, Bedroom" src="https://m.media-amazon.com/images/I/51ET7bGxjTL._SL500_.jpg"/></a>
 
 
 The **Cottage Nautical Accent Table Lamp Set of 2** is perfect for individuals looking to enhance their living spaces with a blend of coastal charm and modern functionality. Ideal for homeowners, renters, or anyone seeking stylish bedside or living room lighting with added convenience, these lamps are especially suited for those who appreciate a nautical theme and desire practical features like touch control and USB charging ports.
@@ -202,10 +202,10 @@ These **bedside lamps** combine aesthetic appeal with practical features that en
 
 Additionally, the inclusion of **2 USB ports** at the base offers unparalleled convenience, allowing users to charge smartphones, tablets, or other devices without cluttering their nightstand with extra chargers. The **white lamp shades** ensure the light is evenly diffused, creating a soft glow that is gentle on the eyes, making these lamps ideal for bedrooms or living areas. Overall, this set balances style, function, and convenience, making it a valuable addition to coastal-inspired interiors.
 
-## <a href="https://www.amazon.com/dp/B07BF134SF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1015a Elicia 31" Seagrass Weave Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B07BF134SF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jonathan Y Jyl1015a Elicia 31" Seagrass Weave Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B07BF134SF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1015A Elicia 31" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" cottage="" desk="" for="" included,="" lamp="" led="" living="" natural"="" nightstand="" office="" room="" seagrass="" src="https://m.media-amazon.com/images/I/41haI6FOgQL._SL500_.jpg" table="" weave=""/></a>
+<a href="https://www.amazon.com/dp/B07BF134SF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JONATHAN Y JYL1015A Elicia 31" bedroom="" bedside="" bookcase="" bulb="" coastal="" college="" cottage="" desk="" for="" included,="" lamp="" led="" living="" natural"="" nightstand="" office="" room="" seagrass="" src="https://m.media-amazon.com/images/I/41haI6FOgQL._SL500_.jpg" table="" weave=""/></a>
 
 
 The **JONATHAN Y JYL1015A Elicia 31" Seagrass Weave LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution that complements a **coastal cottage** or natural-themed decor. Perfect for homeowners, college students, or office workers who want to add a touch of warmth and texture to their bedroom, living room, or workspace, this lamp offers both aesthetic appeal and practical lighting.
@@ -228,10 +228,10 @@ The **JONATHAN Y JYL1015A Elicia** lamp features a beautifully woven seagrass ex
 
 Equipped with an **LED bulb**, this lamp ensures energy-efficient lighting that lasts longer than traditional bulbs, reducing replacement frequency and electricity costs. The lightweight design adds convenience, allowing users to easily reposition the lamp based on their lighting needs. Overall, this lamp provides a harmonious balance of style, functionality, and sustainability for anyone looking to enhance their living or working environment.
 
-## <a href="https://www.amazon.com/dp/B0CPY3ZFJV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruzectt 25.5" Coastal Glass Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CPY3ZFJV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruzectt 25.5" Coastal Glass Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPY3ZFJV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (led="" 2="" 2,="" 3-way="" ac="" alt="Ruzectt 25.5" and="" bedroom="" bedside="" blue="" bulbs="" coastal="" control="" dimmable="" for="" glass="" included)"="" lamps="" living="" nautical="" nightstand="" of="" outlet,="" ports="" room="" set="" src="https://m.media-amazon.com/images/I/413fWNC7WiL._SL500_.jpg" table="" touch="" usb="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CPY3ZFJV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (led="" 2="" 2,="" 3-way="" ac="" alt="Ruzectt 25.5" and="" bedroom="" bedside="" blue="" bulbs="" coastal="" control="" dimmable="" for="" glass="" included)"="" lamps="" living="" nautical="" nightstand="" of="" outlet,="" ports="" room="" set="" src="https://m.media-amazon.com/images/I/413fWNC7WiL._SL500_.jpg" table="" touch="" usb="" with=""/></a>
 
 
 The **Ruzectt 25.5" Coastal Glass Table Lamps Set of 2** is ideal for individuals seeking stylish and functional lighting solutions for their **bedroom** or **living room**. Perfect for those who appreciate a nautical aesthetic combined with modern convenience, these lamps are well-suited for homeowners, renters, or anyone wanting to upgrade their bedside or nightstand lighting with added charging capabilities.
@@ -254,10 +254,10 @@ These **coastal glass table lamps** stand out due to their elegant blue nautical
 
 Measuring 25 inches in height with a sturdy glass construction, these lamps serve as both a decorative and functional element in any room. The set of two makes it convenient to achieve a balanced look on either side of a bed or sofa. Additionally, the **LED bulbs included** ensure energy savings and long-term durability, reducing the need for frequent replacements. Overall, the **Ruzectt Coastal Glass Table Lamps** combine style, convenience, and efficiency, making them a smart addition to modern living spaces.
 
-## <a href="https://www.amazon.com/dp/B0DLWFDC79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yimnovp Rattan Table Lamps Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0DLWFDC79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yimnovp Rattan Table Lamps Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLWFDC79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIMNOVP Rattan Table Lamps Set of 2 Wicker Lamps 3 Way Dimmable Touch Control Farmhouse Rustic Coastal Lamps with USB Port for Bedroom Living Room Office (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/51mxP9vVe1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLWFDC79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIMNOVP Rattan Table Lamps Set of 2 Wicker Lamps 3 Way Dimmable Touch Control Farmhouse Rustic Coastal Lamps with USB Port for Bedroom Living Room Office (LED Bulbs Included)" src="https://m.media-amazon.com/images/I/51mxP9vVe1L._SL500_.jpg"/></a>
 
 
 The **YIMNOVP Rattan Table Lamps Set of 2** is perfect for individuals seeking a blend of rustic charm and modern functionality in their lighting solutions. Ideal customers include homeowners, renters, and office workers who appreciate **farmhouse** and **coastal decor** styles, and those who want versatile lighting with added convenience such as USB charging capabilities. This set is especially suited for bedrooms, living rooms, and offices where space-saving and ambiance control are important.

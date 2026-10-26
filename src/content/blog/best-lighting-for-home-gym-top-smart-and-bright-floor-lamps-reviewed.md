@@ -23,10 +23,10 @@ Some lamps also sync with music to keep you motivated. Look for lamps with dimma
 
 
 
-## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
+## <a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Rgbic Floor Lamp Basic</a>
 
 
-<a href="https://www.amazon.com/dp/B099WTN2TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099WTN2TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee RGBIC Floor Lamp Basic, LED Corner Lamp Works with Alexa, 1000 Lumen Smart Modern Floor Lamp with Music Sync and 16 Million DIY Colors, Color Changing Standing Lamp for Bedroom Living Room Black" src="https://m.media-amazon.com/images/I/411MxaMirLL._SL500_.jpg"/></a>
 
 
 The **Govee RGBIC Floor Lamp Basic** is ideal for tech-savvy individuals and home decor enthusiasts who want to enhance their living spaces with customizable and smart lighting. If you are looking for a modern, versatile **LED corner lamp** that integrates seamlessly with smart home systems like **Alexa** and offers vibrant color options, this lamp is a perfect choice. It suits users who enjoy creating mood lighting for bedrooms, living rooms, or entertainment areas and want to sync lighting effects with music for a dynamic atmosphere.
@@ -50,10 +50,10 @@ The **Govee RGBIC Floor Lamp Basic** offers a rich feature set designed to eleva
 
 Beyond aesthetics, the lamp’s integration with **Alexa** allows for hands-free control, making it convenient to adjust lighting settings without interrupting your activities. The lamp’s brightness of **1000 lumens** is sufficient to light up a room corner effectively, enhancing visibility while maintaining a cozy atmosphere. Its modern black design and compact size make it an unobtrusive yet stylish fixture that complements various interior styles, adding both function and flair to your home.
 
-## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunmory Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CQY5RK52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUNMORY Floor Lamps for Living Room, 32W/3000LM Super Bright LED Floor Lamp with Remote Control, 69" bedroom,="" corner="" dimmable,="" for="" lamp="" modern="" office"="" src="https://m.media-amazon.com/images/I/319pCqCed2L._SL500_.jpg" standing="" stepless="" tall="" torchiere="" with=""/></a>
 
 
 The **SUNMORY Floor Lamps for Living Room** is an ideal choice for individuals seeking a combination of modern design and functional lighting. Perfect for homeowners, office workers, or anyone looking to enhance their bedroom or living space with a stylish yet practical lighting solution, this lamp suits those who appreciate adjustable brightness and remote convenience. If you want a bright, energy-efficient lamp that fits seamlessly into contemporary décor, this product is designed for you.
@@ -76,10 +76,10 @@ The **SUNMORY Floor Lamp** boasts a powerful **32W LED light** that delivers an 
 
 Another standout feature is the **remote control**, which offers convenience by enabling users to adjust brightness levels without needing to get up. This is particularly beneficial for those who use the lamp for reading or working late hours, as it provides effortless control. Additionally, the lamp’s tall stature at **69 inches** ensures wide and effective light distribution, illuminating corners and larger spaces efficiently. The lightweight and slim design also make it easy to move and position according to your needs.
 
-## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miortior Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXWQHYVQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miortior Corner Floor Lamp - Smart RGB LED Corner Lamp with App and Remote Control, 16 Million Colors &amp; 68+ Scene, Music Sync, Timer Setting - Ideal for Living Rooms, Bedrooms, and Gaming Rooms" src="https://m.media-amazon.com/images/I/41-CMmaDkTL._SL500_.jpg"/></a>
 
 
 The **Miortior Corner Floor Lamp** is perfect for individuals looking to enhance their living spaces with smart, customizable lighting. Ideal for **living rooms, bedrooms, and gaming rooms**, this lamp suits tech-savvy users, gamers, and home decor enthusiasts who want to create dynamic atmospheres with ease. If you want versatile lighting that adapts to your mood or activity, this lamp is a great choice.
@@ -103,10 +103,10 @@ The **Miortior Corner Floor Lamp** stands out with its extensive color options a
 
 Additionally, the **music sync** feature enhances entertainment by synchronizing light effects with your favorite tunes, creating an immersive ambiance. The lamp’s slim dimensions (55.12 inches tall and 4 inches wide) make it an ideal fit for corners, maximizing space efficiency while delivering vibrant, customizable lighting. The timer function adds convenience, enabling users to schedule lighting changes automatically to suit daily routines.
 
-## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ambimall Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
 
 
 The **Ambimall Floor Lamps for Living Room** is an excellent choice for individuals seeking a versatile and modern lighting solution. Ideal for those who want customizable ambiance in their **living room**, **bedroom**, or **office**, this floor lamp suits users who value convenience and style, especially with its remote control and adjustable brightness features. If you desire an energy-efficient yet elegant lighting option with easy-to-use controls, this lamp is designed for you.
@@ -128,10 +128,10 @@ The **Ambimall Floor Lamp** stands out for its modern aesthetic combined with hi
 
 Additionally, the included **9W bulb** is energy-efficient, helping to reduce electricity consumption while providing ample illumination. The **remote control** adds a layer of convenience, allowing users to change settings without getting up or interrupting their activity. Its sleek, slim design ensures that it complements various interior styles without occupying too much floor space, making it a practical and stylish lighting solution for modern homes and offices.
 
-## <a href="https://www.amazon.com/dp/B0D93T78D7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tyute Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D93T78D7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tyute Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D93T78D7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tyute Corner Floor Lamp, RGB LED Corner Lamp with Music Sync, Smart App and Remote Control Color Changing Ambience Light, LED Lamp with 16 Million Colors for Bedroom, Living Room Gaming Room" src="https://m.media-amazon.com/images/I/41iT0mminaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D93T78D7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tyute Corner Floor Lamp, RGB LED Corner Lamp with Music Sync, Smart App and Remote Control Color Changing Ambience Light, LED Lamp with 16 Million Colors for Bedroom, Living Room Gaming Room" src="https://m.media-amazon.com/images/I/41iT0mminaL._SL500_.jpg"/></a>
 
 
 The **Tyute Corner Floor Lamp** is ideal for anyone looking to enhance their living space with dynamic lighting. Perfect for **bedrooms, living rooms, and gaming rooms**, this lamp suits tech enthusiasts, gamers, and those who love customizable ambiance lighting. If you want a lamp that offers a wide range of colors and interactive features, this smart LED lamp is a great choice.
@@ -154,10 +154,10 @@ The **Tyute Corner Floor Lamp** stands out due to its impressive feature set. It
 
 In addition, the lamp's **smart app and remote control** offer flexible operation, allowing users to easily switch colors, adjust brightness, or set timers without leaving their seat. Its tall, slim design fits neatly into corners, maximizing space while adding a stylish, modern touch. Whether for relaxing evenings, gaming marathons, or social gatherings, this floor lamp delivers both functionality and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B01HBT3BVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barrina Led T5 Integrated Single Fixture</a>
+## <a href="https://www.amazon.com/dp/B01HBT3BVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barrina Led T5 Integrated Single Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B01HBT3BVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barrina (6 Pack LED T5 Integrated Single Fixture, 4FT, 2200lm, 6500K Super Bright White, 20W Utility LED Shop Light, Ceiling and Under Cabinet Light, Corded Electric with ON/Off Switch, ETL Listed" src="https://m.media-amazon.com/images/I/41KAUPQVFYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01HBT3BVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barrina (6 Pack LED T5 Integrated Single Fixture, 4FT, 2200lm, 6500K Super Bright White, 20W Utility LED Shop Light, Ceiling and Under Cabinet Light, Corded Electric with ON/Off Switch, ETL Listed" src="https://m.media-amazon.com/images/I/41KAUPQVFYL._SL500_.jpg"/></a>
 
 
 The **Barrina (6 Pack LED T5 Integrated Single Fixture, 4FT, 2200lm, 6500K Super Bright White, 20W Utility LED Shop Light** is ideal for homeowners, workshop users, and professionals looking to enhance lighting in garages, basements, kitchens, or under cabinets. If you need bright, energy-efficient, and easy-to-install lighting solutions for utility or task areas, this product is perfect for you.
@@ -181,10 +181,10 @@ The **Barrina 4FT LED Shop Light** features a high lumen output of **2200 lumens
 
 Additionally, this utility light is designed for energy efficiency, consuming only **20 watts** while producing bright illumination, which helps reduce electricity costs over time. The ETL listing guarantees that it meets industry safety and performance standards. With the convenient corded ON/Off switch, users can control lighting without needing to install additional switches, making it a practical solution for both residential and commercial spaces.
 
-## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keepsmile Smart Rgb Led Corner Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHSC78P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Keepsmile Smart RGB LED Corner Floor Lamp,172 LEDs Bright Standing Lamps for Living Room with APP and Remote,Modern Floor Lamp with Music Sync and 16 Million Colors, Ambient Lighting for Bedroom" src="https://m.media-amazon.com/images/I/41wQ9kBac-L._SL500_.jpg"/></a>
 
 
 The **Keepsmile Smart RGB LED Corner Floor Lamp** is ideal for tech-savvy individuals and home decorators looking to enhance their living spaces with versatile and dynamic lighting solutions. Perfect for those who want to create an ambient atmosphere in their living room or bedroom, this lamp suits people who enjoy customizing their environment with modern technology and vibrant colors. If you appreciate smart home gadgets that combine aesthetics with functionality, this floor lamp is an excellent choice.
@@ -208,10 +208,10 @@ The **Keepsmile Smart RGB LED Corner Floor Lamp** stands out with its impressive
 
 Another standout feature is the **music sync** capability, which enables the lamp to change colors and pulse to the rhythm of your favorite tunes, enhancing entertainment experiences. The wide spectrum of **16 million colors** ensures that users can find the perfect hue to complement their interior design or personal style. Its sleek, **modern corner floor lamp** design not only saves space but also adds a stylish touch to bedrooms or living rooms, making it both a functional and decorative piece.
 
-## <a href="https://www.amazon.com/dp/B0B5QZDT56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Don't Quit Led Neon Sign</a>
+## <a href="https://www.amazon.com/dp/B0B5QZDT56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Don't Quit Led Neon Sign</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5QZDT56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Don't Quit LED Neon Sign for Wall Decor, DO IT Neon Lights Party Decorations, USB Powered Switch Neon Lights lighting adjustable for Office Room, Gym Room, Man Cave, Gamer Room" src="https://m.media-amazon.com/images/I/51g1mP8j5JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5QZDT56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Don't Quit LED Neon Sign for Wall Decor, DO IT Neon Lights Party Decorations, USB Powered Switch Neon Lights lighting adjustable for Office Room, Gym Room, Man Cave, Gamer Room" src="https://m.media-amazon.com/images/I/51g1mP8j5JL._SL500_.jpg"/></a>
 
 
 The **Don't Quit LED Neon Sign** is perfect for individuals looking to add a motivational and vibrant touch to their personal or professional spaces. Ideal customers include office workers, gym enthusiasts, gamers, and anyone who enjoys modern and inspiring wall decor that also serves as functional lighting. If you want to enhance the ambiance of your **office room**, **gym room**, **man cave**, or **gamer room**, this neon sign is a stylish and practical choice.
@@ -235,10 +235,10 @@ The **Don't Quit LED Neon Sign** combines both aesthetic appeal and motivational
 
 Designed by **YIKBIK**, the sign boasts durable construction and lightweight design, making installation straightforward and hassle-free. Its size is ideal for various room types such as offices, gyms, man caves, or gaming setups, where motivation and vibrant decor are essential. This neon sign not only lights up the room but also serves as a constant reminder to stay determined, making it a valuable addition to any space focused on productivity and positive energy.
 
-## <a href="https://www.amazon.com/dp/B0CTH2QF23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Floor Lamp 2</a>
+## <a href="https://www.amazon.com/dp/B0CTH2QF23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Govee Floor Lamp 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTH2QF23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee Floor Lamp 2 with Matter, RGBIC, Warm Cool White LED, Alexa Compatible, 1725lm, Music Sync, Scene Modes, Smart Floor Lamp for Living Room, Bedroom, Black(1 Pack)" src="https://m.media-amazon.com/images/I/41+BdxTZNkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTH2QF23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Govee Floor Lamp 2 with Matter, RGBIC, Warm Cool White LED, Alexa Compatible, 1725lm, Music Sync, Scene Modes, Smart Floor Lamp for Living Room, Bedroom, Black(1 Pack)" src="https://m.media-amazon.com/images/I/41+BdxTZNkL._SL500_.jpg"/></a>
 
 
 The **Govee Floor Lamp 2 with Matter** is ideal for tech-savvy homeowners and smart home enthusiasts looking to enhance their living spaces with customizable, ambient lighting. This **smart floor lamp** suits anyone who values convenience, mood setting, and modern aesthetics in their **living room** or **bedroom**. If you want to seamlessly integrate lighting control into your home automation system, especially with Alexa compatibility, this lamp is a perfect choice.
@@ -262,10 +262,10 @@ The **Govee Floor Lamp 2** stands out with its advanced **RGBIC technology**, wh
 
 Additionally, the lamp's **music sync** feature enhances entertainment experiences by synchronizing the lighting with sound rhythms, making it perfect for parties or immersive movie nights. The inclusion of various **scene modes** allows for quick adjustments to lighting presets, saving time and effort. Its tall and slim design with a stylish black finish ensures it complements most home interiors while providing strong illumination with its 1725 lumens output, making it both functional and decorative.
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio Led Floor Lamp** is ideal for individuals seeking an **eye-caring lighting solution** with versatile control options. Perfect for **living rooms**, **bedrooms**, or workspaces, this lamp suits those who want customizable brightness and color temperature to create the perfect ambiance while protecting their eyes from harsh light. If you value convenience and modern design, this **adjustable gooseneck standing lamp** with **remote** and **touch control** is an excellent choice.

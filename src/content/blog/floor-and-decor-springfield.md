@@ -23,10 +23,10 @@ With its retro mid-century appeal, it transforms ordinary spaces into inviting r
 
 
 
-## <a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jbnjankdav Retro Mid Century Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jbnjankdav Retro Mid Century Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JBNJANKDAV Retro Mid Century Floor Lamp, Sturdy Teardrop Base Standing Lamp, Table Rock Lake springfields Pictures Reading Floor Light for Farmhouse Bedroom Office Decor" src="https://m.media-amazon.com/images/I/315GaZa3soL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JBNJANKDAV Retro Mid Century Floor Lamp, Sturdy Teardrop Base Standing Lamp, Table Rock Lake springfields Pictures Reading Floor Light for Farmhouse Bedroom Office Decor" src="https://m.media-amazon.com/images/I/315GaZa3soL._SL500_.jpg"/></a>
 
 
 The **JBNJANKDAV Retro Mid Century Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution that complements a **farmhouse** or **mid-century modern decor**. Perfect for homeowners, office workers, or anyone wanting to add a touch of vintage charm combined with practicality to their **bedroom**, **office**, or living space. This lamp suits those who appreciate unique design elements and require adequate lighting for reading or ambiance.
@@ -48,7 +48,7 @@ The **JBNJANKDAV Retro Mid Century Floor Lamp** features a distinctive teardrop 
 
 Additionally, the lamp's dimensions—8.98 inches in width and 11 inches in length—allow it to fit comfortably into smaller spaces without sacrificing illumination quality. Its vintage-inspired look is perfect for those who want to bring a touch of nostalgia while maintaining modern practicality. Whether used as a reading light or a stylish accent, this floor lamp seamlessly blends form and function to elevate your living or working environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FBR6LLPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

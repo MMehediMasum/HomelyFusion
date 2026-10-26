@@ -23,10 +23,10 @@ The Glade Hawaiian Breeze Candle blends tropical notes to freshen any room, whil
 
 
 
-## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
+## <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vanilla Bean Odor Eliminating Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vanilla Bean Odor Eliminating Highly Fragranced Candle - Eliminates 95% of Pet, Smoke, Food, and Other Smells Quickly - Up to 80 Hour Burn time - 12 Ounce Premium Soy Blend" src="https://m.media-amazon.com/images/I/41HZVGpk+LL._SL500_.jpg"/></a>
 
 
 The **Vanilla Bean Odor Eliminating Highly Fragranced Candle** is ideal for anyone looking to quickly and effectively neutralize unpleasant odors in their home or workspace. Perfect for pet owners, smokers, or those who frequently cook, this candle is designed to eliminate up to 95% of pet, smoke, food, and other stubborn smells, while also providing a pleasant and soothing vanilla fragrance. If you want a long-lasting, premium solution to odor control combined with a warm, inviting aroma, this candle is a perfect choice.
@@ -50,12 +50,12 @@ This **Vanilla Bean Odor Eliminating Candle** features a carefully crafted soy b
 
 With an impressive **burn time of up to 80 hours**, this candle offers great value for those seeking a long-lasting solution. The natural soy wax blend not only burns cleaner with less soot but also supports a more eco-friendly lifestyle. Overall, this candle combines effective odor elimination with a delightful vanilla scent, creating a cozy and inviting atmosphere wherever it is used.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07QCQN4B9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
+## <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chesapeake Bay Candle Scented Candle Peace + Tranquility</a>
 
 
-<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar" src="https://m.media-amazon.com/images/I/41hRqFiN7sL._SL500_.jpg"/></a>
 
 
 The **Chesapeake Bay Candle Scented Candle Peace + Tranquility (cashmere jasmine) 3-Wick Coffee Table Jar** is ideal for individuals seeking to create a calming and inviting atmosphere in their living spaces. Perfect for those who appreciate soothing fragrances and elegant home décor, this candle is suited for anyone looking to enhance relaxation, whether at home or in an office setting. Its balanced scent and stylish design make it an excellent choice for gift-givers and self-care enthusiasts alike.
@@ -78,12 +78,12 @@ The **3-wick design** of the Chesapeake Bay Candle ensures a more efficient and 
 
 Crafted by **Chesapeake Bay Candle**, this candle combines aesthetic appeal with functionality. Its **Peace + Tranquility** color theme complements the relaxing scent, making it a beautiful accent piece on any coffee table or shelf. Users benefit from both the therapeutic aroma and the soft glow emitted by the triple wicks, enhancing mood and encouraging mindfulness in daily routines.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B075KJ6XN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar</a>
+## <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41cq25ANAyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, 2in1 Hawaiian Breeze &amp; Vanilla Passion Fruit, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41cq25ANAyL._SL500_.jpg"/></a>
 
 
 The **Glade 1-Wick Scented Candle Jar** in the delightful **2in1 Hawaiian Breeze & Vanilla Passion Fruit** fragrance is perfect for individuals looking to enhance their living spaces with a refreshing and long-lasting aroma. Ideal for homeowners, office workers, or anyone who enjoys a calming ambiance, this candle also suits those who prefer air fresheners infused with essential oils for a more natural scent experience.
@@ -106,12 +106,12 @@ The **Glade 1-Wick Scented Candle Jar** combines the invigorating notes of **Haw
 
 Designed for ease of use, the single wick delivers a steady and even burn, making it a practical choice for both small and medium-sized spaces. Beyond its pleasing scent, this candle serves as an elegant decorative piece, adding a touch of style to your home or office. By choosing this candle, users enjoy a balance between fragrance quality, aesthetic appeal, and trusted brand reliability, making it a worthwhile addition to any environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DP1FX2DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chloefu Lan Hotel Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chloefu Lan Hotel Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chloefu LAN Hotel Scented Candle Natural Essential Oil, Luxury Scented Soy Jar Candle Gifts, Highly Scented, 8.1oz, Unique Blend to Promote Sleep &amp; Relieve Stress" src="https://m.media-amazon.com/images/I/41GVmET9YwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chloefu LAN Hotel Scented Candle Natural Essential Oil, Luxury Scented Soy Jar Candle Gifts, Highly Scented, 8.1oz, Unique Blend to Promote Sleep &amp; Relieve Stress" src="https://m.media-amazon.com/images/I/41GVmET9YwL._SL500_.jpg"/></a>
 
 
 The **Chloefu LAN Hotel Scented Candle** is ideal for individuals seeking a luxurious and calming ambiance in their living or sleeping spaces. Perfect for those who struggle with stress or sleep difficulties, this candle combines natural essential oils and a unique scent blend to create a soothing environment. If you value high-quality, highly scented soy candles that promote relaxation and well-being, this item is tailored for you.
@@ -133,12 +133,12 @@ The **Chloefu LAN Hotel Scented Candle** is crafted using **high-quality soy wax
 
 Besides its therapeutic benefits, the candle’s **luxury jar design** adds a touch of elegance to any room, fitting seamlessly into various décor styles. Its compact dimensions make it versatile for placement on nightstands, desks, or bathroom counters. As a product from **Chloefu LAN**, it meets high standards for quality, providing users with a reliable and enjoyable aromatic experience that doubles as a stylish gift option for loved ones seeking relaxation and comfort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CW5WZHLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yankee Candle 3 Wick Candle Jar</a>
+## <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yankee Candle 3 Wick Candle Jar</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yankee Candle 3 Wick Candle Jar, Scented Candle with up to 40 Hours of Burn Time, Premium Plant Wax Blend for Consistent Long Lasting Scent from First to Last Burn, Sage &amp; Citrus" src="https://m.media-amazon.com/images/I/31-kV68-6nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yankee Candle 3 Wick Candle Jar, Scented Candle with up to 40 Hours of Burn Time, Premium Plant Wax Blend for Consistent Long Lasting Scent from First to Last Burn, Sage &amp; Citrus" src="https://m.media-amazon.com/images/I/31-kV68-6nL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle 3 Wick Candle Jar** in the refreshing **Sage & Citrus** scent is perfect for individuals who appreciate a long-lasting, consistently fragrant atmosphere in their homes or workplaces. Ideal for those who seek premium quality candles made from a **plant wax blend** that delivers a reliable scent experience from the first burn to the last, this candle suits anyone wanting to enhance their environment with a calming yet invigorating aroma.
@@ -161,12 +161,12 @@ The **Yankee Candle 3 Wick Candle Jar** stands out thanks to its unique design f
 
 Additionally, the **Sage & Citrus** fragrance combines herbal and citrus notes to create a refreshing yet soothing environment, ideal for relaxation or uplifting moods. Its medium size and manageable weight make it easy to place in different areas of a home or office, while the premium quality manufacturing by **Yankee Candle** and **Newell Brands** guarantees a reliable, consistent product. Whether you’re looking to enhance your living room, bedroom, or workspace, this candle offers both aesthetic appeal and functional benefits that cater to diverse preferences.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F3DQMCJB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DT193XY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense 6 Pack Candles Gift For Home Scented Aromatherapy Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0DT193XY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">M&amp;sense 6 Pack Candles Gift For Home Scented Aromatherapy Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT193XY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE 6 Pack Candles Gift for Home Scented Aromatherapy Candle Set for Women Soy Wax Long Lasting Amber Jar Candles Gift for Birthday Housewarming Mother's Valentine Day" src="https://m.media-amazon.com/images/I/51JAYRlXoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT193XY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="M&amp;SENSE 6 Pack Candles Gift for Home Scented Aromatherapy Candle Set for Women Soy Wax Long Lasting Amber Jar Candles Gift for Birthday Housewarming Mother's Valentine Day" src="https://m.media-amazon.com/images/I/51JAYRlXoML._SL500_.jpg"/></a>
 
 
 The **M&SENSE 6 Pack Candles Gift** is ideal for individuals looking to enhance their living spaces with soothing aromas and elegant decor. Perfect for women who appreciate aromatherapy, these **soy wax scented candles** make an excellent gift for occasions like birthdays, housewarmings, Mother's Day, or Valentine's Day. If you want a long-lasting, beautifully packaged candle set that creates a relaxing ambiance, this product is for you.
@@ -189,12 +189,12 @@ The **M&SENSE 6 Pack Candles Gift set** offers a delightful combination of aesth
 
 These candles are perfectly sized to fit comfortably in any room without overwhelming the space, making them a wonderful addition to bedrooms, living rooms, or bathrooms. The long-lasting burn time ensures that users get extended enjoyment from each candle, while the soothing scents help reduce stress and create a calming atmosphere. Whether you're treating yourself or gifting to a loved one, this set combines thoughtful design and quality materials to provide a meaningful sensory experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DT193XY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DT193XY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hotel Scented Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hotel Scented Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hotel Scented Candles Set, 6 Pack Candles for Home Scented, Luxury Aromatherapy Jar Candle Gifts for Men &amp; Women, Natural Soy Wax Long Lasting Candle Kit for Fathers Day, Birthday, Christmas" src="https://m.media-amazon.com/images/I/41rrquhS2eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hotel Scented Candles Set, 6 Pack Candles for Home Scented, Luxury Aromatherapy Jar Candle Gifts for Men &amp; Women, Natural Soy Wax Long Lasting Candle Kit for Fathers Day, Birthday, Christmas" src="https://m.media-amazon.com/images/I/41rrquhS2eL._SL500_.jpg"/></a>
 
 
 Ideal for those who appreciate a touch of **luxury and relaxation** in their living spaces, the **Hotel Scented Candles Set** is perfect for individuals seeking to elevate their home ambiance. Whether you're looking for a thoughtful gift for **men and women** or a premium **aromatherapy experience** for yourself, this set caters to anyone who values **natural, long-lasting fragrance** and elegant design.
@@ -217,12 +217,12 @@ The **Hotel Scented Candles Set** features a premium composition of **natural so
 
 Each candle in the set is designed for longevity, allowing users to enjoy the rich aromas for extended periods. The compact and elegant jar size is ideal for placing on bedside tables, bathrooms, or living rooms, making it easy to infuse your home with a consistent, inviting scent. Additionally, this set makes a thoughtful and sophisticated gift choice, perfect for celebrating special occasions with a touch of luxury.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F2HJZ5PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Palo Santo - Palo Santo &amp; Bergamot Pure Beeswax Candle</a>
+## <a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Palo Santo - Palo Santo &amp; Bergamot Pure Beeswax Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Palo Santo - Palo Santo &amp; Bergamot Pure Beeswax Candle - 90+ Hours Long Burning Classically Designed Non-Toxic Scented Candles for Home Decor and Aromatherapy to Stress &amp; Anxiety Relief - 15 Oz" src="https://m.media-amazon.com/images/I/31k2L+E4wGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Palo Santo - Palo Santo &amp; Bergamot Pure Beeswax Candle - 90+ Hours Long Burning Classically Designed Non-Toxic Scented Candles for Home Decor and Aromatherapy to Stress &amp; Anxiety Relief - 15 Oz" src="https://m.media-amazon.com/images/I/31k2L+E4wGL._SL500_.jpg"/></a>
 
 
 The **Palo Santo - Palo Santo & Bergamot Pure Beeswax Candle** is ideal for individuals seeking a natural and long-lasting **aromatherapy** solution that enhances home ambiance while promoting **stress and anxiety relief**. If you appreciate **non-toxic, eco-friendly candles** with a soothing fragrance and elegant design, this candle is perfect for your living space or relaxation routine.
@@ -244,12 +244,12 @@ This **Living Good Candle Co.** product stands out with its use of **pure beeswa
 
 The candle’s classic off-white design adds a touch of elegance to any setting, whether used in a living room, bedroom, or meditation space. Its non-toxic formula ensures safe use around family and pets, appealing to eco-conscious buyers. Overall, this candle provides a harmonious balance between functionality, aesthetics, and wellness benefits, making it a valuable addition to your home décor and self-care collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CJSP4SP5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar, Hawaiian Breeze</a>
+## <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Glade 1-wick Scented Candle Jar, Hawaiian Breeze</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Glade 1-Wick Scented Candle Jar, Hawaiian Breeze, Air Freshener Infused with Essential Oils, 4.08 Oz, 2 Count" src="https://m.media-amazon.com/images/I/41ucK6w3jDL._SL500_.jpg"/></a>
 
 
 The **Glade 1-Wick Scented Candle Jar, Hawaiian Breeze** is perfect for individuals looking to create a refreshing and inviting atmosphere in their home or workspace. Ideal for those who appreciate a tropical scent infused with essential oils, this candle is suited for anyone wanting to eliminate unwanted odors while adding a pleasant aroma to their environment. If you enjoy relaxing scents that evoke a beach-like ambiance, this air freshener candle is an excellent choice.
@@ -272,12 +272,12 @@ The **Glade 1-Wick Scented Candle Jar** features a beautifully designed jar with
 
 Users benefit from the ease of use and versatility of this candle. Its compact size allows it to fit comfortably on shelves, desks, or bedside tables without taking up too much space. The 2-pack option ensures that you have a backup or can place candles in multiple rooms to maintain a consistent fragrance throughout your home. As a product from **SC Johnson** under the well-known **Glade** brand, customers can trust the quality and safety standards incorporated into this air freshener candle.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DP1PS5RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F66J2539?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0F66J2539?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66J2539?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Candle Set, Fall Scented Candles for Home, 4 Pack Soy Candle Set, Autumn Gifts for Women Men, Autumn Scents of Vanilla Pumpkin/Cinnamon Clove/Apple Pie/Fall Party" src="https://m.media-amazon.com/images/I/51CvA3MO0IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66J2539?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Candle Set, Fall Scented Candles for Home, 4 Pack Soy Candle Set, Autumn Gifts for Women Men, Autumn Scents of Vanilla Pumpkin/Cinnamon Clove/Apple Pie/Fall Party" src="https://m.media-amazon.com/images/I/51CvA3MO0IL._SL500_.jpg"/></a>
 
 
 The **Fall Candle Set** by **DL DREAMY DEWLA** is perfect for anyone looking to bring the cozy and inviting atmosphere of autumn into their home. Ideal for those who appreciate seasonal fragrances, this set is especially suited for gift-givers seeking thoughtful **autumn gifts for women and men**, as well as individuals wanting to enhance their living space with warm, comforting scents.
@@ -299,7 +299,7 @@ Each candle in the **4 Pack Soy Candle Set** is thoughtfully crafted to capture 
 
 Thanks to the use of **soy wax**, these candles burn more cleanly and evenly compared to traditional options, resulting in a longer-lasting and environmentally friendlier experience. Their moderate size makes them versatile for use on mantels, coffee tables, or as part of a centerpiece. Whether you're looking to enrich your home environment or searching for a thoughtful autumn gift, this candle set combines delightful scents with quality craftsmanship to enhance your seasonal decor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F66J2539?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F66J2539?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

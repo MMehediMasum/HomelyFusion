@@ -23,10 +23,10 @@ Each candle offers unique autumn aromas, perfect for unwinding or welcoming gues
 
 
 
-## <a href="https://www.amazon.com/dp/B0CC98RMFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Auelife Fall Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0CC98RMFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Auelife Fall Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC98RMFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Auelife Fall Candle Set | 4 Pack Scented Candles for Home - Candle Gifts for Women Men, Soy Candles Home Scented | Autumn Fragrance of - Apple Pie/Cinnamon/Harvest/Wreath" src="https://m.media-amazon.com/images/I/51v6Tp8kPXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC98RMFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Auelife Fall Candle Set | 4 Pack Scented Candles for Home - Candle Gifts for Women Men, Soy Candles Home Scented | Autumn Fragrance of - Apple Pie/Cinnamon/Harvest/Wreath" src="https://m.media-amazon.com/images/I/51v6Tp8kPXL._SL500_.jpg"/></a>
 
 
 The **Auelife Fall Candle Set** is perfect for anyone looking to enhance their home ambiance with cozy, seasonal fragrances. Ideal for those who appreciate **autumn-inspired scents** and want to create a warm, inviting atmosphere, this set is also a thoughtful gift choice for both **women and men** who enjoy home décor and aromatherapy. Whether you’re decorating for the fall season or simply love the comforting aroma of **soy candles**, this set offers a delightful sensory experience.
@@ -48,10 +48,10 @@ The **Auelife Fall Candle Set** brings a thoughtfully curated collection of frag
 
 This set is especially beneficial for users seeking to transform their living spaces into cozy retreats during cooler months. The compact size and elegant design make these candles versatile for various rooms, from living areas to bedrooms. Moreover, the natural ingredients appeal to those conscious about creating a healthier indoor atmosphere, free from harsh chemicals often found in traditional candles. Overall, the **Auelife Fall Candle Set** offers both sensory pleasure and stylish presentation, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Vanilla Apple</a>
+## <a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Vanilla Apple</a>
 
 
-<a href="https://www.amazon.com/dp/B08J1W22JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08J1W22JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Vanilla Apple, Large Glass Apothecary Jar Scented Candle, 21.25 oz, Ivory" src="https://m.media-amazon.com/images/I/414bp41HwtL._SL500_.jpg"/></a>
 
 
 The **Village Candle Spiced Vanilla Apple** is ideal for those who love warm, cozy scents that evoke the feeling of autumn and home. Perfect for anyone looking to enhance their living space with a long-lasting, inviting aroma, this candle is especially suited for individuals who appreciate high-quality, decorative scented candles to create a relaxing ambiance.
@@ -74,10 +74,10 @@ This **large glass apothecary jar scented candle** is designed to fill your spac
 
 Crafted by **Village Candle**, a renowned manufacturer in the scented candle market, this product guarantees quality and consistent scent throw. Its compact dimensions make it suitable for various settings, from cozy living rooms to sophisticated offices. The blend of spices with sweet vanilla and fresh apple notes provides a comforting fragrance that can uplift mood, reduce stress, and create a welcoming environment for guests and family alike.
 
-## <a href="https://www.amazon.com/dp/B0F66J2539?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle Set</a>
+## <a href="https://www.amazon.com/dp/B0F66J2539?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66J2539?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle Set, Fall Scented Candles for Home, 4 Pack Soy Candle Set, Autumn Gifts for Women Men, Autumn Scents of Vanilla Pumpkin/Cinnamon Clove/Apple Pie/Fall Party" src="https://m.media-amazon.com/images/I/51CvA3MO0IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66J2539?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle Set, Fall Scented Candles for Home, 4 Pack Soy Candle Set, Autumn Gifts for Women Men, Autumn Scents of Vanilla Pumpkin/Cinnamon Clove/Apple Pie/Fall Party" src="https://m.media-amazon.com/images/I/51CvA3MO0IL._SL500_.jpg"/></a>
 
 
 The **Fall Candle Set** by **DL DREAMY DEWLA** is perfect for individuals who love to create a cozy and inviting atmosphere in their homes during the autumn season. Ideal for both women and men who appreciate the warm and nostalgic scents of fall, this set is a great purchase for those looking to enhance their living spaces with seasonal aromas or searching for thoughtful **autumn gifts**. Whether you enjoy relaxing evenings or festive gatherings, this candle set suits anyone wanting to embrace the spirit of fall.
@@ -99,10 +99,10 @@ The **Fall Candle Set** offers a delightful combination of classic autumn aromas
 
 Beyond their pleasing fragrances, the candles' compact and elegant design fits seamlessly into various home decor styles. Their moderate size allows placement on mantels, coffee tables, or shelves without overwhelming the space. Additionally, the set’s thoughtful presentation makes it a wonderful gift option for family, friends, or coworkers who appreciate seasonal touches. Overall, this candle set enhances the cozy, festive feeling of autumn, making it a must-have for anyone eager to celebrate the season with warmth and style.
 
-## <a href="https://www.amazon.com/dp/B0D7C4MMT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle</a>
+## <a href="https://www.amazon.com/dp/B0D7C4MMT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7C4MMT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle | Vanilla Pumpkin Candle - Scented Candles for Autumn, Fall Aromatherapy Gifts - 7 OZ" src="https://m.media-amazon.com/images/I/31wKr19oDsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7C4MMT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle | Vanilla Pumpkin Candle - Scented Candles for Autumn, Fall Aromatherapy Gifts - 7 OZ" src="https://m.media-amazon.com/images/I/31wKr19oDsL._SL500_.jpg"/></a>
 
 
 The **Fall Candle | Vanilla Pumpkin Candle** is perfect for anyone looking to bring the warm and cozy scents of autumn into their home. Ideal for individuals who enjoy **seasonal aromatherapy**, decorating for fall, or gifting thoughtful **aromatherapy gifts**, this candle suits those who appreciate a calming and inviting atmosphere. Whether you want to enhance your living space or find a charming gift for friends and family, this candle is designed for lovers of **autumn fragrances**.
@@ -124,10 +124,10 @@ Crafted by **Auelife**, this **Vanilla Pumpkin Candle** features a beautifully b
 
 Beyond its delightful aroma, this candle also serves as a thoughtful gift for those who cherish seasonal aromas and calming environments. The black container adds a touch of elegance, making it not only a source of fragrance but also a stylish decorative piece. Whether used during quiet evenings or festive gatherings, the **Fall Candle | Vanilla Pumpkin Candle** brings a warm, inviting feel that enriches the autumn experience.
 
-## <a href="https://www.amazon.com/dp/B002YX0GAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Pumpkin Large Apothecary Jar</a>
+## <a href="https://www.amazon.com/dp/B002YX0GAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Spiced Pumpkin Large Apothecary Jar</a>
 
 
-<a href="https://www.amazon.com/dp/B002YX0GAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Pumpkin Large Apothecary Jar, Scented Candle, 21.25 oz." src="https://m.media-amazon.com/images/I/41jP1n8Y1UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002YX0GAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Spiced Pumpkin Large Apothecary Jar, Scented Candle, 21.25 oz." src="https://m.media-amazon.com/images/I/41jP1n8Y1UL._SL500_.jpg"/></a>
 
 
 The **Village Candle Spiced Pumpkin Large Apothecary Jar** is ideal for individuals who love cozy, autumn-inspired scents and want to bring a warm, inviting atmosphere to their living spaces. This scented candle is perfect for those who enjoy seasonal home décor, appreciate long-lasting fragrance, and seek a high-quality candle to enhance relaxation or festive gatherings.
@@ -150,10 +150,10 @@ The **Village Candle Spiced Pumpkin Large Apothecary Jar** features a robust 21.
 
 Crafted by the reputable **Village Candle** brand, this candle offers consistent performance and a clean burn. Its dimensions make it versatile enough to be placed on mantels, coffee tables, or kitchen counters without dominating the space. The combination of visual appeal and aromatic richness makes it a perfect choice for those wanting to celebrate the fall season or simply add a touch of warmth and comfort to their environment.
 
-## <a href="https://www.amazon.com/dp/B0038WVR6I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Warm Apple Pie Large Glass Apothecary Jar Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0038WVR6I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Warm Apple Pie Large Glass Apothecary Jar Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0038WVR6I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Warm Apple Pie Large Glass Apothecary Jar Scented Candle, 21.25 oz, Brown" src="https://m.media-amazon.com/images/I/4180gKfC6NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0038WVR6I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Warm Apple Pie Large Glass Apothecary Jar Scented Candle, 21.25 oz, Brown" src="https://m.media-amazon.com/images/I/4180gKfC6NL._SL500_.jpg"/></a>
 
 
 The **Village Candle Warm Apple Pie Large Glass Apothecary Jar Scented Candle** is ideal for individuals who love filling their living spaces with cozy, inviting aromas reminiscent of homemade desserts. This candle is perfect for those who appreciate long-lasting fragrances and want to create a warm, comforting atmosphere in their homes, especially during the fall and winter seasons.
@@ -176,10 +176,10 @@ This **large scented candle** features a generous 21.25 oz of wax housed in a st
 
 Crafted by **Village Candle**, this item ensures a clean, consistent burn, allowing users to enjoy the fragrance for hours on end. The durable glass jar not only protects the candle but also adds a rustic charm, making it a functional piece of décor. Whether placed in a living room, kitchen, or bedroom, this candle offers both aesthetic appeal and a soothing aromatic experience, ideal for relaxing evenings or festive gatherings.
 
-## <a href="https://www.amazon.com/dp/B000TVJ6XW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Autumn Wreath Scented Classic Large Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B000TVJ6XW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Autumn Wreath Scented Classic Large Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B000TVJ6XW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Autumn Wreath Scented Classic 22oz Large Jar Single Wick Aromatherapy Candle Over 110 Hours of Burn Time Fall Fragrance Perfect for gifting" src="https://m.media-amazon.com/images/I/3126sT+XGdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000TVJ6XW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Autumn Wreath Scented Classic 22oz Large Jar Single Wick Aromatherapy Candle Over 110 Hours of Burn Time Fall Fragrance Perfect for gifting" src="https://m.media-amazon.com/images/I/3126sT+XGdL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Autumn Wreath Scented Classic 22oz Large Jar Candle** is perfect for individuals who appreciate cozy, seasonal fragrances and are looking to enhance their home ambiance during the fall months. Ideal for those who enjoy long-lasting, high-quality candles, this item suits anyone wanting to create a warm, inviting atmosphere or searching for a thoughtful gift for loved ones.
@@ -201,10 +201,10 @@ The **Yankee Candle Autumn Wreath** candle is designed with both aesthetics and 
 
 Beyond its pleasing scent and appearance, this candle delivers practical benefits with its impressive **110+ hours of burn time**, allowing users to enjoy its aroma over an extended period without frequent replacements. The **single wick design** ensures a clean and even burn, helping to maximize the candle’s lifespan while minimizing soot and smoke. Overall, this candle offers a blend of style, fragrance, and longevity that caters well to candle enthusiasts and gift buyers alike.
 
-## <a href="https://www.amazon.com/dp/B0F66HVPDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candles Set</a>
+## <a href="https://www.amazon.com/dp/B0F66HVPDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66HVPDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candles Set, 4 Pack Candles for Home Scented Natural Soy Wax, Autumn Gifts Set for Women Men, Fall Fragrance of Pumpkin/Cinnamon/Vanilla Cupcake/Apple" src="https://m.media-amazon.com/images/I/51FMoo1hlnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66HVPDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candles Set, 4 Pack Candles for Home Scented Natural Soy Wax, Autumn Gifts Set for Women Men, Fall Fragrance of Pumpkin/Cinnamon/Vanilla Cupcake/Apple" src="https://m.media-amazon.com/images/I/51FMoo1hlnL._SL500_.jpg"/></a>
 
 
 The **Fall Candles Set, 4 Pack Candles for Home Scented Natural Soy Wax** is perfect for individuals who want to bring the warm and cozy ambiance of autumn into their living spaces. Ideal for those who appreciate seasonal fragrances, this set is a great choice for anyone looking to enhance their home décor or searching for thoughtful autumn gifts for women and men. If you enjoy scents like **Pumpkin, Cinnamon, Vanilla Cupcake**, and **Apple**, this candle set will enrich your sensory experience during the fall season.
@@ -226,10 +226,10 @@ This **Fall Candles Set** offers a delightful combination of seasonal aromas inc
 
 The compact size of these candles makes them versatile for placement in different areas such as living rooms, bedrooms, or even offices, filling the space with inviting fragrances. Whether used as a personal indulgence or given as a thoughtful gift, this set by **FF FRAGRFLOWING** successfully blends quality, style, and the nostalgic scents of autumn to create a relaxing and festive home environment.
 
-## <a href="https://www.amazon.com/dp/B0F66S2J17?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle</a>
+## <a href="https://www.amazon.com/dp/B0F66S2J17?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fall Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66S2J17?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle | Vanilla Pumpkin Scented Candle - Autumn Home Decor, 7oz Autumn Soy Candles with 50hr Burn Time, Holiday Thanksgiving Fall Gifts for Women Men" src="https://m.media-amazon.com/images/I/41WsDGThwKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66S2J17?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fall Candle | Vanilla Pumpkin Scented Candle - Autumn Home Decor, 7oz Autumn Soy Candles with 50hr Burn Time, Holiday Thanksgiving Fall Gifts for Women Men" src="https://m.media-amazon.com/images/I/41WsDGThwKL._SL500_.jpg"/></a>
 
 
 Ideal for those who love to embrace the cozy vibes of autumn, the **Fall Candle | Vanilla Pumpkin Scented Candle** is perfect for anyone looking to enhance their **home decor** with warm, inviting aromas. Whether you're preparing for a festive **Thanksgiving** gathering or simply want to enjoy the comforting scents of the season, this **7oz autumn soy candle** is an excellent choice for both **women and men** who appreciate seasonal ambiance and quality craftsmanship.
@@ -251,10 +251,10 @@ The **Fall Candle by DL DREAMY DEWLA** is thoughtfully designed with a **4.0-inc
 
 Beyond its delightful aroma, the candle’s **50-hour burn time** guarantees long-lasting use, making it an excellent gift option during the **holiday season**. Whether you're setting the mood for a cozy night in or adding a festive touch to your home, this **autumn soy candle** enhances the ambiance with its elegant design and irresistible fragrance, embodying the spirit of fall in every flicker.
 
-## <a href="https://www.amazon.com/dp/B0D8BDBYNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homsolver Set Of 4 Fall Scented Candles</a>
+## <a href="https://www.amazon.com/dp/B0D8BDBYNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homsolver Set Of 4 Fall Scented Candles</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8BDBYNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homsolver Set of 4 Fall Scented Candles, Home Fall Decor, Candles Gifts for Women Men - Apple Pie/Autumn Wreath/Cozy Season/Cinnamon Pumpkin Scented for Autumn" src="https://m.media-amazon.com/images/I/51UJ07hMfSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8BDBYNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Homsolver Set of 4 Fall Scented Candles, Home Fall Decor, Candles Gifts for Women Men - Apple Pie/Autumn Wreath/Cozy Season/Cinnamon Pumpkin Scented for Autumn" src="https://m.media-amazon.com/images/I/51UJ07hMfSL._SL500_.jpg"/></a>
 
 
 The **Homsolver Set of 4 Fall Scented Candles** is perfect for anyone looking to enhance their home ambiance with cozy and inviting autumn aromas. Ideal for those who enjoy seasonal home decor or want to give thoughtful gifts to friends and family, this set is especially suited for individuals who appreciate high-quality scented candles that evoke the warmth and comfort of fall. Whether you're decorating your living space or searching for the perfect candle gift for women or men, this collection is designed to bring the essence of autumn into any room.

@@ -23,10 +23,10 @@ They are easy to arrange on tables, shelves, or mantels. Many sets include addit
 
 
 
-## <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins Decoration for Fall Home Farmhouse Harvest Thanksgiving Decorative" src="https://m.media-amazon.com/images/I/61kkOXGd3TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins Decoration for Fall Home Farmhouse Harvest Thanksgiving Decorative" src="https://m.media-amazon.com/images/I/61kkOXGd3TL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to add a cozy and festive touch to their home, the **Diahom Pumpkin Decor 12pcs Artificial Fake Faux Velvet Foam Fabric Pumpkins** is perfect for anyone who loves **fall** and **Thanksgiving** decorations. Whether you have a **farmhouse** style or simply want to bring the warm colors of the harvest season indoors, these **velvet fabric pumpkins** offer a charming and hassle-free way to celebrate autumn without the mess of real pumpkins.
@@ -48,12 +48,12 @@ The **Diahom Pumpkin Decor** set features beautifully crafted **foam fabric pump
 
 Beyond aesthetics, these pumpkins are designed with durability in mind. Unlike real pumpkins that spoil quickly, these faux pumpkins can be reused year after year, maintaining their vibrant **fall** colors and plush texture. This makes them an economical and practical choice for anyone wanting to celebrate the season with lasting decorative charm.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09B6WGTVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ueerdand 16 Pcs Fall Decor Artificial Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ueerdand 16 Pcs Fall Decor Artificial Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins Burlap Faux Foam Pumpkin for Harvest Autumn Season Halloween Thanksgiving Holiday Festive Embellishing and Displaying" src="https://m.media-amazon.com/images/I/51OIo9KyowL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins Burlap Faux Foam Pumpkin for Harvest Autumn Season Halloween Thanksgiving Holiday Festive Embellishing and Displaying" src="https://m.media-amazon.com/images/I/51OIo9KyowL._SL500_.jpg"/></a>
 
 
 The **Ueerdand 16 PCS Fall Decor Assorted Sizes Artificial Pumpkins** are perfect for individuals who want to add a charming and festive touch to their **autumn, Halloween, or Thanksgiving** decorations. Ideal for homeowners, event planners, and craft enthusiasts, these **faux foam pumpkins** offer a hassle-free way to enhance seasonal displays without the worry of decay or mess. If you are looking for durable, reusable, and visually appealing fall decor, this set is an excellent choice.
@@ -76,12 +76,12 @@ These **Ueerdand fall decor pumpkins** combine the rustic charm of burlap with t
 
 Besides their aesthetic appeal, these artificial pumpkins are highly practical. Unlike real pumpkins, they won't rot or attract pests, allowing you to reuse them year after year. Their durable construction means they hold up well when stored, making them a smart investment for anyone who loves to decorate for fall festivities regularly. Overall, this set is a convenient and attractive solution for seasonal decorating needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08F41TC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08F41TC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aomoonoa Artificial Pumpkin Decor</a>
+## <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aomoonoa Artificial Pumpkin Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOMOONOA Artificial Pumpkin Decor, Brown and White Decorative Pumpkins, Thanksgiving Resin Pumpkins Figurine Set of 2, Carved Pumpkin Statues for Rustic Fall Tabletop Home Decor, Harvest, Wedding" src="https://m.media-amazon.com/images/I/51iXKfxI5QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AOMOONOA Artificial Pumpkin Decor, Brown and White Decorative Pumpkins, Thanksgiving Resin Pumpkins Figurine Set of 2, Carved Pumpkin Statues for Rustic Fall Tabletop Home Decor, Harvest, Wedding" src="https://m.media-amazon.com/images/I/51iXKfxI5QL._SL500_.jpg"/></a>
 
 
 The **AOMOONOA Artificial Pumpkin Decor** is perfect for those looking to add a touch of rustic charm and seasonal elegance to their home or event. Ideal for **homeowners**, **event planners**, and **holiday enthusiasts** who want durable, stylish, and easy-to-maintain fall decorations, this set is especially suitable for decorating **Thanksgiving tables**, **weddings**, or cozy autumn gatherings.
@@ -103,12 +103,12 @@ The **AOMOONOA Artificial Pumpkin Decor** combines aesthetic appeal with practic
 
 Thanks to their moderate size and sturdy resin material, these pumpkins are versatile enough to be placed on dining tables, mantels, or entryway consoles. Their lightweight nature allows easy repositioning to refresh your decor as needed. Whether you're hosting a **harvest festival** or simply want to embrace the cozy vibes of fall, this set offers a charming, hassle-free solution that enhances your space with a timeless seasonal touch.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D5HPN3R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Festglox Fall Pumpkin Decor</a>
+## <a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Festglox Fall Pumpkin Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FESTGLOX Fall Pumpkin Decor, 2 PCS Resin Thanksgiving Fake Pumpkin Figurines, White and Gold Pumpkins for Decorating, Fall Decorations for Home, Farmhouse, Harvest Table Centerpiece" src="https://m.media-amazon.com/images/I/51tZruzBhsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FESTGLOX Fall Pumpkin Decor, 2 PCS Resin Thanksgiving Fake Pumpkin Figurines, White and Gold Pumpkins for Decorating, Fall Decorations for Home, Farmhouse, Harvest Table Centerpiece" src="https://m.media-amazon.com/images/I/51tZruzBhsL._SL500_.jpg"/></a>
 
 
 The **FESTGLOX Fall Pumpkin Decor** is perfect for individuals who love to infuse their living spaces with seasonal charm, especially during the autumn and Thanksgiving periods. Ideal customers include homeowners, farmhouse enthusiasts, and anyone looking to create a warm, inviting atmosphere with elegant yet subtle fall decorations. Those seeking durable, stylish, and easy-to-maintain decor pieces will find these **white and gold resin pumpkin figurines** an excellent choice.
@@ -130,12 +130,12 @@ The **FESTGLOX Fall Pumpkin Decor** stands out with its sophisticated design tha
 
 Crafted from high-quality resin by the trusted **WESTBOAT Store**, these figurines are designed to last through multiple holiday seasons without fading or damage. Their lightweight nature allows for easy repositioning, making them a flexible choice for seasonal decorating. Whether placed on a mantel, shelf, or dining table, these pumpkins add warmth and style, helping users create a festive and inviting environment effortlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D5CZ6DGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Winemana 3 Pack Gold Pumpkins For Decorating</a>
+## <a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Winemana 3 Pack Gold Pumpkins For Decorating</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="winemana 3 Pack Gold Pumpkins for Decorating – Fall &amp; Thanksgiving Decorations for Home, Table, Fireplace Mantel, Office, Elegant Decorative Pumpkin Autumn Indoor Decor" src="https://m.media-amazon.com/images/I/41kGDlhQW8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="winemana 3 Pack Gold Pumpkins for Decorating – Fall &amp; Thanksgiving Decorations for Home, Table, Fireplace Mantel, Office, Elegant Decorative Pumpkin Autumn Indoor Decor" src="https://m.media-amazon.com/images/I/41kGDlhQW8L._SL500_.jpg"/></a>
 
 
 The **winemana 3 Pack Gold Pumpkins** are perfect for individuals looking to elevate their **fall and Thanksgiving decorations** with a touch of elegance. Ideal for homeowners, office decorators, and anyone who appreciates subtle yet sophisticated autumn decor, these **gold pumpkins** add a festive charm to any space without overwhelming it. If you want to enhance your **home, table, fireplace mantel**, or office setting with stylish and compact decorative pieces, this set is an excellent choice.
@@ -157,12 +157,12 @@ The **winemana 3 Pack Gold Pumpkins** feature a compact and elegant design, maki
 
 Additionally, these pumpkins are crafted with durability in mind, allowing users to enjoy their decorative appeal year after year. Whether placed on a **fireplace mantel**, used as part of a **table centerpiece**, or displayed on an **office desk**, they bring a subtle yet festive touch that enhances the overall seasonal ambiance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D1Y47RJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C5X96YH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Thanksgiving Pumpkin Decor Figurines</a>
+## <a href="https://www.amazon.com/dp/B0C5X96YH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fall Thanksgiving Pumpkin Decor Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5X96YH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Thanksgiving Pumpkin Decor Figurines, 2 PCS Fake Pumpkin Statues for Tabletop Decorating, White and Gold Resin Pumpkins for Autumn Harvest Luxury Fall Home Decor, Farmhouse, Gift Package" src="https://m.media-amazon.com/images/I/51qUsE3KDKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5X96YH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fall Thanksgiving Pumpkin Decor Figurines, 2 PCS Fake Pumpkin Statues for Tabletop Decorating, White and Gold Resin Pumpkins for Autumn Harvest Luxury Fall Home Decor, Farmhouse, Gift Package" src="https://m.media-amazon.com/images/I/51qUsE3KDKL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to enhance their **autumn home decor** with a touch of elegance, the **Fall Thanksgiving Pumpkin Decor Figurines** are perfect for individuals who appreciate **luxurious farmhouse aesthetics** and want to add a festive yet sophisticated vibe to their living spaces during the fall season. These **2 PCS fake pumpkin statues** cater to homeowners, interior decorators, and gift buyers seeking quality and style in their seasonal decorations.
@@ -184,12 +184,12 @@ The **Fall Thanksgiving Pumpkin Decor Figurines** by **DN DECONATION** combine s
 
 Beyond aesthetics, these pumpkins offer practical benefits. Their lightweight nature enables effortless repositioning, and their sturdy construction means they won’t easily chip or fade, ensuring they remain a staple in your seasonal decorations for years. Whether used as a centerpiece or paired with other farmhouse-style items, these figurines bring a cozy yet elegant harvest atmosphere, making them a thoughtful gift option as well.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C5X96YH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C5X96YH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D9GV6R69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanrun Fall Pumpkin Decor</a>
+## <a href="https://www.amazon.com/dp/B0D9GV6R69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Olanrun Fall Pumpkin Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GV6R69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANRUN Fall Pumpkin Decor, Thanksgiving Fall Decorations for Home, Wooden Pumpkin Autumn Decor, 3 PCS Handmade Crafts, Thanksgiving Decorations for Indoor, Home Table Tiered Tray Mantel (4-8 Inch)" src="https://m.media-amazon.com/images/I/51AqHaCelnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GV6R69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OLANRUN Fall Pumpkin Decor, Thanksgiving Fall Decorations for Home, Wooden Pumpkin Autumn Decor, 3 PCS Handmade Crafts, Thanksgiving Decorations for Indoor, Home Table Tiered Tray Mantel (4-8 Inch)" src="https://m.media-amazon.com/images/I/51AqHaCelnL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to enhance their **home ambiance** during the **fall season**, the **OLANRUN Fall Pumpkin Decor** is perfect for individuals who enjoy **seasonal decorations** and want to add a **warm, festive touch** to their indoor spaces. Whether you're hosting a **Thanksgiving gathering** or simply want to embrace the **autumn vibe**, this set of **3 handmade wooden pumpkins** is suited for homeowners, decorators, and craft enthusiasts alike.
@@ -212,12 +212,12 @@ The **OLANRUN Fall Pumpkin Decor** combines aesthetic appeal with practical vers
 
 Beyond its visual charm, this decor set is crafted to be durable and reusable year after year, making it a smart investment for those who appreciate seasonal decorating. The lightweight wooden construction ensures easy handling and display, while the set’s cohesive design helps to unify your **fall interior theme** effortlessly. Whether placed individually or grouped together, these pumpkins bring a festive spirit to your home environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D9GV6R69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D9GV6R69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C993ZFDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cochie Cute Halloween Tiered Tray Decorations</a>
+## <a href="https://www.amazon.com/dp/B0C993ZFDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cochie Cute Halloween Tiered Tray Decorations</a>
 
 
-<a href="https://www.amazon.com/dp/B0C993ZFDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCHIE Cute Halloween Tiered Tray Decorations Indoor, Ghost Wooden Decor Pumpkin Blocks Signs (Set of 3)" src="https://m.media-amazon.com/images/I/51Ve6QQjtlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C993ZFDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCHIE Cute Halloween Tiered Tray Decorations Indoor, Ghost Wooden Decor Pumpkin Blocks Signs (Set of 3)" src="https://m.media-amazon.com/images/I/51Ve6QQjtlL._SL500_.jpg"/></a>
 
 
 The **COCHIE Cute Halloween Tiered Tray Decorations Indoor** set is perfect for individuals who enjoy adding a festive and charming touch to their home during the Halloween season. Ideal for those who love seasonal decor but prefer compact and easy-to-display items, this set appeals to homeowners, renters, or anyone looking to enhance their indoor space with playful and colorful Halloween-themed accents. If you want to create a cozy, spooky vibe without overwhelming your decor, this set is an excellent choice.
@@ -239,12 +239,12 @@ The **COCHIE Cute Halloween Tiered Tray Decorations** offer a delightful way to 
 
 Crafted by **COCHIE**, these decorations combine durability with charming design, ensuring they can be enjoyed year after year. Their lightweight nature simplifies decorating tasks and allows you to refresh your Halloween display effortlessly. While ideal for indoor environments, these decorations provide a perfect balance of size, style, and seasonal cheer, making them a great addition for anyone who loves to celebrate Halloween in a subtle yet spirited way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C993ZFDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C993ZFDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Winemana 2 Pack Pumpkin Fall Decor Thanksgiving Decorative Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Winemana 2 Pack Pumpkin Fall Decor Thanksgiving Decorative Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="winemana 2 Pack Pumpkin Fall Decor Thanksgiving Decorative Pumpkins for Home Woven Cattail Figurines Farmhouse Autumn Decorations Fall Centerpieces for Table Porch Mantel Indoor (Beige)" src="https://m.media-amazon.com/images/I/51cmUMV66DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="winemana 2 Pack Pumpkin Fall Decor Thanksgiving Decorative Pumpkins for Home Woven Cattail Figurines Farmhouse Autumn Decorations Fall Centerpieces for Table Porch Mantel Indoor (Beige)" src="https://m.media-amazon.com/images/I/51cmUMV66DL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to enhance their home’s seasonal charm, the **winemana 2 Pack Pumpkin Fall Decor** is perfect for individuals who enjoy cozy, rustic, and farmhouse-style decorations. Whether you’re hosting a Thanksgiving dinner or simply want to bring a touch of autumn indoors, these decorative pumpkins are an excellent choice for homeowners, decorators, or anyone passionate about festive seasonal accents.
@@ -266,12 +266,12 @@ The **winemana 2 Pack Pumpkin Fall Decor** features beautifully handcrafted wove
 
 These decorative pumpkins are thoughtfully designed with lightweight materials that ensure they are easy to move and arrange as needed. Their sturdy construction guarantees longevity through multiple holiday seasons, providing a reliable and stylish way to celebrate the fall. Whether you want to create a warm, inviting atmosphere for family gatherings or add subtle seasonal flair to your living space, these figurines deliver both aesthetic appeal and functional versatility.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D4HBLB1M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08BHW3MX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hakacc 14 Pcs Artificial Lifelike Simulation Mixed Pumpkins</a>
+## <a href="https://www.amazon.com/dp/B08BHW3MX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hakacc 14 Pcs Artificial Lifelike Simulation Mixed Pumpkins</a>
 
 
-<a href="https://www.amazon.com/dp/B08BHW3MX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HAKACC 14 PCS Artificial Lifelike Simulation Mixed Pumpkins for Decorating, Fake Pumpkins with 30PCS Fake Maple Leaves Festival Thanksgiving Fall Harvest Home Decoration" src="https://m.media-amazon.com/images/I/51xdjg+ZXML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BHW3MX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HAKACC 14 PCS Artificial Lifelike Simulation Mixed Pumpkins for Decorating, Fake Pumpkins with 30PCS Fake Maple Leaves Festival Thanksgiving Fall Harvest Home Decoration" src="https://m.media-amazon.com/images/I/51xdjg+ZXML._SL500_.jpg"/></a>
 
 
 The **HAKACC 14 PCS Artificial Lifelike Simulation Mixed Pumpkins** set is perfect for individuals who enjoy seasonal decorating, especially for **Thanksgiving** and **fall harvest** themes. Ideal customers include homeowners, event planners, and craft enthusiasts looking for realistic, hassle-free decor to enhance their festive ambiance without the maintenance of real pumpkins.
@@ -294,7 +294,7 @@ The **HAKACC artificial pumpkin set** combines visual appeal with practical bene
 
 Crafted by **POPLAY**, this set is built to last through many holiday seasons, offering a reusable and eco-friendly alternative to fresh pumpkins. The realistic look paired with the convenience of artificial materials means you can enjoy festive decorations without worrying about rotting or pest issues. This set is especially beneficial for those who want to save time on seasonal decorating while still achieving a charming and inviting atmosphere.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08BHW3MX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08BHW3MX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

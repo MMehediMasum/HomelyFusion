@@ -23,10 +23,10 @@ Light colors make the room feel bigger, while darker shades add depth and drama.
 
 
 
-## <a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Battery Operated Picture Light</a>
+## <a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Battery Operated Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Battery Operated Picture Light, Magnetic Led Painting Light with Remote Dimmable and Timer, 3 Lighting Modes Art Display Light for Picture Frame Paintings, Wireless Wall Decor Puck Lights, Gold" src="https://m.media-amazon.com/images/I/41VRt3PLvfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Battery Operated Picture Light, Magnetic Led Painting Light with Remote Dimmable and Timer, 3 Lighting Modes Art Display Light for Picture Frame Paintings, Wireless Wall Decor Puck Lights, Gold" src="https://m.media-amazon.com/images/I/41VRt3PLvfL._SL500_.jpg"/></a>
 
 
 Ideal for art enthusiasts, homeowners, and gallery owners looking to elegantly highlight their artwork, the **3Pcs Battery Operated Picture Light** by Kandicyar offers a versatile and stylish solution. This product is perfect for those who want to enhance their picture frames, paintings, or wall decor without the hassle of wiring or permanent installation.
@@ -50,10 +50,10 @@ The **3Pcs Battery Operated Picture Light** features a sleek and modern design i
 
 With three distinct **lighting modes**, users can adjust brightness and ambiance to best suit their artwork and room atmosphere. The included **remote control** not only provides convenience but also features a **timer function** to conserve battery life and automate lighting schedules. This combination of features ensures your prized paintings and pictures are showcased beautifully while offering flexibility and energy efficiency.
 
-## <a href="https://www.amazon.com/dp/B0F2F17QP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wood Framed Sage Green Botanical Wall Art Set Of 3</a>
+## <a href="https://www.amazon.com/dp/B0F2F17QP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wood Framed Sage Green Botanical Wall Art Set Of 3</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2F17QP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wood Framed Sage Green Botanical Wall Art Set of 3, Boho Floral Canvas Wall Decor Paintings, Minimalist Flower Posters Prints Pictures for Bedroom Bathroom Living Room Home Decor 12x16 Inch" src="https://m.media-amazon.com/images/I/51KDOkphJZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2F17QP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wood Framed Sage Green Botanical Wall Art Set of 3, Boho Floral Canvas Wall Decor Paintings, Minimalist Flower Posters Prints Pictures for Bedroom Bathroom Living Room Home Decor 12x16 Inch" src="https://m.media-amazon.com/images/I/51KDOkphJZL._SL500_.jpg"/></a>
 
 
 The **Wood Framed Sage Green Botanical Wall Art Set of 3** is perfect for those looking to add a touch of minimalist and boho charm to their living spaces. Ideal for homeowners, renters, or interior design enthusiasts who appreciate **botanical themes** and want to enhance their **bedroom, bathroom, or living room** decor with subtle yet elegant artwork. This set is especially suited for individuals who value **high-quality craftsmanship** and a soothing color palette like **sage green** to create a calming environment.
@@ -76,10 +76,10 @@ This set features a thoughtfully designed **boho floral motif** printed on high-
 
 Thanks to its practical dimensions and lightweight construction, the artwork is easy to hang and arrange in different settings, whether in the **bedroom, bathroom, or living room**. The set not only elevates the visual appeal of your walls but also creates a serene ambiance that promotes relaxation and comfort. Overall, this **Zeredi** branded wall art set offers an elegant and versatile solution for anyone looking to refresh their home decor with subtle yet impactful botanical designs.
 
-## <a href="https://www.amazon.com/dp/B00QCE798O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prestige Interior Paint And Primer In One</a>
+## <a href="https://www.amazon.com/dp/B00QCE798O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prestige Interior Paint And Primer In One</a>
 
 
-<a href="https://www.amazon.com/dp/B00QCE798O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PRESTIGE Interior Paint and Primer in One, Garden Sage, Eggshell, 1 Gallon" src="https://m.media-amazon.com/images/I/41nswCmfKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00QCE798O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PRESTIGE Interior Paint and Primer in One, Garden Sage, Eggshell, 1 Gallon" src="https://m.media-amazon.com/images/I/41nswCmfKXL._SL500_.jpg"/></a>
 
 
 The **PRESTIGE Interior Paint and Primer in One** in **Garden Sage** with an **Eggshell** finish is ideal for homeowners and DIY enthusiasts looking to refresh their living spaces with a single, efficient product. This paint is perfect for those who want a beautiful, durable finish without the hassle of applying separate primer and paint layers. If you're aiming to save time while achieving professional-quality results on interior walls, this product is an excellent choice.
@@ -102,10 +102,10 @@ The **PRESTIGE Interior Paint and Primer in One** offers a seamless painting exp
 
 Designed by **Prestige Paints**, this product boasts reliable quality and excellent coverage, minimizing the number of coats needed and reducing overall project time. Its convenient dimensions make it easy to handle, while the paint’s smooth consistency ensures even application for flawless walls. Whether you're updating a bedroom, living room, or hallway, this paint delivers both beauty and functionality.
 
-## <a href="https://www.amazon.com/dp/B0BMLQK6Y5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agiota Gold Wall Decor Above Bed Minimalist For Living Room Metal Line Art - Female Body</a>
+## <a href="https://www.amazon.com/dp/B0BMLQK6Y5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agiota Gold Wall Decor Above Bed Minimalist For Living Room Metal Line Art - Female Body</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMLQK6Y5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGIOTA 3 Pcs Gold Wall Decor Above Bed Minimalist for Living Room Metal Line Art - Female Body, Gold Room Decor for Bedroom Modern Wall Art for Indoor 15inch" src="https://m.media-amazon.com/images/I/41uM8QRKg5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMLQK6Y5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGIOTA 3 Pcs Gold Wall Decor Above Bed Minimalist for Living Room Metal Line Art - Female Body, Gold Room Decor for Bedroom Modern Wall Art for Indoor 15inch" src="https://m.media-amazon.com/images/I/41uM8QRKg5L._SL500_.jpg"/></a>
 
 
 The **AGIOTA 3 Pcs Gold Wall Decor Above Bed** is perfect for individuals looking to elevate their living room or bedroom ambiance with minimalist and modern art. Ideal for those who appreciate contemporary design and want to add a touch of elegance with subtle yet striking **metal line art**, this decor piece suits homeowners, interior designers, and art enthusiasts seeking sophisticated indoor wall accents.
@@ -128,10 +128,10 @@ The **AGIOTA 3 Pcs Gold Wall Decor** features finely crafted metal line art that
 
 Beyond aesthetics, the lightweight metal construction provides ease of installation and durability, ensuring that this wall art remains a beautiful centerpiece for years to come. Its minimalist style encourages a calming and refined atmosphere, ideal for those who appreciate subtle yet impactful design elements in their home decor.
 
-## <a href="https://www.amazon.com/dp/B08R84NP86?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Floral Picture Wall Art Painting</a>
+## <a href="https://www.amazon.com/dp/B08R84NP86?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Floral Picture Wall Art Painting</a>
 
 
-<a href="https://www.amazon.com/dp/B08R84NP86?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floral Picture Wall Art Painting: Blossom Bouquet Flowers Prints on Rustic Wood and Handcrafted Wooden Framed Artwork for Home and Bedroom (12” x 16” x 2pcs)" src="https://m.media-amazon.com/images/I/51nljhfAITL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08R84NP86?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floral Picture Wall Art Painting: Blossom Bouquet Flowers Prints on Rustic Wood and Handcrafted Wooden Framed Artwork for Home and Bedroom (12” x 16” x 2pcs)" src="https://m.media-amazon.com/images/I/51nljhfAITL._SL500_.jpg"/></a>
 
 
 The **Floral Picture Wall Art Painting: Blossom Bouquet Flowers Prints** on rustic wood with a handcrafted wooden frame is perfect for those looking to add a touch of natural elegance to their living space. Ideal customers include homeowners, interior decorators, and anyone wanting to enhance their **home** or **bedroom** ambiance with charming floral décor that blends rustic and artistic elements.
@@ -153,10 +153,10 @@ The **Floral Picture Wall Art Painting** features beautifully printed blossom bo
 
 Thanks to the careful craftsmanship by **Hardy Gallery**, this artwork balances rustic charm with modern design. Its lightweight and manageable size allow for versatile placement options, whether as a centerpiece or part of a gallery wall. Overall, this item enhances any space with a graceful floral touch while maintaining a sturdy and stylish presence.
 
-## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks 3pack Picture Light</a>
+## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks 3pack Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
 
 
 The **Arixinks 3PACK Picture Light Battery Operated with Remote** is ideal for art enthusiasts, home decorators, and anyone looking to enhance the visual appeal of their **paintings, photos, portraits,** or **dartboards**. If you want a convenient and stylish way to highlight your wall art without complicated wiring, this set of **LED art display accent lights** is perfect for you. It suits those who prefer flexible lighting options with easy control via remote and need a battery-operated solution for hassle-free installation.
@@ -180,10 +180,10 @@ The **Arixinks Picture Light** set is designed to bring out the best in your wal
 
 Thanks to its **battery-operated design**, this light set is extremely flexible and easy to install without worrying about cables or nearby power outlets. The included **remote control** adds convenience, enabling you to adjust lighting settings from across the room. Compact in size and sleek in black color, these lights blend unobtrusively with various décor styles while efficiently illuminating your treasured pieces.
 
-## <a href="https://www.amazon.com/dp/B0D8Q1VZBQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pack Picture Light For Painting Battery With Remote</a>
+## <a href="https://www.amazon.com/dp/B0D8Q1VZBQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pack Picture Light For Painting Battery With Remote</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8Q1VZBQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 PACK Picture Light for Painting Battery with Remote on Wall in Bedroom Living Room, 3Lighting for Wall Art Pictures Posters,Dimmable Timer Set Display Accent Light for Frame Dart Gallery Portrait" src="https://m.media-amazon.com/images/I/41LXOD4L4hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8Q1VZBQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 PACK Picture Light for Painting Battery with Remote on Wall in Bedroom Living Room, 3Lighting for Wall Art Pictures Posters,Dimmable Timer Set Display Accent Light for Frame Dart Gallery Portrait" src="https://m.media-amazon.com/images/I/41LXOD4L4hL._SL500_.jpg"/></a>
 
 
 The **2 PACK Picture Light for Painting Battery with Remote** is ideal for homeowners, art enthusiasts, and interior decorators looking to elegantly illuminate their wall art, paintings, posters, or photographs. If you want a sleek, wireless solution to highlight your favorite pieces in the bedroom, living room, or gallery without complicated wiring, this product is designed for you. It suits those who value convenience, style, and adjustable lighting options.
@@ -208,10 +208,10 @@ The **HIPTOKING 2 PACK Picture Light** offers a practical and stylish way to enh
 
 Additionally, the timer function is a thoughtful feature that increases energy efficiency by turning the lights off automatically, which extends battery life. The compact size and lightweight build mean these lights can be mounted discreetly without overpowering your artwork or wall space. Overall, this dimmable accent light combines functionality with elegant design to bring out the best in your home gallery or décor.
 
-## <a href="https://www.amazon.com/dp/B0CPHVQWWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artbyhannah Bathroom Framed Wall Art</a>
+## <a href="https://www.amazon.com/dp/B0CPHVQWWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artbyhannah Bathroom Framed Wall Art</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPHVQWWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ArtbyHannah Bathroom Framed Wall Art, Botanical Canvas Paintings Wall Decor with Green and Gold Glided Textured Modern Nature Pictures Plant Prints for Living Room Bedroom (12x16 Inch, Set of 3)" src="https://m.media-amazon.com/images/I/412o6PL-npL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPHVQWWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ArtbyHannah Bathroom Framed Wall Art, Botanical Canvas Paintings Wall Decor with Green and Gold Glided Textured Modern Nature Pictures Plant Prints for Living Room Bedroom (12x16 Inch, Set of 3)" src="https://m.media-amazon.com/images/I/412o6PL-npL._SL500_.jpg"/></a>
 
 
 The **ArtbyHannah Bathroom Framed Wall Art** is ideal for those looking to enhance their living spaces with a touch of modern nature-inspired decor. Perfect for homeowners, interior decorators, or anyone who appreciates botanical aesthetics, this set of three **botanical canvas paintings** adds elegance to bathrooms, living rooms, or bedrooms. If you seek stylish, textured artwork that blends green and gold tones, this wall decor is an excellent choice.
@@ -233,10 +233,10 @@ The **ArtbyHannah Bathroom Framed Wall Art** set features beautifully crafted bo
 
 Each canvas measures approximately **12x16 inches**, offering a perfect balance of visibility and subtlety. The slim frame design ensures the focus remains on the stunning artwork, while the compact dimensions allow for flexible placement in various room sizes. With this set, users benefit from an easy way to bring cohesive, stylish botanical art into their home without overwhelming the space.
 
-## <a href="https://www.amazon.com/dp/B0CLDF8LT7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Souguan Large Canvas Wall Art White Flower Painting</a>
+## <a href="https://www.amazon.com/dp/B0CLDF8LT7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Souguan Large Canvas Wall Art White Flower Painting</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLDF8LT7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SOUGUAN Large Canvas Wall Art White Flower Painting 30x60 Inch Black Art for Living Room Bedroom Office Home Wall Accents" src="https://m.media-amazon.com/images/I/51cBUEWYr+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLDF8LT7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SOUGUAN Large Canvas Wall Art White Flower Painting 30x60 Inch Black Art for Living Room Bedroom Office Home Wall Accents" src="https://m.media-amazon.com/images/I/51cBUEWYr+L._SL500_.jpg"/></a>
 
 
 The **SOUGUAN Large Canvas Wall Art White Flower Painting** is ideal for individuals looking to elevate their interior decor with a touch of elegance and simplicity. Perfect for homeowners, office decorators, or anyone wanting to add a sophisticated black and white accent to their **living room**, **bedroom**, or **office** space, this artwork suits those who appreciate minimalistic yet striking designs.
@@ -259,10 +259,10 @@ The **SOUGUAN Large Canvas Wall Art** stands out due to its impressive size and 
 
 Beyond aesthetics, the canvas is constructed to be durable while maintaining a lightweight profile, allowing for hassle-free installation. Its subtle thickness of **0.2 inches** ensures the artwork remains sleek and unobtrusive, blending effortlessly into your environment. Whether placed in a home setting or a professional office, this wall art enhances ambiance and adds a refined artistic touch that resonates with viewers and elevates the overall interior design.
 
-## <a href="https://www.amazon.com/dp/B0CH4HD397?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Framed Emerald Green Wall Art</a>
+## <a href="https://www.amazon.com/dp/B0CH4HD397?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Framed Emerald Green Wall Art</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH4HD397?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Framed Emerald Green Wall Art, Modern Green and Gold Abstract Marble Canvas Wall Art Paintings Prints Posters Wall Decor Pictures for Living Room Bedroom Office Home Decoration, Ready to Hang" src="https://m.media-amazon.com/images/I/51rZp6DIc3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CH4HD397?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Framed Emerald Green Wall Art, Modern Green and Gold Abstract Marble Canvas Wall Art Paintings Prints Posters Wall Decor Pictures for Living Room Bedroom Office Home Decoration, Ready to Hang" src="https://m.media-amazon.com/images/I/51rZp6DIc3L._SL500_.jpg"/></a>
 
 
 The **3Pcs Framed Emerald Green Wall Art** is ideal for individuals looking to enhance their living spaces with a touch of modern elegance. Perfect for homeowners, office decorators, or anyone who appreciates contemporary design, this set is suited for those wanting to add a vibrant yet sophisticated accent to their **living room**, **bedroom**, or **office**. If you seek stylish wall decor that combines art and functionality, this product offers a seamless solution.

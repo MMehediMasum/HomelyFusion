@@ -23,10 +23,10 @@ Materials like sisal are great for scratching, while soft fabrics keep paws comf
 
 
 
-## <a href="https://www.amazon.com/dp/B07PF1KYYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">K&amp;h Pet Products Self-warming Cat Bed Pad</a>
+## <a href="https://www.amazon.com/dp/B07PF1KYYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">K&amp;h Pet Products Self-warming Cat Bed Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B07PF1KYYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="K&amp;H PET PRODUCTS Self-Warming Cat Bed Pad, Self Heating Pad for Outdoor Cat Houses, Warming Mat for Indoor Pet Beds &amp; Furniture, Reversible Blanket, Machine Washable - Small 21 X 17in Gray/ Black" src="https://m.media-amazon.com/images/I/41ccxquPjUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PF1KYYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="K&amp;H PET PRODUCTS Self-Warming Cat Bed Pad, Self Heating Pad for Outdoor Cat Houses, Warming Mat for Indoor Pet Beds &amp; Furniture, Reversible Blanket, Machine Washable - Small 21 X 17in Gray/ Black" src="https://m.media-amazon.com/images/I/41ccxquPjUL._SL500_.jpg"/></a>
 
 
 The **K&H PET PRODUCTS Self-Warming Cat Bed Pad** is ideal for pet owners looking to keep their cats warm and comfortable, especially in cooler environments. Whether you have an outdoor cat house or an indoor pet bed, this **self heating pad** is perfect for cats that enjoy cozy resting spots without the need for electricity or batteries. It’s especially suited for those wanting an easy-to-maintain, portable, and safe warming solution for their feline companions.
@@ -48,10 +48,10 @@ The **K&H PET PRODUCTS Self-Warming Cat Bed Pad** features innovative self-heati
 
 Additionally, the pad’s machine washable feature ensures that maintaining hygiene is simple and convenient. The durable material and neutral gray/black color not only withstand regular use but also complement various home decors and outdoor shelters. Overall, this warming mat provides a cozy and practical solution for cat owners who want to ensure their pets stay warm and comfortable year-round.
 
-## <a href="https://www.amazon.com/dp/B099HBMZ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drymate Xl Original Cat Litter Mat</a>
+## <a href="https://www.amazon.com/dp/B099HBMZ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drymate Xl Original Cat Litter Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B099HBMZ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drymate XL Original Cat Litter Mat, Contains Mess from Box, Protects Floors, Urine-Proof, Machine Washable, Soft on Kitty Paws, Absorbent, Waterproof (USA Made, Recycled Content) (28”x36”)(GreyStripe)" src="https://m.media-amazon.com/images/I/510riY5B-4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099HBMZ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drymate XL Original Cat Litter Mat, Contains Mess from Box, Protects Floors, Urine-Proof, Machine Washable, Soft on Kitty Paws, Absorbent, Waterproof (USA Made, Recycled Content) (28”x36”)(GreyStripe)" src="https://m.media-amazon.com/images/I/510riY5B-4L._SL500_.jpg"/></a>
 
 
 The **Drymate XL Original Cat Litter Mat** is ideal for cat owners who want to keep their floors clean and free from litter mess. If you have a cat that tends to scatter litter outside the box or if you’re concerned about protecting your floors from urine damage, this mat is a perfect solution. Its absorbent and waterproof design makes it especially suitable for multi-cat households or anyone looking for a low-maintenance, hygienic litter area.
@@ -74,10 +74,10 @@ The **Drymate XL Original Cat Litter Mat** features a unique construction that a
 
 Beyond its functional benefits, this litter mat is designed with durability and ease of care in mind. It is machine washable, allowing pet owners to refresh the mat effortlessly and maintain a clean environment for their pets. The use of recycled materials in its manufacture reflects an eco-conscious approach, appealing to environmentally aware consumers. Overall, the **Drymate XL Original Cat Litter Mat** combines practicality, comfort, and sustainability for an enhanced litter box experience.
 
-## <a href="https://www.amazon.com/dp/B0CP8ZHJ6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Litter Mat</a>
+## <a href="https://www.amazon.com/dp/B0CP8ZHJ6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Litter Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP8ZHJ6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Litter Mat - 23.2'' x 14.6'' Small Litter Trapping Mat, Easy to Clean Litter Box Mat, Waterproof, Urine-Proof, Non-Slip Kitty Litter Mats for Floor, Grey" src="https://m.media-amazon.com/images/I/51FKQEjGaPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP8ZHJ6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Litter Mat - 23.2'' x 14.6'' Small Litter Trapping Mat, Easy to Clean Litter Box Mat, Waterproof, Urine-Proof, Non-Slip Kitty Litter Mats for Floor, Grey" src="https://m.media-amazon.com/images/I/51FKQEjGaPL._SL500_.jpg"/></a>
 
 
 The **Cat Litter Mat - 23.2'' x 14.6''** by **Powools** is ideal for cat owners who want to maintain a clean and tidy area around their cat's litter box. If you have a small to medium-sized space and are looking for an efficient, easy-to-clean solution to trap scattered litter, this mat is perfect for you. It caters especially well to households where multiple cats use the litter box, or for those who want to protect their floors from spills and messes.
@@ -100,10 +100,10 @@ The **Powools Cat Litter Mat** features a thoughtfully designed surface that cap
 
 Additionally, the mat’s compact dimensions of **23.2'' x 14.6''** make it a great choice for smaller spaces, such as apartments or bathrooms where space is limited. The neutral **grey color** complements a wide range of interiors without drawing unnecessary attention. Lightweight yet durable, the mat is easy to clean—simply shake out the trapped litter or rinse it as needed, ensuring a hygienic environment for your feline friends. Overall, this mat balances functionality and convenience, making it a practical addition to any cat owner’s home.
 
-## <a href="https://www.amazon.com/dp/B07RV1GCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fukumaru Cat Scratcher Mat</a>
+## <a href="https://www.amazon.com/dp/B07RV1GCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fukumaru Cat Scratcher Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B07RV1GCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUKUMARU Cat Scratcher Mat, 23.6 X 15.7 Inch Natural Sisal Cat Scratch Mats, Horizontal Cat Floor Scratching Pad Rug with Sticky Tapes, Protect Couch and Carpets" src="https://m.media-amazon.com/images/I/513HGk9M2VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RV1GCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUKUMARU Cat Scratcher Mat, 23.6 X 15.7 Inch Natural Sisal Cat Scratch Mats, Horizontal Cat Floor Scratching Pad Rug with Sticky Tapes, Protect Couch and Carpets" src="https://m.media-amazon.com/images/I/513HGk9M2VL._SL500_.jpg"/></a>
 
 
 The **FUKUMARU Cat Scratcher Mat** is ideal for cat owners who want to protect their furniture and carpets from scratching damage while providing their pets with a satisfying and durable scratching surface. This product is perfect for indoor cats that need an outlet for their natural scratching instincts, helping to keep both cats and homes happy.
@@ -125,10 +125,10 @@ The **FUKUMARU Cat Scratcher Mat** features a natural **sisal surface** that app
 
 Additionally, the inclusion of **sticky tapes** ensures the mat stays firmly in place, preventing any slipping that could deter your cat from using it. This feature also helps to maintain the mat’s position on different floor types, enhancing safety and usability. Overall, the **FUKUMARU Cat Scratcher Mat** offers an effective and practical solution for cat owners looking to safeguard their furniture while catering to their cat’s scratching habits.
 
-## <a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Graciadeco Carpet Cat Scratching Mat Sisal</a>
+## <a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Graciadeco Carpet Cat Scratching Mat Sisal</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 15.7"="" adhesive="" alt="Graciadeco Carpet Cat Scratching Mat Sisal, 2 Packs Sisal Fabric Large 23.6" cat="" cats="" cats"="" for="" hook="" indoor="" loop="" pad="" rug="" scratchers="" scratching="" src="https://m.media-amazon.com/images/I/51S5blx-3bL._SL500_.jpg" tape,="" wall="" with="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0BCYKHW6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 15.7"="" adhesive="" alt="Graciadeco Carpet Cat Scratching Mat Sisal, 2 Packs Sisal Fabric Large 23.6" cat="" cats="" cats"="" for="" hook="" indoor="" loop="" pad="" rug="" scratchers="" scratching="" src="https://m.media-amazon.com/images/I/51S5blx-3bL._SL500_.jpg" tape,="" wall="" with="" x=""/></a>
 
 
 The **Graciadeco Carpet Cat Scratching Mat Sisal** is ideal for cat owners looking to protect their furniture and walls from destructive scratching. If you have indoor cats who love to scratch, this set of two large **23.6" x 15.7"** sisal fabric mats offers a durable and natural solution that satisfies your pet’s scratching instincts while preserving your home’s surfaces.
@@ -150,10 +150,10 @@ The **Graciadeco Carpet Cat Scratching Mat Sisal** features a natural sisal fabr
 
 Installation is straightforward thanks to the included adhesive hook loop tape, which allows you to attach the mats securely to various indoor surfaces without drilling or permanent fixtures. This flexibility means you can place the mats wherever your cat prefers to scratch—be it on a sofa arm, a door frame, or a designated play area. Overall, this product is an excellent choice for indoor cat owners seeking a practical, durable, and aesthetically pleasing scratching solution.
 
-## <a href="https://www.amazon.com/dp/B07GYZPM94?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Cat Litter Box Mat</a>
+## <a href="https://www.amazon.com/dp/B07GYZPM94?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Cat Litter Box Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B07GYZPM94?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Cat Litter Box Mat, Water Resistant, US Designed Kitty Litter Trapping Mats, Easy to Clean, Scatter Control, Less Mess and Clean Floors, Kitten Supplies for Indoor Cats, 24x17 Gray" src="https://m.media-amazon.com/images/I/51PZgCKsBdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GYZPM94?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Cat Litter Box Mat, Water Resistant, US Designed Kitty Litter Trapping Mats, Easy to Clean, Scatter Control, Less Mess and Clean Floors, Kitten Supplies for Indoor Cats, 24x17 Gray" src="https://m.media-amazon.com/images/I/51PZgCKsBdL._SL500_.jpg"/></a>
 
 
 The **GORILLA GRIP Cat Litter Box Mat** is ideal for cat owners who want to maintain a clean and tidy home environment. If you have indoor cats that tend to scatter litter outside their box, this mat is perfect for you. It is especially suitable for those looking for a durable, easy-to-clean solution to reduce mess and keep floors free from litter tracking.
@@ -176,10 +176,10 @@ The **GORILLA GRIP Cat Litter Box Mat** features a water-resistant design that p
 
 In addition to its functional benefits, the mat is designed with convenience in mind. Its lightweight construction allows for easy relocation when cleaning or rearranging your cat’s area. The neutral grey color provides a subtle aesthetic that integrates seamlessly with various home interiors. Overall, this mat offers a practical and attractive solution for cat owners seeking to control litter scatter and maintain a cleaner living space.
 
-## <a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Dog Door Mat for Muddy Paws 30x20, Absorbs Moisture and Dirt, Absorbent Non-Slip Washable Doormat, Quick Dry Chenille Mud Mat for Dogs, Entry Indoor Entryway Carpet for Inside Floor, Grey" src="https://m.media-amazon.com/images/I/61zm8HSZBUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWT84GZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Dog Door Mat for Muddy Paws 30x20, Absorbs Moisture and Dirt, Absorbent Non-Slip Washable Doormat, Quick Dry Chenille Mud Mat for Dogs, Entry Indoor Entryway Carpet for Inside Floor, Grey" src="https://m.media-amazon.com/images/I/61zm8HSZBUL._SL500_.jpg"/></a>
 
 
 The **OLANLY Dog Door Mat for Muddy Paws 30x20** is ideal for pet owners who want to keep their indoor floors clean and dry despite their dog's outdoor adventures. If you have a dog that frequently tracks in mud, dirt, or moisture, this **absorbent, non-slip, washable doormat** is perfect for your entryway to protect your home and reduce cleaning time.
@@ -202,10 +202,10 @@ The **OLANLY Dog Door Mat** features a soft chenille surface that is specificall
 
 Measuring **30x20 inches** and weighing just 1.5 pounds, this grey mat is lightweight and compact enough to fit in most indoor entryways without taking up too much space. The washable design makes it easy to maintain hygiene, making it a practical choice for pet owners who want a low-maintenance yet effective solution for muddy paws.
 
-## <a href="https://www.amazon.com/dp/B0DFLTK6RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glittme Cat Litter Mat</a>
+## <a href="https://www.amazon.com/dp/B0DFLTK6RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glittme Cat Litter Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFLTK6RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glittme Cat Litter Mat with Non-Slip Bottom Litter Box Mat 33" cat="" clean="" easy="" food="" for="" kitty,l"="" litter="" mat="" src="https://m.media-amazon.com/images/I/51ZctiDPPPL._SL500_.jpg" to="" trapping="" washable="" x22"=""/></a>
+<a href="https://www.amazon.com/dp/B0DFLTK6RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glittme Cat Litter Mat with Non-Slip Bottom Litter Box Mat 33" cat="" clean="" easy="" food="" for="" kitty,l"="" litter="" mat="" src="https://m.media-amazon.com/images/I/51ZctiDPPPL._SL500_.jpg" to="" trapping="" washable="" x22"=""/></a>
 
 
 The **Glittme Cat Litter Mat with Non-Slip Bottom** is ideal for cat owners who want to maintain a clean and tidy area around their pet's litter box. If you are someone who struggles with litter tracking around your home or wants an easy-to-clean solution to keep your floors litter-free, this mat is perfect for you. It also suits those looking for a durable, washable, and stylish mat to complement their cat care routine.
@@ -227,10 +227,10 @@ The **Glittme Cat Litter Mat** stands out due to its high-quality construction a
 
 Additionally, the mat is crafted from materials that are not only durable but also **easy to wash**. This makes cleaning a breeze, ensuring a hygienic environment for both you and your cat. The **brown color** is subtle and stylish, making it a great addition to any room without standing out awkwardly. Overall, this mat offers a practical and aesthetically pleasing solution for cat owners looking to manage litter mess effectively.
 
-## <a href="https://www.amazon.com/dp/B078TFVWPY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Litter Mat</a>
+## <a href="https://www.amazon.com/dp/B078TFVWPY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Litter Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B078TFVWPY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Litter Mat, XL Super Size, Phthalate Free, Easy to Clean, 46x35 Inches, Durable, Soft on Paws, Large Litter Mat." src="https://m.media-amazon.com/images/I/51yZsE364QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078TFVWPY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Litter Mat, XL Super Size, Phthalate Free, Easy to Clean, 46x35 Inches, Durable, Soft on Paws, Large Litter Mat." src="https://m.media-amazon.com/images/I/51yZsE364QL._SL500_.jpg"/></a>
 
 
 The **Cat Litter Mat, XL Super Size** is ideal for cat owners who want to maintain a cleaner litter area while providing comfort for their pets. If you have one or multiple cats and are tired of litter tracking beyond the box, this **large, durable, and soft-on-paws mat** is perfect for you. Its **phthalate-free material** ensures a safe environment for your feline friends, making it an excellent choice for health-conscious pet parents.
@@ -253,10 +253,10 @@ The **Cosyearn Cat Litter Mat** boasts a spacious design measuring 46 by 35 inch
 
 Additionally, the mat’s surface is designed for easy cleaning, allowing you to quickly remove trapped litter or debris with minimal effort. Its subtle grey color makes it a discreet yet functional addition to any room, while the lightweight design (4.5 pounds) allows for convenient repositioning and maintenance. Overall, the **Cat Litter Mat XL** from Cosyearn offers an effective, safe, and comfortable solution for managing litter mess while enhancing your cat’s litter box experience.
 
-## <a href="https://www.amazon.com/dp/B0B7PF9H2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat®</a>
+## <a href="https://www.amazon.com/dp/B0B7PF9H2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat®</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7PF9H2T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat for Muddy Paws, Non-Slip Washable Pet Rug, Quick Dry Chenille Entryway Carpet, Machine Washable Indoor Outdoor mat, Brown 28" src="https://m.media-amazon.com/images/I/518tZdcKT-L._SL500_.jpg" x18""=""/></a>
+<a href="https://www.amazon.com/dp/B0B7PF9H2T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat for Muddy Paws, Non-Slip Washable Pet Rug, Quick Dry Chenille Entryway Carpet, Machine Washable Indoor Outdoor mat, Brown 28" src="https://m.media-amazon.com/images/I/518tZdcKT-L._SL500_.jpg" x18""=""/></a>
 
 
 The **Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat** is perfect for pet owners who want to keep their home clean and dry. If you have a dog that often comes inside with **muddy paws** or wet feet, this mat is designed specifically for you. It is ideal for anyone looking for a durable, easy-to-clean, and effective solution to manage dirt and moisture at the entryway.

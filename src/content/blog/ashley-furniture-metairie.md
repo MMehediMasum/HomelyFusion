@@ -20,10 +20,10 @@ Many sofas come with power reclining features for extra comfort. Colors include 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CHLM83K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLM83K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Cashton Casual Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLM83K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/41HdPtUh6BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLM83K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Cashton Casual Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/41HdPtUh6BL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Cashton Casual Sofa** in **Blue** is perfect for individuals seeking a stylish yet comfortable seating option for their **living room**. Ideal for homeowners, renters, or anyone looking to enhance their space with a piece that combines modern design and functionality, this sofa offers both aesthetic appeal and everyday comfort.
@@ -45,10 +45,10 @@ The **Cashton Casual Sofa** features a sleek and contemporary design by **Ashley
 
 Beyond aesthetics, this sofa is built for everyday use with durable materials that withstand regular wear and tear. The casual design encourages relaxation, whether you are watching TV, reading, or entertaining friends. Its balanced weight ensures the sofa is sturdy while still being manageable during moves or room rearrangements, making it a practical yet attractive furniture piece for a variety of users.
 
-## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Next-gen Durapella Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDCD7F9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa with Adjustable Headrest, Sand" src="https://m.media-amazon.com/images/I/41Z+urVYchL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa** in **Sand** is ideal for individuals or families seeking a stylish yet comfortable seating solution that combines modern technology with durable materials. If you value adjustable comfort and a neutral color palette that complements various interior styles, this power reclining sofa is designed for you. It’s perfect for those who enjoy relaxing with personalized seating positions and enhanced head support.
@@ -71,10 +71,10 @@ The **Signature Design by Ashley Next-Gen DuraPella Power Reclining Sofa** boast
 
 In addition to comfort, the sofa’s **neutral sand color** and sleek design make it a versatile addition to many living room aesthetics. Its substantial size provides enough room for multiple people to sit comfortably, making it ideal for family rooms or entertainment areas. The combination of durable materials and advanced reclining features means users can enjoy both style and functionality for years to come.
 
-## <a href="https://www.amazon.com/dp/B0D2S2PK7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Boyington Contemporary Leather Match Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D2S2PK7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Boyington Contemporary Leather Match Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2S2PK7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Boyington Contemporary Leather Match Power Reclining Sofa with USB Charging Ports, LED Lights and Adjustable Headrest, Light Gray" src="https://m.media-amazon.com/images/I/31xp75B-8XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2S2PK7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Boyington Contemporary Leather Match Power Reclining Sofa with USB Charging Ports, LED Lights and Adjustable Headrest, Light Gray" src="https://m.media-amazon.com/images/I/31xp75B-8XL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Boyington Contemporary Leather Match Power Reclining Sofa** is ideal for those seeking a stylish and functional piece of furniture that combines comfort with modern technology. Perfect for families, tech-savvy individuals, and anyone who enjoys relaxing in style, this sofa offers convenient features like USB charging ports and LED lights, making it a great addition to living rooms or entertainment areas.
@@ -96,10 +96,10 @@ This **contemporary leather match power reclining sofa** by **Signature Design b
 
 In addition to comfort, the sofa is equipped with modern conveniences such as **USB charging ports**, allowing users to keep their smartphones, tablets, and other devices charged without leaving the couch. The integrated **LED lights** provide subtle illumination, perfect for nighttime use or creating a cozy atmosphere. Overall, this sofa offers a blend of functionality, style, and comfort that enhances any living space.
 
-## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
+## <a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Altari Modern Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B07X7KK56G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X7KK56G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Altari Modern Sofa with 2 Accent Pillows, Light Gray" src="https://m.media-amazon.com/images/I/4136XqSIeaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Altari Modern Sofa** with 2 accent pillows in **Light Gray** is ideal for individuals or families seeking a stylish yet comfortable centerpiece for their living room. Perfect for those who appreciate modern design with practical functionality, this sofa suits urban apartments, contemporary homes, or anyone looking to refresh their space with a neutral-toned, versatile piece. Buyers who value durability, ease of maintenance, and subtle elegance will find this sofa a great fit.
@@ -123,10 +123,10 @@ Featuring a sleek and contemporary silhouette, the **Altari Modern Sofa** enhanc
 
 Crafted by the reputable **Signature Design by Ashley** brand, this sofa promises durability and quality craftsmanship. The sturdy construction ensures long-lasting use, while the light gray upholstery offers a versatile look that integrates seamlessly with various interior styles. Whether used in a modern apartment or a spacious home, this sofa combines aesthetic appeal with functional comfort, making it a valuable addition to any living space.
 
-## <a href="https://www.amazon.com/dp/B0D6GY1H48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D6GY1H48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Stonemeade Casual Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6GY1H48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Sofa with 4 Toss Pillows, Light Brown" src="https://m.media-amazon.com/images/I/317dfKXlOaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6GY1H48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Stonemeade Casual Sofa with 4 Toss Pillows, Light Brown" src="https://m.media-amazon.com/images/I/317dfKXlOaL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Stonemeade Casual Sofa with 4 Toss Pillows** in **Light Brown** is ideal for individuals seeking a stylish yet comfortable seating option for their living room. Perfect for homeowners who appreciate a blend of casual elegance and practical functionality, this sofa suits families, young professionals, and anyone looking to enhance their home décor with a cozy centerpiece.
@@ -149,10 +149,10 @@ The **Signature Design by Ashley Stonemeade Casual Sofa** features a versatile d
 
 Built with quality materials by **Ashley Furniture Industries**, this sofa ensures long-lasting durability and support. The thoughtful design combines style with practicality, offering users a comfortable seating experience without compromising on aesthetic appeal. Overall, this casual sofa is a smart investment for those looking to elevate their living room with a reliable and attractive centerpiece.
 
-## <a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Keerwick Scandinavian Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Keerwick Scandinavian Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Keerwick Scandinavian Sofa with 4 Toss Pillows, Blue" src="https://m.media-amazon.com/images/I/41U95SoUbwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6GZH3SW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Keerwick Scandinavian Sofa with 4 Toss Pillows, Blue" src="https://m.media-amazon.com/images/I/41U95SoUbwL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Keerwick Scandinavian Sofa** with 4 Toss Pillows in **Blue** is ideal for individuals looking to add a touch of modern elegance and comfort to their living space. Perfect for those who appreciate **Scandinavian design** aesthetics combined with practical functionality, this sofa suits homeowners, renters, and interior design enthusiasts who want a stylish yet cozy centerpiece for their lounge or family room.
@@ -175,10 +175,10 @@ Crafted by **Ashley Furniture Industries**, the **Signature Design by Ashley Kee
 
 Beyond aesthetics, this sofa offers practical benefits such as robust construction and high-quality materials, ensuring durability and long-term use. Its vibrant **blue upholstery** is both eye-catching and soothing, creating a welcoming ambiance in your living area. Whether you’re curling up for a movie night or hosting friends, this sofa combines style, comfort, and functionality seamlessly.
 
-## <a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Simplejoy Contemporary Sofa For Living Room, Blue</a>
+## <a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Simplejoy Contemporary Sofa For Living Room, Blue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley SimpleJoy Contemporary Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/31lKQhYa+YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSCM1GPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley SimpleJoy Contemporary Sofa for Living Room, Blue" src="https://m.media-amazon.com/images/I/31lKQhYa+YL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley SimpleJoy Contemporary Sofa** in **Blue** is ideal for individuals looking to enhance their living room with a stylish, comfortable, and functional piece of furniture. This sofa is perfect for homeowners, renters, or anyone who values modern design combined with practical comfort, especially those who want to add a splash of color and contemporary flair to their space.
@@ -201,10 +201,10 @@ The **SimpleJoy Contemporary Sofa** by Signature Design delivers both style and 
 
 Featuring a striking **blue upholstery**, this sofa serves as a centerpiece that enlivens your living room. The contemporary design emphasizes clean lines and simplicity, making it versatile enough to blend with various décor styles. Whether you're hosting friends or enjoying a quiet evening, this sofa offers both aesthetic appeal and practical comfort, enhancing your overall living experience.
 
-## <a href="https://www.amazon.com/dp/B0DCG8B1RL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Tip-off Modern Wall Hugger Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B0DCG8B1RL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Tip-off Modern Wall Hugger Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCG8B1RL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Tip-Off Modern Wall Hugger Power Reclining Sofa with Adjustable Headrest and USB Ports, Gray" src="https://m.media-amazon.com/images/I/41wPReCLPiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCG8B1RL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Tip-Off Modern Wall Hugger Power Reclining Sofa with Adjustable Headrest and USB Ports, Gray" src="https://m.media-amazon.com/images/I/41wPReCLPiL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Tip-Off Modern Wall Hugger Power Reclining Sofa** is ideal for individuals or families seeking a stylish yet functional seating solution. Perfect for those who value comfort, modern aesthetics, and convenient features like adjustable headrests and built-in USB ports, this sofa suits tech-savvy users and anyone wanting to maximize space without compromising on relaxation. Its sleek **gray color** and compact wall-hugging design make it an excellent choice for apartments, living rooms, or media rooms with limited space.
@@ -228,10 +228,10 @@ The **Signature Design by Ashley Tip-Off Modern Wall Hugger Power Reclining Sofa
 
 Designed with a **wall-hugger mechanism**, this sofa reclines smoothly without needing extra space behind it, making it perfect for smaller rooms. The sturdy construction and neutral **gray upholstery** make it durable and versatile, fitting a variety of decor styles. Overall, this sofa provides a blend of convenience, comfort, and style, catering well to modern lifestyles.
 
-## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
+## <a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Lonoke Contemporary Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHLBH55V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Lonoke Contemporary Sofa for Living Room, Beige" src="https://m.media-amazon.com/images/I/41jxv5e4KQL._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Lonoke Contemporary Sofa** in **Beige** is ideal for individuals seeking a stylish yet comfortable centerpiece for their **living room**. This sofa is perfect for homeowners and renters who appreciate modern design paired with practical functionality, especially those who want to create a cozy and inviting seating area without compromising on aesthetics.
@@ -254,10 +254,10 @@ Crafted by **Signature Design by Ashley**, this sofa boasts a blend of both styl
 
 The sofa’s sturdy frame and quality craftsmanship ensure durability, making it a smart investment for those who want a reliable piece of furniture. Additionally, the neutral **beige upholstery** not only adds warmth to your living space but also offers flexibility in accessorizing with colorful throws or pillows. Overall, the **Lonoke Contemporary Sofa** is an ideal blend of aesthetics and functionality for anyone looking to elevate their living room experience.
 
-## <a href="https://www.amazon.com/dp/B0D2S3HNMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Fyne-dyme Contemporary Power Reclining Sofa</a>
+## <a href="https://www.amazon.com/dp/B0D2S3HNMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Signature Design By Ashley Fyne-dyme Contemporary Power Reclining Sofa</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2S3HNMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Fyne-Dyme Contemporary Power Reclining Sofa with USB Charging Ports and Adjustable Headrest, Blue" src="https://m.media-amazon.com/images/I/31X7DwdS5ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2S3HNMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Signature Design by Ashley Fyne-Dyme Contemporary Power Reclining Sofa with USB Charging Ports and Adjustable Headrest, Blue" src="https://m.media-amazon.com/images/I/31X7DwdS5ML._SL500_.jpg"/></a>
 
 
 The **Signature Design by Ashley Fyne-Dyme Contemporary Power Reclining Sofa** with USB Charging Ports and Adjustable Headrest in **Blue** is ideal for individuals or families seeking a stylish yet highly functional seating solution. This sofa is perfect for those who value comfort, convenience, and modern technology integration in their living space. If you enjoy relaxing with the ability to recline effortlessly while keeping your devices charged, this sofa is an excellent choice.

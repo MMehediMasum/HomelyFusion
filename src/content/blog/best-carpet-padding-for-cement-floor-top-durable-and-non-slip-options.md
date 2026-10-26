@@ -23,10 +23,10 @@ Others provide soundproofing or cushioning for kids’ play areas. Selecting the
 
 
 
-## <a href="https://www.amazon.com/dp/B092VC7VK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rabenda 12 Pcs Rug Tape</a>
+## <a href="https://www.amazon.com/dp/B092VC7VK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rabenda 12 Pcs Rug Tape</a>
 
 
-<a href="https://www.amazon.com/dp/B092VC7VK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rabenda 12 Pcs Rug Tape, Non Slip Rug Pads Grippers for Hardwood Floors and Tiles, Reusable Carpet Tape for Area Rugs, Double-Sided Adhesive Rug Stickers Keep Corners Flat (Black)" src="https://m.media-amazon.com/images/I/51ZHr3ZJ8gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092VC7VK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rabenda 12 Pcs Rug Tape, Non Slip Rug Pads Grippers for Hardwood Floors and Tiles, Reusable Carpet Tape for Area Rugs, Double-Sided Adhesive Rug Stickers Keep Corners Flat (Black)" src="https://m.media-amazon.com/images/I/51ZHr3ZJ8gL._SL500_.jpg"/></a>
 
 
 The **Rabenda 12 Pcs Rug Tape** is ideal for homeowners and renters who want to keep their **area rugs** securely in place on **hardwood floors** or **tiles**. If you struggle with slipping rugs that cause inconvenience or pose safety risks, this product offers a simple and effective solution. It is especially suitable for those seeking a **reusable**, easy-to-apply, and **non-slip** option to maintain flat corners and prevent tripping hazards.
@@ -48,10 +48,10 @@ The **Rabenda Rug Tape** features a strong, double-sided adhesive designed speci
 
 One of the key benefits of this tape is its **reusability**. Users can easily remove and reposition the tape without damaging the floor or leaving sticky residues. This makes it perfect for renters or anyone who frequently changes their home decor. The pack of 12 pieces provides ample coverage, allowing you to secure multiple rugs or larger area rugs effectively. Overall, the Rabenda Rug Tape offers a practical and user-friendly way to enhance safety and improve the appearance of your rugs on smooth floors.
 
-## <a href="https://www.amazon.com/dp/B0DKFPH9QW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12 Pcs Plush Foam Interlocking Carpet Tiles</a>
+## <a href="https://www.amazon.com/dp/B0DKFPH9QW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12 Pcs Plush Foam Interlocking Carpet Tiles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKFPH9QW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pcs Plush Foam Interlocking Carpet Tiles,Soft Shaggy Fluffy Floor Area Rugs with Padding,Colorful Floor Protective Mats for Home Kids Room Playroom (Grey and Black, 11.8 x 11.8 x 0.39)" src="https://m.media-amazon.com/images/I/51AW07P-5GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKFPH9QW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pcs Plush Foam Interlocking Carpet Tiles,Soft Shaggy Fluffy Floor Area Rugs with Padding,Colorful Floor Protective Mats for Home Kids Room Playroom (Grey and Black, 11.8 x 11.8 x 0.39)" src="https://m.media-amazon.com/images/I/51AW07P-5GL._SL500_.jpg"/></a>
 
 
 The **12 Pcs Plush Foam Interlocking Carpet Tiles** are perfect for parents and homeowners looking to create a comfortable, safe, and stylish floor space for their **kids' rooms**, playrooms, or living areas. Ideal for those who want easy-to-install, cushioned flooring that adds both protection and aesthetic appeal, these tiles cater to families seeking both functionality and comfort in their home environment.
@@ -75,10 +75,10 @@ These **plush foam interlocking carpet tiles** feature a soft, shaggy surface th
 
 Beyond comfort, the tiles' durable construction and stylish **grey and black color scheme** provide a modern and sleek look that complements a variety of interior designs. Lightweight yet sturdy, these tiles are easy to clean and maintain, making them a practical addition to busy households. Whether used in a child's playroom or as a protective floor covering in other living spaces, these tiles offer both functionality and style, creating a cozy and inviting environment.
 
-## <a href="https://www.amazon.com/dp/B0F5VQW7WL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Insanity Grip Rug Grips</a>
+## <a href="https://www.amazon.com/dp/B0F5VQW7WL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Insanity Grip Rug Grips</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5VQW7WL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Insanity Grip 12 Pcs Rug Grips for Hardwood Floors, Tile, Cement &amp; More - Thin Corner Carpet Pad That is Removable - Glueless Nano Gel Triangle Shaped Carpet Tape &amp; Floor Tape for Area Rugs" src="https://m.media-amazon.com/images/I/41Gzq0s20QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5VQW7WL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Insanity Grip 12 Pcs Rug Grips for Hardwood Floors, Tile, Cement &amp; More - Thin Corner Carpet Pad That is Removable - Glueless Nano Gel Triangle Shaped Carpet Tape &amp; Floor Tape for Area Rugs" src="https://m.media-amazon.com/images/I/41Gzq0s20QL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to secure their area rugs without damaging hardwood floors, tile, or cement surfaces, the **Insanity Grip 12 Pcs Rug Grips** offer a practical solution. Those who want a clean, removable, and effective way to prevent slipping and sliding of carpets will find this product especially useful.
@@ -100,10 +100,10 @@ The **Insanity Grip 12 Pcs Rug Grips** stand out due to their advanced **nano ge
 
 With its **thin corner carpet pad** construction, these grips are virtually invisible once installed, preserving the aesthetic appeal of any room. The grips' versatility across multiple floor types, such as tile and cement, makes them a convenient choice for various settings. Overall, these rug grips combine functionality and convenience, delivering a safe and attractive solution for securing area rugs.
 
-## <a href="https://www.amazon.com/dp/B0CNP7381P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bxi Soundproof Interlocking Rug Pad</a>
+## <a href="https://www.amazon.com/dp/B0CNP7381P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bxi Soundproof Interlocking Rug Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNP7381P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BXI Soundproof Interlocking Rug Pad 16 Pcs, 11x 11 x 0.4 inches Non Slip Rug Pads, High Density Noise Reduction Puzzle Felt Carpet Padding, Rug Mat Protects and Adds Cushion for Hardwood Floor" src="https://m.media-amazon.com/images/I/51yBLfusB2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNP7381P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BXI Soundproof Interlocking Rug Pad 16 Pcs, 11x 11 x 0.4 inches Non Slip Rug Pads, High Density Noise Reduction Puzzle Felt Carpet Padding, Rug Mat Protects and Adds Cushion for Hardwood Floor" src="https://m.media-amazon.com/images/I/51yBLfusB2L._SL500_.jpg"/></a>
 
 
 The **BXI Soundproof Interlocking Rug Pad** is ideal for homeowners and renters looking to protect their **hardwood floors** while adding comfort and reducing noise. This product is perfect for those who want a durable, non-slip solution to keep their rugs securely in place and minimize sound disturbances in living rooms, bedrooms, or offices.
@@ -127,10 +127,10 @@ The **BXI Soundproof Interlocking Rug Pad** comes in 16 pieces, each measuring *
 
 Additionally, this rug pad features a **non-slip backing** that prevents rugs from sliding, enhancing safety and stability. The added cushioning provides a comfortable surface to walk on, reducing fatigue and adding warmth to your floors. With its lightweight construction and neutral grey color, the BXI rug pad blends seamlessly under any rug style while delivering reliable performance and long-lasting durability.
 
-## <a href="https://www.amazon.com/dp/B07TFKDQVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Felt And Natural Rubber Stay In Place Slip Resistant Rug Pad</a>
+## <a href="https://www.amazon.com/dp/B07TFKDQVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Felt And Natural Rubber Stay In Place Slip Resistant Rug Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B07TFKDQVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Felt and Natural Rubber Stay in Place Slip Resistant Rug Pad, 1/8in Thick, 2x8 FT Protective Padding Under Area Rugs, Cushioned Gripper Pads, Carpet Runners, Hardwood Floors Protection" src="https://m.media-amazon.com/images/I/514lHjAsTlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TFKDQVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP Felt and Natural Rubber Stay in Place Slip Resistant Rug Pad, 1/8in Thick, 2x8 FT Protective Padding Under Area Rugs, Cushioned Gripper Pads, Carpet Runners, Hardwood Floors Protection" src="https://m.media-amazon.com/images/I/514lHjAsTlL._SL500_.jpg"/></a>
 
 
 The **GORILLA GRIP Felt and Natural Rubber Stay in Place Slip Resistant Rug Pad** is ideal for homeowners and renters looking to protect their **hardwood floors** and keep their area rugs securely in place. If you want to prevent slipping, sliding, and wear on your carpets or runners, this **1/8 inch thick protective padding** offers a practical and durable solution. It’s especially suitable for those with high-traffic areas or families with children and pets who require extra safety and floor protection.
@@ -153,10 +153,10 @@ The **GORILLA GRIP rug pad** is designed with a unique blend of **felt for cushi
 
 This pad effectively protects **hardwood floors** from damage caused by rug edges and furniture movement. The natural rubber bottom grips the floor securely without leaving sticky residue, making it safe for use on delicate surfaces. Additionally, the felt layer absorbs impact and provides a soft barrier that enhances the lifespan of your rugs by minimizing wear and tear. Overall, the **GORILLA GRIP Felt and Natural Rubber Rug Pad** offers a reliable and convenient solution for maintaining the beauty and safety of your flooring.
 
-## <a href="https://www.amazon.com/dp/B0D41LSG4Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qjhomo Non Slip Rug Pad 3x5 Feet Carpet Padding</a>
+## <a href="https://www.amazon.com/dp/B0D41LSG4Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qjhomo Non Slip Rug Pad 3x5 Feet Carpet Padding</a>
 
 
-<a href="https://www.amazon.com/dp/B0D41LSG4Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QJHOMO Non Slip Rug Pad 3x5 Feet Carpet Padding, Under Rug Padding Cushioned for Hardwood Floors, Thick Felt Cushion Carpet Pads for Area Rugs Non Skid Backing Runner Rug Mat" src="https://m.media-amazon.com/images/I/51FHjj9Oh+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D41LSG4Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QJHOMO Non Slip Rug Pad 3x5 Feet Carpet Padding, Under Rug Padding Cushioned for Hardwood Floors, Thick Felt Cushion Carpet Pads for Area Rugs Non Skid Backing Runner Rug Mat" src="https://m.media-amazon.com/images/I/51FHjj9Oh+L._SL500_.jpg"/></a>
 
 
 The **QJHOMO Non Slip Rug Pad 3x5 Feet** is ideal for homeowners and renters who want to protect their **hardwood floors** while keeping their **area rugs** securely in place. If you have slippery floors or children and pets at home, this **carpet padding** provides extra safety and comfort, making it a perfect choice for anyone looking to enhance both the functionality and longevity of their rugs.
@@ -178,10 +178,10 @@ The **QJHOMO Non Slip Rug Pad** is designed with a **thick felt cushion** that n
 
 Additionally, the pad’s **3x5 feet dimensions** make it an easy fit for most standard rugs and runners, while the lightweight design allows for effortless placement and repositioning. The **grey color** adds a discreet layer beneath your rugs without drawing attention, preserving your interior aesthetics. With its balanced combination of durability, comfort, and safety, this rug pad is a valuable accessory for enhancing any living space.
 
-## <a href="https://www.amazon.com/dp/B0815BLNX1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Rug Gripper Pads</a>
+## <a href="https://www.amazon.com/dp/B0815BLNX1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gorilla Grip Rug Gripper Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0815BLNX1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP 8 Pack Rug Gripper Pads, Keep Area Rugs Corners from Curling and Bunching, Reusable Dual-Sided Flexible Sticky Pad, Grips Floor Underlayment, Hold Carpet in Place on Hardwood Floors" src="https://m.media-amazon.com/images/I/5108W7hc+WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0815BLNX1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GORILLA GRIP 8 Pack Rug Gripper Pads, Keep Area Rugs Corners from Curling and Bunching, Reusable Dual-Sided Flexible Sticky Pad, Grips Floor Underlayment, Hold Carpet in Place on Hardwood Floors" src="https://m.media-amazon.com/images/I/5108W7hc+WL._SL500_.jpg"/></a>
 
 
 The **GORILLA GRIP 8 Pack Rug Gripper Pads** are ideal for homeowners and renters who struggle with slipping or curling area rugs on hard flooring surfaces. If you want a simple, reusable solution to keep your rugs securely in place without damaging floors, these gripper pads are perfect for you. They are especially useful for those with hardwood floors, tile, or laminate who seek to enhance safety and maintain the aesthetic of their living spaces.
@@ -203,10 +203,10 @@ The **GORILLA GRIP Rug Gripper Pads** feature a dual-sided sticky design that fi
 
 These gripper pads are manufactured by **Hills Point Industries, LLC**, ensuring quality and durability. Their lightweight construction, weighing just 0.2875 pounds per pack, makes them easy to handle and reposition as needed. By preventing slipping and bunching, these pads contribute to a safer home environment, especially for children and elderly individuals, while extending the life of your area rugs by reducing wear and tear from movement.
 
-## <a href="https://www.amazon.com/dp/B0DK6DDHJ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Treetone Felt And Rubber Backing Rug Pads</a>
+## <a href="https://www.amazon.com/dp/B0DK6DDHJ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Treetone Felt And Rubber Backing Rug Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK6DDHJ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TREETONE Felt and Rubber Backing Rug Pads 1/8” Thick, 2 x 3 Ft Non Slip Carpet Gripper Keep Rugs in Place, Under Area Rug Protective Cushioned Pads, Carpet Padding, Hardwood Floors Protection" src="https://m.media-amazon.com/images/I/514GrJQsQ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK6DDHJ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TREETONE Felt and Rubber Backing Rug Pads 1/8” Thick, 2 x 3 Ft Non Slip Carpet Gripper Keep Rugs in Place, Under Area Rug Protective Cushioned Pads, Carpet Padding, Hardwood Floors Protection" src="https://m.media-amazon.com/images/I/514GrJQsQ4L._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters looking to protect their floors and keep rugs securely in place, the **TREETONE Felt and Rubber Backing Rug Pads** are perfect for those who want a simple yet effective solution to prevent slipping and add cushioning under area rugs. If you have hardwood, tile, or laminate floors and want to extend the life of your rugs while enhancing safety, this product is an excellent choice.
@@ -228,10 +228,10 @@ The **TREETONE Felt and Rubber Backing Rug Pads** feature a combination of felt 
 
 Additionally, the rug pad is easy to trim to the exact size of your rug, allowing for a custom fit no matter the shape or dimension. Its durable grey felt material resists wear while maintaining a low profile under your rugs, ensuring that it does not alter the appearance or feel of your flooring. This product is an ideal solution for anyone seeking to maintain the beauty of their floors while improving rug stability and comfort.
 
-## <a href="https://www.amazon.com/dp/B0FD9XMTY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuanchu Felt Rug Pad</a>
+## <a href="https://www.amazon.com/dp/B0FD9XMTY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuanchu Felt Rug Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD9XMTY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuanchu Felt Rug Pad 8x10 Feet, 1/4 Inch Thick Carpet Padding for Hardwood Floors, Grey Under Rug Protector, Floor Cushioning Mat Compatible Grip Underlay" src="https://m.media-amazon.com/images/I/51K2DyQpYiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD9XMTY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuanchu Felt Rug Pad 8x10 Feet, 1/4 Inch Thick Carpet Padding for Hardwood Floors, Grey Under Rug Protector, Floor Cushioning Mat Compatible Grip Underlay" src="https://m.media-amazon.com/images/I/51K2DyQpYiL._SL500_.jpg"/></a>
 
 
 The **Nuanchu Felt Rug Pad 8x10 Feet** is ideal for homeowners and renters who want to protect their **hardwood floors** while adding comfort underfoot. If you're looking for a durable and effective way to keep your area rugs in place without damaging your flooring, this **carpet padding** is a perfect choice. It's especially suited for those with large rugs who want a reliable grip underlay that cushions and extends the life of both rugs and floors.
@@ -253,10 +253,10 @@ The **Nuanchu Felt Rug Pad** is designed with a balance of softness and firmness
 
 Additionally, the **grey under rug protector** is engineered to grip both the floor and rug securely, minimizing slippage and movement. This makes it safer for households with children or elderly members by reducing the chances of trips and falls. The lightweight yet sturdy construction by **Nuanchu** ensures easy installation and maintenance, making it a practical choice for anyone looking to improve both the functionality and longevity of their home’s flooring.
 
-## <a href="https://www.amazon.com/dp/B0D46BQN8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vevor 20 X 20 Reusable Carpet Tiles Squares</a>
+## <a href="https://www.amazon.com/dp/B0D46BQN8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vevor 20 X 20 Reusable Carpet Tiles Squares</a>
 
 
-<a href="https://www.amazon.com/dp/B0D46BQN8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEVOR 20 x 20 Reusable Carpet Tiles Squares with Padding Attached &amp; Soft Padded for Indoor Outdoor Kitchen Living Room Bedrooms - Pack of 12/30.7 sq ft/Mixed Brown" src="https://m.media-amazon.com/images/I/61pw-ymLmUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D46BQN8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEVOR 20 x 20 Reusable Carpet Tiles Squares with Padding Attached &amp; Soft Padded for Indoor Outdoor Kitchen Living Room Bedrooms - Pack of 12/30.7 sq ft/Mixed Brown" src="https://m.media-amazon.com/images/I/61pw-ymLmUL._SL500_.jpg"/></a>
 
 
 The **VEVOR 20 x 20 Reusable Carpet Tiles Squares** are ideal for homeowners and renters looking to enhance their indoor and outdoor spaces with easy-to-install, comfortable flooring. Perfect for kitchens, living rooms, bedrooms, and even patios, these carpet tiles suit anyone who wants a versatile, cushioned surface that adds warmth and style without the commitment of permanent flooring.

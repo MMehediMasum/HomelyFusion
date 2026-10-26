@@ -22,10 +22,10 @@ Whether you prefer a small bedside lamp or a tall floor lamp, the right choice s
 
 
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, or **desk** area. Perfect for those who value convenience and modern features, this lamp suits users who want adjustable lighting with added charging capabilities integrated into a compact design.
@@ -48,10 +48,10 @@ Featuring a **14-inch height** and a compact footprint of approximately 4.45 inc
 
 Beyond illumination, this lamp doubles as a practical charging station with built-in **USB-C ports** and an **AC outlet**, enabling users to conveniently charge smartphones, tablets, or laptops without needing additional adapters or power strips. This integration helps declutter surfaces and keeps essential devices within arm's reach. The inclusion of an **energy-efficient LED bulb** further adds value by reducing energy consumption and bulb replacement frequency, making it a smart addition to any modern living space.
 
-## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
 
 
 The **luckystyle Floor Lamp** is ideal for individuals seeking a versatile and powerful lighting solution for their **living room**, **bedroom**, or **office**. If you need a lamp that offers customizable lighting options with a sleek design, this **super bright dimmable LED lamp** with an adjustable gooseneck is perfect for reading, working, or creating the perfect ambiance.
@@ -75,10 +75,10 @@ The **luckystyle Floor Lamp** features a highly adjustable **gooseneck** that al
 
 Equipped with a **remote control** and easy-to-use **push button**, this lamp ensures user convenience, allowing quick adjustments without needing to leave your seat. Its tall stature at **69 inches** and sleek **black design** make it a stylish and practical addition to any room, adding both brightness and elegance without taking up excessive floor space.
 
-## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light</a>
+## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
 
 
 The **Gritin 9 LED Rechargeable Book Light** is ideal for avid readers, students, and professionals who need a reliable and portable lighting solution for reading or studying in low-light environments. If you want a lightweight, clip-on light that offers customizable brightness and color temperature to reduce eye strain, this book light is perfect for you.
@@ -100,10 +100,10 @@ The **Gritin 9 LED Rechargeable Book Light** combines versatility and convenienc
 
 Its compact size and lightweight build make it highly portable, perfect for carrying in a bag or clipping onto a book without adding bulk. The rechargeable battery offers an impressive runtime of up to 80 hours, so users can depend on it for extended study nights or travel without worrying about battery replacements. Overall, this book light provides an efficient, user-friendly solution for anyone looking to enhance their nighttime reading or studying setup.
 
-## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
 
 
 The **iZELL Desk Lamp** is perfect for individuals who need focused, adjustable lighting for reading or working in dim environments. Ideal customers include students, night-time readers, and anyone who requires a flexible lighting solution that can easily clip onto desks, headboards, or dorm tables. Its compact design and versatile features make it especially suitable for kids and adults alike who want to avoid disturbing others while enjoying their favorite books or completing tasks at night.
@@ -125,10 +125,10 @@ The **iZELL Desk Lamp** stands out with its multiple lighting options, including
 
 Additionally, the clamp feature makes it incredibly convenient to attach the lamp to various surfaces without taking up valuable desk space. Its compact size and light weight mean it’s easy to move and adjust throughout the day or night. Overall, the **iZELL Desk Lamp** offers a practical, user-friendly lighting solution for students, readers, and professionals looking to improve their workspace illumination.
 
-## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacovy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacovy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
 
 
 The **PACOVY Floor Lamp** is perfect for individuals seeking a versatile and bright lighting solution for their **living room**, **bedroom**, or **office**. Ideal for readers, crafters, or anyone who needs adjustable and focused illumination, this lamp suits those who value both style and functionality in their home or workspace.
@@ -152,10 +152,10 @@ The **PACOVY Floor Lamp** features an impressive height of 67.5 inches with an a
 
 This lamp’s **remote and touch control** system brings effortless convenience, making it simple to switch on/off or adjust brightness levels without having to get up. The flexible **gooseneck** design provides directional lighting, perfect for tasks that require focused illumination. The elegant black color and slim profile not only add a modern touch to your décor but also ensure it fits seamlessly into various environments, whether at home or in an office setting.
 
-## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Bedside Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHVP949X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHVP949X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Bedside Table lamp for Bedroom - 3 Color Temperatures Bedside Lamps with USB C and A Ports, Pull Chain Table Lamps with AC Outlet, White Nightstand Lamps with Black Metal Base for Kids Reading" src="https://m.media-amazon.com/images/I/41kTf8efezL._SL500_.jpg"/></a>
 
 
 The **Small Bedside Table lamp for Bedroom** is perfect for individuals seeking a compact yet versatile lighting solution for their nightstand. Ideal for **kids reading**, students, or anyone who prefers adjustable lighting with convenient charging options, this lamp combines functionality with modern design. Its multiple features make it a great addition to bedrooms where space and multitasking are priorities.
@@ -179,10 +179,10 @@ This **Dicoool bedside lamp** stands out with its ability to offer three distinc
 
 Designed with a compact footprint and a sturdy **black metal base**, this lamp fits seamlessly on small nightstands or desks without occupying excessive space. The **pull chain switch** offers an intuitive way to toggle the lamp on and off, while the included **AC outlet** provides extra power options, enhancing its utility. Overall, this lamp is a practical and stylish choice for anyone needing versatile bedside lighting combined with modern connectivity features.
 
-## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bohon Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SK4DMHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOHON LED Desk Lamp with USB Charging Port 3 Color Modes Dimmable Reading Light Intelligent Induction Auto Dimming Task Lamp Flexible Gooseneck Table Lamp for Bedside Office, AC Adapter Include" src="https://m.media-amazon.com/images/I/414fmiPK9NL._SL500_.jpg"/></a>
 
 
 The **BOHON LED Desk Lamp with USB Charging Port** is ideal for students, professionals, and night readers who require efficient, adjustable lighting for their workspace or bedside. If you need a versatile lamp that combines modern design with practical features like multiple light modes and a flexible gooseneck, this product is tailored for you.
@@ -206,10 +206,10 @@ The **BOHON LED Desk Lamp** features three distinct **color modes**—warm, natu
 
 Designed with a **flexible gooseneck**, this lamp provides precise lighting angles to suit individual needs, making it ideal for focused tasks or ambient lighting. Additionally, the built-in **USB charging port** offers convenience by powering your smartphone or other devices directly from the lamp. Its sleek **matt black** finish and compact dimensions (Height: 18.9 Inches, Width and Length: 5.91 Inches) make it a stylish and functional addition to any office or bedside setup.
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio Led Floor Lamp** is an excellent choice for individuals seeking an **adjustable, eye-friendly lighting solution** for their **living room** or **bedroom**. Ideal for those who value both style and functionality, this lamp is perfect for people who want to reduce eye strain with **harmless light** while enjoying the convenience of **remote and touch control**. Whether you're a reader, a student, or someone who works from home, this lamp offers customizable lighting to suit your needs.
@@ -232,10 +232,10 @@ The **WioMio Led Floor Lamp** features a **stepless dimmer** and adjustable **co
 
 Equipped with both **remote and touch control**, this lamp offers convenience and ease of use. The **adjustable gooseneck** design enables you to direct light exactly where needed, enhancing functionality. Its tall stature and sleek **matte black** color make it not only practical but also an elegant addition to any room decor.
 
-## <a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent 5w Clip On Light</a>
+## <a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent 5w Clip On Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent 5W Clip on Light, 36LED Eye Caring Reading Light for Bed, 3 Colors &amp; 5 Brightness Clip on Lamp with Adapter, Perfect Reading Light for Bed with Clamp/Bunk Bed/Headboard/Table/Desk" src="https://m.media-amazon.com/images/I/41sGJKuekvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent 5W Clip on Light, 36LED Eye Caring Reading Light for Bed, 3 Colors &amp; 5 Brightness Clip on Lamp with Adapter, Perfect Reading Light for Bed with Clamp/Bunk Bed/Headboard/Table/Desk" src="https://m.media-amazon.com/images/I/41sGJKuekvL._SL500_.jpg"/></a>
 
 
 The **Glocusent 5W Clip on Light** is ideal for avid readers, students, or professionals who need a reliable and adjustable lighting solution for reading or working in dim environments. Those who value eye comfort and versatility in lighting, especially for use on beds, bunk beds, headboards, tables, or desks, will find this clip-on lamp perfectly suited to their needs.
@@ -257,10 +257,10 @@ The **Glocusent 5W Clip on Light** features 36 LED bulbs designed to provide a g
 
 Additionally, the lamp’s slim and lightweight build ensures it doesn’t take up much space, making it ideal for small rooms or shared spaces like dormitories. The inclusion of an adapter simplifies powering the lamp, eliminating the need for batteries and providing consistent light output. Overall, this clip-on reading light combines functionality, comfort, and convenience, making it an excellent choice for anyone seeking a practical lighting solution for reading or working in low-light environments.
 
-## <a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent Book Light</a>
+## <a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent Book Light, 3-Color &amp; 6-Brightness Reading Light, Bendable Neck Light, 80-hr Lasting Rechargeable Lamp, Perfect Book Light for Reading in Bed, Knitting, Camping, Repairing, Book Lovers Gifts" src="https://m.media-amazon.com/images/I/41-CC8j0OjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent Book Light, 3-Color &amp; 6-Brightness Reading Light, Bendable Neck Light, 80-hr Lasting Rechargeable Lamp, Perfect Book Light for Reading in Bed, Knitting, Camping, Repairing, Book Lovers Gifts" src="https://m.media-amazon.com/images/I/41-CC8j0OjL._SL500_.jpg"/></a>
 
 
 The **Glocusent Book Light** is ideal for **book lovers**, avid readers who enjoy reading in low-light environments such as in bed, campers needing a reliable light source, knitters requiring precise illumination, and anyone involved in detailed tasks like repairing. Its versatility and adjustable settings make it perfect for users seeking a portable, efficient, and customizable lighting solution.

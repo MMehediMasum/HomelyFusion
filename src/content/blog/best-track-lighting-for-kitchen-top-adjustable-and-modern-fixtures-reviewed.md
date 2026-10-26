@@ -23,10 +23,10 @@ Options such as LRUII 3-Lights LED Round Hanging Track Lighting and YangRy 6 Lig
 
 
 
-## <a href="https://www.amazon.com/dp/B0F7RNMCDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gsycle 4 Light Track Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0F7RNMCDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gsycle 4 Light Track Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7RNMCDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gsycle 4 Light Track Lighting Fixture, regolabile Head 85 to 265 V Kitchen Ceiling Light Industrial Light Fixture for Gu10 Bulbs" src="https://m.media-amazon.com/images/I/31nlGbhdcuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7RNMCDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gsycle 4 Light Track Lighting Fixture, regolabile Head 85 to 265 V Kitchen Ceiling Light Industrial Light Fixture for Gu10 Bulbs" src="https://m.media-amazon.com/images/I/31nlGbhdcuL._SL500_.jpg"/></a>
 
 
 The **Gsycle 4 Light Track Lighting Fixture** is ideal for homeowners and professionals seeking a versatile and adjustable lighting solution for kitchens or industrial spaces. If you want to enhance your room’s illumination with a durable and stylish fixture that supports **GU10 bulbs**, this product is a perfect fit. Its adjustable heads and broad voltage range make it suitable for a variety of settings, especially for those who value flexibility and modern design.
@@ -48,10 +48,10 @@ The **Gsycle 4 Light Track Lighting Fixture** offers excellent flexibility with 
 
 Its industrial aesthetic blends seamlessly with modern and contemporary interiors, adding both function and style to your space. The fixture’s compact size means it can be installed in a variety of ceiling spaces without overwhelming the room. Users benefit from the ability to use energy-efficient GU10 bulbs, which contribute to lower electricity bills and longer bulb life, making this a practical and cost-effective lighting choice.
 
-## <a href="https://www.amazon.com/dp/B0FHWK9BSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWK9BSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWK9BSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWK9BSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and interior decorators looking to enhance the ambiance of their **kitchen, living room, or bedroom** with modern, functional lighting. This fixture is perfect for those who want to highlight specific areas or features in their space with a sleek, minimalistic design that blends seamlessly into contemporary interiors.
@@ -74,10 +74,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** offers a balance of style and practicalit
 
 Thanks to its **energy-efficient LED technology**, this lighting fixture not only brightens your space but also helps reduce energy consumption, leading to cost savings over time. Its compact dimensions make it an excellent choice for rooms where space is limited but quality lighting is essential. Whether you want to wash a wall with light or accentuate a particular feature, the NHYHEHMR spotlight delivers focused, reliable performance that enhances both aesthetics and functionality.
 
-## <a href="https://www.amazon.com/dp/B0FHWK1HCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWK1HCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWK1HCM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWK1HCM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and renters looking to enhance their **kitchen, living room, or bedroom** with modern, focused lighting. This product is perfect for those who want to combine functionality with style, offering an elegant yet practical solution for accentuating specific areas or features within their home. If you need a reliable and visually appealing spotlight to brighten up your space, this lighting fixture is designed for you.
@@ -99,10 +99,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** features a sleek rectangular design that 
 
 Beyond aesthetics, the fixture’s **energy-efficient 20W power** delivers sufficient brightness while reducing electricity consumption, making it an eco-friendly option. The warm **3000K color temperature** creates a cozy atmosphere, ideal for relaxing spaces like bedrooms and living rooms. Overall, this lighting fixture balances design and functionality, enhancing your home environment with style and practical illumination.
 
-## <a href="https://www.amazon.com/dp/B0FHWJXN2F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWJXN2F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWJXN2F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWJXN2F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and interior designers looking to enhance their **kitchen**, **living room**, or **bedroom** with modern, efficient, and stylish lighting. This product is perfect for those who want to add focused illumination to highlight specific areas or create an inviting ambiance with a clean, contemporary look.
@@ -124,10 +124,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** is designed with versatility in mind, mak
 
 Featuring a neutral **4000K white light**, this fixture strikes a perfect balance between warm and cool tones, making it suitable for various interior styles. Additionally, its compact and elegant rectangular design ensures it blends seamlessly with modern decor, while its energy-efficient operation helps reduce power consumption without compromising brightness or quality.
 
-## <a href="https://www.amazon.com/dp/B0FHWJFBV5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWJFBV5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWJFBV5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWJFBV5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and interior decorators looking to enhance their **kitchen**, **living room**, or **bedroom** with stylish, functional lighting. If you want a modern and versatile spotlight that can highlight specific areas or artworks while blending seamlessly with your decor, this fixture is a perfect choice.
@@ -150,10 +150,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** features a modern rectangular design that
 
 Constructed by **NHYHEHMR**, this lighting fixture combines durability with aesthetic appeal. Its compact size ensures it fits well even in rooms with lower ceilings without overwhelming the space. Additionally, the **energy-efficient 20W LEDs** help reduce energy consumption while providing adequate illumination, making it an eco-friendly and cost-effective lighting solution for any modern home.
 
-## <a href="https://www.amazon.com/dp/B0FHWHVXGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWHVXGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWHVXGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWHVXGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31+WkOxdnsL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and interior designers looking to enhance the ambiance of kitchens, living rooms, or bedrooms with modern, focused lighting. This lighting fixture is perfect for those who want to highlight specific areas or add accent lighting to their indoor spaces with a sleek and functional design.
@@ -175,10 +175,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** offers a contemporary lighting solution t
 
 Designed with compact dimensions and a neutral black finish, this ceiling fixture seamlessly integrates into various interior styles without overwhelming the space. Its energy-efficient bulbs ensure long-lasting performance while minimizing electricity costs, making it a practical choice for those seeking both aesthetics and savings. Overall, this spotlight fixture is a smart investment for enhancing indoor lighting with focused, stylish illumination.
 
-## <a href="https://www.amazon.com/dp/B0FHWHC3DT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FHWHC3DT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nhyhehmr 20w 2-light Spotlight Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWHC3DT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWHC3DT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture, Rectangle Spotlights for Kitchen, Living Room and Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
 
 
 The **NHYHEHMR 20W 2-Light Spotlight Indoor Ceiling Lighting Fixture** is ideal for homeowners and renters looking to enhance their **kitchen, living room, or bedroom** with stylish and functional lighting. If you want to create focused illumination with a modern aesthetic, this **rectangle spotlight fixture** offers an excellent solution for accentuating specific areas or adding ambient light.
@@ -200,10 +200,10 @@ The **NHYHEHMR 20W 2-Light Spotlight** boasts a sleek rectangular design that bl
 
 With compact dimensions of approximately 7.87 inches in height, width, and length, this lighting fixture suits smaller rooms or tighter spaces where subtle illumination is preferred. The energy-efficient 20W bulbs reduce electricity consumption while still providing ample light, enhancing both functionality and sustainability in your home environment.
 
-## <a href="https://www.amazon.com/dp/B0CZ89LW36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lruii Lighting 3-lights Led Round Hanging Track Lighting</a>
+## <a href="https://www.amazon.com/dp/B0CZ89LW36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lruii Lighting 3-lights Led Round Hanging Track Lighting</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ89LW36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LRUII Lighting 3-Lights LED Round Hanging Track Lighting Modern Gold Kitchen Island Track Lighting Brushed Brass Ceiling Mount Adjustable Spotlight for Hallway Living Room" src="https://m.media-amazon.com/images/I/31+mFS5jOKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ89LW36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LRUII Lighting 3-Lights LED Round Hanging Track Lighting Modern Gold Kitchen Island Track Lighting Brushed Brass Ceiling Mount Adjustable Spotlight for Hallway Living Room" src="https://m.media-amazon.com/images/I/31+mFS5jOKL._SL500_.jpg"/></a>
 
 
 The **LRUII Lighting 3-Lights LED Round Hanging Track Lighting** is ideal for homeowners and interior designers looking to enhance their living spaces with stylish and functional lighting. Perfect for those who want to brighten up kitchen islands, hallways, or living rooms with a modern and elegant touch, this lighting fixture suits individuals who appreciate adjustable, energy-efficient, and aesthetically pleasing illumination solutions.
@@ -226,10 +226,10 @@ The **LRUII Lighting 3-Lights LED Round Hanging Track Lighting** combines modern
 
 Equipped with energy-efficient LED bulbs, this lighting fixture ensures long-lasting performance while helping to reduce energy costs. The ceiling mount design allows for a neat, clutter-free installation that maximizes ceiling space. Overall, the LRUII track lighting system is a smart investment for anyone seeking to blend aesthetics with functionality in their home lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0CYSTZ5YL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yangry Modern Track Lighting 6 Light Black Kitchen Island Pendant Light</a>
+## <a href="https://www.amazon.com/dp/B0CYSTZ5YL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yangry Modern Track Lighting 6 Light Black Kitchen Island Pendant Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYSTZ5YL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YangRy Modern Track Lighting 6 Light Black Kitchen Island Pendant Light Industrial Farmhouse Linear LED Chandelier Adjustable Dining Living Room Pool Table Bar Hanging Lamp" src="https://m.media-amazon.com/images/I/41mV9TvGPVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYSTZ5YL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YangRy Modern Track Lighting 6 Light Black Kitchen Island Pendant Light Industrial Farmhouse Linear LED Chandelier Adjustable Dining Living Room Pool Table Bar Hanging Lamp" src="https://m.media-amazon.com/images/I/41mV9TvGPVL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and interior designers seeking a blend of **modern industrial style** and **functional lighting**, the **YangRy Modern Track Lighting 6 Light Black Kitchen Island Pendant Light** is perfect for enhancing spaces like kitchens, dining rooms, living rooms, or bars. Those who want an adjustable, energy-efficient, and stylish lighting solution will find this **linear LED chandelier** a great addition to their décor.
@@ -251,10 +251,10 @@ The **YangRy Modern Track Lighting** features six adjustable LED lights housed i
 
 Beyond aesthetics, the use of **energy-efficient LEDs** reduces power consumption while delivering bright, consistent light. The robust build ensures durability, while the sizeable linear design evenly distributes illumination across larger areas. This makes it ideal for settings where both function and style are paramount, such as dining rooms, bars, or pool tables.
 
-## <a href="https://www.amazon.com/dp/B0FKMRM6NM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Spotlight 20w 2-light Indoor Ceiling Lighting Fixture</a>
+## <a href="https://www.amazon.com/dp/B0FKMRM6NM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Spotlight 20w 2-light Indoor Ceiling Lighting Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B0FKMRM6NM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Spotlight, 20W 2-Light Indoor Ceiling Lighting Fixture, Rectangle for Kitchen, Living Room And Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FKMRM6NM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Spotlight, 20W 2-Light Indoor Ceiling Lighting Fixture, Rectangle for Kitchen, Living Room And Bedroom, Fixed Track Spot Lamps/Accent Lamp/Wash Wall Lamp" src="https://m.media-amazon.com/images/I/31yDOREIXNL._SL500_.jpg"/></a>
 
 
 The **LED Spotlight, 20W 2-Light Indoor Ceiling Lighting Fixture** is ideal for homeowners or renters looking to enhance their **kitchen, living room, or bedroom** lighting with a modern and efficient solution. This lighting fixture is perfect for those who want to highlight specific areas or add accent lighting to their indoor spaces while maintaining a sleek and minimalist aesthetic.

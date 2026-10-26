@@ -23,10 +23,10 @@ Rugs with natural fibers like wool or cotton often perform better on heated floo
 
 
 
-## <a href="https://www.amazon.com/dp/B0DM4K7M87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Heated Anti-fatigue Kitchen Mat</a>
+## <a href="https://www.amazon.com/dp/B0DM4K7M87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Heated Anti-fatigue Kitchen Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DM4K7M87?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upgraded Heated Anti-Fatigue Kitchen Mat, Thick Cushioned Heated Floor Rug for Standing Desk, Office, Garage – Heavy-Duty, Waterproof, Anti-Slip, Ergonomically Designed - Black" src="https://m.media-amazon.com/images/I/31ZfSupzegL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DM4K7M87?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upgraded Heated Anti-Fatigue Kitchen Mat, Thick Cushioned Heated Floor Rug for Standing Desk, Office, Garage – Heavy-Duty, Waterproof, Anti-Slip, Ergonomically Designed - Black" src="https://m.media-amazon.com/images/I/31ZfSupzegL._SL500_.jpg"/></a>
 
 
 The **Upgraded Heated Anti-Fatigue Kitchen Mat** is ideal for individuals who spend long hours standing, such as home cooks, office workers using standing desks, garage hobbyists, or anyone seeking enhanced comfort and warmth on hard floors. If you want to reduce foot fatigue while enjoying the benefits of a heated, cushioned surface, this mat is designed specifically for you.
@@ -50,10 +50,10 @@ This **Upgraded Heated Anti-Fatigue Kitchen Mat** by **GoGlowGal** and manufactu
 
 Designed with durability in mind, the mat features **waterproof** and **heavy-duty** construction, making it resistant to spills and easy to clean. The **anti-slip** backing ensures it stays securely in place on various floor types, enhancing safety. Ergonomically shaped to support proper posture, this mat not only offers physical comfort but also promotes healthier standing habits, making it a valuable addition to any workspace or kitchen area.
 
-## <a href="https://www.amazon.com/dp/B0DMD82DNJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Heated Foot Warmer Under Desk</a>
+## <a href="https://www.amazon.com/dp/B0DMD82DNJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Heated Foot Warmer Under Desk</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMD82DNJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upgraded Heated Foot Warmer Under Desk, Electric Floor Mat, 8 Temp Levels w/Timer, Energy-Saving, Splashproof, Heating Feet Pad for Desk, Office, Garage, XL (Black Granite)" src="https://m.media-amazon.com/images/I/41mDeP-bxcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMD82DNJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upgraded Heated Foot Warmer Under Desk, Electric Floor Mat, 8 Temp Levels w/Timer, Energy-Saving, Splashproof, Heating Feet Pad for Desk, Office, Garage, XL (Black Granite)" src="https://m.media-amazon.com/images/I/41mDeP-bxcL._SL500_.jpg"/></a>
 
 
 The **Upgraded Heated Foot Warmer Under Desk** by GoGlowGal is ideal for individuals who spend long hours sitting at a desk, whether in an **office**, **home workspace**, or even a **garage**. If you often experience cold feet during work or leisure time, this **electric floor mat** offers a convenient and efficient solution to keep your feet warm and comfortable throughout the day.
@@ -76,10 +76,10 @@ This **heated foot warmer** features an upgraded electric heating system that pr
 
 Designed with practicality in mind, the **splashproof construction** ensures durability in various settings, including offices, garages, or home workspaces. Its slim and lightweight design makes it easy to slide under desks or chairs without taking up much space, while the **Black Granite** color adds a sleek, modern look. Overall, this floor mat is a versatile and energy-saving solution for anyone looking to keep their feet warm in a comfortable and safe way.
 
-## <a href="https://www.amazon.com/dp/B0D8VYQ4R7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yircelom Heated Floor Carpet</a>
+## <a href="https://www.amazon.com/dp/B0D8VYQ4R7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yircelom Heated Floor Carpet</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8VYQ4R7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIRCELOM Heated Floor Carpet, Heated Floor Mats with Adjustable Temperature 12 Hour Timer, Electric Heating Area Rug, Radiant Floor Heater, for Yoga (39x39inch/100x100cm)" src="https://m.media-amazon.com/images/I/41wBZ1i92vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8VYQ4R7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIRCELOM Heated Floor Carpet, Heated Floor Mats with Adjustable Temperature 12 Hour Timer, Electric Heating Area Rug, Radiant Floor Heater, for Yoga (39x39inch/100x100cm)" src="https://m.media-amazon.com/images/I/41wBZ1i92vL._SL500_.jpg"/></a>
 
 
 The **YIRCELOM Heated Floor Carpet** is perfect for individuals who seek warmth and comfort during their indoor activities, especially those who practice **yoga** or spend long hours on cold floors. If you want a cozy, heated surface that is both functional and adjustable, this **heated floor mat** is an ideal choice for you.
@@ -102,10 +102,10 @@ The **YIRCELOM Heated Floor Carpet** features an electric heating system integra
 
 In addition to comfort, the **12-hour timer** adds a safety and energy-saving benefit by allowing users to set the mat to turn off automatically after a set period. Its lightweight design, weighing just **5.5 pounds**, makes it easy to move around or store when not in use. Overall, this electric heating area rug from **YIRCELOM** combines functionality, safety, and convenience, making it a smart investment for anyone looking to keep warm and cozy indoors.
 
-## <a href="https://www.amazon.com/dp/B08LKBFCS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugheat Portable Heated Floor Mat</a>
+## <a href="https://www.amazon.com/dp/B08LKBFCS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugheat Portable Heated Floor Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B08LKBFCS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RugHeat Portable Heated Floor Mat, Extra Large (63x93 inches) Fits Under a 5.5' x 8' Rug - Under-Rug Pad for Heated Rug, Electric Radiant Floor Heater for Area Rugs, Heating Mat for Large Rooms" src="https://m.media-amazon.com/images/I/51RFZ3MW2vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LKBFCS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RugHeat Portable Heated Floor Mat, Extra Large (63x93 inches) Fits Under a 5.5' x 8' Rug - Under-Rug Pad for Heated Rug, Electric Radiant Floor Heater for Area Rugs, Heating Mat for Large Rooms" src="https://m.media-amazon.com/images/I/51RFZ3MW2vL._SL500_.jpg"/></a>
 
 
 The **RugHeat Portable Heated Floor Mat** is ideal for homeowners and office users looking to add extra warmth and comfort to large rooms without remodeling their entire heating system. Perfect for those who want to enhance the coziness of their living space during cold months, this electric radiant floor heater fits seamlessly under area rugs, making it an excellent choice for anyone seeking efficient supplemental heating that is both portable and easy to use.
@@ -128,10 +128,10 @@ The **RugHeat Portable Heated Floor Mat** boasts an impressive extra-large dimen
 
 Made with high-quality materials and crafted by **RugHeat**, this electric radiant floor heater is both safe and energy-efficient. Users can enjoy a noticeable reduction in cold spots within their rooms, making living spaces more inviting without significantly increasing energy costs. Its portability means it can be easily moved or repositioned, providing targeted warmth exactly where it’s needed most. Overall, this heated floor mat offers a practical solution for anyone seeking added warmth beneath their rugs in large areas.
 
-## <a href="https://www.amazon.com/dp/B0CN38XS3B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mofgoe Heated Carpet</a>
+## <a href="https://www.amazon.com/dp/B0CN38XS3B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mofgoe Heated Carpet</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN38XS3B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MOFGOE Heated Carpet - Heated Rug Under Desk, Heated Floor Mat, Electric Infrared Floor Heater, with 60 Levels Adjustable Thermostat, Waterproof, 12 Hour Timing, for Office/Home,50x100cm" src="https://m.media-amazon.com/images/I/41z9W+sFLsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN38XS3B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MOFGOE Heated Carpet - Heated Rug Under Desk, Heated Floor Mat, Electric Infrared Floor Heater, with 60 Levels Adjustable Thermostat, Waterproof, 12 Hour Timing, for Office/Home,50x100cm" src="https://m.media-amazon.com/images/I/41z9W+sFLsL._SL500_.jpg"/></a>
 
 
 The **MOFGOE Heated Carpet** is ideal for individuals seeking a cozy and warm workspace or living area, especially those who spend long hours sitting at a desk during colder months. It’s perfect for office workers, home users, or anyone looking to add efficient, adjustable warmth to their floor space without bulky heaters. Its compact size and practical features make it a great choice for personal comfort in both professional and home environments.
@@ -154,10 +154,10 @@ The **MOFGOE Heated Carpet** is designed with advanced **electric infrared heati
 
 Additionally, the **waterproof** feature safeguards the carpet against spills and moisture, making it practical for everyday use in homes and offices. The built-in **12-hour timer** enhances convenience by automatically turning off the heater after a set period, promoting energy savings and safety. With its compact **50x100cm** size and sleek **gray** color, this heated rug seamlessly integrates into various spaces, creating a cozy environment wherever it is placed.
 
-## <a href="https://www.amazon.com/dp/B0BMG4Q16L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Infrared Radiant Floor Heater</a>
+## <a href="https://www.amazon.com/dp/B0BMG4Q16L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Infrared Radiant Floor Heater</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMG4Q16L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Infrared Radiant Floor Heater, Electric Heated Area Rug, Electric Heating Carpet, Indoor Floor Heater, Waterproof/6 Gear Adjustment, Great for Yoga,140x200cm" src="https://m.media-amazon.com/images/I/41wBZ1i92vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMG4Q16L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Infrared Radiant Floor Heater, Electric Heated Area Rug, Electric Heating Carpet, Indoor Floor Heater, Waterproof/6 Gear Adjustment, Great for Yoga,140x200cm" src="https://m.media-amazon.com/images/I/41wBZ1i92vL._SL500_.jpg"/></a>
 
 
 The **Infrared Radiant Floor Heater** is perfect for individuals looking to add comfortable, efficient warmth to their living spaces, especially during colder months. Ideal for those who practice **yoga** or spend extended periods on the floor, this **electric heated area rug** provides gentle, consistent heat to keep your environment cozy and inviting. Homeowners seeking a portable, easy-to-use heating solution with customizable settings will find this product particularly beneficial.
@@ -180,10 +180,10 @@ The **Infrared Radiant Floor Heater** by GWMWON boasts a sleek **grey** design w
 
 Additionally, the **waterproof** feature ensures that the heater remains safe and functional even in environments where spills or moisture might occur. The 6-level temperature control allows users to fine-tune the heat output to their preference, promoting energy efficiency and comfort. Overall, this **indoor floor heater** combines practicality with advanced heating technology, making it an excellent choice for anyone wanting a reliable and cozy heating solution.
 
-## <a href="https://www.amazon.com/dp/B00XK28ODK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hot Carpet Woo Warmer Under Rug Radiant Floor Heater Electric Mat Electric Carpet Electric Heated Area Rug</a>
+## <a href="https://www.amazon.com/dp/B00XK28ODK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hot Carpet Woo Warmer Under Rug Radiant Floor Heater Electric Mat Electric Carpet Electric Heated Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B00XK28ODK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 70="" alt="Hot Carpet Woo Warmer Under Rug Radiant Floor Heater Electric Mat Electric Carpet Electric Heated Area Rug Great for Yoga (500 watt 70" in="" inches)="" made="" seattle="" src="https://m.media-amazon.com/images/I/41lxXymu6tL._SL500_.jpg" wa"="" x=""/></a>
+<a href="https://www.amazon.com/dp/B00XK28ODK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 70="" alt="Hot Carpet Woo Warmer Under Rug Radiant Floor Heater Electric Mat Electric Carpet Electric Heated Area Rug Great for Yoga (500 watt 70" in="" inches)="" made="" seattle="" src="https://m.media-amazon.com/images/I/41lxXymu6tL._SL500_.jpg" wa"="" x=""/></a>
 
 
 The **Hot Carpet Woo Warmer Under Rug Radiant Floor Heater** is ideal for individuals seeking a cozy and warm environment, especially during cold seasons. Whether you are a yoga enthusiast wanting a comfortably heated surface or someone who spends long hours on the floor, this **electric heated area rug** offers an efficient heating solution. It is perfect for homes or studios aiming to add warmth without the need for bulky heaters.
@@ -205,10 +205,10 @@ The **Woo Warmer Electric Carpet Heater** is designed to seamlessly integrate un
 
 Additionally, the durable construction by **King County Trading** in Seattle ensures longevity and safety. The 500 watt power output is balanced to provide sufficient heat without excessive energy consumption, making it an economical choice for daily use. With its portability and lightweight design, users can easily move the heater to different rooms or storage when not in use, adding to its convenience and versatility.
 
-## <a href="https://www.amazon.com/dp/B0CCVHTLD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nujorwarm Graphene Electric Heating Carpet Soft Plush Heated Area Rug Heater Floor Mat With Timer Fast Warm Up For Home Office Study Playroom</a>
+## <a href="https://www.amazon.com/dp/B0CCVHTLD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nujorwarm Graphene Electric Heating Carpet Soft Plush Heated Area Rug Heater Floor Mat With Timer Fast Warm Up For Home Office Study Playroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCVHTLD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NujorWarm Graphene Electric Heating Carpet Soft Plush Heated Area Rug Heater Floor Mat with Timer Fast Warm Up for Home Office Study Playroom 120V 1000W 4.6x6.6Ft QY" src="https://m.media-amazon.com/images/I/51ttLsj90rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCVHTLD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NujorWarm Graphene Electric Heating Carpet Soft Plush Heated Area Rug Heater Floor Mat with Timer Fast Warm Up for Home Office Study Playroom 120V 1000W 4.6x6.6Ft QY" src="https://m.media-amazon.com/images/I/51ttLsj90rL._SL500_.jpg"/></a>
 
 
 The **NujorWarm Graphene Electric Heating Carpet** is ideal for individuals seeking a cozy and efficient heating solution for their **home, office, study, or playroom**. If you want to stay warm during chilly days without relying on bulky heaters, this **soft plush heated area rug** is perfect for you. Its **fast warm-up** feature and convenient **timer** make it a smart choice for anyone prioritizing comfort and energy efficiency.
@@ -232,10 +232,10 @@ The **NujorWarm Electric Heating Carpet** utilizes advanced **graphene technolog
 
 Equipped with a user-friendly **timer**, the carpet allows users to set heating durations according to their schedules, promoting energy efficiency and safety. Its substantial size covers ample floor space, making it versatile enough for various rooms like offices, playrooms, or bedrooms. Overall, this **1000W heated floor mat** balances performance, comfort, and convenience, catering to anyone looking to enhance their living or working environment with reliable warmth.
 
-## <a href="https://www.amazon.com/dp/B0CGL33N6D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Everkeen Heated Floor Mat Under Desk Foot Warmer</a>
+## <a href="https://www.amazon.com/dp/B0CGL33N6D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Everkeen Heated Floor Mat Under Desk Foot Warmer</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGL33N6D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Everkeen Heated Floor Mat Under Desk, Foot Warmer-Timed Temperature Control Graphene Electric Heating Film Heating Pad for Home,Office (Wood Stripe)" src="https://m.media-amazon.com/images/I/41DoY4ZUFIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGL33N6D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Everkeen Heated Floor Mat Under Desk, Foot Warmer-Timed Temperature Control Graphene Electric Heating Film Heating Pad for Home,Office (Wood Stripe)" src="https://m.media-amazon.com/images/I/41DoY4ZUFIL._SL500_.jpg"/></a>
 
 
 The **Everkeen Heated Floor Mat Under Desk** is ideal for individuals who spend long hours seated at their desks, especially in cold environments. Whether you work from home or in an office, this **foot warmer** is perfect for those seeking extra comfort and warmth during chilly days. It’s also great for people with poor circulation or those who simply want to enhance their workspace ergonomics.
@@ -257,10 +257,10 @@ The **Everkeen Heated Floor Mat** features a high-quality **graphene electric he
 
 Additionally, the **wood stripe design** adds a touch of aesthetic appeal while maintaining practicality. This mat not only provides soothing warmth but also improves overall comfort and productivity by creating a cozy environment during work hours. Whether at home or in an office setting, the **Everkeen Heated Floor Mat Under Desk** is a smart investment for anyone looking to stay warm and comfortable throughout the day.
 
-## <a href="https://www.amazon.com/dp/B0FD3C1H19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ahsdbg Large Heated Floor Mat</a>
+## <a href="https://www.amazon.com/dp/B0FD3C1H19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ahsdbg Large Heated Floor Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD3C1H19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AHSDBG Large Heated Floor Mat Portable Infrared Heating Carpet, Heated Area Rugs Radiant Floor Heater, Heated Yoga Mat Heated Foot Warmers Under Desk (79x39in/200x100cm)" src="https://m.media-amazon.com/images/I/41T4TxKc51L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD3C1H19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AHSDBG Large Heated Floor Mat Portable Infrared Heating Carpet, Heated Area Rugs Radiant Floor Heater, Heated Yoga Mat Heated Foot Warmers Under Desk (79x39in/200x100cm)" src="https://m.media-amazon.com/images/I/41T4TxKc51L._SL500_.jpg"/></a>
 
 
 The **AHSDBG Large Heated Floor Mat** is perfect for individuals seeking efficient and portable warmth in their living or working spaces. Ideal customers include those who experience cold floors during winter, yoga enthusiasts wanting extra comfort during practice, and office workers needing heated foot warmers under their desks. This **infrared heating carpet** offers a practical solution for anyone looking to enhance their indoor comfort with a versatile and easy-to-use heating product.

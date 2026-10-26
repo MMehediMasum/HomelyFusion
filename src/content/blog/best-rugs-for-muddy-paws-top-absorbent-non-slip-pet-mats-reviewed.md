@@ -23,10 +23,10 @@ Low-profile designs fit well in entryways without causing trips. Some rugs resis
 
 
 
-## <a href="https://www.amazon.com/dp/B0CGG1KNHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat® Super Absorbent Microfiber Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CGG1KNHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat® Super Absorbent Microfiber Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGG1KNHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat for Muddy Paws, Non-Slip Washable Pet Rug, Quick Dry Chenille Entryway Carpet, Machine Washable Indoor Outdoor mat, Black 28" src="https://m.media-amazon.com/images/I/51cPEIjIUXL._SL500_.jpg" x18""=""/></a>
+<a href="https://www.amazon.com/dp/B0CGG1KNHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat for Muddy Paws, Non-Slip Washable Pet Rug, Quick Dry Chenille Entryway Carpet, Machine Washable Indoor Outdoor mat, Black 28" src="https://m.media-amazon.com/images/I/51cPEIjIUXL._SL500_.jpg" x18""=""/></a>
 
 
 The **Muddy Mat® Shown on TV – Super Absorbent Microfiber Dog Door Mat** is ideal for pet owners who want to keep their entryways clean and dry despite muddy paws. If you have dogs that frequently come inside after playing outdoors, this **non-slip washable pet rug** offers a practical solution to trap dirt and moisture effectively. It's perfect for those seeking a durable, easy-to-clean mat that works well both indoors and outdoors.
@@ -50,10 +50,10 @@ The **Muddy Mat** features a dense microfiber surface that excels at capturing m
 
 Designed for convenience, this **machine washable pet rug** is easy to maintain and keeps your entryway looking clean with minimal effort. Its compact **28"x18"** size is perfect for doorways, mudrooms, or porches, making it a versatile addition to any home with pets. Overall, the **Muddy Mat®** offers an effective and durable solution to control mud and moisture, enhancing cleanliness and comfort for both pets and their owners.
 
-## <a href="https://www.amazon.com/dp/B0CTWSYJ4P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dirt Trapper Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CTWSYJ4P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dirt Trapper Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTWSYJ4P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 32",="" absorbent="" alt="BEQHAUSE Dirt Trapper Door Mat 20" and="" back="" blue"="" dog="" door="" door,="" doormat="" entryway="" floor="" for="" front="" mat="" muddy="" navy="" non-slip="" paws,="" resistant="" rugs="" shoes="" src="https://m.media-amazon.com/images/I/513tfsNc2wL._SL500_.jpg" stain="" washable,="" welcome="" wet="" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CTWSYJ4P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 32",="" absorbent="" alt="BEQHAUSE Dirt Trapper Door Mat 20" and="" back="" blue"="" dog="" door="" door,="" doormat="" entryway="" floor="" for="" front="" mat="" muddy="" navy="" non-slip="" paws,="" resistant="" rugs="" shoes="" src="https://m.media-amazon.com/images/I/513tfsNc2wL._SL500_.jpg" stain="" washable,="" welcome="" wet="" x=""/></a>
 
 
 The **BEQHAUSE Dirt Trapper Door Mat 20" x 32"** is ideal for homeowners and pet owners looking for a durable and effective solution to keep dirt, mud, and moisture from entering their living spaces. If you want a **non-slip, washable, and stain-resistant** doormat that can handle muddy wet shoes and paws, this **navy blue** entryway rug is a perfect choice for both front and back doors.
@@ -76,10 +76,10 @@ The **BEQHAUSE Dirt Trapper Door Mat** features a low-profile design with dimens
 
 Additionally, this doormat is designed with a **non-slip backing** that provides stability on various floor surfaces, reducing the risk of slips and falls. Its **washable** construction allows for hassle-free maintenance, so you can keep the mat looking fresh and functional over time. Whether placed at a front door, back door, or mudroom entry, the **BEQHAUSE Dirt Trapper Door Mat** offers practical benefits that enhance cleanliness and convenience in any home environment.
 
-## <a href="https://www.amazon.com/dp/B0D1KCB7YP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dog Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0D1KCB7YP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dog Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1KCB7YP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="BEQHAUSE Dog Door Mat for Muddy Paws 20" back="" black"="" dirt="" door,="" doormat="" entryway="" floor="" for="" front="" low-profile="" mat="" non="" resistant="" rugs="" slip="" soft="" src="https://m.media-amazon.com/images/I/51IWtnek5tL._SL500_.jpg" stain="" trapper="" washable="" welcome="" x32"=""/></a>
+<a href="https://www.amazon.com/dp/B0D1KCB7YP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="BEQHAUSE Dog Door Mat for Muddy Paws 20" back="" black"="" dirt="" door,="" doormat="" entryway="" floor="" for="" front="" low-profile="" mat="" non="" resistant="" rugs="" slip="" soft="" src="https://m.media-amazon.com/images/I/51IWtnek5tL._SL500_.jpg" stain="" trapper="" washable="" welcome="" x32"=""/></a>
 
 
 The **BEQHAUSE Dog Door Mat for Muddy Paws 20"x32"** is ideal for pet owners who want to keep their entryways clean and tidy. If you have dogs that frequently track dirt and mud into the house, this **absorbent doormat** is designed to trap debris effectively. It’s perfect for anyone looking for a durable, washable, and **non-slip rug** to maintain a welcoming and clean front or back door area.
@@ -101,10 +101,10 @@ The **BEQHAUSE Dog Door Mat** features a compact size of 20"x32" with a height o
 
 Another key benefit is the **non-slip backing**, which provides reliable grip on various surfaces, preventing accidents and shifting. The mat is also easy to clean—simply wash it as needed to maintain hygiene and appearance. Overall, the **BEQHAUSE Dog Door Mat** combines functionality with convenience, making it an essential accessory for pet-friendly homes seeking to keep their interiors spotless and safe.
 
-## <a href="https://www.amazon.com/dp/B07GCPKLP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Long Litter Mat Runner 2'x6'</a>
+## <a href="https://www.amazon.com/dp/B07GCPKLP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Long Litter Mat Runner 2'x6'</a>
 
 
-<a href="https://www.amazon.com/dp/B07GCPKLP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Long Litter Mat Runner 2'x6' - Trap Dirt, Mud and Cat Litter - Premium Waterproof PVC Mesh, Non Slip Rubber Runner for Pets, Entry, Mudroom, Garage, Laundry, RV, Camper - Litter Mat XL (Grey)" src="https://m.media-amazon.com/images/I/41rMYK-mchL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GCPKLP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Long Litter Mat Runner 2'x6' - Trap Dirt, Mud and Cat Litter - Premium Waterproof PVC Mesh, Non Slip Rubber Runner for Pets, Entry, Mudroom, Garage, Laundry, RV, Camper - Litter Mat XL (Grey)" src="https://m.media-amazon.com/images/I/41rMYK-mchL._SL500_.jpg"/></a>
 
 
 The **Long Litter Mat Runner 2'x6'** is perfect for pet owners who want to keep their homes clean from tracked-in dirt, mud, and cat litter. Ideal for those with cats or dogs, this mat is designed for use in entryways, mudrooms, garages, laundry rooms, RVs, and campers, providing an effective solution for maintaining cleanliness in high-traffic areas where pets frequently enter.
@@ -126,10 +126,10 @@ The **Clean Litter Club's Long Litter Mat Runner** features a high-quality **wat
 
 Beyond its functional design, the mat's durable construction ensures long-lasting use without compromising on aesthetics, thanks to its sleek **traditional grey color**. The easy-to-clean surface allows pet owners to simply shake off debris or rinse the mat, saving time and effort while maintaining a tidy environment. Overall, this **non-slip, waterproof litter mat runner** enhances cleanliness and comfort for both pets and their owners alike.
 
-## <a href="https://www.amazon.com/dp/B0CFFGJWH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hicorfe Front Door Mat Outside Entrance</a>
+## <a href="https://www.amazon.com/dp/B0CFFGJWH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hicorfe Front Door Mat Outside Entrance</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFFGJWH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hicorfe Front Door Mat Outside Entrance, Absorbent Mud Mat,Welcome Door Mats Outdoor Indoor,Stain and Fade Resistant,Non Slip Backing Entry Doormat,Pet Rug for Entryway (32" pink)"="" src="https://m.media-amazon.com/images/I/518dO30ez0L._SL500_.jpg" x48",dark=""/></a>
+<a href="https://www.amazon.com/dp/B0CFFGJWH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hicorfe Front Door Mat Outside Entrance, Absorbent Mud Mat,Welcome Door Mats Outdoor Indoor,Stain and Fade Resistant,Non Slip Backing Entry Doormat,Pet Rug for Entryway (32" pink)"="" src="https://m.media-amazon.com/images/I/518dO30ez0L._SL500_.jpg" x48",dark=""/></a>
 
 
 The **hicorfe Front Door Mat Outside Entrance** is ideal for homeowners and pet owners looking for a durable and stylish solution to keep their entryways clean. If you want a **mud mat** that effectively absorbs dirt and moisture while adding a welcoming touch to your front door, this **welcome door mat** is perfect for you. Its **stain and fade resistant** properties make it suitable for both **outdoor and indoor** use, especially in areas with heavy foot traffic.
@@ -152,10 +152,10 @@ The **hicorfe Front Door Mat** features a compact height of **0.4 inches**, maki
 
 Thanks to the **non-slip backing**, this mat stays securely in place, reducing the risk of slips and falls at your entrance. The large dimensions (**32"x48"**) provide ample coverage for wiping shoes, while its easy-to-clean surface ensures hassle-free maintenance. Whether placed outside or inside your home, this **pet-friendly rug** offers both functionality and style, making it an excellent addition to any entryway.
 
-## <a href="https://www.amazon.com/dp/B0CVZKD38G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat® 2-piece Black Medium Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0CVZKD38G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muddy Mat® 2-piece Black Medium Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVZKD38G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="Muddy Mat® 2-Piece Black Medium 30" and="" as-seen-on-tv="" bath="" bathroom="" bedroom="" chenille="" door="" for="" highly="" indoor="" kitchen="" mat="" mat,="" microfiber="" non="" outdoor"="" pet="" rug,="" slip="" soft="" src="https://m.media-amazon.com/images/I/51LbLeg+zfL._SL500_.jpg" thick="" washable,="" x19"=""/></a>
+<a href="https://www.amazon.com/dp/B0CVZKD38G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="Muddy Mat® 2-Piece Black Medium 30" and="" as-seen-on-tv="" bath="" bathroom="" bedroom="" chenille="" door="" for="" highly="" indoor="" kitchen="" mat="" mat,="" microfiber="" non="" outdoor"="" pet="" rug,="" slip="" soft="" src="https://m.media-amazon.com/images/I/51LbLeg+zfL._SL500_.jpg" thick="" washable,="" x19"=""/></a>
 
 
 The **Muddy Mat® 2-Piece Black Medium 30"X19"** is ideal for homeowners and pet owners looking for a highly absorbent, durable, and versatile mat to keep their floors clean and dry. Perfect for use in the **kitchen, bathroom, bedroom, or even outdoor spaces**, this mat suits anyone who needs a reliable, non-slip solution to manage moisture and dirt in high-traffic areas. If you want a soft, washable, and thick microfiber mat that also works well as a pet rug, this product is an excellent choice.
@@ -178,10 +178,10 @@ The **Muddy Mat® 2-Piece Black Medium** features a soft yet durable chenille mi
 
 Beyond its functional benefits, this mat is designed for convenience. It is fully machine washable, allowing users to keep it fresh and clean without hassle. The medium size of 30" x 19" makes it versatile enough to fit in various spaces around the home or outdoor areas. Whether you need a bath mat, door mat, or pet rug, the Muddy Mat offers a practical, stylish solution that combines comfort, safety, and easy maintenance.
 
-## <a href="https://www.amazon.com/dp/B0829JRMC2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
+## <a href="https://www.amazon.com/dp/B0829JRMC2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B0829JRMC2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Door Mat 24" back="" backing="" black"="" dirt="" dogs,="" door="" entryway,="" floor="" for="" inside="" low-profile="" mat="" mats,="" mud="" non="" resist="" rubber="" rugs="" slip="" src="https://m.media-amazon.com/images/I/612Kk-4pAcL._SL500_.jpg" washable="" x36"=""/></a>
+<a href="https://www.amazon.com/dp/B0829JRMC2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Door Mat 24" back="" backing="" black"="" dirt="" dogs,="" door="" entryway,="" floor="" for="" inside="" low-profile="" mat="" mats,="" mud="" non="" resist="" rubber="" rugs="" slip="" src="https://m.media-amazon.com/images/I/612Kk-4pAcL._SL500_.jpg" washable="" x36"=""/></a>
 
 
 The **REFETONE Indoor Doormat** is ideal for homeowners and pet owners looking for a durable and effective solution to keep their entryways clean. If you want a **non-slip, washable, and absorbent floor mat** that can handle dirt, mud, and moisture brought in by foot traffic or pets, this door mat is perfect for you. It fits well in both front and back doors, especially in areas with frequent outdoor activity.
@@ -203,10 +203,10 @@ The **REFETONE Indoor Doormat** combines practicality with convenience, featurin
 
 Designed with pet owners in mind, this mat's sturdy construction resists dirt and mud, helping to keep floors spotless despite high foot traffic. Its ample size of 24 by 36 inches provides extensive coverage, capturing more debris before it enters your home. Overall, the **REFETONE Indoor Doormat** offers a reliable, stylish, and functional solution for anyone looking to enhance their home's cleanliness and safety.
 
-## <a href="https://www.amazon.com/dp/B0969TNYHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
+## <a href="https://www.amazon.com/dp/B0969TNYHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B0969TNYHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Back Door mat, Non Slip Door Mats 20" beige"="" dirt="" dogs,="" door="" entrance="" entryway="" floor="" for="" inside="" low-profile,="" mat="" mats="" mud="" resist="" rugs="" src="https://m.media-amazon.com/images/I/51BorQeiQ-L._SL500_.jpg" washable="" x32"=""/></a>
+<a href="https://www.amazon.com/dp/B0969TNYHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Back Door mat, Non Slip Door Mats 20" beige"="" dirt="" dogs,="" door="" entrance="" entryway="" floor="" for="" inside="" low-profile,="" mat="" mats="" mud="" resist="" rugs="" src="https://m.media-amazon.com/images/I/51BorQeiQ-L._SL500_.jpg" washable="" x32"=""/></a>
 
 
 The **REFETONE Indoor Doormat** is ideal for homeowners and pet owners who want to maintain clean and tidy entryways. If you are looking for a **durable, absorbent, and low-profile door mat** that effectively traps dirt and moisture from shoes and paws, this product is perfect for you. Its **non-slip backing** ensures safety and stability, making it suitable for busy households and high-traffic areas inside your home.
@@ -229,10 +229,10 @@ The **REFETONE Indoor Doormat** features a blend of durability and functionality
 
 Additionally, the mat's **low-profile design** allows it to fit snugly under most doors without hindering their movement. This practical feature, combined with its easy-to-clean fabric, makes it a smart choice for pet owners who need a reliable mud mat for dogs. The **solid beige color** adds a subtle aesthetic touch that blends well with various interior styles, making it not only functional but also visually appealing.
 
-## <a href="https://www.amazon.com/dp/B0F1TV79DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dirt Trapper Door Mat</a>
+## <a href="https://www.amazon.com/dp/B0F1TV79DW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beqhause Dirt Trapper Door Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1TV79DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" absorbent="" alt="BEQHAUSE Dirt Trapper Door Mat 24" back="" door="" door,="" doormat="" entryway="" floor="" for="" front="" grey"="" mat="" mats="" muddy="" non-slip="" paws,dark="" resistant="" rugs="" shoes="" src="https://m.media-amazon.com/images/I/51w4YJj1nmL._SL500_.jpg" stain="" washable="" welcome="" wet="" x36"=""/></a>
+<a href="https://www.amazon.com/dp/B0F1TV79DW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" absorbent="" alt="BEQHAUSE Dirt Trapper Door Mat 24" back="" door="" door,="" doormat="" entryway="" floor="" for="" front="" grey"="" mat="" mats="" muddy="" non-slip="" paws,dark="" resistant="" rugs="" shoes="" src="https://m.media-amazon.com/images/I/51w4YJj1nmL._SL500_.jpg" stain="" washable="" welcome="" wet="" x36"=""/></a>
 
 
 The **BEQHAUSE Dirt Trapper Door Mat 24"x36"** is ideal for homeowners and pet owners who want to keep their entryways clean and dry. If you frequently deal with **muddy, wet shoes** or paws, this **non-slip, stain-resistant doormat** offers a practical solution to maintain a tidy home environment. It's perfect for both front and back doors, especially in high-traffic areas prone to dirt and moisture.
@@ -255,10 +255,10 @@ The **BEQHAUSE Dirt Trapper Door Mat** is designed with a low profile height of 
 
 Additionally, the mat’s **non-slip backing** provides excellent grip on various flooring types, enhancing safety for you and your guests. The **stain-resistant** surface makes it easy to clean and maintain, ensuring the mat retains its appearance and functionality over time. With its practical size and durable construction, this doormat serves as a reliable first line of defense against dirt and debris, helping to keep your living space clean and welcoming.
 
-## <a href="https://www.amazon.com/dp/B07RKLRGTV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
+## <a href="https://www.amazon.com/dp/B07RKLRGTV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Refetone Indoor Doormat</a>
 
 
-<a href="https://www.amazon.com/dp/B07RKLRGTV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Door Mat 24" back="" backing="" camel"="" dirt="" dogs,="" door="" entryway,="" floor="" for="" inside="" low-profile="" mat="" mats,="" mud="" non="" resist="" rubber="" rugs="" slip="" src="https://m.media-amazon.com/images/I/51SEyq1vrfL._SL500_.jpg" washable="" x36"=""/></a>
+<a href="https://www.amazon.com/dp/B07RKLRGTV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img absorbent="" alt="REFETONE Indoor Doormat, Front Door Mat 24" back="" backing="" camel"="" dirt="" dogs,="" door="" entryway,="" floor="" for="" inside="" low-profile="" mat="" mats,="" mud="" non="" resist="" rubber="" rugs="" slip="" src="https://m.media-amazon.com/images/I/51SEyq1vrfL._SL500_.jpg" washable="" x36"=""/></a>
 
 
 The **REFETONE Indoor Doormat** is ideal for homeowners and pet owners looking for a durable, absorbent, and low-profile floor mat that effectively traps dirt and mud. If you want a **non-slip**, **washable** doormat that fits perfectly in your entryway or back door, this 24"x36" mat is designed to meet your needs, especially in high-traffic areas where cleanliness and safety are priorities.

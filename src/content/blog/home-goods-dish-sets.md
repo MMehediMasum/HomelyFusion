@@ -23,10 +23,10 @@ Colors range from classic white to soft teal and assorted shades, fitting any ki
 
 
 
-## <a href="https://www.amazon.com/dp/B075ZX9G4H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Rockaway Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B075ZX9G4H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Rockaway Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B075ZX9G4H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Rockaway 12-Piece Dinnerware Set Service for 4, Grey Matte -" src="https://m.media-amazon.com/images/I/31+uluFQpqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075ZX9G4H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Rockaway 12-Piece Dinnerware Set Service for 4, Grey Matte -" src="https://m.media-amazon.com/images/I/31+uluFQpqL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Rockaway 12-Piece Dinnerware Set** in **Matte Grey** is ideal for individuals or families looking to elevate their dining experience with a stylish yet functional set. Perfect for those who appreciate modern design and need a durable, everyday dinnerware solution that serves up to four people. If you want a cohesive and elegant look for your tableware without compromising on practicality, this set is a great choice.
@@ -49,12 +49,12 @@ The **Gibson Home Rockaway 12-Piece Dinnerware Set** boasts a sleek and modern d
 
 Beyond its looks, the set is designed for practicality and ease of use. Manufactured by **Gibson Overseas Inc.**, it reflects quality craftsmanship. The weight of the set provides a solid feel that prevents tipping or sliding during use. This dinnerware is dishwasher-safe, making cleanup hassle-free for busy households. Overall, this set offers an excellent balance of style, durability, and convenience, ideal for those who want to enjoy their meals with a touch of elegance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B075ZX9G4H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B075ZX9G4H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B019EEUQ2O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Kitchen Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B019EEUQ2O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Kitchen Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B019EEUQ2O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Kitchen Dinnerware Set, Microwave and Dishwasher Safe, Plates, Bowls, Service for 6, 18-Piece, White" src="https://m.media-amazon.com/images/I/31cGgQa1F9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019EEUQ2O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Kitchen Dinnerware Set, Microwave and Dishwasher Safe, Plates, Bowls, Service for 6, 18-Piece, White" src="https://m.media-amazon.com/images/I/31cGgQa1F9L._SL500_.jpg"/></a>
 
 
 The **Amazon Basics Kitchen Dinnerware Set** is ideal for individuals or families looking for a reliable, stylish, and affordable dinnerware solution. Whether you are setting up a new home, replacing old dishes, or need an 18-piece service for six people, this set offers great versatility. It is perfect for those who value convenience, as it is designed to be both **microwave** and **dishwasher safe**, making everyday use and cleanup hassle-free.
@@ -76,12 +76,12 @@ The **Amazon Basics Kitchen Dinnerware Set** combines practicality with minimali
 
 Additionally, the comprehensive 18-piece collection covers all basic dining needs for six people, including plates and bowls, making it a complete solution for meals and gatherings. Its manageable size and straightforward design make it an excellent choice for both everyday use and special occasions, offering great value and functionality from a trusted brand like **Amazon Basics**.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B019EEUQ2O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B019EEUQ2O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B018AD45CM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffet Porcelain Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B018AD45CM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffet Porcelain Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B018AD45CM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffet Porcelain Dinnerware Set, Service for 6 (30pcs), White (Coupe)" src="https://m.media-amazon.com/images/I/31lVN63V3pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B018AD45CM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffet Porcelain Dinnerware Set, Service for 6 (30pcs), White (Coupe)" src="https://m.media-amazon.com/images/I/31lVN63V3pL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Zen Buffet Porcelain Dinnerware Set** is ideal for families or individuals who appreciate elegant, durable, and versatile dinnerware. Perfect for those who frequently host dinners or want a reliable and stylish set for everyday use, this **30-piece service for 6** combines practicality with a modern aesthetic, making it suitable for both casual meals and special occasions.
@@ -103,12 +103,12 @@ The **Gibson Home Zen Buffet Porcelain Dinnerware Set** features a sleek white f
 
 Additionally, the set includes all the essential pieces needed for a complete dining experience for six people, such as dinner plates, salad plates, and bowls. This comprehensive collection simplifies meal preparation and presentation. The practical dimensions and lightweight design allow for easy storage and handling, while the dishwasher and microwave-safe features add convenience to daily use, making it a smart investment for anyone seeking style and functionality in their dinnerware.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B018AD45CM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B018AD45CM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0721BDCCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffetware Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B0721BDCCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffetware Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0721BDCCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffetware 39 Piece Dinnerware Set , White" src="https://m.media-amazon.com/images/I/31wrH+LkttL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0721BDCCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffetware 39 Piece Dinnerware Set , White" src="https://m.media-amazon.com/images/I/31wrH+LkttL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Zen Buffetware 39 Piece Dinnerware Set** in **White** is ideal for families or individuals who appreciate elegant yet functional dinnerware that can accommodate daily meals as well as special gatherings. This set is perfect for those looking to enhance their dining experience with a complete collection that offers versatility and style.
@@ -131,12 +131,12 @@ The **Gibson Home Zen Buffetware 39 Piece Dinnerware Set** offers a comprehensiv
 
 Beyond aesthetics, the set’s size and variety of pieces cater well to those who host gatherings or have larger families, ensuring that everyone can be served with matching dinnerware. The lightweight yet sturdy construction makes the set manageable for everyday use without compromising durability. Overall, this dinnerware set combines functionality with a timeless look, making it a smart investment for anyone seeking a dependable and elegant dining collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0721BDCCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0721BDCCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B072NHMG4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pfaltzgraff Trellis White 16-piece Stoneware Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B072NHMG4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pfaltzgraff Trellis White 16-piece Stoneware Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B072NHMG4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pfaltzgraff Trellis White 16-Piece Stoneware Dinnerware Set, Service for 4, Distressed White Finish, Microwave &amp; Dishwasher Safe Plates and Bowls" src="https://m.media-amazon.com/images/I/41NBVkbiBUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072NHMG4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pfaltzgraff Trellis White 16-Piece Stoneware Dinnerware Set, Service for 4, Distressed White Finish, Microwave &amp; Dishwasher Safe Plates and Bowls" src="https://m.media-amazon.com/images/I/41NBVkbiBUL._SL500_.jpg"/></a>
 
 
 The **Pfaltzgraff Trellis White 16-Piece Stoneware Dinnerware Set** is ideal for individuals or families who appreciate a classic yet rustic aesthetic in their dining ware. Perfect for those who want a durable and stylish set that serves **four people** and fits both everyday use and special occasions. If you value convenience alongside elegance, especially with features like being **microwave and dishwasher safe**, this set is a great choice.
@@ -159,12 +159,12 @@ The **Pfaltzgraff Trellis White 16-Piece Stoneware Dinnerware Set** combines aes
 
 Each piece in this set is thoughtfully sized to provide ample space for meals without overwhelming your dining table. With service for four, it’s perfect for small families or intimate gatherings. The stoneware’s heat retention helps keep food warm longer, while the dishwasher-safe feature saves time on cleanup. Overall, this dinnerware set offers a balanced blend of style, durability, and convenience suited for everyday dining as well as special occasions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B072NHMG4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B072NHMG4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01MG8TU5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Vibes Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B01MG8TU5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Vibes Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B01MG8TU5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Vibes Dinnerware Set, Service for 4 (12pcs), Assorted Colors" src="https://m.media-amazon.com/images/I/41fU4tJv+EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MG8TU5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Vibes Dinnerware Set, Service for 4 (12pcs), Assorted Colors" src="https://m.media-amazon.com/images/I/41fU4tJv+EL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Vibes Dinnerware Set, Service for 4 (12pcs), Assorted Colors** is ideal for individuals or families who want a vibrant and durable dinnerware collection that adds a pop of color to their dining experience. Perfect for those who appreciate a mix of style and functionality, this set is suitable for everyday use as well as casual gatherings. If you’re looking to refresh your table setting with easy-to-clean and colorful plates and bowls, this set is an excellent choice.
@@ -186,12 +186,12 @@ The **Gibson Home Vibes Dinnerware Set** features a vibrant assortment of colors
 
 Beyond aesthetics, the set’s dimensions and weight have been optimized to offer ease of handling while maintaining durability. This makes it a smart choice for households seeking functional dinnerware that balances style with everyday practicality. Whether hosting casual dinners or enjoying family meals, the **Gibson Home Vibes Dinnerware Set** delivers a colorful, reliable solution for your dining needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01MG8TU5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01MG8TU5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09TGCVNNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Oslo Porcelain Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B09TGCVNNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Oslo Porcelain Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09TGCVNNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Oslo Porcelain Chip and Scratch Resistant Dinnerware Set, Service for 4 (16pcs), Plates and Bowls Dishes Sets, White" src="https://m.media-amazon.com/images/I/31ztWk4XpZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TGCVNNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Oslo Porcelain Chip and Scratch Resistant Dinnerware Set, Service for 4 (16pcs), Plates and Bowls Dishes Sets, White" src="https://m.media-amazon.com/images/I/31ztWk4XpZL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Oslo Porcelain Chip and Scratch Resistant Dinnerware Set** is ideal for individuals or families seeking a durable, elegant, and practical dinnerware solution. This set is perfect for those who value both style and longevity in their kitchenware, especially people who frequently host dinners or want a reliable everyday set that withstands daily use without showing signs of wear.
@@ -214,12 +214,12 @@ The **Gibson Home Oslo Porcelain Dinnerware Set** features a robust construction
 
 Additionally, the 16-piece set includes essential plates and bowls for four people, making it convenient for small families or intimate dinners. The porcelain material offers a smooth finish that is both attractive and easy to clean, enhancing the overall dining experience. With its premium weight and craftsmanship by Gibson Overseas, Inc, this set brings both functionality and sophistication to your dining table.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09TGCVNNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09TGCVNNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0716RM3VF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Elite Soho Lounge Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B0716RM3VF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Elite Soho Lounge Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0716RM3VF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Elite Soho Lounge 16 Piece Reactive Glaze Dinnerware Set, Soft Square, Teal Green, Service for 4 (16pc)" src="https://m.media-amazon.com/images/I/31Qv86VAtrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0716RM3VF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Elite Soho Lounge 16 Piece Reactive Glaze Dinnerware Set, Soft Square, Teal Green, Service for 4 (16pc)" src="https://m.media-amazon.com/images/I/31Qv86VAtrL._SL500_.jpg"/></a>
 
 
 The **Gibson Elite Soho Lounge 16 Piece Reactive Glaze Dinnerware Set** in **Soft Square Teal Green** is perfect for individuals or families looking to elevate their dining experience with stylish and durable tableware. Ideal for those who appreciate modern design combined with practicality, this set is especially suited for people who entertain guests regularly or want a cohesive, attractive dinnerware collection for everyday use.
@@ -241,12 +241,12 @@ The **Gibson Elite Soho Lounge Dinnerware Set** stands out with its unique **rea
 
 Each piece in the 16-piece collection is designed with functionality in mind. The soft square shape not only offers a modern aesthetic but also provides ample surface area for plating your meals. Additionally, the set's microwave and dishwasher-safe features enhance usability, allowing users to reheat food and clean up effortlessly. Overall, this dinnerware set combines form and function, making it an excellent investment for anyone seeking a reliable and attractive tableware option.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0716RM3VF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0716RM3VF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">36pcs Reusable Wheat Straw Dinnerware Sets</a>
+## <a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">36pcs Reusable Wheat Straw Dinnerware Sets</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="36pcs Reusable Wheat Straw Dinnerware Sets,Unbreakable Dinnerware Cups Plates and Bowls Sets,Durable Kitchenware Dishes Set for Home, Office, Travel,Picnic" src="https://m.media-amazon.com/images/I/31Z-Xz4LuCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="36pcs Reusable Wheat Straw Dinnerware Sets,Unbreakable Dinnerware Cups Plates and Bowls Sets,Durable Kitchenware Dishes Set for Home, Office, Travel,Picnic" src="https://m.media-amazon.com/images/I/31Z-Xz4LuCL._SL500_.jpg"/></a>
 
 
 The **36pcs Reusable Wheat Straw Dinnerware Set** is ideal for eco-conscious individuals and families who seek durable, sustainable alternatives to traditional plastic dinnerware. Perfect for those who enjoy outdoor activities like picnics, travel enthusiasts, or anyone looking to upgrade their home or office kitchenware with stylish yet unbreakable dishes. This set caters especially well to people who value both functionality and environmental responsibility.
@@ -270,12 +270,12 @@ The **36pcs Wheat Straw Dinnerware Set** combines sustainability with practicali
 
 Crafted by **Nuxaoisgel**, this durable kitchenware set not only reduces plastic waste but also adds a natural aesthetic to your dining experience with its subtle cream color. The set’s lightweight construction at just 2.1 pounds makes it highly portable, supporting users who need reliable and reusable dishes on the go. Whether at home or on an adventure, this dinnerware set delivers convenience, style, and environmental consciousness all in one package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F1YCGPD7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B018AD45CC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffet Porcelain Dinnerware Set</a>
+## <a href="https://www.amazon.com/dp/B018AD45CC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Home Zen Buffet Porcelain Dinnerware Set</a>
 
 
-<a href="https://www.amazon.com/dp/B018AD45CC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffet Porcelain Chip and Scratch Resistant Dinnerware Plates, Bowls, and Mugs Set, Service for 4 (16pcs), White (Square Dishes)" src="https://m.media-amazon.com/images/I/31+OCA1xSTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B018AD45CC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Home Zen Buffet Porcelain Chip and Scratch Resistant Dinnerware Plates, Bowls, and Mugs Set, Service for 4 (16pcs), White (Square Dishes)" src="https://m.media-amazon.com/images/I/31+OCA1xSTL._SL500_.jpg"/></a>
 
 
 The **Gibson Home Zen Buffet Porcelain Chip and Scratch Resistant Dinnerware Set** is ideal for individuals or families seeking a durable and stylish dining solution. Perfect for those who value both aesthetics and practicality, this set is especially suited for busy households, casual entertainers, or anyone looking to upgrade their everyday tableware with elegant, functional pieces.
@@ -297,7 +297,7 @@ The **Gibson Home Zen Buffet Dinnerware Set** combines functionality with contem
 
 Beyond its visual appeal, the set's practical features make it highly user-friendly. The dishes are safe for use in the microwave, oven, and dishwasher, streamlining meal preparation and cleanup. Its solid construction and balanced weight offer stability and comfort during use, while the generous dimensions ensure ample serving space. Overall, this dinnerware set offers a perfect blend of durability, style, and convenience for everyday dining.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B018AD45CC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B018AD45CC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

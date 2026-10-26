@@ -22,10 +22,10 @@ These fixtures provide durability and elegance. For a classic touch, the Aged Ir
 
 
 
-## <a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Darkaway Outdoor Sconce Lights Wall Light Fixtures</a>
+## <a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Darkaway Outdoor Sconce Lights Wall Light Fixtures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Darkaway Outdoor Sconce Lights Wall Light Fixtures, Exterior Porch Light Outdoor Sconce Anti-Rust Waterproof Aluminum Outside Light with Water Ripple Glass for Patio Yard Doorway Garage" src="https://m.media-amazon.com/images/I/41PBJT4E2JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Darkaway Outdoor Sconce Lights Wall Light Fixtures, Exterior Porch Light Outdoor Sconce Anti-Rust Waterproof Aluminum Outside Light with Water Ripple Glass for Patio Yard Doorway Garage" src="https://m.media-amazon.com/images/I/41PBJT4E2JL._SL500_.jpg"/></a>
 
 
 The **Darkaway Outdoor Sconce Lights** are ideal for homeowners and renters looking to enhance the exterior aesthetics and security of their outdoor spaces. If you want a durable, stylish, and functional lighting solution for your **patio**, **yard**, **doorway**, or **garage**, this product is an excellent choice. It is particularly suited for those who value weather-resistant and rust-proof materials in their outdoor fixtures.
@@ -48,12 +48,12 @@ The **Darkaway Outdoor Sconce Lights** feature a robust **aluminum construction*
 
 With practical dimensions, this wall light fixture fits well in smaller spaces such as porches and entryways while still providing sufficient illumination to enhance safety and security around your home. The **easy installation** process means you can quickly upgrade your outdoor lighting without professional help. Overall, the Darkaway sconce balances style, durability, and functionality, making it a valuable addition to your outdoor lighting collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D69ZNQ8B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00N0MRDPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Aged Iron Outdoor Led Wall Lantern</a>
+## <a href="https://www.amazon.com/dp/B00N0MRDPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Aged Iron Outdoor Led Wall Lantern</a>
 
 
-<a href="https://www.amazon.com/dp/B00N0MRDPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Aged Iron Outdoor LED Wall Lantern" src="https://m.media-amazon.com/images/I/31npIE8X-fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00N0MRDPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Aged Iron Outdoor LED Wall Lantern" src="https://m.media-amazon.com/images/I/31npIE8X-fL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Aged Iron Outdoor LED Wall Lantern** is ideal for homeowners and outdoor enthusiasts looking to enhance their exterior spaces with durable, stylish, and energy-efficient lighting. Perfect for those who value both aesthetic appeal and functionality, this lantern suits anyone wanting to illuminate patios, porches, or garden areas with a classic yet modern touch.
@@ -76,12 +76,12 @@ The **Aged Iron Outdoor LED Wall Lantern** combines a durable metal frame with a
 
 Measuring 16 inches in height and weighing just over 5 pounds, this lantern is easy to mount on exterior walls without requiring heavy-duty fixtures. The thoughtful design by **Cordelia Lighting** under the **Home Decorators Collection** brand guarantees a quality product that meets both aesthetic and functional needs. This makes it an excellent investment for anyone looking to upgrade their outdoor lighting with a product that offers style, durability, and energy savings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00N0MRDPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00N0MRDPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C7241MLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Micsiu Oil Rubbed Bronze Outdoor Wall Light Fixtures</a>
+## <a href="https://www.amazon.com/dp/B0C7241MLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Micsiu Oil Rubbed Bronze Outdoor Wall Light Fixtures</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7241MLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MICSIU Oil Rubbed Bronze Outdoor Wall Light Fixtures, Clear Seedy Glass Exterior Porch Sconces Wall Mounted Lighting, 13.75 Inch Exterior Light for House, Entryway, Doorway, Pathway" src="https://m.media-amazon.com/images/I/41AHZqIlslL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7241MLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MICSIU Oil Rubbed Bronze Outdoor Wall Light Fixtures, Clear Seedy Glass Exterior Porch Sconces Wall Mounted Lighting, 13.75 Inch Exterior Light for House, Entryway, Doorway, Pathway" src="https://m.media-amazon.com/images/I/41AHZqIlslL._SL500_.jpg"/></a>
 
 
 The **MICSIU Oil Rubbed Bronze Outdoor Wall Light Fixtures** are ideal for homeowners looking to enhance the aesthetic and functionality of their exterior spaces. Perfect for those who want stylish yet durable lighting solutions for their **porch, entryway, doorway, or pathway**, this fixture suits individuals who value both design and outdoor security. If you are seeking a weather-resistant, elegant lighting fixture with a classic bronze finish and clear seedy glass, this product is a great fit.
@@ -104,12 +104,12 @@ The **MICSIU Outdoor Wall Light Fixture** features a robust design with a beauti
 
 Measuring 13.75 inches in height, this fixture provides ample illumination without overpowering the space. It is versatile enough to be used on porches, doorways, and pathways, improving both safety and curb appeal. The combination of style, durability, and functionality makes the MICSIU wall light an excellent addition to any home looking to elevate their outdoor lighting scheme.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C7241MLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C7241MLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00OHEV49Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Metero Home Decorators Collection Outdoor Led Sconce</a>
+## <a href="https://www.amazon.com/dp/B00OHEV49Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Metero Home Decorators Collection Outdoor Led Sconce</a>
 
 
-<a href="https://www.amazon.com/dp/B00OHEV49Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="METERO Home Decorators Collection Brushed Nickel Outdoor LED Sconce" src="https://m.media-amazon.com/images/I/11lZ1pm1hyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OHEV49Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="METERO Home Decorators Collection Brushed Nickel Outdoor LED Sconce" src="https://m.media-amazon.com/images/I/11lZ1pm1hyL._SL500_.jpg"/></a>
 
 
 The **METERO Home Decorators Collection Brushed Nickel Outdoor LED Sconce** is ideal for homeowners and decorators looking to enhance their exterior spaces with stylish, energy-efficient lighting. If you want a durable and modern lighting solution that complements a variety of outdoor designs, this LED sconce is perfect for you. It’s especially suited for those who prioritize both aesthetics and functionality in their outdoor lighting choices.
@@ -131,12 +131,12 @@ The **METERO Home Decorators Collection Brushed Nickel Outdoor LED Sconce** comb
 
 Thanks to its compact size and lightweight build, this sconce is easy to install in a variety of outdoor settings, from patios and porches to garden pathways. The efficient lighting output not only enhances safety by illuminating dark areas but also adds a welcoming aesthetic to your outdoor decor. Whether you want to highlight architectural features or simply brighten your outdoor living space, this sconce offers a perfect blend of style and function.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00OHEV49Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00OHEV49Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D12L2LZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ipstank Outdoor Patio Lights</a>
+## <a href="https://www.amazon.com/dp/B0D12L2LZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ipstank Outdoor Patio Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0D12L2LZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="IPStank Outdoor Patio Lights Color Changing, 35FT RGB LED String Lights with 16 E26 Shatterproof Edison Bulbs, Dimmable Patio String Lights for Bistro Backyard Garden, 1 Remote Controllers" src="https://m.media-amazon.com/images/I/41umq4bdLZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D12L2LZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="IPStank Outdoor Patio Lights Color Changing, 35FT RGB LED String Lights with 16 E26 Shatterproof Edison Bulbs, Dimmable Patio String Lights for Bistro Backyard Garden, 1 Remote Controllers" src="https://m.media-amazon.com/images/I/41umq4bdLZL._SL500_.jpg"/></a>
 
 
 The **IPStank Outdoor Patio Lights Color Changing** are perfect for homeowners and outdoor enthusiasts looking to elevate their backyard, garden, or patio ambiance. Ideal for those who want versatile and vibrant lighting solutions, these **35FT RGB LED string lights** with **16 E26 shatterproof Edison bulbs** offer both durability and style, making them an excellent choice for parties, bistro settings, or cozy outdoor evenings.
@@ -159,12 +159,12 @@ The **IPStank Outdoor Patio Lights** stand out due to their vibrant **multicolor
 
 With a generous length of **35 feet**, these string lights can illuminate large outdoor areas, creating a warm and inviting atmosphere. Their compatibility with standard **E26 sockets** makes installation hassle-free, while the dimmable function offers flexibility in setting the perfect ambiance. Whether enhancing a backyard garden or decorating a bistro patio, these lights combine style, functionality, and ease of use for an enhanced outdoor experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D12L2LZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D12L2LZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Aged Iron Outdoor Led Wall Lantern</a>
+## <a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Aged Iron Outdoor Led Wall Lantern</a>
 
 
-<a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Aged Iron Outdoor LED Wall Lantern" src="https://m.media-amazon.com/images/I/414K83Wna2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Aged Iron Outdoor LED Wall Lantern" src="https://m.media-amazon.com/images/I/414K83Wna2L._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Aged Iron Outdoor LED Wall Lantern** is ideal for homeowners and outdoor enthusiasts seeking a stylish yet functional lighting solution for their exterior spaces. Perfect for those who want to enhance their porch, patio, or garden with a durable and elegant light fixture, this lantern combines classic design with modern LED technology to provide both ambiance and security.
@@ -187,12 +187,12 @@ The **Home Decorators Collection Aged Iron Outdoor LED Wall Lantern** features a
 
 Beyond aesthetics, this lantern enhances safety by illuminating entryways and walkways, helping to prevent accidents during nighttime. Its lightweight and easy-to-install design means homeowners can quickly upgrade their outdoor lighting without professional help. Overall, this lantern balances durability, style, and functionality, making it an excellent choice for those who want reliable outdoor lighting with a classic appeal.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00N0SBB3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01KNA71M6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mccarthy 1-light Bronze Outdoor Wall Mount</a>
+## <a href="https://www.amazon.com/dp/B01KNA71M6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mccarthy 1-light Bronze Outdoor Wall Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B01KNA71M6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection McCarthy 1-Light Bronze Outdoor Wall Mount" src="https://m.media-amazon.com/images/I/41AIZF4KRBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01KNA71M6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection McCarthy 1-Light Bronze Outdoor Wall Mount" src="https://m.media-amazon.com/images/I/41AIZF4KRBL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection McCarthy 1-Light Bronze Outdoor Wall Mount** is ideal for homeowners looking to enhance their exterior spaces with stylish and functional lighting. If you want a durable, elegant, and easy-to-install fixture that complements your outdoor décor, this product is a perfect choice. It suits anyone aiming to improve their home's curb appeal while ensuring adequate illumination for safety and ambiance.
@@ -215,12 +215,12 @@ The **McCarthy 1-Light Bronze Outdoor Wall Mount** features a sturdy constructio
 
 This outdoor wall mount provides a warm and inviting glow, enhancing nighttime visibility and safety around your home. The single-light design offers focused illumination, ideal for accent lighting or highlighting architectural features. Additionally, its aesthetic appeal contributes to the overall ambiance, elevating the charm and character of your outdoor living spaces.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01KNA71M6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01KNA71M6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BJD483RG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Outdoor/indoor 24 Ft. Smart Plug-in Bulb Rgbw Color Changing Led String Light</a>
+## <a href="https://www.amazon.com/dp/B0BJD483RG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Outdoor/indoor 24 Ft. Smart Plug-in Bulb Rgbw Color Changing Led String Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJD483RG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Outdoor/Indoor 24 ft. Smart Plug-in Bulb RGBW Color Changing LED String Light (12-Bulb)" src="https://m.media-amazon.com/images/I/41MFXfioHDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJD483RG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Outdoor/Indoor 24 ft. Smart Plug-in Bulb RGBW Color Changing LED String Light (12-Bulb)" src="https://m.media-amazon.com/images/I/41MFXfioHDL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Outdoor/Indoor 24 ft. Smart Plug-in Bulb RGBW Color Changing LED String Light** is ideal for homeowners and renters looking to enhance their living spaces with vibrant, customizable lighting. Perfect for those who enjoy outdoor gatherings, festive decorations, or adding a unique ambiance to indoor rooms, this product suits anyone seeking a versatile and smart lighting solution that blends technology with aesthetic appeal.
@@ -241,12 +241,12 @@ The **Home Decorators 24 ft. Smart Plug-in LED String Light** combines technolog
 
 Designed for both **outdoor and indoor use**, these string lights are crafted to withstand environmental factors while adding aesthetic charm. The 24-foot length with 12 bulbs provides ample coverage for patios, gardens, or indoor spaces, making it an excellent choice for decorating larger areas. Users benefit from the versatility and durability of the product, ensuring long-lasting enjoyment and easy adaptability to different settings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BJD483RG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BJD483RG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B077BSW42L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Ambience Pro Led String Lights</a>
+## <a href="https://www.amazon.com/dp/B077BSW42L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Ambience Pro Led String Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B077BSW42L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Ambience Pro LED String Lights - 24 Ft Commercial Grade Patio Lighting Outdoor Waterproof - 7 Heavy Duty Porch Lights for Outside, Christmas, Backyard - 1W Vintage Edison Bulbs, Dimmable" src="https://m.media-amazon.com/images/I/41XM3dL7cZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077BSW42L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Ambience Pro LED String Lights - 24 Ft Commercial Grade Patio Lighting Outdoor Waterproof - 7 Heavy Duty Porch Lights for Outside, Christmas, Backyard - 1W Vintage Edison Bulbs, Dimmable" src="https://m.media-amazon.com/images/I/41XM3dL7cZL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and outdoor enthusiasts looking to enhance their patio or backyard ambiance, the **Brightech Ambience Pro LED String Lights** offer a perfect blend of style and functionality. These lights are especially suited for those who want durable, commercial-grade lighting solutions that can withstand outdoor elements while providing a warm, inviting glow for gatherings or festive occasions.
@@ -269,12 +269,12 @@ The **Brightech Ambience Pro LED String Lights** boast a robust build with comme
 
 One of the standout features is the **dimmable functionality**, which allows users to adjust the brightness according to their mood or occasion. This versatility makes the lighting not only decorative but also practical for various settings, from festive Christmas décor to casual backyard hangouts. The **24-foot length** is ample enough to cover large areas, while the lightweight design ensures hassle-free installation and repositioning, making these string lights a user-friendly choice for outdoor lighting needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B077BSW42L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B077BSW42L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00NXL9G5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Port Oxford 1-light Outdoor Wall Lantern</a>
+## <a href="https://www.amazon.com/dp/B00NXL9G5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Port Oxford 1-light Outdoor Wall Lantern</a>
 
 
-<a href="https://www.amazon.com/dp/B00NXL9G5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Port Oxford 1-Light Outdoor Oil Rubbed Chestnut Wall Lantern" src="https://m.media-amazon.com/images/I/517b4XRLLYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NXL9G5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Port Oxford 1-Light Outdoor Oil Rubbed Chestnut Wall Lantern" src="https://m.media-amazon.com/images/I/517b4XRLLYL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Port Oxford 1-Light Outdoor Oil Rubbed Chestnut Wall Lantern** is ideal for homeowners looking to enhance their outdoor spaces with a stylish yet functional lighting fixture. Perfect for those who appreciate a blend of classic design and modern durability, this lantern suits anyone aiming to add a warm, inviting glow to porches, patios, or entryways. If you want an easy-to-install lantern that balances aesthetics and performance, this product is a great choice.
@@ -297,7 +297,7 @@ Featuring a sturdy build by the **Home Decorators Collection**, this wall lanter
 
 This lantern's single-light setup creates a warm and inviting ambiance, perfect for welcoming guests or enhancing evening outdoor activities. Additionally, its lightweight structure makes installation hassle-free, saving time and effort. Overall, the **Port Oxford 1-Light Outdoor Wall Lantern** combines practical lighting with elegant design, making it a valuable addition to any outdoor living area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00NXL9G5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00NXL9G5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

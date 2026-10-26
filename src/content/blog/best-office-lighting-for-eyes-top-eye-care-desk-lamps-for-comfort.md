@@ -23,10 +23,10 @@ The Ceramic Mini LED Table Lamp adds a cozy touch with soft light, perfect for b
 
 
 
-## <a href="https://www.amazon.com/dp/B0FJSF231G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eye Care Reading Light</a>
+## <a href="https://www.amazon.com/dp/B0FJSF231G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eye Care Reading Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJSF231G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Eye Care Reading Light with Natural Light Mode Dual Monitor Desk Lamp for Gaming Space(A-45X29CM)" src="https://m.media-amazon.com/images/I/21Kln343UxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJSF231G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Eye Care Reading Light with Natural Light Mode Dual Monitor Desk Lamp for Gaming Space(A-45X29CM)" src="https://m.media-amazon.com/images/I/21Kln343UxL._SL500_.jpg"/></a>
 
 
 The **Eye Care Reading Light with Natural Light Mode Dual Monitor Desk Lamp for Gaming Space (A-45X29CM)** is ideal for individuals who spend long hours reading, working at a desk, or gaming. If you are someone who values eye comfort and needs a reliable lighting solution that reduces eye strain, this lamp is designed to meet your needs. It is perfect for students, professionals, gamers, and anyone seeking an ergonomic lighting setup.
@@ -48,10 +48,10 @@ This **desk lamp** is thoughtfully engineered to provide **eye care** through it
 
 Users benefit from an ergonomic lighting solution that enhances focus and reduces headaches caused by poor lighting. The lamp's straightforward design and reliable build from the **Generic** brand, manufactured by **zl**, make it a practical and long-lasting choice for anyone looking to improve their workspace lighting.
 
-## <a href="https://www.amazon.com/dp/B0FMKGKG4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ceramic Mini Led Table Lamp Cottage</a>
+## <a href="https://www.amazon.com/dp/B0FMKGKG4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ceramic Mini Led Table Lamp Cottage</a>
 
 
-<a href="https://www.amazon.com/dp/B0FMKGKG4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ceramic Mini LED Table Lamp Cottage,Transitional for Bedroom, Living Room, Office, College Dorm, Coffee Table, Bookcase, Blue/White(A-D54xD33CM)" src="https://m.media-amazon.com/images/I/21hRsHBOXpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FMKGKG4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ceramic Mini LED Table Lamp Cottage,Transitional for Bedroom, Living Room, Office, College Dorm, Coffee Table, Bookcase, Blue/White(A-D54xD33CM)" src="https://m.media-amazon.com/images/I/21hRsHBOXpL._SL500_.jpg"/></a>
 
 
 The **Ceramic Mini LED Table Lamp Cottage** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom, living room, office, college dorm, coffee table,** or **bookcase**. Perfect for those who appreciate a blend of **transitional design** and compact size, this lamp caters to customers who want to enhance their space with a subtle pop of **blue and white** while benefiting from efficient LED illumination.
@@ -74,10 +74,10 @@ The **Ceramic Mini LED Table Lamp** features a compact and elegant ceramic body 
 
 Thanks to its small footprint, the lamp can easily be placed on coffee tables, bookcases, or dorm desks without cluttering the space. The combination of **blue and white colors** introduces a refreshing aesthetic that can brighten up any area. Moreover, the lamp’s durable ceramic build guarantees lasting use while maintaining a charming, cottage-inspired look that appeals to those who value both style and practicality in their lighting choices.
 
-## <a href="https://www.amazon.com/dp/B0FMKNLCZ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ginger Jar Ceramic/metal Led Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0FMKNLCZ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ginger Jar Ceramic/metal Led Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0FMKNLCZ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ginger Jar Ceramic/Metal LED Table Lamp Traditional Bedside Desk Nightstand for Bedroom Living Room Office College Bookcase LED Bulb Included/Ceramic table lamp(A-H69xD40CM)" src="https://m.media-amazon.com/images/I/31RR-aoNGfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FMKNLCZ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ginger Jar Ceramic/Metal LED Table Lamp Traditional Bedside Desk Nightstand for Bedroom Living Room Office College Bookcase LED Bulb Included/Ceramic table lamp(A-H69xD40CM)" src="https://m.media-amazon.com/images/I/31RR-aoNGfL._SL500_.jpg"/></a>
 
 
 The **Ginger Jar Ceramic/Metal LED Table Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **bedroom**, **living room**, **office**, or **college bookcase**. This lamp is perfect for those who appreciate traditional design with modern LED technology, making it an excellent choice for anyone wanting to add warmth and elegance to their space while benefiting from energy-efficient lighting.

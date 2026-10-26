@@ -20,10 +20,10 @@ Others come with removable, washable covers for easy cleaning. Whether you want 
 
 
 
-## <a href="https://www.amazon.com/dp/B0BM7K4M8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vcomsoft Recliner Headrest Pillow</a>
+## <a href="https://www.amazon.com/dp/B0BM7K4M8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vcomsoft Recliner Headrest Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B0BM7K4M8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VCOMSOFT Recliner Headrest Pillow, Head Pillow for Sofa, Recliner Neck Pillow, Bone Couch Neck Pillow for Pain Relieve(Grey)" src="https://m.media-amazon.com/images/I/5125gJB-ckL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BM7K4M8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VCOMSOFT Recliner Headrest Pillow, Head Pillow for Sofa, Recliner Neck Pillow, Bone Couch Neck Pillow for Pain Relieve(Grey)" src="https://m.media-amazon.com/images/I/5125gJB-ckL._SL500_.jpg"/></a>
 
 
 The **VCOMSOFT Recliner Headrest Pillow** is ideal for individuals who spend extended periods sitting on a sofa or recliner and seek effective neck and head support. This product is especially beneficial for those suffering from neck pain or discomfort, providing relief through ergonomic design. If you want to enhance your relaxation experience and reduce strain on your cervical spine, this **head pillow** is a perfect choice.
@@ -45,10 +45,10 @@ The **VCOMSOFT Recliner Headrest Pillow** features a smartly crafted design with
 
 Beyond aesthetics, the pillow’s ergonomic shape helps alleviate neck tension by maintaining proper alignment of the cervical spine. This can significantly reduce the risk of stiffness or soreness after long hours of sitting. Whether you are watching TV, reading, or simply resting, this head pillow enhances comfort and promotes healthier posture for a more enjoyable and pain-free experience.
 
-## <a href="https://www.amazon.com/dp/B0BXY1TWDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amazecov Adjustable Headrest Pillow For Recliners And Armchairs</a>
+## <a href="https://www.amazon.com/dp/B0BXY1TWDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amazecov Adjustable Headrest Pillow For Recliners And Armchairs</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXY1TWDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AmazeCov Adjustable Headrest Pillow for Recliners and Armchairs - Non-Slip Velvet Cushion for Neck Support and Pain Relief (Gray)" src="https://m.media-amazon.com/images/I/41GYH2wMkML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXY1TWDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AmazeCov Adjustable Headrest Pillow for Recliners and Armchairs - Non-Slip Velvet Cushion for Neck Support and Pain Relief (Gray)" src="https://m.media-amazon.com/images/I/41GYH2wMkML._SL500_.jpg"/></a>
 
 
 The **AmazeCov Adjustable Headrest Pillow for Recliners and Armchairs** is ideal for anyone seeking enhanced **neck support** and **pain relief** while relaxing at home. Whether you spend long hours in a recliner or armchair due to work, leisure, or recovery, this **non-slip velvet cushion** is designed to provide superior comfort and ergonomic support. It is particularly beneficial for individuals experiencing neck stiffness, soreness, or those who want to improve their seating posture.
@@ -70,10 +70,10 @@ The **AmazeCov Adjustable Headrest Pillow** features a sleek and practical desig
 
 By incorporating this pillow into your recliner or armchair, you benefit from improved posture and reduced strain on your neck muscles. The adjustable feature allows for personalized positioning, catering to different body types and seating preferences. Overall, the **AmazeCov Adjustable Headrest Pillow** is a smart investment for anyone looking to enhance their comfort and reduce neck pain during seated activities.
 
-## <a href="https://www.amazon.com/dp/B007UQC98S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tempur-pedic All-purpose Memory Foam Travel Pillow</a>
+## <a href="https://www.amazon.com/dp/B007UQC98S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tempur-pedic All-purpose Memory Foam Travel Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B007UQC98S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tempur-Pedic All-Purpose Memory Foam Travel Pillow, Peanut-Shaped Lumbar Pillow for Neck and Back Pressure Relief, Navy" src="https://m.media-amazon.com/images/I/31rDy4LSgyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007UQC98S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tempur-Pedic All-Purpose Memory Foam Travel Pillow, Peanut-Shaped Lumbar Pillow for Neck and Back Pressure Relief, Navy" src="https://m.media-amazon.com/images/I/31rDy4LSgyL._SL500_.jpg"/></a>
 
 
 The **Tempur-Pedic All-Purpose Memory Foam Travel Pillow** is ideal for travelers and anyone seeking effective neck and back support on the go. Whether you frequently take flights, long car rides, or just need extra lumbar comfort at your office or home, this **peanut-shaped lumbar pillow** offers targeted pressure relief to enhance your comfort and reduce strain. Its compact size and ergonomic design make it perfect for those who prioritize both portability and therapeutic support.
@@ -96,10 +96,10 @@ The **Tempur-Pedic All-Purpose Memory Foam Travel Pillow** features premium memo
 
 Beyond its ergonomic benefits, this pillow is lightweight and compact, making it easy to carry in luggage or a backpack without adding bulk. The durable **navy-colored** cover not only adds a sleek look but also ensures longevity and easy cleaning. Overall, this travel pillow balances comfort, convenience, and therapeutic support, making it a valuable accessory for anyone looking to maintain spinal health and comfort while on the move.
 
-## <a href="https://www.amazon.com/dp/B01IEJHJWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dot¨ Twist Memory Foam Travel Pillow</a>
+## <a href="https://www.amazon.com/dp/B01IEJHJWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dot¨ Twist Memory Foam Travel Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B01IEJHJWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dot&amp;Dot Twist Memory Foam Travel Pillow for Airplanes - Travel Neck Pillow for Sleeping - Airplane Pillow for Neck Support, Chin, Lumbar and Leg - Adjustable, Bendable Neck Roll Pillow" src="https://m.media-amazon.com/images/I/41DzZuK+ViL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IEJHJWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dot&amp;Dot Twist Memory Foam Travel Pillow for Airplanes - Travel Neck Pillow for Sleeping - Airplane Pillow for Neck Support, Chin, Lumbar and Leg - Adjustable, Bendable Neck Roll Pillow" src="https://m.media-amazon.com/images/I/41DzZuK+ViL._SL500_.jpg"/></a>
 
 
 The **Dot¨ Twist Memory Foam Travel Pillow** is ideal for frequent flyers, commuters, and anyone who struggles to find comfort while sleeping on airplanes. This travel neck pillow is perfect for those seeking versatile support for their **neck, chin, lumbar,** and even **legs**, ensuring restful and pain-free travel experiences.
@@ -121,10 +121,10 @@ The **Dot¨ Twist Memory Foam Travel Pillow** features an innovative twistable d
 
 Additionally, the pillow’s versatility extends beyond neck support; it can be adjusted to provide lumbar or leg support, which enhances overall travel comfort. Its lightweight construction combined with a sleek **gray** design makes it easy to carry and stylish to use. Travelers who prioritize ergonomic comfort and multi-functional accessories will find this pillow an invaluable travel companion.
 
-## <a href="https://www.amazon.com/dp/B0D9ZWSKKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colingmill Neck Pillow For Recliner Headrest</a>
+## <a href="https://www.amazon.com/dp/B0D9ZWSKKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colingmill Neck Pillow For Recliner Headrest</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9ZWSKKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colingmill 1 Pc Neck Pillow for Recliner Headrest Pillow Bone Shaped Chair Plush with Adjustable Strap Neck Support and Pain Relief Curve Head Cushion for Car Travel Airplane (Grey)" src="https://m.media-amazon.com/images/I/51QQHUTsV2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9ZWSKKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colingmill 1 Pc Neck Pillow for Recliner Headrest Pillow Bone Shaped Chair Plush with Adjustable Strap Neck Support and Pain Relief Curve Head Cushion for Car Travel Airplane (Grey)" src="https://m.media-amazon.com/images/I/51QQHUTsV2L._SL500_.jpg"/></a>
 
 
 The **Colingmill 1 Pc Neck Pillow** is ideal for frequent travelers, office workers, and anyone who experiences neck discomfort during long periods of sitting. Whether you are on a **car trip**, an **airplane journey**, or relaxing in a recliner chair, this **bone-shaped plush pillow** provides essential support and pain relief, making it a must-have accessory for improved neck comfort.
@@ -147,10 +147,10 @@ The **Colingmill Neck Pillow** stands out with its thoughtful **bone-shaped curv
 
 Equipped with an **adjustable strap**, this neck pillow can be securely attached to various headrests, ensuring it stays in place without slipping. Its **compact size and lightweight design** make it easy to carry along on trips, providing users with consistent neck support and pain relief wherever they go.
 
-## <a href="https://www.amazon.com/dp/B0DMVTRW1Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ahuawa Recliner Headrest Pillow</a>
+## <a href="https://www.amazon.com/dp/B0DMVTRW1Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ahuawa Recliner Headrest Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMVTRW1Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AHUAWA Recliner Headrest Pillow, Adjustable Neck &amp; Head Support Pillow, Soft Velvet Non-Slip Headrest for Recliner, Couch, Chair, Sofa" src="https://m.media-amazon.com/images/I/417ThTi229L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMVTRW1Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AHUAWA Recliner Headrest Pillow, Adjustable Neck &amp; Head Support Pillow, Soft Velvet Non-Slip Headrest for Recliner, Couch, Chair, Sofa" src="https://m.media-amazon.com/images/I/417ThTi229L._SL500_.jpg"/></a>
 
 
 The **AHUAWA Recliner Headrest Pillow** is perfect for individuals seeking enhanced **neck and head support** while relaxing on a **recliner**, **couch**, **chair**, or **sofa**. If you spend extended periods sitting and want to alleviate strain or discomfort, this pillow is an ideal accessory to improve your comfort and posture.
@@ -172,10 +172,10 @@ The **AHUAWA Recliner Headrest Pillow** is thoughtfully designed with an **adjus
 
 Thanks to its **non-slip design**, this pillow stays firmly in place, preventing constant adjustments and ensuring consistent support. Its compatibility with a variety of furniture such as recliners, couches, chairs, and sofas makes it a versatile solution for anyone looking to enhance their relaxation experience.
 
-## <a href="https://www.amazon.com/dp/B0BN9S9ZJN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weysat Neck Head Pillow For Recliner Chair</a>
+## <a href="https://www.amazon.com/dp/B0BN9S9ZJN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weysat Neck Head Pillow For Recliner Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B0BN9S9ZJN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weysat Neck Head Pillow for Recliner Chair Non Slip Fleece Adjustable Neck Roll Support Headrest Pillow for Travel Home Office Recliner Couch Sofa Armchair(Camel)" src="https://m.media-amazon.com/images/I/51UfDUnVK0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BN9S9ZJN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weysat Neck Head Pillow for Recliner Chair Non Slip Fleece Adjustable Neck Roll Support Headrest Pillow for Travel Home Office Recliner Couch Sofa Armchair(Camel)" src="https://m.media-amazon.com/images/I/51UfDUnVK0L._SL500_.jpg"/></a>
 
 
 The **Weysat Neck Head Pillow for Recliner Chair** is ideal for individuals seeking enhanced comfort and neck support while relaxing in a recliner, whether at home, in the office, or during travel. It is especially suitable for those who experience neck strain or discomfort after extended periods of sitting and want a convenient, adjustable solution to improve their posture and relaxation experience.
@@ -197,10 +197,10 @@ Crafted with comfort and practicality in mind, the **Weysat Neck Head Pillow** f
 
 With its lightweight and compact design, this neck support pillow is also highly portable, making it a perfect companion for travel or office use. The stylish camel color adds a touch of elegance to any recliner chair or armchair, seamlessly blending with your existing furniture while delivering effective neck support. Whether you are unwinding after a long day or seeking relief during work breaks, the **Weysat Neck Head Pillow** is a versatile accessory that enhances comfort and well-being.
 
-## <a href="https://www.amazon.com/dp/B00DZKQLZ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wolf Essentials Adult Cozy Soft Microfiber Neck Pillow For Travel</a>
+## <a href="https://www.amazon.com/dp/B00DZKQLZ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wolf Essentials Adult Cozy Soft Microfiber Neck Pillow For Travel</a>
 
 
-<a href="https://www.amazon.com/dp/B00DZKQLZ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wolf Essentials Adult Cozy Soft Microfiber Neck Pillow for Travel – Compact, Machine Washable - Perfect for Airplane, Car, or Home Use - Filled and Finished in The USA – Charcoal" src="https://m.media-amazon.com/images/I/31jnIGrEC0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DZKQLZ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wolf Essentials Adult Cozy Soft Microfiber Neck Pillow for Travel – Compact, Machine Washable - Perfect for Airplane, Car, or Home Use - Filled and Finished in The USA – Charcoal" src="https://m.media-amazon.com/images/I/31jnIGrEC0L._SL500_.jpg"/></a>
 
 
 The **Wolf Essentials Adult Cozy Soft Microfiber Neck Pillow** is ideal for frequent travelers, commuters, and anyone seeking extra comfort during long journeys or relaxing at home. If you spend hours on airplanes, in cars, or simply want a supportive neck cushion for everyday use, this pillow offers a perfect blend of portability and plushness to meet your needs.
@@ -222,10 +222,10 @@ Featuring a plush **microfiber cover** and a compact size of 13.0 inches in heig
 
 The **machine washable** feature means you can keep your neck pillow fresh and clean with minimal effort, which is especially useful for frequent travelers. Additionally, being filled and finished in the USA reflects a commitment to quality and durability. Whether you’re using it on an airplane, in a car, or simply relaxing at home, this pillow offers a reliable way to enhance your comfort and support your neck throughout the day.
 
-## <a href="https://www.amazon.com/dp/B07GFRNVQZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Allsett Health Round Cervical Roll Cylinder Bolster Pillow</a>
+## <a href="https://www.amazon.com/dp/B07GFRNVQZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Allsett Health Round Cervical Roll Cylinder Bolster Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B07GFRNVQZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AllSett Health Round Cervical Roll Cylinder Bolster Pillow with Removable Washable Cover, Ergonomically Designed for Head, Neck, Back, and Legs, Grey" src="https://m.media-amazon.com/images/I/31TJ64KjEqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GFRNVQZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AllSett Health Round Cervical Roll Cylinder Bolster Pillow with Removable Washable Cover, Ergonomically Designed for Head, Neck, Back, and Legs, Grey" src="https://m.media-amazon.com/images/I/31TJ64KjEqL._SL500_.jpg"/></a>
 
 
 The **AllSett Health Round Cervical Roll Cylinder Bolster Pillow** is ideal for individuals seeking targeted support for their **head, neck, back, and legs**. Whether you suffer from chronic neck pain, need enhanced lumbar support, or want to improve your sleeping posture, this ergonomically designed pillow is perfect for anyone looking to enhance comfort and promote proper spinal alignment during rest or therapy sessions.
@@ -247,10 +247,10 @@ The **AllSett Health Cervical Roll Pillow** features a cylindrical bolster shape
 
 Additionally, the pillow comes with a **removable washable cover** made from soft, durable fabric that ensures cleanliness and longevity. This feature is particularly beneficial for users who prioritize hygiene and want to keep their pillow fresh without hassle. Overall, the AllSett Health Round Cervical Roll Cylinder Bolster Pillow offers a practical and effective solution for those aiming to enhance their comfort and support for head, neck, back, and legs, contributing to better sleep quality and physical well-being.
 
-## <a href="https://www.amazon.com/dp/B0F7LM7HSR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ahuawa Neck Pillow For Recliner Chair</a>
+## <a href="https://www.amazon.com/dp/B0F7LM7HSR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ahuawa Neck Pillow For Recliner Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7LM7HSR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img adjustable="" alt="AHUAWA Neck Pillow for Recliner Chair, 14" chair,="" couch,="" for="" head="" headrest,="" non-slip="" pillow="" recliner="" recliner,="" sofa"="" soft="" src="https://m.media-amazon.com/images/I/31bRbL+w2vL._SL500_.jpg" velvet=""/></a>
+<a href="https://www.amazon.com/dp/B0F7LM7HSR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img adjustable="" alt="AHUAWA Neck Pillow for Recliner Chair, 14" chair,="" couch,="" for="" head="" headrest,="" non-slip="" pillow="" recliner="" recliner,="" sofa"="" soft="" src="https://m.media-amazon.com/images/I/31bRbL+w2vL._SL500_.jpg" velvet=""/></a>
 
 
 The **AHUAWA Neck Pillow for Recliner Chair** is an excellent choice for individuals who spend long hours sitting on recliners, couches, or sofas and need extra neck support. Ideal for those seeking enhanced comfort and proper head alignment, this pillow is perfect for people dealing with neck strain or anyone who values relaxation and ergonomic support during leisure time.

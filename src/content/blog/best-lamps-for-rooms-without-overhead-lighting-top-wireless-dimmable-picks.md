@@ -23,10 +23,10 @@ Small table lamps make great bedside companions for reading or night use. Adjust
 
 
 
-## <a href="https://www.amazon.com/dp/B0DJS9L3C8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rechargeable Motion Sensor Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B0DJS9L3C8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rechargeable Motion Sensor Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJS9L3C8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rechargeable Motion Sensor Ceiling Light with Remote, Battery Operated Ceiling Light No Wiring, Wireless LED Ceiling Light, 3 Colors Dimmable Indoor Overhead Lamp for Closet Shower Pantry Shed Hallway" src="https://m.media-amazon.com/images/I/41SQ27LjBOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJS9L3C8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rechargeable Motion Sensor Ceiling Light with Remote, Battery Operated Ceiling Light No Wiring, Wireless LED Ceiling Light, 3 Colors Dimmable Indoor Overhead Lamp for Closet Shower Pantry Shed Hallway" src="https://m.media-amazon.com/images/I/41SQ27LjBOL._SL500_.jpg"/></a>
 
 
 The **Rechargeable Motion Sensor Ceiling Light with Remote** is perfect for homeowners and renters looking for an easy-to-install, wireless lighting solution. Ideal for those who need bright, efficient lighting in areas without existing wiring such as closets, pantries, hallways, or sheds, this light offers convenience and flexibility. If you want a hassle-free, battery-operated LED ceiling light with adjustable brightness and color settings, this product is designed for you.
@@ -49,10 +49,10 @@ This **Bairth** ceiling light features a sleek, modern design with a white finis
 
 The inclusion of a remote control allows users to toggle between three different color temperatures and adjust brightness levels to suit various needs—from bright white light for detailed tasks to softer hues for ambient lighting. This adaptability not only improves the user experience but also makes the light suitable for multiple indoor locations. Lightweight and compact, the lamp is easy to mount and maintain, providing reliable lighting without clutter or fuss.
 
-## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
+## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
 
 
 The **Modern Floor Lamp Simple Design with White Shade** is perfect for individuals seeking a stylish yet functional lighting solution for their **living room, bedroom, office, dining room, or kitchen**. Ideal customers include those who appreciate minimalistic design, want easy-to-use lighting controls like a **foot pedal switch**, and prefer a tall, sleek lamp that fits seamlessly into various interior styles.
@@ -76,10 +76,10 @@ The **Modern Floor Lamp** features a sleek black pole paired with a crisp white 
 
 Designed with versatility in mind, this lamp suits a variety of environments such as the **living room, bedroom, office, dining room, and kitchen**. Its minimalistic style blends well with modern and contemporary interiors, while the lightweight construction ensures it can be relocated effortlessly. Although the **bulb is not included**, this allows buyers to choose their preferred light intensity and color temperature to best suit their needs, providing a personalized lighting experience.
 
-## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Table Lamp For Bedroom</a>
+## <a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Table Lamp For Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074XPNS3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Table Lamp for Bedroom - Bedside Lamps for Nightstand, Minimalist Night Stand Light Lamp with Square Fabric Shade, Desk Reading Lamp for Kids Room Living Room Office Dorm" src="https://m.media-amazon.com/images/I/41D1iucvJ1L._SL500_.jpg"/></a>
 
 
 The **Small Table Lamp for Bedroom** is ideal for individuals seeking a compact yet stylish lighting solution for their bedside, nightstand, or desk. Whether you are a student in a dorm, a professional working from home, or a parent looking for a safe and functional lamp for your kid’s room, this minimalist night stand light is designed to meet your needs.
@@ -101,10 +101,10 @@ The **Small Table Lamp** by **aooshine** combines functionality with an elegant 
 
 Additionally, this lamp’s lightweight build ensures portability, allowing users to easily reposition it as needed. Its neutral **cream and black color scheme** fits seamlessly into different interior styles, from modern to classic. Whether used as a desk reading lamp or a bedside light, this lamp provides focused illumination that supports productive work or restful sleep.
 
-## <a href="https://www.amazon.com/dp/B08FY9NQ2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Flush Mount Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B08FY9NQ2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Flush Mount Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B08FY9NQ2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Flush Mount Ceiling Light Fixture, 5000K Daylight White 24W(240W Equivalent) 12 Inch Flat Modern Ceiling Lighting, 3200LM Ceiling Lamp for Bathroom Porch, Kitchen, Bedroom, Living Room, Hallway" src="https://m.media-amazon.com/images/I/21GXn6urppL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08FY9NQ2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Flush Mount Ceiling Light Fixture, 5000K Daylight White 24W(240W Equivalent) 12 Inch Flat Modern Ceiling Lighting, 3200LM Ceiling Lamp for Bathroom Porch, Kitchen, Bedroom, Living Room, Hallway" src="https://m.media-amazon.com/images/I/21GXn6urppL._SL500_.jpg"/></a>
 
 
 The **LED Flush Mount Ceiling Light Fixture** is ideal for homeowners or renters looking to upgrade their lighting with an energy-efficient, modern solution. Perfect for those who want bright, clear illumination in spaces like bathrooms, kitchens, bedrooms, living rooms, or hallways, this fixture suits anyone seeking a sleek, low-profile design combined with powerful performance. If you value longevity, brightness, and a clean aesthetic, this lighting option is a great fit.
@@ -127,10 +127,10 @@ This **LED Flush Mount Ceiling Light** from inShareplus offers an impressive com
 
 The fixture's energy-saving **24W LED technology** delivers the equivalent brightness of a 240W incandescent bulb, helping reduce electricity bills while providing ample light. Its durable construction and sleek design ensure long-lasting performance and easy maintenance, making it suitable for a variety of indoor settings such as **bathrooms, kitchens, bedrooms, living rooms, and hallways**. Overall, this ceiling lamp offers a practical and stylish lighting solution for modern homes.
 
-## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckystyle Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
 
 
 The **luckystyle Floor Lamp** is ideal for individuals seeking a versatile and highly customizable lighting solution for their **living room**, **bedroom**, or **office**. This lamp is perfect for readers, remote workers, or anyone who appreciates adjustable lighting to reduce eye strain and enhance ambiance. If you want a sleek, modern design combined with advanced functionality, this lamp is an excellent choice.
@@ -152,10 +152,10 @@ The **luckystyle Floor Lamp** features a sleek and modern design with a durable 
 
 Another great benefit is the combination of a **remote control** and push button, offering convenient access to all lighting settings without needing to move from your seat. The **adjustable gooseneck** design enables precise positioning of the light source, making it perfect for focused reading or task lighting. With its tall stature and compact footprint, the lamp delivers ample illumination without occupying excessive floor space.
 
-## <a href="https://www.amazon.com/dp/B0DFGM9Y7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battery Operated Ceiling Light With Remote Rechargeable Motion Sensor</a>
+## <a href="https://www.amazon.com/dp/B0DFGM9Y7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battery Operated Ceiling Light With Remote Rechargeable Motion Sensor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFGM9Y7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1PCS Battery Operated Ceiling Light with Remote Rechargeable Motion Sensor Light Indoor Stick No Wiring Shower Lamp LED Overhead Lights Fixture 3 Color Temperatures Wireless Control Closet Lights" src="https://m.media-amazon.com/images/I/417iA0IhiiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFGM9Y7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1PCS Battery Operated Ceiling Light with Remote Rechargeable Motion Sensor Light Indoor Stick No Wiring Shower Lamp LED Overhead Lights Fixture 3 Color Temperatures Wireless Control Closet Lights" src="https://m.media-amazon.com/images/I/417iA0IhiiL._SL500_.jpg"/></a>
 
 
 The **1PCS Battery Operated Ceiling Light with Remote** is perfect for homeowners or renters seeking an easy-to-install, wireless lighting solution. Ideal for those who want to enhance lighting in closets, showers, or any indoor space without the hassle of **wiring**, this rechargeable **motion sensor light** offers convenience and energy efficiency. If you value flexibility and smart control in your home lighting, this product is designed for you.
@@ -178,10 +178,10 @@ This **LED overhead light fixture** by **DREETINO** combines functionality and u
 
 The compact size and rechargeable battery make it an excellent choice for locations where wiring is impractical or impossible. Additionally, the sleek white design blends seamlessly into any décor, especially in spaces like closets and showers. The overall design prioritizes ease of use and installation, allowing users to improve home lighting with minimal effort and maximum flexibility.
 
-## <a href="https://www.amazon.com/dp/B0CP7JNT49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adisun Led Modern Ceiling Light</a>
+## <a href="https://www.amazon.com/dp/B0CP7JNT49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adisun Led Modern Ceiling Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP7JNT49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADISUN LED Modern Ceiling Light,6000K Semi Flush Mount Ceiling Light Fixture,Unique Lamp for Living Room Bedroom Corridor Aisle Hallway (D11 in*H2.9 in; 33W; No Remote)" src="https://m.media-amazon.com/images/I/31asKHKnR-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP7JNT49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADISUN LED Modern Ceiling Light,6000K Semi Flush Mount Ceiling Light Fixture,Unique Lamp for Living Room Bedroom Corridor Aisle Hallway (D11 in*H2.9 in; 33W; No Remote)" src="https://m.media-amazon.com/images/I/31asKHKnR-L._SL500_.jpg"/></a>
 
 
 The **ADISUN LED Modern Ceiling Light** is ideal for homeowners and renters looking to enhance their living spaces with a sleek, energy-efficient lighting solution. This fixture is perfect for those who appreciate modern design and need a reliable light source for areas such as the living room, bedroom, corridor, aisle, or hallway. If you want a stylish yet functional ceiling light without the hassle of remote controls, this semi flush mount light fits the bill.
@@ -204,10 +204,10 @@ The **ADISUN LED Modern Ceiling Light** offers a bright and crisp 6000K light ou
 
 This fixture’s energy efficiency not only reduces electricity bills but also contributes to environmental sustainability. While it does not come with remote control features, its simplicity ensures ease of use and maintenance. Overall, the ADISUN ceiling light is a practical choice for those seeking a stylish, bright, and efficient lighting solution for everyday living spaces.
 
-## <a href="https://www.amazon.com/dp/B0BY4DLGBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapfish Battery Powered Operated Wall Strip Lights</a>
+## <a href="https://www.amazon.com/dp/B0BY4DLGBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapfish Battery Powered Operated Wall Strip Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0BY4DLGBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapfish Battery Powered Operated Wall Strip Lights, Rechargeable Magnetic LED Light Bar with Remote, Dimmable Desk Lamp, Under Cabinet Lighting Wireless for Mirror Closet Picture Room Kitchen - Black" src="https://m.media-amazon.com/images/I/51stuwtagdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BY4DLGBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapfish Battery Powered Operated Wall Strip Lights, Rechargeable Magnetic LED Light Bar with Remote, Dimmable Desk Lamp, Under Cabinet Lighting Wireless for Mirror Closet Picture Room Kitchen - Black" src="https://m.media-amazon.com/images/I/51stuwtagdL._SL500_.jpg"/></a>
 
 
 The **Hapfish Battery Powered Operated Wall Strip Lights** are perfect for individuals seeking a versatile and portable lighting solution without the hassle of wiring. Ideal for renters, DIY enthusiasts, or anyone who wants to enhance their living space with easy-to-install, rechargeable, and remote-controlled lighting, these lights offer convenience and style for areas like closets, kitchens, mirrors, and workspaces.
@@ -230,10 +230,10 @@ The **Hapfish Wall Strip Lights** combine a sleek, black finish with a compact s
 
 With the included remote, users can easily adjust brightness levels to suit various tasks or moods, from bright task lighting to softer ambient illumination. This makes the light bar ideal for under-cabinet kitchen lighting, closet illumination, or as a bedside desk lamp. The wireless design also reduces clutter and enhances aesthetic appeal, providing both functional and decorative benefits for any room.
 
-## <a href="https://www.amazon.com/dp/B0CDFY94RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDFY94RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDFY94RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech Led Desk Lamp for Office Home, Bright Double Head Desk Light with Clamp, Architect Task Lamp 50 Lighting Modes Adjustable Flexible Gooseneck Lamp" src="https://m.media-amazon.com/images/I/51+iiiWNKdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDFY94RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech Led Desk Lamp for Office Home, Bright Double Head Desk Light with Clamp, Architect Task Lamp 50 Lighting Modes Adjustable Flexible Gooseneck Lamp" src="https://m.media-amazon.com/images/I/51+iiiWNKdL._SL500_.jpg"/></a>
 
 
 The **ShineTech Led Desk Lamp** is ideal for professionals, students, and creatives who require versatile and bright lighting for their workspaces. Whether you’re an architect needing precise illumination, a student studying late at night, or someone working from home, this lamp’s adjustable and multi-mode features make it a perfect addition to any office or home desk.
@@ -256,10 +256,10 @@ The **ShineTech Led Desk Lamp** features a robust and flexible design with a hei
 
 Additionally, the lamp’s 5CCT color temperature settings ranging from 3000K to 6000K allow users to switch between warm and cool lighting environments effortlessly. This helps reduce eye fatigue and improves focus depending on the time of day or task at hand. The compact weight of approximately 2.4 pounds combined with the clamp ensures that the lamp stays securely in place without consuming valuable desk space, making it an excellent choice for both home and office use.
 
-## <a href="https://www.amazon.com/dp/B0F131SG7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Combuh 4-pack Battery Powered Motion Sensor Light</a>
+## <a href="https://www.amazon.com/dp/B0F131SG7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Combuh 4-pack Battery Powered Motion Sensor Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0F131SG7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 3="" adhesive="" alt="Combuh 4-Pack Battery Powered Motion Sensor Light, 7.48" bedroom,="" colors="" for="" garage,="" ip44="" kitchen,="" lamp="" lightting="" overhead="" portable"="" shower="" src="https://m.media-amazon.com/images/I/31qhS5-iDXL._SL500_.jpg" thin="" ultra="" waterproof="" wiring,="" without=""/></a>
+<a href="https://www.amazon.com/dp/B0F131SG7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 3="" adhesive="" alt="Combuh 4-Pack Battery Powered Motion Sensor Light, 7.48" bedroom,="" colors="" for="" garage,="" ip44="" kitchen,="" lamp="" lightting="" overhead="" portable"="" shower="" src="https://m.media-amazon.com/images/I/31qhS5-iDXL._SL500_.jpg" thin="" ultra="" waterproof="" wiring,="" without=""/></a>
 
 
 The **Combuh 4-Pack Battery Powered Motion Sensor Light** is ideal for homeowners and renters looking to enhance their living spaces with convenient, wireless lighting solutions. Perfect for those who want easy installation without the hassle of wiring, this ultra-thin, waterproof light is especially suited for areas like garages, bedrooms, kitchens, and even showers, where moisture resistance and portability are essential.

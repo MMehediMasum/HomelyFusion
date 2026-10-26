@@ -23,10 +23,10 @@ Some lamps include USB ports for charging devices, adding extra value. Choosing 
 
 
 
-## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light</a>
+## <a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 9 Led Rechargeable Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B08GG42WXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GG42WXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 9 LED Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Small Lightweight Clip On Book Reading Light for Studying" src="https://m.media-amazon.com/images/I/51XIT4tKtBL._SL500_.jpg"/></a>
 
 
 The **Gritin 9 LED Rechargeable Book Light** is ideal for avid readers, students, and professionals who enjoy reading or studying in low-light environments, especially in bed. If you need a portable, lightweight, and eye-friendly lighting solution that won’t disturb others, this clip-on book light is perfect for you. Its adjustable brightness and color temperature settings cater to different lighting preferences and tasks.
@@ -49,10 +49,10 @@ The **Gritin 9 LED Book Light** features a compact design with dimensions of app
 
 Its three color temperature modes allow users to switch between warm, cool, and natural white light, catering to different lighting needs throughout the day. The stepless dimming feature offers smooth brightness adjustment, ensuring optimal illumination without causing eye fatigue. With an impressive runtime of up to 80 hours, this rechargeable light supports extended reading sessions without frequent recharging, making it a reliable companion for night reading or late-night study sessions.
 
-## <a href="https://www.amazon.com/dp/B016U6ZJGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Clip On Light</a>
+## <a href="https://www.amazon.com/dp/B016U6ZJGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Clip On Light</a>
 
 
-<a href="https://www.amazon.com/dp/B016U6ZJGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Clip on Light/Reading Lights/Book Light/Desk Lamp Color Changeable/Night Lights Clip on for Desk, Bed Headboard and Computers, Adapter Included (Black)" src="https://m.media-amazon.com/images/I/31gnMcB01KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B016U6ZJGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Clip on Light/Reading Lights/Book Light/Desk Lamp Color Changeable/Night Lights Clip on for Desk, Bed Headboard and Computers, Adapter Included (Black)" src="https://m.media-amazon.com/images/I/31gnMcB01KL._SL500_.jpg"/></a>
 
 
 The **LEPOWER Clip on Light** is an excellent choice for students, avid readers, and professionals who need focused lighting for their desks, beds, or computers. Ideal for those who require adjustable, portable illumination without disturbing others, this versatile **color changeable reading light** is perfect for late-night study sessions, work-from-home setups, or cozy bedtime reading.
@@ -74,10 +74,10 @@ Featuring a sleek black design with dimensions of approximately 15 inches in hei
 
 The inclusion of an adapter enhances the lamp’s usability by providing a reliable power source, ensuring the light remains steady throughout extended periods of use. Its lightweight construction, weighing less than a pound, makes it easy to reposition or carry while traveling. Overall, the **LEPOWER Clip on Light** combines functionality and convenience, making it an ideal lighting solution for focused, comfortable illumination in any setting.
 
-## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fenmzee Bedside Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZXNSW5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fenmzee Bedside Table Lamp for Bedroom - 3 Way Dimmable Touch Lamp USB C Charging Ports and AC Outlet, Small Lamp Wood Base Round Flaxen Fabric Shade for Living Room, Desk, LED Bulb Included" src="https://m.media-amazon.com/images/I/4112uvSpoML._SL500_.jpg"/></a>
 
 
 The **Fenmzee Bedside Table Lamp** is perfect for individuals seeking a stylish yet functional lighting solution for their bedroom, living room, or desk area. Ideal for those who value convenience, modern design, and multi-functional features, this lamp suits anyone looking to enhance their space with adjustable lighting and added charging options.
@@ -100,10 +100,10 @@ The **Fenmzee Bedside Table Lamp** boasts a thoughtful design that combines aest
 
 Constructed with a sturdy **wood base** and adorned with a **round flaxen fabric shade**, this lamp complements a variety of room decors while maintaining a compact footprint. The lamp’s dimensions (14 inches in height and a width and length of 4.45 inches) make it an excellent choice for small bedside tables or desks. The included **energy-efficient LED bulb** not only reduces electricity consumption but also provides consistent lighting, enhancing the overall user experience.
 
-## <a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent 5w Clip On Light</a>
+## <a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent 5w Clip On Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent 5W Clip on Light, 36LED Eye Caring Reading Light for Bed, 3 Colors &amp; 5 Brightness Clip on Lamp with Adapter, Perfect Reading Light for Bed with Clamp/Bunk Bed/Headboard/Table/Desk" src="https://m.media-amazon.com/images/I/41sGJKuekvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJMCV2RR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent 5W Clip on Light, 36LED Eye Caring Reading Light for Bed, 3 Colors &amp; 5 Brightness Clip on Lamp with Adapter, Perfect Reading Light for Bed with Clamp/Bunk Bed/Headboard/Table/Desk" src="https://m.media-amazon.com/images/I/41sGJKuekvL._SL500_.jpg"/></a>
 
 
 The **Glocusent 5W Clip on Light** is ideal for avid readers, students, and professionals who require a versatile and comfortable lighting solution for reading or working in low-light environments. If you often find yourself reading in bed, studying at a desk, or needing focused illumination on a bunk bed or headboard, this **eye caring reading light** is designed to meet your needs.
@@ -125,10 +125,10 @@ The **Glocusent 5W Clip on Light** boasts a slim profile with dimensions ideal f
 
 Additionally, the **5 brightness levels** provide further control over illumination intensity, making it suitable for different lighting needs, from soft ambient light to bright task lighting. The strong **clip-on mechanism** ensures the lamp stays securely in place on various surfaces like beds, desks, or bunk beds. This combination of features makes the Glocusent light a practical and ergonomic choice for anyone seeking a reliable, customizable, and eye-friendly lighting solution.
 
-## <a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent Book Light</a>
+## <a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glocusent Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent Book Light, 3-Color &amp; 6-Brightness Reading Light, Bendable Neck Light, 80-hr Lasting Rechargeable Lamp, Perfect Book Light for Reading in Bed, Knitting, Camping, Repairing, Book Lovers Gifts" src="https://m.media-amazon.com/images/I/41-CC8j0OjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WNRN9WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glocusent Book Light, 3-Color &amp; 6-Brightness Reading Light, Bendable Neck Light, 80-hr Lasting Rechargeable Lamp, Perfect Book Light for Reading in Bed, Knitting, Camping, Repairing, Book Lovers Gifts" src="https://m.media-amazon.com/images/I/41-CC8j0OjL._SL500_.jpg"/></a>
 
 
 The **Glocusent Book Light** is ideal for **book lovers**, avid readers, crafters, campers, and anyone needing a reliable, versatile light source for close-up tasks. If you often read in bed, knit, repair items, or enjoy outdoor activities after dark, this **rechargeable lamp** with adjustable brightness and color settings is designed to meet your lighting needs efficiently.
@@ -152,10 +152,10 @@ The **Glocusent Book Light** offers an impressive combination of features tailor
 
 Designed with a **bendable neck**, this lamp can be easily positioned to illuminate exactly where you need it, whether you’re reading in bed or working on intricate projects like knitting or repairs. The **rechargeable battery** lasting up to 80 hours on a single charge ensures uninterrupted usage, making it highly practical for camping or any activity away from power sources. Overall, this **lightweight and portable book light** combines functionality and convenience, making it a must-have accessory for anyone who values comfortable, efficient lighting.
 
-## <a href="https://www.amazon.com/dp/B0C3BC4QG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 19 Led Rechargeable Book Light</a>
+## <a href="https://www.amazon.com/dp/B0C3BC4QG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin 19 Led Rechargeable Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3BC4QG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 19 LED Rechargeable Book Light for Reading in Bed with Memory Function- Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Lightweight Clip on Light for Book Lovers" src="https://m.media-amazon.com/images/I/41Vqo--3yGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3BC4QG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin 19 LED Rechargeable Book Light for Reading in Bed with Memory Function- Eye Caring 3 Color Temperatures,Stepless Dimming Brightness,80 Hrs Runtime Lightweight Clip on Light for Book Lovers" src="https://m.media-amazon.com/images/I/41Vqo--3yGL._SL500_.jpg"/></a>
 
 
 The **Gritin 19 LED Rechargeable Book Light** is ideal for **book lovers** who enjoy reading in bed or low-light environments. It is perfect for those seeking an **eye-caring** lighting solution with customizable brightness and color temperature settings. If you want a lightweight, portable, and rechargeable light that clips easily onto books without disturbing others, this product is an excellent choice.
@@ -179,10 +179,10 @@ The **Gritin 19 LED Rechargeable Book Light** offers a versatile lighting experi
 
 Its **compact and lightweight design** makes it highly portable and easy to clip onto books of various sizes. The built-in **memory function** adds convenience by remembering your preferred settings each time you use it. With an impressive **80-hour runtime**, the rechargeable battery ensures you have reliable lighting for extended reading sessions without frequent recharging. Overall, this book light blends functionality, comfort, and portability, making it a valuable accessory for avid readers.
 
-## <a href="https://www.amazon.com/dp/B0C2773FPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Honeywell Hwt-h01 Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C2773FPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Honeywell Hwt-h01 Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2773FPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Honeywell HWT-H01 LED Desk Lamp Stepless Dimmable Table Lamp with USB A+C Dual Charging Port Eye-Caring Foldable Desk Light with 3 Color Modes for Home Office Bedroom Reading Study Sunturalux (Gray)" src="https://m.media-amazon.com/images/I/21bJ9+STHIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2773FPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Honeywell HWT-H01 LED Desk Lamp Stepless Dimmable Table Lamp with USB A+C Dual Charging Port Eye-Caring Foldable Desk Light with 3 Color Modes for Home Office Bedroom Reading Study Sunturalux (Gray)" src="https://m.media-amazon.com/images/I/21bJ9+STHIL._SL500_.jpg"/></a>
 
 
 The **Honeywell HWT-H01 LED Desk Lamp** is ideal for individuals seeking a versatile and eye-friendly lighting solution for their **home, office, bedroom, or study** environment. Whether you're a student, professional, or avid reader, this lamp caters to those who prioritize adjustable brightness, eye comfort, and convenient charging options all in one sleek design.
@@ -205,10 +205,10 @@ The **Honeywell HWT-H01 LED Desk Lamp** stands out with its stepless dimmable fe
 
 Beyond lighting, the lamp’s integrated **USB A+C dual charging ports** provide practical convenience by enabling users to charge smartphones, tablets, or other USB devices directly from the lamp. Its foldable structure makes it highly portable and easy to position anywhere on your desk or bedside table without taking up much space. With dimensions of 16.65 inches in height and a lightweight design, this lamp combines functionality and aesthetics, making it a smart choice for anyone looking to enhance their workspace or living area with reliable and comfortable lighting.
 
-## <a href="https://www.amazon.com/dp/B0D7MCYK75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin Reading Light</a>
+## <a href="https://www.amazon.com/dp/B0D7MCYK75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gritin Reading Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7MCYK75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin Reading Light, Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures, 5-Level Dimmable Brightness, Long Lasting, Compact Size Clip on Book Lamp for Bookworms-Blue" src="https://m.media-amazon.com/images/I/412DaLl3ssL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7MCYK75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gritin Reading Light, Rechargeable Book Light for Reading in Bed - Eye Caring 3 Color Temperatures, 5-Level Dimmable Brightness, Long Lasting, Compact Size Clip on Book Lamp for Bookworms-Blue" src="https://m.media-amazon.com/images/I/412DaLl3ssL._SL500_.jpg"/></a>
 
 
 The **Gritin Reading Light** is perfect for **book lovers** who enjoy reading in low-light environments, especially those who prefer reading in bed without disturbing others. It is ideal for individuals seeking a **compact**, **rechargeable**, and **eye-friendly** lighting solution that offers customizable brightness and color temperature settings.
@@ -230,10 +230,10 @@ The **Gritin Reading Light** features three adjustable color temperatures—warm
 
 Thanks to its rechargeable battery, the reading light provides long-lasting performance, eliminating the hassle and expense of replacing batteries frequently. The compact and lightweight design, coupled with a secure clip, makes it easy to attach to various book sizes, making it highly portable for bookworms on the go. Overall, this reading light combines practicality with eye care, making it a valuable accessory for any avid reader.
 
-## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Izell Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
 
 
 The **iZELL Desk Lamp** is perfect for individuals who need a versatile and adjustable lighting solution for nighttime reading or focused work. Ideal for **students, readers, and professionals** who require a portable light that can easily clip onto desks, headboards, or dorm furniture, this lamp offers convenience and adaptability to suit various environments and preferences.
@@ -255,10 +255,10 @@ The **iZELL Desk Lamp** combines functionality with user-friendly features, maki
 
 Equipped with a sturdy **clamp**, this lamp easily attaches to various surfaces, providing a stable and convenient source of light wherever needed. The **flexible gooseneck** design offers effortless adjustability, allowing users to direct light exactly where it’s required. Lightweight and compact, the **iZELL Desk Lamp** is also highly portable, making it a practical option for dorm rooms, bedside tables, or home offices.
 
-## <a href="https://www.amazon.com/dp/B0C98Z5FDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lifmira Clip On Light</a>
+## <a href="https://www.amazon.com/dp/B0C98Z5FDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lifmira Clip On Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0C98Z5FDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LiFMIRA Clip on Light USB Reading Light 3 Color Modes 10 Brightness Levels Eye Care Clamp Light Flexible Gooseneck Dimmable Reading Lamp Clip on Lamp for Bed Headboard Desk Bedside Dorm (Black)" src="https://m.media-amazon.com/images/I/414Ae49QB5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C98Z5FDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LiFMIRA Clip on Light USB Reading Light 3 Color Modes 10 Brightness Levels Eye Care Clamp Light Flexible Gooseneck Dimmable Reading Lamp Clip on Lamp for Bed Headboard Desk Bedside Dorm (Black)" src="https://m.media-amazon.com/images/I/414Ae49QB5L._SL500_.jpg"/></a>
 
 
 The **LiFMIRA Clip on Light USB Reading Light** is ideal for students, readers, and professionals who need focused lighting without disturbing others. Perfect for use on bed headboards, desks, or dorm rooms, this light is designed for those seeking an adjustable, eye-friendly illumination solution for late-night reading or work sessions.

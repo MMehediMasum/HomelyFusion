@@ -23,10 +23,10 @@ Foldable and lightweight designs make storage and travel simple. Fun patterns an
 
 
 
-## <a href="https://www.amazon.com/dp/B0BHXCTT7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuby Reversible Baby Floor Mat</a>
+## <a href="https://www.amazon.com/dp/B0BHXCTT7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuby Reversible Baby Floor Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHXCTT7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuby Reversible Baby Floor Mat - Foldable and Lightweight Baby Play Mat for Floor - Easy Storage and Travel - Safari" src="https://m.media-amazon.com/images/I/511wJd+2OoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHXCTT7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuby Reversible Baby Floor Mat - Foldable and Lightweight Baby Play Mat for Floor - Easy Storage and Travel - Safari" src="https://m.media-amazon.com/images/I/511wJd+2OoL._SL500_.jpg"/></a>
 
 
 The **Nuby Reversible Baby Floor Mat - Foldable and Lightweight Baby Play Mat for Floor - Easy Storage and Travel - Safari** is ideal for parents and caregivers looking for a safe, comfortable, and portable play area for their little ones. This product is perfect for families who need a convenient solution to create a clean play space both at home and on the go. If you want a versatile and easy-to-store baby mat that supports your child’s play and development, this item is a great choice.
@@ -48,10 +48,10 @@ The **Nuby Reversible Baby Floor Mat** features a lightweight and foldable desig
 
 In addition to its practical portability, this baby play mat is made from materials that are easy to clean, supporting hygienic playtime with minimal effort. The product’s slim profile ensures it can be neatly folded and stored without taking up much room, making it a perfect travel companion for families on the move. Overall, it combines style, function, and convenience in one compact, well-designed package.
 
-## <a href="https://www.amazon.com/dp/B09YRTR237?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Letalong Cotton Leaf Nursery Rug</a>
+## <a href="https://www.amazon.com/dp/B09YRTR237?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Letalong Cotton Leaf Nursery Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B09YRTR237?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Letalong Cotton Leaf Nursery Rug, 56.3x42.1 inches, Machine Washable Play Mat for Baby, Crawling Mat for Tummy Time" src="https://m.media-amazon.com/images/I/41BkkeKWMPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YRTR237?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Letalong Cotton Leaf Nursery Rug, 56.3x42.1 inches, Machine Washable Play Mat for Baby, Crawling Mat for Tummy Time" src="https://m.media-amazon.com/images/I/41BkkeKWMPL._SL500_.jpg"/></a>
 
 
 The **Letalong Cotton Leaf Nursery Rug** is perfect for parents and caregivers looking for a safe, comfortable, and easy-to-maintain play area for their babies. Ideal for infants during **tummy time** and early crawling stages, this rug provides a soft and durable surface that supports healthy development and encourages exploration.
@@ -74,10 +74,10 @@ The **Letalong Cotton Leaf Nursery Rug** features a large, comfortable surface d
 
 Additionally, the rug's **machine washable** feature offers parents a practical solution to maintain hygiene and cleanliness without hassle. The natural green leaf pattern not only enhances the nursery's decor but also provides a soothing environment that can positively impact a baby’s mood. While the rug is thin, it is lightweight and easy to handle, making it a versatile choice for various nursery setups.
 
-## <a href="https://www.amazon.com/dp/B0C8HPWPK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Play Mat For Floor</a>
+## <a href="https://www.amazon.com/dp/B0C8HPWPK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Play Mat For Floor</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8HPWPK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="Baby Play Mat for Floor,1.3" coral="" crawling,toddlers,infants,kids,yoga="" foam="" for="" gray)"="" living="" mat,soft="" memory="" non="" nursery="" room(dark="" rug,large="" slip="" src="https://m.media-amazon.com/images/I/31TwSlRUSZL._SL500_.jpg" style="" tatami="" thick="" time="" tummy="" velvet=""/></a>
+<a href="https://www.amazon.com/dp/B0C8HPWPK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="Baby Play Mat for Floor,1.3" coral="" crawling,toddlers,infants,kids,yoga="" foam="" for="" gray)"="" living="" mat,soft="" memory="" non="" nursery="" room(dark="" rug,large="" slip="" src="https://m.media-amazon.com/images/I/31TwSlRUSZL._SL500_.jpg" style="" tatami="" thick="" time="" tummy="" velvet=""/></a>
 
 
 Ideal for parents and caregivers seeking a safe and comfortable space for their infants, toddlers, and young children, the **Baby Play Mat for Floor** by Huloo Sleep offers an excellent solution. It is perfect for those who want a versatile, cushioned area for **tummy time**, crawling, playing, or even yoga sessions, providing a soft and supportive surface that enhances child development and safety.
@@ -100,10 +100,10 @@ The **Huloo Sleep Baby Play Mat** combines plush comfort with practical design e
 
 Additionally, the mat's large dimensions and non-slip base make it a versatile addition to any home environment. Parents can confidently use it in the living room or nursery, knowing it provides a secure area for children to explore and develop motor skills. Beyond playtime, the mat’s tatami style and supportive foam make it suitable for adult yoga or relaxation, further increasing its value as a multifunctional floor accessory.
 
-## <a href="https://www.amazon.com/dp/B09P58JJR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Baby Play Mat For Floor</a>
+## <a href="https://www.amazon.com/dp/B09P58JJR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Baby Play Mat For Floor</a>
 
 
-<a href="https://www.amazon.com/dp/B09P58JJR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Baby Play Mat for Floor – Super Soft Plush Surface ABC Rug for Toddlers &amp; Infants – Extra Thick (0.3in) Non-Slip Padded Nursery Mat for Crawling &amp; Fun – Foldable Gift Rug" src="https://m.media-amazon.com/images/I/617J3KXc2fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P58JJR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Baby Play Mat for Floor – Super Soft Plush Surface ABC Rug for Toddlers &amp; Infants – Extra Thick (0.3in) Non-Slip Padded Nursery Mat for Crawling &amp; Fun – Foldable Gift Rug" src="https://m.media-amazon.com/images/I/617J3KXc2fL._SL500_.jpg"/></a>
 
 
 The **QUOKKA Baby Play Mat for Floor** is ideal for parents and caregivers looking for a safe, comfortable, and engaging surface for their **toddlers and infants**. If you want a durable and soft play area that supports crawling, playing, and early learning, this **extra thick** and **non-slip nursery mat** is a perfect choice. It suits families who prioritize both safety and interactive design in their baby products.
@@ -126,10 +126,10 @@ The **QUOKKA Baby Play Mat** features a plush, cushioned surface that is gentle 
 
 Additionally, the **ABC design** on the rug not only adds a colorful and stimulating visual but also encourages early cognitive development through letter recognition. The mat’s foldable feature makes it highly portable and easy to store, perfect for families who travel or have limited space. Overall, this play mat combines comfort, safety, and educational value, making it a versatile and practical addition to any nursery.
 
-## <a href="https://www.amazon.com/dp/B0CG8W5YRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blissful Diary Baby Play Mats</a>
+## <a href="https://www.amazon.com/dp/B0CG8W5YRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blissful Diary Baby Play Mats</a>
 
 
-<a href="https://www.amazon.com/dp/B0CG8W5YRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blissful Diary Baby Play Mats for Floor, 71x59 Inch Extra Thicker &amp; Large Soft Cushioning Foam Playmats for Babies and Toddlers, Foldable Washable Baby Crawling Mat for Playpen, Boho Design" src="https://m.media-amazon.com/images/I/51C4Xb363qL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CG8W5YRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blissful Diary Baby Play Mats for Floor, 71x59 Inch Extra Thicker &amp; Large Soft Cushioning Foam Playmats for Babies and Toddlers, Foldable Washable Baby Crawling Mat for Playpen, Boho Design" src="https://m.media-amazon.com/images/I/51C4Xb363qL._SL500_.jpg"/></a>
 
 
 The **Blissful Diary Baby Play Mats** are perfect for parents and caregivers seeking a safe, comfortable, and stylish play area for their babies and toddlers. Ideal for those who want a spacious and cushioned surface to support crawling, playing, and learning, this mat suits families who prioritize both functionality and design in baby products. If you need a durable, foldable, and easy-to-clean playmat with an appealing boho look, this item is an excellent choice.
@@ -151,10 +151,10 @@ The **Blissful Diary Baby Play Mats** boast a generous size of 71 by 59 inches, 
 
 Additionally, the mat’s foldable and washable design addresses the practical needs of busy parents. It can be easily folded for storage or transport, making it ideal for use both at home and on outings. The washable surface ensures that spills and messes can be cleaned quickly, maintaining a clean play area that promotes your child's health. The stylish **Boho color and design** also make it a beautiful addition to any child’s room, blending function with aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0C61Y5QH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funtery Baby Play Mat</a>
+## <a href="https://www.amazon.com/dp/B0C61Y5QH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funtery Baby Play Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B0C61Y5QH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funtery Baby Play Mat 56 x 42 Inch Cotton Crawling Cushion Cotton Nursery Rug Large Thick Soft Reversible Washable Folding Floor Playpen Mat Nursery Decor Rug for Girls Boys(Green,Leaf)" src="https://m.media-amazon.com/images/I/41DjpsyoxGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C61Y5QH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funtery Baby Play Mat 56 x 42 Inch Cotton Crawling Cushion Cotton Nursery Rug Large Thick Soft Reversible Washable Folding Floor Playpen Mat Nursery Decor Rug for Girls Boys(Green,Leaf)" src="https://m.media-amazon.com/images/I/41DjpsyoxGL._SL500_.jpg"/></a>
 
 
 The **Funtery Baby Play Mat 56 x 42 Inch** is ideal for parents and caregivers looking for a safe, comfortable, and durable surface for their babies and toddlers to crawl, play, and rest on. This **large, thick, and soft cotton crawling cushion** is perfect for nurseries or playrooms and suits families who want a versatile and washable mat that can handle daily use while adding a touch of style with its reversible green leaf design.
@@ -176,10 +176,10 @@ The **Funtery Baby Play Mat** stands out with its plush cotton fabric that is bo
 
 Thanks to its washable nature, parents can easily maintain hygiene without much hassle, ensuring a clean and safe play environment. The mat’s foldable feature enhances portability, making it easy to transport for visits or outdoor activities. Overall, the combination of comfort, size, and practical features makes this mat a valuable addition to any nursery looking to enhance both safety and style.
 
-## <a href="https://www.amazon.com/dp/B081CYKBCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sb Goods Ultra Soft Indoor Modern Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B081CYKBCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sb Goods Ultra Soft Indoor Modern Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B081CYKBCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SB Goods Ultra Soft Indoor Modern Area Rugs, Cartoon Pattern Baby Play Mat Pad Crawling Blanket Carpet Decor for Children Bedroom Home Décor(Elephant)" src="https://m.media-amazon.com/images/I/5101MSi0LaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081CYKBCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SB Goods Ultra Soft Indoor Modern Area Rugs, Cartoon Pattern Baby Play Mat Pad Crawling Blanket Carpet Decor for Children Bedroom Home Décor(Elephant)" src="https://m.media-amazon.com/images/I/5101MSi0LaL._SL500_.jpg"/></a>
 
 
 The **SB Goods Ultra Soft Indoor Modern Area Rugs** with a charming **Elephant cartoon pattern** is ideal for parents and caregivers seeking a comfortable and visually engaging play area for their little ones. This product is perfect for families with toddlers and babies who spend time crawling and playing on the floor, as well as anyone looking to add a playful yet functional decor piece to a **children's bedroom** or home space.
@@ -201,10 +201,10 @@ The **SB Goods Ultra Soft Indoor Modern Area Rug** stands out for its blend of f
 
 Despite its slim profile, the rug offers enough protection for everyday indoor use and serves as a stylish accent piece in children's rooms. The manageable size allows it to fit comfortably in smaller spaces, making it a versatile option for apartments or homes with limited room. Overall, this rug is a thoughtful investment for parents who want to create a safe, engaging, and attractive play environment for their children.
 
-## <a href="https://www.amazon.com/dp/B0CR6M9M95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanleay Personalized Name Fluffy Room Rug For Kids</a>
+## <a href="https://www.amazon.com/dp/B0CR6M9M95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanleay Personalized Name Fluffy Room Rug For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR6M9M95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lanleay Personalized Name Fluffy Room Rug for Kids: Customized Cute Animals Design Nursery Rug for Play Area - Woodland Jungle Baby Crawling Mat with Custom Name" src="https://m.media-amazon.com/images/I/51dk1hgi9UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR6M9M95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lanleay Personalized Name Fluffy Room Rug for Kids: Customized Cute Animals Design Nursery Rug for Play Area - Woodland Jungle Baby Crawling Mat with Custom Name" src="https://m.media-amazon.com/images/I/51dk1hgi9UL._SL500_.jpg"/></a>
 
 
 The **Lanleay Personalized Name Fluffy Room Rug for Kids** is perfect for parents looking to add a cozy and playful touch to their child’s nursery or play area. Ideal for families who want a unique, customized rug featuring cute woodland and jungle animal designs, this rug is especially suited for babies and toddlers during their crawling and playtime stages.
@@ -227,10 +227,10 @@ The **Lanleay Personalized Name Fluffy Room Rug** combines comfort and charm wit
 
 Made by the trusted **Lanleay** brand, this rug is lightweight at 0.4 pounds, making it easy to reposition or transport between rooms. Its colorful and engaging patterns also contribute to brightening up any nursery or play area, making it an attractive addition to a child’s space. Overall, this personalized fluffy rug offers both practical benefits and delightful aesthetics for families with young children.
 
-## <a href="https://www.amazon.com/dp/B0DK4Z62KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Play Mat For Floor</a>
+## <a href="https://www.amazon.com/dp/B0DK4Z62KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Play Mat For Floor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK4Z62KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 50x50="" alt="Baby Play Mat for Floor,1.3" baby="" cover,nursery="" crawling,toddlers,infants,kids,yoga,tatami,beige"="" foam="" for="" leather,removable&washable="" mat,="" padded="" playpen="" rug="" soft="" src="https://m.media-amazon.com/images/I/311uqb3OGgL._SL500_.jpg" thick="" velvet&non-slip=""/></a>
+<a href="https://www.amazon.com/dp/B0DK4Z62KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 50x50="" alt="Baby Play Mat for Floor,1.3" baby="" cover,nursery="" crawling,toddlers,infants,kids,yoga,tatami,beige"="" foam="" for="" leather,removable&washable="" mat,="" padded="" playpen="" rug="" soft="" src="https://m.media-amazon.com/images/I/311uqb3OGgL._SL500_.jpg" thick="" velvet&non-slip=""/></a>
 
 
 The **Baby Play Mat for Floor** is an ideal choice for parents and caregivers seeking a safe, comfortable, and durable surface for **infants, toddlers, and kids** to play and explore. This mat is perfect for those who want a versatile nursery accessory that doubles as a yoga or tatami mat, providing ample cushioning and protection during crawling, playtime, or light exercises. If you prioritize safety, easy maintenance, and a stylish yet functional design, this playpen mat is designed specifically for you.
@@ -254,10 +254,10 @@ The **SEPARO Baby Play Mat** boasts a thoughtfully engineered construction featu
 
 Designed with convenience in mind, the mat comes with a **removable and washable cover**, allowing parents to maintain cleanliness effortlessly. Its sizeable **50x50 inch dimensions** accommodate multiple children or extended play areas, while the neutral beige tone fits beautifully into most room aesthetics. Overall, this versatile mat supports not only baby activities but also yoga sessions or quiet time, making it a multi-functional addition to any household.
 
-## <a href="https://www.amazon.com/dp/B085HMWJDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loartee Nursery Rug Coral Velvet Crawling Rugs Area Rug Play Mat</a>
+## <a href="https://www.amazon.com/dp/B085HMWJDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loartee Nursery Rug Coral Velvet Crawling Rugs Area Rug Play Mat</a>
 
 
-<a href="https://www.amazon.com/dp/B085HMWJDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Loartee Nursery Rug Coral Velvet Crawling Rugs Area Rug Play Mat(4'9" carpet"="" children="" exercise="" for="" gray)="" pads="" play="" src="https://m.media-amazon.com/images/I/41sql5EGKwL._SL500_.jpg" toddler="" x4'9",="" yoga=""/></a>
+<a href="https://www.amazon.com/dp/B085HMWJDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Loartee Nursery Rug Coral Velvet Crawling Rugs Area Rug Play Mat(4'9" carpet"="" children="" exercise="" for="" gray)="" pads="" play="" src="https://m.media-amazon.com/images/I/41sql5EGKwL._SL500_.jpg" toddler="" x4'9",="" yoga=""/></a>
 
 
 The **Loartee Nursery Rug Coral Velvet Crawling Rug** in **Grey** is ideal for parents and caregivers looking for a safe, comfortable, and stylish play area for their toddlers. This **play mat** is perfect for families who want a durable, easy-to-clean surface for crawling, playing, yoga, or exercise, ensuring their little ones have a soft and supportive environment to explore.

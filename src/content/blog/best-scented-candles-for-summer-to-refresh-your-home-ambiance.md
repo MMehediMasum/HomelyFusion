@@ -23,10 +23,10 @@ Long burn times ensure your favorite scent lasts through many relaxing moments. 
 
 
 
-## <a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles Juicy Watermelon Slice</a>
+## <a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Candle-lite Scented Candles Juicy Watermelon Slice</a>
 
 
-<a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Refreshing Ambiance" src="https://m.media-amazon.com/images/I/51Maz2LBSqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D32CBTGZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar, Proudly Poured in The USA, Aromatherapy Candle, Single-Wick with 110 Hours of Burn Time, Perfect for Creating a Refreshing Ambiance" src="https://m.media-amazon.com/images/I/51Maz2LBSqL._SL500_.jpg"/></a>
 
 
 The **Candle-lite Scented Candles, Juicy Watermelon Slice, 18 oz Jar** is ideal for individuals who enjoy a refreshing and fruity ambiance in their living spaces. Perfect for aromatherapy enthusiasts, home decorators, or anyone looking to add a vibrant and invigorating scent to their room, this candle suits those who appreciate long-lasting fragrance and quality craftsmanship.
@@ -49,10 +49,10 @@ The **Candle-lite Scented Candle** features a beautifully crafted **18 oz jar** 
 
 Beyond its aromatic appeal, this candle offers practical benefits such as a remarkably long burn time of up to **110 hours**, providing excellent value for users who want lasting ambiance without frequent replacements. Being **proudly poured in the USA** also adds a layer of trust in the product’s quality and safety standards. Overall, this candle is a superb choice for anyone seeking to enhance their space with a refreshing scent and reliable performance.
 
-## <a href="https://www.amazon.com/dp/B0BVL3K6NJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Beachside Large Glass Apothecary Jar Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0BVL3K6NJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Village Candle Beachside Large Glass Apothecary Jar Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVL3K6NJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Beachside Large Glass Apothecary Jar Scented Candle, 21.25 oz, Light Blue" src="https://m.media-amazon.com/images/I/417Cp3EjRJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVL3K6NJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Village Candle Beachside Large Glass Apothecary Jar Scented Candle, 21.25 oz, Light Blue" src="https://m.media-amazon.com/images/I/417Cp3EjRJL._SL500_.jpg"/></a>
 
 
 The **Village Candle Beachside Large Glass Apothecary Jar Scented Candle** is perfect for individuals who love refreshing coastal aromas and want to bring a calming, beach-inspired atmosphere into their homes. Ideal for those who appreciate long-lasting scents and elegant home décor, this candle suits anyone looking to enhance their living space with a relaxing and aesthetically pleasing accessory.
@@ -74,10 +74,10 @@ The **Village Candle Beachside Large Glass Apothecary Jar** features a thoughtfu
 
 Beyond aesthetics, this candle is manufactured by **Village Candle**, a brand renowned for producing high-quality scented candles with excellent scent throw and clean burning. The compact yet substantial size makes it perfect for placing on coffee tables, shelves, or bathroom counters, offering a versatile option for those who want both beauty and function. Whether used for relaxation, ambiance, or as a thoughtful gift, this candle delivers a premium beachside experience right at home.
 
-## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
+## <a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Pink Sands Scented Classic Large Jar Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004G9C0SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Pink Sands Scented, Classic 22oz Large Jar Single Wick Candle, Over 110 Hours of Burn Time, Perfect for Creating Relaxing Atmosphere" src="https://m.media-amazon.com/images/I/41l6prWpXQL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Pink Sands Scented Classic 22oz Large Jar Single Wick Candle** is ideal for individuals looking to enhance their living space with a long-lasting and soothing fragrance. Perfect for those who appreciate a calming atmosphere, this candle suits anyone wanting to relax after a busy day or add a touch of elegance to their home decor.
@@ -99,10 +99,10 @@ The **Yankee Candle Pink Sands** features a beautifully crafted large jar measur
 
 Beyond its appealing scent, this candle offers practical benefits such as long-lasting burn time, allowing users to enjoy the soothing atmosphere for over 110 hours. Whether used during meditation, reading, or social gatherings, the **Yankee Candle Pink Sands** provides a consistent and pleasant aroma that transforms your environment into a tranquil escape. Its quality craftsmanship and trusted brand reputation make it a reliable choice for candle lovers seeking both style and substance.
 
-## <a href="https://www.amazon.com/dp/B0DSLG8FGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lumeloom Summer Night Breeze Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0DSLG8FGB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lumeloom Summer Night Breeze Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSLG8FGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LUMELOOM Summer Night Breeze Scented Candle, 11oz Aromatherapy Soy Wax Candles for Home Scented, Long Lasting, Fruits, Flower, Wood Scent Gift for Men, Women, Friends, Relaxation &amp; Stress Relief" src="https://m.media-amazon.com/images/I/31s-xO02hgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSLG8FGB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LUMELOOM Summer Night Breeze Scented Candle, 11oz Aromatherapy Soy Wax Candles for Home Scented, Long Lasting, Fruits, Flower, Wood Scent Gift for Men, Women, Friends, Relaxation &amp; Stress Relief" src="https://m.media-amazon.com/images/I/31s-xO02hgL._SL500_.jpg"/></a>
 
 
 The **LUMELOOM Summer Night Breeze Scented Candle** is ideal for individuals seeking a calming and aromatic ambiance in their living spaces. Whether you want to enhance relaxation after a long day or gift a thoughtful present to friends and family, this **11oz aromatherapy soy wax candle** offers a perfect blend of fruit, flower, and wood scents for both men and women.
@@ -124,10 +124,10 @@ The **LUMELOOM Summer Night Breeze Scented Candle** is crafted with **soy wax**,
 
 This candle’s design, with dimensions of **3.74 inches in height** and **3.15 inches in width and length**, makes it a versatile decor piece suitable for bedrooms, living rooms, or bathrooms. The subtle and refreshing scent helps reduce stress while creating a cozy atmosphere, making it ideal for unwinding after a hectic day or setting the tone for quiet moments.
 
-## <a href="https://www.amazon.com/dp/B0DRK3DJ7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles For Home, 4 Pack 28oz Soy Candle</a>
+## <a href="https://www.amazon.com/dp/B0DRK3DJ7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scented Candles For Home, 4 Pack 28oz Soy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRK3DJ7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles for Home, 4 Pack 28oz Soy Candle for Home Scented, Aromatherapy Candle Gift Set for Women Men, Summer Scents of Pink Sands/Coconut Vanilla/Pineapple Cocktail/Bahama Breeze" src="https://m.media-amazon.com/images/I/51QUn-zlawL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRK3DJ7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scented Candles for Home, 4 Pack 28oz Soy Candle for Home Scented, Aromatherapy Candle Gift Set for Women Men, Summer Scents of Pink Sands/Coconut Vanilla/Pineapple Cocktail/Bahama Breeze" src="https://m.media-amazon.com/images/I/51QUn-zlawL._SL500_.jpg"/></a>
 
 
 The **Scented Candles for Home, 4 Pack 28oz Soy Candle** set by **DL DREAMY DEWLA** is ideal for anyone looking to enhance their living space with delightful aromas. Perfect for those who enjoy **aromatherapy**, want to create a relaxing atmosphere, or are searching for a thoughtful gift set for both **women** and **men**. This set appeals to individuals who appreciate long-lasting, natural soy candles with refreshing summer-inspired scents.
@@ -149,10 +149,10 @@ These **aromatherapy candles** feature a carefully curated selection of summer s
 
 The size and weight of each candle make them a noticeable and attractive addition to any room, while the packaging makes them ideal for gifting. Whether you're looking to unwind after a long day, add a pleasant aroma to your home, or surprise a loved one with a thoughtful present, the **DL DREAMY DEWLA Scented Candles 4 Pack** offers a versatile and enjoyable solution for enhancing everyday life.
 
-## <a href="https://www.amazon.com/dp/B09XJG6DV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Medium Pillar Scented Candle Coconut Beach</a>
+## <a href="https://www.amazon.com/dp/B09XJG6DV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yankee Candle Medium Pillar Scented Candle Coconut Beach</a>
 
 
-<a href="https://www.amazon.com/dp/B09XJG6DV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Medium Pillar Scented Candle with up to 115 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 14.25 oz Pillar Candle with Room Filling Fragrance, Coconut Beach" src="https://m.media-amazon.com/images/I/31fnt+eoOOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XJG6DV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yankee Candle Medium Pillar Scented Candle with up to 115 Hour Burn Time, Premium Plant Wax Blend for Consistent Burn, 14.25 oz Pillar Candle with Room Filling Fragrance, Coconut Beach" src="https://m.media-amazon.com/images/I/31fnt+eoOOL._SL500_.jpg"/></a>
 
 
 The **Yankee Candle Medium Pillar Scented Candle** with the soothing **Coconut Beach** fragrance is perfect for those who want to create a relaxing and inviting atmosphere in their living spaces. Ideal for homeowners, gift buyers, and anyone who enjoys long-lasting, high-quality scented candles, this candle is suited for individuals looking to enhance their home ambiance with a fresh, tropical aroma.
@@ -175,10 +175,10 @@ The **Yankee Candle Medium Pillar** features a thoughtfully crafted design with 
 
 Additionally, the candle's burn time of up to **115 hours** makes it a cost-effective choice for those who want to enjoy their favorite scent without frequently replacing candles. Its elegant pillar shape and appealing scent profile also make it a perfect gift option for friends and family who appreciate quality home fragrances. Whether used for relaxation, meditation, or simply enhancing home décor, this candle offers both aesthetic and aromatic benefits.
 
-## <a href="https://www.amazon.com/dp/B0CTGSGY9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">M&amp;sense Summer's Night Soy Candle</a>
+## <a href="https://www.amazon.com/dp/B0CTGSGY9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">M&amp;sense Summer's Night Soy Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTGSGY9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="M&amp;SENSE Summer's Night Soy Candle, Large 2 Wick, 19.4oz Up to 110 Hours Burn Time, Natural Scented for Home, Manly Candle in Glass Jar for Bedroom" src="https://m.media-amazon.com/images/I/41CpWvm-UDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTGSGY9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="M&amp;SENSE Summer's Night Soy Candle, Large 2 Wick, 19.4oz Up to 110 Hours Burn Time, Natural Scented for Home, Manly Candle in Glass Jar for Bedroom" src="https://m.media-amazon.com/images/I/41CpWvm-UDL._SL500_.jpg"/></a>
 
 
 The **M&SENSE Summer's Night Soy Candle** is an ideal choice for individuals seeking a long-lasting, naturally scented candle that brings a warm and inviting ambiance to their home. Perfect for those who appreciate masculine fragrances and want a stylish, functional piece for their bedroom or living space, this candle suits anyone who values quality, extended burn time, and a contemporary design.
@@ -200,10 +200,10 @@ The **M&SENSE Summer's Night Soy Candle** features a generous 19.4oz size housed
 
 Crafted from high-quality soy wax, this candle offers a cleaner burn with less soot compared to traditional paraffin candles. Its **natural scented profile** is tailored to a masculine aesthetic, making it perfect for those who want a relaxing yet robust aroma to fill their bedroom or living area. The combination of long-lasting burn time and sophisticated scent makes the M&SENSE candle a luxurious addition to any home environment.
 
-## <a href="https://www.amazon.com/dp/B08CGFW2HT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Salt And Sea Candle</a>
+## <a href="https://www.amazon.com/dp/B08CGFW2HT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sweet Water Decor Salt And Sea Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B08CGFW2HT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Salt and Sea Candle - Sea Salt, Citrus, Amber, Musk, Beach Scented Soy Candles for Home - Coastal Decor for Beach Lovers - 9oz Clear Jar, 40 Hour Burn Time, Made in The USA" src="https://m.media-amazon.com/images/I/41LDy49JS1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08CGFW2HT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sweet Water Decor Salt and Sea Candle - Sea Salt, Citrus, Amber, Musk, Beach Scented Soy Candles for Home - Coastal Decor for Beach Lovers - 9oz Clear Jar, 40 Hour Burn Time, Made in The USA" src="https://m.media-amazon.com/images/I/41LDy49JS1L._SL500_.jpg"/></a>
 
 
 The **Sweet Water Decor Salt and Sea Candle** is perfect for **beach lovers** and anyone looking to bring a refreshing, coastal ambiance into their home. Ideal for those who appreciate **natural scents** and want to create a serene environment with a blend of **sea salt, citrus, amber, and musk**, this candle is a great choice for relaxing evenings or as a thoughtful gift.
@@ -225,10 +225,10 @@ The **Sweet Water Decor Salt and Sea Candle** boasts a carefully crafted scent p
 
 With its **9oz clear jar** and compact dimensions, this candle fits seamlessly into various home settings, from living rooms to bathrooms. The use of **soy wax** ensures a cleaner burn with less soot, benefiting both the environment and indoor air quality. Additionally, the **40 hour burn time** means users can enjoy the soothing scent for many hours without frequent replacements, making it a practical and elegant addition to coastal decor enthusiasts’ homes.
 
-## <a href="https://www.amazon.com/dp/B0BWDTYPJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Breeze Scented Candle</a>
+## <a href="https://www.amazon.com/dp/B0BWDTYPJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Breeze Scented Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWDTYPJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Breeze Scented Candle, 14 oz Summer Ocean Beach Candle Gift for Women and Men, Natural Soy Wax, 3 Wicks, Up to 40 Hours Burning Time" src="https://m.media-amazon.com/images/I/51t1CuuwCKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWDTYPJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Breeze Scented Candle, 14 oz Summer Ocean Beach Candle Gift for Women and Men, Natural Soy Wax, 3 Wicks, Up to 40 Hours Burning Time" src="https://m.media-amazon.com/images/I/51t1CuuwCKL._SL500_.jpg"/></a>
 
 
 The **Coastal Breeze Scented Candle** is perfect for anyone looking to bring the fresh, invigorating essence of the ocean into their living space. Ideal for both men and women who appreciate **natural soy wax candles** with a long-lasting burn, this candle is great for creating a relaxing ambiance during summer evenings or as a thoughtful gift. If you enjoy clean-burning candles with a refreshing scent that evokes the beach, this item is an excellent choice.
@@ -250,10 +250,10 @@ The **Coastal Breeze Scented Candle** features a carefully crafted blend of natu
 
 With a burn time of up to 40 hours, this candle offers extended enjoyment of its refreshing summer ocean fragrance. The calming blue hue adds an aesthetic appeal that fits seamlessly into coastal or beach-inspired interiors. Whether used to unwind after a long day or as a centerpiece for gatherings, the **Coastal Breeze Scented Candle** delivers both style and substance for candle lovers seeking a natural, aromatic experience.
 
-## <a href="https://www.amazon.com/dp/B09FDTBP8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coconut Orange Blossom 3 Wick Candle</a>
+## <a href="https://www.amazon.com/dp/B09FDTBP8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coconut Orange Blossom 3 Wick Candle</a>
 
 
-<a href="https://www.amazon.com/dp/B09FDTBP8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coconut Orange Blossom 3 Wick Candle | Highly Scented Soy Candles for Home 15.8 oz, Summer &amp; Tropical Scented Candle | Aromatherapy Stress Relief Candle, Relaxing Clean Burning Candles for Women &amp; Men" src="https://m.media-amazon.com/images/I/41ge66BwlXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09FDTBP8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coconut Orange Blossom 3 Wick Candle | Highly Scented Soy Candles for Home 15.8 oz, Summer &amp; Tropical Scented Candle | Aromatherapy Stress Relief Candle, Relaxing Clean Burning Candles for Women &amp; Men" src="https://m.media-amazon.com/images/I/41ge66BwlXL._SL500_.jpg"/></a>
 
 
 The **Coconut Orange Blossom 3 Wick Candle** is perfect for individuals seeking a refreshing and calming ambiance in their living spaces. Ideal for both **women and men** who appreciate **highly scented soy candles** that promote **stress relief** and relaxation, this candle suits those looking to enhance their home environment with a **summer and tropical fragrance**. If you enjoy clean-burning, long-lasting candles with a delightful aroma, this product is an excellent choice.

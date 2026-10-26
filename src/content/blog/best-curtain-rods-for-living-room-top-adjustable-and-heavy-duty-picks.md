@@ -23,10 +23,10 @@ Black, bronze, and brushed nickel finishes suit various styles, from modern to f
 
 
 
-## <a href="https://www.amazon.com/dp/B0B7WQVYGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Byondeth Curtain Rods For Windows</a>
+## <a href="https://www.amazon.com/dp/B0B7WQVYGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Byondeth Curtain Rods For Windows</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7WQVYGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Byondeth Curtain Rods for Windows 16 to 144 Inches Adjustable Length 1 Inch Diameter Window Curtain Rod with Aluminium Finials, Black" src="https://m.media-amazon.com/images/I/21OkKQW79fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7WQVYGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Byondeth Curtain Rods for Windows 16 to 144 Inches Adjustable Length 1 Inch Diameter Window Curtain Rod with Aluminium Finials, Black" src="https://m.media-amazon.com/images/I/21OkKQW79fL._SL500_.jpg"/></a>
 
 
 The **Byondeth Curtain Rods for Windows** are ideal for homeowners or renters looking to enhance their window treatments with a versatile and durable solution. If you need an adjustable rod that fits a wide range of window sizes—from 16 to 144 inches—this product is perfect for you. Its sleek **black finish** and modern **aluminium finials** also make it suitable for those who want to add a stylish touch to their living spaces without compromising on functionality.
@@ -49,10 +49,10 @@ The **Byondeth Curtain Rod** features an impressive adjustable length that allow
 
 Constructed with durable materials and finished with sleek **black aluminium finials**, this curtain rod adds a contemporary aesthetic to any room. Its robust design not only enhances the visual appeal but also guarantees long-lasting performance. Installation is straightforward, making it accessible even for DIY enthusiasts, while the rod’s versatile length adjustment caters to various window dressing needs.
 
-## <a href="https://www.amazon.com/dp/B0CP9FRW8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kamanina Curtain Rods For Windows</a>
+## <a href="https://www.amazon.com/dp/B0CP9FRW8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kamanina Curtain Rods For Windows</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP9FRW8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAMANINA Curtain Rods for Windows 72 to 144 Inches (6-12ft) Long Heavy Duty Curtain Rod, 7/8 Inch Adjustable Decorative Drapery Rods with Netted Texture Finials, Bronze" src="https://m.media-amazon.com/images/I/31pOdQpZ2+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP9FRW8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAMANINA Curtain Rods for Windows 72 to 144 Inches (6-12ft) Long Heavy Duty Curtain Rod, 7/8 Inch Adjustable Decorative Drapery Rods with Netted Texture Finials, Bronze" src="https://m.media-amazon.com/images/I/31pOdQpZ2+L._SL500_.jpg"/></a>
 
 
 The **KAMANINA Curtain Rods for Windows 72 to 144 Inches** are ideal for homeowners and interior decorators looking for a **durable** and **stylish** solution to hang curtains on medium to large windows. If you want a heavy-duty, adjustable curtain rod that combines both functionality and decorative appeal, this product is perfect for you. It is especially suited for those who prefer a classic **antique bronze** finish with a textured design to enhance their window treatments.
@@ -74,10 +74,10 @@ The **KAMANINA Curtain Rods** offer a versatile and elegant window treatment sol
 
 Installation is straightforward, thanks to the included mounting hardware, saving users time and effort. The rod’s antique bronze finish pairs well with various curtain fabrics and styles, making it a versatile choice for any room. Whether you want to add a touch of classic elegance or a subtle rustic charm, this curtain rod serves both aesthetic and functional purposes efficiently. Overall, the **KAMANINA Curtain Rods** combine quality, style, and adaptability to meet the needs of discerning homeowners.
 
-## <a href="https://www.amazon.com/dp/B0BJL5MYG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gxoackj Curtain Rods For Windows</a>
+## <a href="https://www.amazon.com/dp/B0BJL5MYG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gxoackj Curtain Rods For Windows</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJL5MYG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GXOACKJ Curtain Rods for windows 32-48 inch, 5/8 inch Decorative Curtain Rod Set, Matte Black Splicing Heavy Duty Metal Curtain Rod with Brackets" src="https://m.media-amazon.com/images/I/31NOMbCRf7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJL5MYG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GXOACKJ Curtain Rods for windows 32-48 inch, 5/8 inch Decorative Curtain Rod Set, Matte Black Splicing Heavy Duty Metal Curtain Rod with Brackets" src="https://m.media-amazon.com/images/I/31NOMbCRf7L._SL500_.jpg"/></a>
 
 
 The **GXOACKJ Curtain Rods** are ideal for homeowners or renters looking to add a sleek, modern touch to their window treatments. Perfect for those who need a durable and adjustable curtain rod that fits windows between 32 and 48 inches, this set is especially suitable for individuals who value both functionality and style in their home decor. If you want a heavy-duty, easy-to-install curtain rod with a matte black finish that complements various interior designs, this product is an excellent choice.
@@ -99,10 +99,10 @@ The **GXOACKJ Curtain Rods** feature a robust metal build that supports heavy cu
 
 Additionally, the adjustable length from 32 to 48 inches allows users to customize the fit to their specific window dimensions, reducing the need for multiple rod sizes. The included brackets and splicing feature make installation straightforward, enabling users to extend or shorten the rod as needed. This flexibility not only improves usability but also enhances the overall look of your windows by providing a seamless and polished appearance.
 
-## <a href="https://www.amazon.com/dp/B0DRX68ZB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1” Diameter Curtain Rod</a>
+## <a href="https://www.amazon.com/dp/B0DRX68ZB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1” Diameter Curtain Rod</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRX68ZB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1” Diameter Curtain Rods Itself is 30 to144 inch 1 Pack Fit 30-142 inch, 66 to 120 inch Window with Heavy Duty Adjustable Rod Matte Black Curtain Splicing Metal Extra Long Curtain Rod for Windows" src="https://m.media-amazon.com/images/I/31Hiil6XydL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRX68ZB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1” Diameter Curtain Rods Itself is 30 to144 inch 1 Pack Fit 30-142 inch, 66 to 120 inch Window with Heavy Duty Adjustable Rod Matte Black Curtain Splicing Metal Extra Long Curtain Rod for Windows" src="https://m.media-amazon.com/images/I/31Hiil6XydL._SL500_.jpg"/></a>
 
 
 The **1” Diameter Curtain Rod** is ideal for homeowners, interior decorators, and renters looking for a versatile and sturdy solution to hang curtains on medium to large windows. If you need an adjustable, heavy-duty rod that fits windows ranging from **30 to 142 inches**, this product is perfect for you. Its matte black finish and extra-long design make it suitable for various décor styles and window sizes.
@@ -125,10 +125,10 @@ The **1” Diameter Curtain Rod** from Hradecti boasts a robust build with a hei
 
 Additionally, the **matte black finish** adds a contemporary touch that easily complements modern and traditional interiors alike. The curtain rod’s splicing design allows for extra length when needed, making it a practical choice for users who may need to extend the rod beyond standard sizes. Overall, this curtain rod combines strength, flexibility, and style, offering users a reliable solution that enhances the appearance and functionality of their window treatments.
 
-## <a href="https://www.amazon.com/dp/B0C3GFH6RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thestoa Curtain Rods For Windows</a>
+## <a href="https://www.amazon.com/dp/B0C3GFH6RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thestoa Curtain Rods For Windows</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3GFH6RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thestoa Curtain Rods for Windows 48 to 84-92 inch, 5/8" bedroom,="" black="" black"="" curtain="" for="" living="" matte="" outdoor="" rod="" rod,="" rods="" room,kitchen,farmhouse,="" small="" src="https://m.media-amazon.com/images/I/21Pzp1mMUwL._SL500_.jpg" stainless="" steel=""/></a>
+<a href="https://www.amazon.com/dp/B0C3GFH6RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thestoa Curtain Rods for Windows 48 to 84-92 inch, 5/8" bedroom,="" black="" black"="" curtain="" for="" living="" matte="" outdoor="" rod="" rod,="" rods="" room,kitchen,farmhouse,="" small="" src="https://m.media-amazon.com/images/I/21Pzp1mMUwL._SL500_.jpg" stainless="" steel=""/></a>
 
 
 The **Thestoa Curtain Rods** are ideal for homeowners and renters looking to enhance their window treatments with a durable and stylish solution. Perfect for those who want a versatile curtain rod that fits various window sizes, especially in bedrooms, living rooms, kitchens, and even outdoor spaces. If you need a reliable, matte black curtain rod that combines strength with elegance, this product is tailored for you.
@@ -150,10 +150,10 @@ The **Thestoa Curtain Rod** features a sturdy stainless steel construction that 
 
 Additionally, the rod’s lightweight build simplifies installation, reducing the effort required to mount it securely. The matte black finish not only adds a contemporary aesthetic but also pairs well with many interior design styles, including farmhouse and modern themes. Its suitability for outdoor use further enhances its functionality, enabling users to extend their window treatment options to patios or porches with confidence in the rod’s resistance to the elements.
 
-## <a href="https://www.amazon.com/dp/B0C5BYHFW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ifels Heavy Duty Curtain Rods For Windows</a>
+## <a href="https://www.amazon.com/dp/B0C5BYHFW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ifels Heavy Duty Curtain Rods For Windows</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5BYHFW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img )"="" alt="IFELS Heavy Duty Curtain Rods for Windows 66 to 120 Inch, 1 Inch Adjustable Black Curtain Rod Set with Easy Installation and Modern Design (A1,Black,30-120" src="https://m.media-amazon.com/images/I/31FqkDz8OWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5BYHFW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img )"="" alt="IFELS Heavy Duty Curtain Rods for Windows 66 to 120 Inch, 1 Inch Adjustable Black Curtain Rod Set with Easy Installation and Modern Design (A1,Black,30-120" src="https://m.media-amazon.com/images/I/31FqkDz8OWL._SL500_.jpg"/></a>
 
 
 The **IFELS Heavy Duty Curtain Rods** are ideal for homeowners or renters looking to enhance their window treatments with a durable and stylish solution. Perfect for those needing a versatile and adjustable curtain rod that fits a wide range of window sizes from **66 to 120 inches**, this product suits individuals who prioritize ease of installation and a modern aesthetic in their home decor.
@@ -175,10 +175,10 @@ The **IFELS Heavy Duty Curtain Rods** feature a robust design with a 1-inch diam
 
 Installation is straightforward thanks to the thoughtfully included mounting hardware, allowing users to set up the curtain rod quickly and securely. The rod's durable construction ensures it can withstand the weight of thick curtains while maintaining stability over time. This combination of functionality and style makes the IFELS curtain rod an excellent choice for anyone looking to upgrade their window treatments with minimal hassle.
 
-## <a href="https://www.amazon.com/dp/B076CG9ZRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenney Kendall Knob Window Curtain Rod</a>
+## <a href="https://www.amazon.com/dp/B076CG9ZRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenney Kendall Knob Window Curtain Rod</a>
 
 
-<a href="https://www.amazon.com/dp/B076CG9ZRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenney Kendall Knob Window Curtain Rod, Adjustable Curtain Rod for Windows 48 to 86 Inches, Extendable Curtain Rod Set, Brushed Nickel Curtain Rod" src="https://m.media-amazon.com/images/I/31XV4UKQbUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076CG9ZRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenney Kendall Knob Window Curtain Rod, Adjustable Curtain Rod for Windows 48 to 86 Inches, Extendable Curtain Rod Set, Brushed Nickel Curtain Rod" src="https://m.media-amazon.com/images/I/31XV4UKQbUL._SL500_.jpg"/></a>
 
 
 The **Kenney Kendall Knob Window Curtain Rod** is ideal for homeowners and renters looking to enhance their window treatments with a stylish and functional solution. Perfect for those who want an adjustable and durable curtain rod that fits a variety of window sizes, this product is especially suited for individuals who appreciate ease of installation and a modern aesthetic.
@@ -201,10 +201,10 @@ The **Kenney Kendall Knob Window Curtain Rod** features an adjustable design tha
 
 In addition to its aesthetic appeal, this curtain rod is built for practicality. The sturdy construction allows it to hold different types of curtains securely, from lightweight sheers to heavier drapes. Installation is straightforward thanks to the included mounting hardware, making it accessible for DIY enthusiasts and those seeking a hassle-free update to their window treatments. Overall, the Kenney Kendall Knob Curtain Rod offers a combination of style, versatility, and durability that benefits any space.
 
-## <a href="https://www.amazon.com/dp/B0C6P9JZJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Curtain Rods For Windows 48-84 Inch</a>
+## <a href="https://www.amazon.com/dp/B0C6P9JZJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Curtain Rods For Windows 48-84 Inch</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6P9JZJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Curtain Rods for Windows 48-84 inch,3/4 inch Heavy Duty Adjustable Decorative Curtain Rod with Modern Finials,Window Rods for Bedroom, Living Room,Patio and Kitchen1" src="https://m.media-amazon.com/images/I/31JqWTi8FML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6P9JZJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Curtain Rods for Windows 48-84 inch,3/4 inch Heavy Duty Adjustable Decorative Curtain Rod with Modern Finials,Window Rods for Bedroom, Living Room,Patio and Kitchen1" src="https://m.media-amazon.com/images/I/31JqWTi8FML._SL500_.jpg"/></a>
 
 
 The **Curtain Rods for Windows 48-84 inch** by **UNCONSIL** are ideal for homeowners and renters looking to enhance their living spaces with a versatile and stylish window treatment solution. Perfect for those who want a durable and adjustable rod that fits various window sizes, this product suits individuals aiming to combine functionality with modern decorative appeal in bedrooms, living rooms, patios, or kitchens.
@@ -226,10 +226,10 @@ The **UNCONSIL Curtain Rod** features a strong, **3/4 inch heavy-duty adjustable
 
 Beyond its visual appeal, the rod's **sturdy construction** supports heavier curtains, which helps in improving privacy and light control. The included **decorative finials** provide a polished look, eliminating the need for additional curtain accessories. This combination of form and function makes it a practical choice for anyone seeking to upgrade their window treatments while ensuring ease of installation and lasting performance.
 
-## <a href="https://www.amazon.com/dp/B0DB1WKRW1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enjoybasics Blackout Curtain Rod</a>
+## <a href="https://www.amazon.com/dp/B0DB1WKRW1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enjoybasics Blackout Curtain Rod</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB1WKRW1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENJOYBASICS Blackout Curtain rod for windows 48 to 84, 5/8 in Wrap Around Curtain Rods for Bedroom, Living Room, Adjustable from 30 to 86 Inches, Matte Black" src="https://m.media-amazon.com/images/I/316yV+vKvrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB1WKRW1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENJOYBASICS Blackout Curtain rod for windows 48 to 84, 5/8 in Wrap Around Curtain Rods for Bedroom, Living Room, Adjustable from 30 to 86 Inches, Matte Black" src="https://m.media-amazon.com/images/I/316yV+vKvrL._SL500_.jpg"/></a>
 
 
 The **ENJOYBASICS Blackout Curtain Rod** is an ideal choice for homeowners and renters who want a versatile and durable solution to hang curtains in their **bedroom**, **living room**, or any other window space. This product is perfect for those seeking an adjustable and stylish rod that complements modern decor while providing robust support for blackout curtains. If you need a curtain rod that fits a wide range of window sizes and offers a sleek matte black finish, this item is designed for you.
@@ -251,10 +251,10 @@ The **ENJOYBASICS Blackout Curtain Rod** boasts an adjustable length from 30 to 
 
 Constructed with durability in mind, this curtain rod supports the weight of heavy blackout curtains without sagging or bending, ensuring long-term performance. The rod's diameter of 5/8 inch is perfect for most standard curtain hooks and rings, providing a secure fit. Additionally, the product includes all necessary mounting hardware, making installation straightforward for both beginners and experienced DIYers. This combination of features and benefits makes the ENJOYBASICS curtain rod a reliable and stylish choice for anyone looking to upgrade their window treatments.
 
-## <a href="https://www.amazon.com/dp/B0BY2LTXLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Voiiy Curtain Rods For Windows 48 To 84 Inch Black 1'' Diameter Drapery Rods</a>
+## <a href="https://www.amazon.com/dp/B0BY2LTXLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Voiiy Curtain Rods For Windows 48 To 84 Inch Black 1'' Diameter Drapery Rods</a>
 
 
-<a href="https://www.amazon.com/dp/B0BY2LTXLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VOIIY Curtain Rods for Windows 48 to 84 Inch(4-7 Feet),Black 1'' Diameter Drapery Rods with End Cap Style Design,Modern Adjustable Heavy Duty Curtain Rod,Size:36''-88''" src="https://m.media-amazon.com/images/I/211aXzljTqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BY2LTXLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VOIIY Curtain Rods for Windows 48 to 84 Inch(4-7 Feet),Black 1'' Diameter Drapery Rods with End Cap Style Design,Modern Adjustable Heavy Duty Curtain Rod,Size:36''-88''" src="https://m.media-amazon.com/images/I/211aXzljTqL._SL500_.jpg"/></a>
 
 
 The **VOIIY Curtain Rods** are ideal for homeowners or renters looking to enhance their window treatments with a stylish and functional solution. Perfect for those who need an **adjustable** and **heavy-duty curtain rod** that can fit windows ranging from **48 to 84 inches** (or 4 to 7 feet), this product is designed for anyone seeking a modern and durable option to complement their interior decor. Whether you want to hang thick drapes or lighter curtains, this rod's robust build and sleek design make it a versatile choice.

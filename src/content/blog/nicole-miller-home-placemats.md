@@ -24,10 +24,10 @@ Some designs feature reversible patterns or scalloped edges for a unique look. T
 
 
 
-## <a href="https://www.amazon.com/dp/B093ZM5JQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Homing Neutral Beige Cloth Placemats Set Of 6</a>
+## <a href="https://www.amazon.com/dp/B093ZM5JQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Homing Neutral Beige Cloth Placemats Set Of 6</a>
 
 
-<a href="https://www.amazon.com/dp/B093ZM5JQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="homing Neutral Beige Cloth Placemats Set of 6 – Cotton Linen Blend Washable Farmhouse Dining Table Mats for Indoors &amp; Outdoors, Easy to Clean, 13 x 19 Inch" src="https://m.media-amazon.com/images/I/41Lbjp0G8TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093ZM5JQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="homing Neutral Beige Cloth Placemats Set of 6 – Cotton Linen Blend Washable Farmhouse Dining Table Mats for Indoors &amp; Outdoors, Easy to Clean, 13 x 19 Inch" src="https://m.media-amazon.com/images/I/41Lbjp0G8TL._SL500_.jpg"/></a>
 
 
 The **homing Neutral Beige Cloth Placemats Set of 6** is ideal for individuals who appreciate a blend of style and practicality in their dining decor. Perfect for homeowners, renters, or anyone looking to elevate their dining experience with a rustic yet elegant touch, these placemats suit both **indoors and outdoors** settings. If you want durable, easy-to-clean mats that complement a farmhouse aesthetic, this set is a great choice.
@@ -49,12 +49,12 @@ These **homing Neutral Beige Cloth Placemats** feature a thoughtfully chosen **c
 
 Measuring approximately **13 x 19 inches**, each placemat provides ample coverage to protect your table from spills and scratches. Whether you're hosting an elegant dinner indoors or enjoying a casual meal outdoors, these mats bring both functionality and farmhouse charm to your setting. Their easy-to-clean fabric ensures they maintain their appeal over time, making them a practical and stylish addition to your dining essentials.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B093ZM5JQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B093ZM5JQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balapet Quilted Placemats Set Of 6</a>
+## <a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balapet Quilted Placemats Set Of 6</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BALAPET Quilted Placemats Set of 6, 100% Cotton 14" dinner="" edges="" farmhouse="" for="" holidays,="" kitchen="" machine="" mats="" natural,="" party="" reversible="" round="" scalloped="" src="https://m.media-amazon.com/images/I/41DHTOy2ewL._SL500_.jpg" style,="" table="" tabletop="" washable"="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BALAPET Quilted Placemats Set of 6, 100% Cotton 14" dinner="" edges="" farmhouse="" for="" holidays,="" kitchen="" machine="" mats="" natural,="" party="" reversible="" round="" scalloped="" src="https://m.media-amazon.com/images/I/41DHTOy2ewL._SL500_.jpg" style,="" table="" tabletop="" washable"="" with=""/></a>
 
 
 The **BALAPET Quilted Placemats Set of 6** is perfect for individuals who appreciate a blend of style and practicality in their dining space. Ideal customers include homeowners who enjoy hosting **dinner parties**, holiday gatherings, or anyone looking to add a touch of **farmhouse style** to their kitchen decor while protecting their tabletops with durable, easy-to-clean mats. These placemats are also great for those who prioritize natural materials, as they are made of **100% cotton** and are fully **machine washable**.
@@ -78,12 +78,12 @@ The **BALAPET Quilted Placemats** offer a combination of functional and decorati
 
 Additionally, the **scalloped edges** give these placemats a unique and elegant detail that sets them apart from standard rectangular mats. Their practical size of 14 inches in diameter fits well on most tabletops, making them versatile for everyday use or special occasions. Being **machine washable**, these placemats offer convenience and longevity, ensuring they remain fresh and clean even after multiple uses, making them a smart and stylish investment for your dining area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGDSLRB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01E0YEPR0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sweet Home Collection 100% Cotton Placemats</a>
+## <a href="https://www.amazon.com/dp/B01E0YEPR0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sweet Home Collection 100% Cotton Placemats</a>
 
 
-<a href="https://www.amazon.com/dp/B01E0YEPR0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 19"="" 6,="" alt="Sweet Home Collection 100% Cotton Placemats for Dining Room Rectangle Two Tone Woven Fabric 13" durable="" eggshell"="" mat="" of="" set="" set,="" soft="" src="https://m.media-amazon.com/images/I/61Gd9xJSsYL._SL500_.jpg" table="" x=""/></a>
+<a href="https://www.amazon.com/dp/B01E0YEPR0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 19"="" 6,="" alt="Sweet Home Collection 100% Cotton Placemats for Dining Room Rectangle Two Tone Woven Fabric 13" durable="" eggshell"="" mat="" of="" set="" set,="" soft="" src="https://m.media-amazon.com/images/I/61Gd9xJSsYL._SL500_.jpg" table="" x=""/></a>
 
 
 The **Sweet Home Collection 100% Cotton Placemats** are perfect for individuals who value both style and functionality in their dining space. Ideal for homeowners, renters, or anyone looking to add a soft, durable, and elegant touch to their table setting, these placemats are especially suited for those who appreciate natural fabrics and a subtle, sophisticated color palette like **eggshell**. If you want to protect your dining table from spills and scratches while enhancing its aesthetic, this set is a great choice.
@@ -107,12 +107,12 @@ These **Sweet Home Collection placemats** stand out for their use of 100% cotton
 
 The subtle two-tone **eggshell color** adds a refined, neutral look that integrates seamlessly into different interior styles, from modern to classic. This color choice offers a clean, inviting appearance that brightens the dining area while remaining understated. With a lightweight and practical design, these placemats are easy to move and store, making them ideal for both daily use and special occasions. Overall, they provide an attractive and functional solution for protecting your table while elevating your dining experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01E0YEPR0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01E0YEPR0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Hydrangea Flowers Branches Chinoiserie Spring Placemats Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Hydrangea Flowers Branches Chinoiserie Spring Placemats Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Hydrangea Flowers Branches Chinoiserie Spring Placemats Set of 4, 12x18 Inch Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/51rvt-A6xeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Hydrangea Flowers Branches Chinoiserie Spring Placemats Set of 4, 12x18 Inch Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/51rvt-A6xeL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Hydrangea Flowers Branches Chinoiserie Spring Placemats Set of 4** is ideal for individuals who appreciate elegant and functional table decor. Whether you are hosting a party, decorating your kitchen, or enhancing your dining space, these placemats are perfect for those seeking a blend of style and practicality. If you want to add a touch of spring-inspired charm with a sophisticated blue floral design, this set is a great choice for you.
@@ -134,12 +134,12 @@ These **Artoid Mode spring placemats** feature a stunning hydrangea flower branc
 
 Beyond their decorative appeal, the placemats are designed for practical use. Their size and lightweight nature make them easy to place and remove, while the material provides a protective barrier against spills and heat. This combination of beauty and functionality makes the set a versatile addition to your home, perfect for both everyday use and special occasions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BX3VW5TZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BWDKXG49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Antique Herbs And Wild Flowers Summer Placemats Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B0BWDKXG49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Antique Herbs And Wild Flowers Summer Placemats Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWDKXG49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Antique Herbs and Wild Flowers Summer Placemats Set of 4, 12x18 Inch Seasonal Wildflower Spring Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/510c0oPzElL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWDKXG49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Antique Herbs and Wild Flowers Summer Placemats Set of 4, 12x18 Inch Seasonal Wildflower Spring Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/510c0oPzElL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Antique Herbs and Wild Flowers Summer Placemats Set of 4** is ideal for individuals who appreciate a touch of nature-inspired elegance in their dining area. Perfect for those who host seasonal gatherings, enjoy decorating their kitchen or dining space with floral motifs, or anyone looking to add a charming and functional accessory to their table setting. These placemats suit people who prefer durable yet aesthetically pleasing table décor.
@@ -160,12 +160,12 @@ The **Artoid Mode Antique Herbs and Wild Flowers Summer Placemats** are crafted 
 
 Beyond their decorative appeal, these placemats are practical for everyday use and special occasions alike. Their slim design allows for easy stacking and storage without taking up much space. Whether you're hosting a summer party or simply want to brighten up your kitchen table, these placemats serve as an excellent blend of function and style, making every meal feel more inviting and thoughtfully presented.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BWDKXG49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BWDKXG49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09PDDBY7B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Slkqg Navy Blue Placemats Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B09PDDBY7B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Slkqg Navy Blue Placemats Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B09PDDBY7B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SLKQG Navy Blue Placemats Set of 4 - Easy Clean Washable Vinyl Placemats - Wipeable Heat Resistant Table Mats for Dining Table - 17x12 Inch (Navy Blue, 4)" src="https://m.media-amazon.com/images/I/51l+u1v6xuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PDDBY7B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SLKQG Navy Blue Placemats Set of 4 - Easy Clean Washable Vinyl Placemats - Wipeable Heat Resistant Table Mats for Dining Table - 17x12 Inch (Navy Blue, 4)" src="https://m.media-amazon.com/images/I/51l+u1v6xuL._SL500_.jpg"/></a>
 
 
 The **SLKQG Navy Blue Placemats Set of 4** is ideal for individuals or families looking to enhance their dining experience with stylish yet practical table accessories. Perfect for those who value both aesthetics and functionality, these placemats suit anyone who wants an easy-to-clean, durable, and heat-resistant solution to protect their dining table from spills, stains, and heat damage. Whether you host frequent dinners or simply want to keep your table looking neat, this set is a smart choice.
@@ -189,12 +189,12 @@ Crafted from high-quality **vinyl material**, the SLKQG Navy Blue Placemats prov
 
 Measuring **17 by 12 inches**, these placemats offer ample coverage for most dining settings without overpowering the table’s aesthetics. The rich **navy blue color** not only complements a wide range of décor styles but also adds a subtle elegance to your dining area. Additionally, the set of four placemats ensures that you have enough pieces for family meals or small gatherings, making it a practical and stylish addition to your home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09PDDBY7B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09PDDBY7B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shacos Woven Fabric Placemats Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shacos Woven Fabric Placemats Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHACOS Woven Fabric Placemats Set of 4 Heat Resistant Place Mats Non Slip Washable Double Layer Cloth Placemats Reversible Table Mats Kitchen Dining Table Decor (4, Dark Grey)" src="https://m.media-amazon.com/images/I/51nH6iSpVvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHACOS Woven Fabric Placemats Set of 4 Heat Resistant Place Mats Non Slip Washable Double Layer Cloth Placemats Reversible Table Mats Kitchen Dining Table Decor (4, Dark Grey)" src="https://m.media-amazon.com/images/I/51nH6iSpVvL._SL500_.jpg"/></a>
 
 
 The **SHACOS Woven Fabric Placemats Set of 4** is ideal for homeowners and dining enthusiasts looking to enhance their table setting with practical and stylish accessories. These **heat resistant**, **non-slip**, and **washable double layer cloth placemats** are perfect for families, dinner party hosts, or anyone who values both functionality and elegant **kitchen dining table decor**.
@@ -219,12 +219,12 @@ The **SHACOS Woven Fabric Placemats** stand out due to their **double layer cons
 
 Additionally, these placemats are crafted with a **non-slip backing** that keeps them firmly in place, preventing accidental slips or messes during meals. Their **washable fabric** makes cleanup simple and convenient, saving time and effort for busy households. Overall, the combination of functionality and aesthetic appeal makes these placemats an excellent choice for those wanting to protect their dining surfaces while elevating their table decor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DHGT6CYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CPF24VYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Brown Poppy Floral Leaves Fall Placemats Set Of 4</a>
+## <a href="https://www.amazon.com/dp/B0CPF24VYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Artoid Mode Brown Poppy Floral Leaves Fall Placemats Set Of 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPF24VYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Brown Poppy Floral Leaves Fall Placemats Set of 4, 12x18 Inch Seasonal Spring Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/4178+V20GxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPF24VYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Artoid Mode Brown Poppy Floral Leaves Fall Placemats Set of 4, 12x18 Inch Seasonal Spring Table Mats for Party Kitchen Dining Decoration" src="https://m.media-amazon.com/images/I/4178+V20GxL._SL500_.jpg"/></a>
 
 
 The **Artoid Mode Brown Poppy Floral Leaves Fall Placemats Set of 4** is ideal for individuals who want to add a touch of seasonal elegance to their dining space. Perfect for those who enjoy hosting **spring or fall gatherings**, these placemats are suited for anyone looking to enhance their kitchen or party decor with a subtle yet charming design. If you appreciate functional and decorative table accessories that reflect the changing seasons, this set is a great choice.
@@ -247,12 +247,12 @@ The **Artoid Mode Brown Poppy Floral Leaves Fall Placemats** stand out with thei
 
 Crafted by **Artoid Mode**, these placemats combine style and functionality. They are lightweight and easy to handle, which means setting up or cleaning after a meal is hassle-free. While they may not provide heavy-duty protection due to their slim profile, they excel as decorative accents that elevate your dining experience. Whether used for casual meals or festive occasions, these placemats offer a convenient way to celebrate the seasons with style.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPF24VYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPF24VYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07657H1JV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pimpernel Sara Miller Chelsea Placemats</a>
+## <a href="https://www.amazon.com/dp/B07657H1JV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pimpernel Sara Miller Chelsea Placemats</a>
 
 
-<a href="https://www.amazon.com/dp/B07657H1JV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pimpernel Sara Miller Chelsea Placemats - Set of 4 Cork-Backed Table Mats Featuring Elegant Gold &amp; Floral Design, Ideal for Dining Rooms, Kitchen Tables, &amp; Home Décor - Heat &amp; Stain Resistant" src="https://m.media-amazon.com/images/I/31M56lOZSJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07657H1JV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pimpernel Sara Miller Chelsea Placemats - Set of 4 Cork-Backed Table Mats Featuring Elegant Gold &amp; Floral Design, Ideal for Dining Rooms, Kitchen Tables, &amp; Home Décor - Heat &amp; Stain Resistant" src="https://m.media-amazon.com/images/I/31M56lOZSJL._SL500_.jpg"/></a>
 
 
 The **Pimpernel Sara Miller Chelsea Placemats** are perfect for individuals who appreciate combining **style** and **functionality** in their dining spaces. Ideal for homeowners looking to enhance their **dining rooms**, **kitchen tables**, or overall **home décor**, these placemats suit those who want durable yet elegant table accessories that protect surfaces while adding a sophisticated touch. If you value **heat** and **stain-resistant** materials along with an artistic design, this set is an excellent choice.
@@ -274,12 +274,12 @@ These **Pimpernel Sara Miller Chelsea Placemats** feature a beautifully crafted 
 
 Beyond their visual appeal, these placemats offer practical benefits such as a **cork backing** that prevents slipping and protects your furniture from scratches. Their **heat** and **stain-resistant** properties make them ideal for everyday use, shielding your table from hot dishes and accidental spills. Manufactured by **Pimpernel**, a trusted brand in home accessories, these placemats combine durability with elegant design, making them a valuable addition to any dining or kitchen table.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07657H1JV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07657H1JV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Pimpernel Sara Miller India Placemats (set Of 4) </a>
+## <a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Pimpernel Sara Miller India Placemats (set Of 4) </a>
 
 
-<a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pimpernel Sara Miller India Placemats (Set of 4) - Decorative Set Up with Hummingbird Paradise Design - Stylish Table Settings with Cork Backing for Dining &amp; Entertaining - Unique for Gifts" src="https://m.media-amazon.com/images/I/71ssqfOyrUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pimpernel Sara Miller India Placemats (Set of 4) - Decorative Set Up with Hummingbird Paradise Design - Stylish Table Settings with Cork Backing for Dining &amp; Entertaining - Unique for Gifts" src="https://m.media-amazon.com/images/I/71ssqfOyrUL._SL500_.jpg"/></a>
 
 
 The **Pimpernel Sara Miller India Placemats (Set of 4)** are perfect for individuals who appreciate **stylish and functional dining accessories**. Ideal for those who love to entertain guests or add a touch of elegance to everyday meals, these placemats suit homeowners, gift shoppers, and anyone looking to enhance their table settings with unique and decorative items.
@@ -301,7 +301,7 @@ The **Pimpernel Sara Miller India Placemats** feature a captivating **Hummingbir
 
 Beyond their visual appeal, these placemats offer practical benefits thanks to their **cork backing**, which prevents slipping and shields your table from heat damage and scratches. The lightweight design makes them easy to handle and clean, perfect for busy households or those who frequently host guests. Their unique and artistic look also makes them an excellent choice for gifting, especially for friends and family who enjoy adding creative touches to their home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJM5HMJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

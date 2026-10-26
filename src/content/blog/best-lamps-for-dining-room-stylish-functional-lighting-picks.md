@@ -23,10 +23,10 @@ You can select tall standing lamps for a sleek look or chandeliers to add elegan
 
 
 
-## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
+## <a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modern Floor Lamp Simple Design With White Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
+<a href="https://www.amazon.com/dp/B07Z5NQPDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Modern Floor Lamp Simple Design with White Shade, Foot Pedal Switch, 60" bedroom="" black="" bulb)"="" dining="" for="" kitchen,="" lamp(without="" lamps="" living="" office="" pole="" room="" small="" src="https://m.media-amazon.com/images/I/218bLToEzyL._SL500_.jpg" tall=""/></a>
 
 
 The **Modern Floor Lamp Simple Design with White Shade** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room, bedroom, office, dining room, or kitchen**. This lamp is perfect for those who appreciate minimalist aesthetics combined with practical features like a **foot pedal switch** for easy operation. If you want a sleek, compact lamp that complements various interior styles without taking up much space, this product is an excellent choice.
@@ -49,10 +49,10 @@ The **Ambimall Modern Floor Lamp** stands out with its sleek and minimalist desi
 
 Weighing just **5.6 pounds**, this lamp is highly portable, allowing you to easily reposition it within different rooms or spaces as needed. Its compact footprint, measuring approximately **7.87 inches wide and 10.24 inches long**, fits seamlessly into tight spaces without overwhelming the room. The classic combination of a **black pole and white shade** adds a modern touch while maintaining versatility to complement various interior designs.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is perfect for individuals seeking a stylish and functional lighting solution for their **living room, bedroom, office, or dining room**. Ideal for those who appreciate modern design combined with practical features, this lamp suits homeowners, renters, and professionals who want to enhance ambiance with adjustable lighting and a sleek aesthetic.
@@ -75,10 +75,10 @@ The **Nintiue dimmable floor lamp** features an upgraded design with a versatile
 
 Its modern arc shape and matte black finish make this standing lamp a statement piece that complements various décor styles. The **linen shade** diffuses light gently, preventing harsh glare and adding a cozy touch to any space. With compact yet substantial dimensions, it fits well in both small and large rooms, making it an excellent choice for those seeking both functionality and style in one lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0C612KJSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Farmhouse Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0C612KJSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 2 Farmhouse Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0C612KJSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Farmhouse Lamps for Living Room, Rustic Vintage Bedroom Nightstand Table Lamp with 2 USB Charging Ports, Built-In Frosted Glass Night Light for End Table Entryway, 4 Bulbs Included (Bronze)" src="https://m.media-amazon.com/images/I/517dEzw0DzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C612KJSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 2 Farmhouse Lamps for Living Room, Rustic Vintage Bedroom Nightstand Table Lamp with 2 USB Charging Ports, Built-In Frosted Glass Night Light for End Table Entryway, 4 Bulbs Included (Bronze)" src="https://m.media-amazon.com/images/I/517dEzw0DzL._SL500_.jpg"/></a>
 
 
 The **Set of 2 Farmhouse Lamps for Living Room** is ideal for homeowners and interior enthusiasts looking to add a touch of **rustic vintage charm** to their living spaces. Perfect for those who appreciate both style and functionality, these lamps are especially suitable for use on **bedroom nightstands, end tables, or entryways**, offering a cozy ambiance along with practical features like USB charging ports.
@@ -100,10 +100,10 @@ These **farmhouse lamps** are crafted by **AIEAMPDO** and feature a durable bron
 
 Beyond aesthetics, the lamps integrate **2 USB charging ports**, enabling users to conveniently charge smartphones, tablets, or other devices right at their bedside or living room. This blend of vintage style and modern utility makes the set a practical and stylish addition to any home, improving both ambiance and convenience.
 
-## <a href="https://www.amazon.com/dp/B08LVZH9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LVZH9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LVZH9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimmable Floor Lamp, 3 x 800LM LED Edison Bulbs Included, Farmhouse Industrial Floor Lamp Standing Tree Lamp with Elegant Teardrop Cage Tall Lamps for Living Room Bedroom Office Dining Room-Black" src="https://m.media-amazon.com/images/I/416FTUBYpJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LVZH9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimmable Floor Lamp, 3 x 800LM LED Edison Bulbs Included, Farmhouse Industrial Floor Lamp Standing Tree Lamp with Elegant Teardrop Cage Tall Lamps for Living Room Bedroom Office Dining Room-Black" src="https://m.media-amazon.com/images/I/416FTUBYpJL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp** with 3 x 800LM LED Edison bulbs is ideal for individuals seeking a stylish yet functional lighting solution for their **living room, bedroom, office, or dining room**. This lamp is perfect for those who appreciate a blend of **farmhouse and industrial design** and want to add a warm, inviting ambiance to their space with adjustable brightness.
@@ -126,10 +126,10 @@ This **Nintiue dimmable floor lamp** stands out with its combination of form and
 
 Measuring **69 inches tall**, this lamp provides substantial vertical illumination without overwhelming room space. Its sturdy build from the **Nintiue brand** ensures durability and stability, making it a reliable lighting fixture. Whether used in a **living room, bedroom, office, or dining area**, this floor lamp balances aesthetic appeal with practical lighting benefits, enhancing the overall ambiance and functionality of the space.
 
-## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pokat 23" Modern Ceramic Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
+<a href="https://www.amazon.com/dp/B0C4SZBN64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 2="" alt="PoKat 23" bedroom="" bedside="" beige"="" ceramic="" desk="" end="" farmhouse="" for="" lamp="" lamps="" living="" modern="" nightstand="" of="" room="" set="" src="https://m.media-amazon.com/images/I/51Ji9EDHVUL._SL500_.jpg" table="" white=""/></a>
 
 
 The **PoKat 23" Modern Ceramic Table Lamp Set** is ideal for individuals seeking to enhance the ambiance of their **living room, bedroom**, or **bedside nightstand** with stylish yet functional lighting. Perfect for those who appreciate **farmhouse** aesthetics combined with modern design, this set is suitable for homeowners, renters, or anyone looking to add a cozy and elegant touch to their space.
@@ -152,10 +152,10 @@ The **PoKat 23" Modern Ceramic Table Lamp Set** features a beautifully crafted c
 
 Beyond aesthetics, the lamps offer practical benefits such as providing soft, ambient lighting that enhances the comfort and mood of any room. The set of two allows for symmetrical lighting arrangements, perfect for bedrooms or living rooms where balanced light distribution is desired. Additionally, the sturdy ceramic construction ensures durability and stability, reducing the risk of accidental tipping. Overall, these lamps combine style and utility, making them a smart investment for anyone looking to upgrade their home lighting.
 
-## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ambimall Floor Lamps For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ambimall Floor Lamps For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BPLWBPM6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 9w="" alt="Ambimall Floor Lamps for Living Room, 64" and="" bedroom="" brightness,="" bulb="" colors="" control="" dimmable="" floor="" for="" included"="" lamp="" lamps="" living="" modern="" office,="" remote="" room="" src="https://m.media-amazon.com/images/I/511SaB8MZqL._SL500_.jpg" standing="" stepless="" temperature="" with=""/></a>
 
 
 The **Ambimall Floor Lamps for Living Room** is ideal for individuals seeking a versatile and modern lighting solution for their **living room, bedroom, or office**. This product is perfect for those who value convenience and customization in their lighting setup, especially users who want to easily adjust brightness and color temperature without getting up, thanks to its remote control feature. If you are looking to enhance your interior ambiance with a sleek and functional **64" standing lamp**, this lamp is designed for you.
@@ -178,10 +178,10 @@ The **Ambimall Floor Lamp** features a **stepless dimmable system** allowing use
 
 Its **modern and minimalist design** fits well in various settings, from contemporary living rooms to professional office spaces. The lamp’s height of 64.57 inches ensures it provides ample light coverage without occupying much floor space. Additionally, the convenience of a remote control means you can adjust lighting settings from anywhere in the room, enhancing comfort and usability. Overall, this lamp combines style, functionality, and ease of use to elevate your home or workspace lighting experience.
 
-## <a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Chandelier</a>
+## <a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Chandelier, 6-Light Farmhouse Chandelier for Dining Room Lighting Fixtures Hanging, Dining Light Fixtures Industrial Modern Chandelier for Bedroom, Foyer, Hall, Kitchen, Living Room and Entryway" src="https://m.media-amazon.com/images/I/41uJy3bIv0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXL7FM6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Chandelier, 6-Light Farmhouse Chandelier for Dining Room Lighting Fixtures Hanging, Dining Light Fixtures Industrial Modern Chandelier for Bedroom, Foyer, Hall, Kitchen, Living Room and Entryway" src="https://m.media-amazon.com/images/I/41uJy3bIv0L._SL500_.jpg"/></a>
 
 
 The **Black Chandelier** by Lynnoland is perfect for homeowners and interior decorators seeking a blend of **industrial** and **modern farmhouse** styles. Ideal for those who want to elevate their **dining room**, **kitchen**, or **living spaces** with a bold yet elegant lighting fixture, this chandelier suits users looking for a statement piece that offers both functionality and aesthetic appeal.
@@ -204,10 +204,10 @@ The **Black Chandelier** features a robust design with dimensions of **47 inches
 
 Equipped with **six lights**, this chandelier ensures ample brightness for gatherings and daily living, creating a welcoming ambiance. Its lightweight construction at just over five pounds simplifies installation without compromising durability. Additionally, the fact that it comes as a **no-assembly light fixture** saves time and effort, making it an excellent choice for those who desire elegance with minimal hassle.
 
-## <a href="https://www.amazon.com/dp/B09XMLJ29P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruiyey Modern Chandelier Ceiling Light Fixture</a>
+## <a href="https://www.amazon.com/dp/B09XMLJ29P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ruiyey Modern Chandelier Ceiling Light Fixture</a>
 
 
-<a href="https://www.amazon.com/dp/B09XMLJ29P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUIYEY Modern Chandelier Ceiling Light Fixture Sputnik Chandeliers Gold and Black Farmhouse Chandelier Over Table 12-Light Height Adjustable Chandeliers for Dining Room, Living Room,Kitchen Island" src="https://m.media-amazon.com/images/I/41dJyErzgUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XMLJ29P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RUIYEY Modern Chandelier Ceiling Light Fixture Sputnik Chandeliers Gold and Black Farmhouse Chandelier Over Table 12-Light Height Adjustable Chandeliers for Dining Room, Living Room,Kitchen Island" src="https://m.media-amazon.com/images/I/41dJyErzgUL._SL500_.jpg"/></a>
 
 
 The **RUIYEY Modern Chandelier Ceiling Light Fixture** is ideal for homeowners and interior designers looking to elevate their living spaces with a stylish and functional lighting solution. Perfect for those who appreciate a blend of contemporary and farmhouse aesthetics, this chandelier suits **dining rooms**, **living rooms**, and **kitchen islands** where a bold statement piece is desired. Buyers seeking an adjustable, multi-light fixture to enhance ambiance and complement modern decor will find this item particularly appealing.
@@ -229,10 +229,10 @@ Featuring a sophisticated combination of **black and gold**, the RUIYEY Modern C
 
 The **height adjustable** feature provides flexibility, allowing users to tailor the fixture’s placement to the room’s specific dimensions and ceiling height. This customization ensures optimal lighting coverage and visual balance. Additionally, the large dimensions of the fixture make it a commanding centerpiece that can transform the atmosphere of living rooms or kitchen islands, creating an inviting and stylish environment. Overall, this chandelier combines aesthetic appeal with practical benefits, making it a valuable addition to any modern home.
 
-## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partphoner Traditional Table Lamp Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0D3WTFWQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PARTPHONER Traditional Table Lamp Set of 2, Rustic Farmhouse Table Lamps for Living Room Bedroom, 22" antique="" bedside="" desk="" grey"="" lamps="" linen="" nightstand="" shades,="" src="https://m.media-amazon.com/images/I/41dLE8qqtWL._SL500_.jpg" vintage="" with=""/></a>
 
 
 The **PARTPHONER Traditional Table Lamp Set of 2** is ideal for individuals seeking to enhance their living room or bedroom ambiance with a touch of rustic charm. If you appreciate vintage aesthetics and want functional yet stylish lighting options for your bedside or desk, this set is perfect for you. Homeowners, interior decorators, and anyone looking to add warmth and character to their space will find these lamps highly appealing.
@@ -255,10 +255,10 @@ The **PARTPHONER Traditional Table Lamp Set** features a sturdy build with a vin
 
 Beyond their aesthetic charm, these lamps offer practical benefits such as creating a warm and inviting environment, suitable for bedrooms, living rooms, or even office spaces. The set of two allows for symmetrical placement, improving room lighting harmony. Overall, the **PARTPHONER table lamps** blend timeless design with functional lighting, making them a great addition to any rustic or vintage-inspired interior.
 
-## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0B48G18TF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B48G18TF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimmable Floor Lamp - 3 Lights Arc Floor Lamps for Living Room, 1000LM Modern Tall Standing Lamp With Beige Shades &amp; Heavy Base, Mid Century Tree Floor Lamp for Bedroom Office, 3 LED Bulbs Included" src="https://m.media-amazon.com/images/I/41lbM3lyrSL._SL500_.jpg"/></a>
 
 
 The **Dimmable Floor Lamp - 3 Lights Arc Floor Lamps** is ideal for individuals looking to enhance their living spaces with stylish and functional lighting. Perfect for those who want a modern yet classic touch in their **living room, bedroom, or office**, this lamp suits customers who value adjustable lighting and durable construction combined with an elegant design. If you need versatile lighting that complements various decor styles while providing ample illumination, this floor lamp is a great choice.

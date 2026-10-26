@@ -23,10 +23,10 @@ Easy to install and remove, these curtains protect your car’s interior from he
 
 
 
-## <a href="https://www.amazon.com/dp/B098Q62KPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Pearl Black Z Window Plug-in Half Sun Shades Car Curtain</a>
+## <a href="https://www.amazon.com/dp/B098Q62KPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Pearl Black Z Window Plug-in Half Sun Shades Car Curtain</a>
 
 
-<a href="https://www.amazon.com/dp/B098Q62KPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Pearl Black Z Window Plug-in Half Sun Shades Car Curtain Compatible with - Thar 2020 (Set of 4) Color Black" src="https://m.media-amazon.com/images/I/410xqyWBBDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098Q62KPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Pearl Black Z Window Plug-in Half Sun Shades Car Curtain Compatible with - Thar 2020 (Set of 4) Color Black" src="https://m.media-amazon.com/images/I/410xqyWBBDL._SL500_.jpg"/></a>
 
 
 The **Auto Pearl Black Z Window Plug-in Half Sun Shades Car Curtain** is ideal for **Thar 2020 owners** looking to enhance their driving comfort by reducing glare and heat inside the vehicle. If you want to protect yourself and your passengers from harsh sunlight while maintaining privacy, this set of 4 black sun shades is an excellent choice.

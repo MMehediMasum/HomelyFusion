@@ -23,10 +23,10 @@ Products like the Lorell SOHO 18" 3-Drawer Vertical File and the DEVAISE 3-Drawe
 
 
 
-## <a href="https://www.amazon.com/dp/B007P8G97I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lorell Soho 18" 3-drawer Vertical File</a>
+## <a href="https://www.amazon.com/dp/B007P8G97I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lorell Soho 18" 3-drawer Vertical File</a>
 
 
-<a href="https://www.amazon.com/dp/B007P8G97I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3-drawer="" alt="Lorell SOHO 18" file"="" src="https://m.media-amazon.com/images/I/31hlJ0BQUKL._SL500_.jpg" vertical=""/></a>
+<a href="https://www.amazon.com/dp/B007P8G97I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 3-drawer="" alt="Lorell SOHO 18" file"="" src="https://m.media-amazon.com/images/I/31hlJ0BQUKL._SL500_.jpg" vertical=""/></a>
 
 
 The **Lorell SOHO 18" 3-Drawer Vertical File** is ideal for individuals seeking a compact and efficient filing solution for home offices or small workspaces. Perfect for professionals, students, and anyone needing organized storage for important documents, this vertical file cabinet offers a blend of style and functionality in a limited footprint.
@@ -49,12 +49,12 @@ The **Lorell SOHO 18" 3-Drawer Vertical File** stands out for its space-saving v
 
 Additionally, the cabinet's sleek **black finish** adds a professional look to any room, seamlessly blending with existing furniture. Its lightweight nature ensures that users can reposition it without hassle, enhancing flexibility in workspace arrangements. Overall, this vertical file cabinet combines practical features with aesthetic appeal, making it a smart investment for anyone looking to improve organization in a compact area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B007P8G97I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B007P8G97I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0989HLF81?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3 Drawer Mobile File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B0989HLF81?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3 Drawer Mobile File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0989HLF81?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3 Drawer Mobile File Cabinet, Wood Lateral Filing Cabinet, Printer Stand with Open Shelves for Home Office, Rustic Brown" src="https://m.media-amazon.com/images/I/51vzgnkbcjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0989HLF81?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3 Drawer Mobile File Cabinet, Wood Lateral Filing Cabinet, Printer Stand with Open Shelves for Home Office, Rustic Brown" src="https://m.media-amazon.com/images/I/51vzgnkbcjL._SL500_.jpg"/></a>
 
 
 The **DEVAISE 3 Drawer Mobile File Cabinet** is perfect for individuals looking to organize their home office efficiently while adding a rustic charm to their workspace. Ideal for remote workers, students, and small business owners, this **wood lateral filing cabinet** combines practicality with style, making it a great addition for anyone needing both storage and a printer stand in one compact piece.
@@ -76,12 +76,12 @@ The **DEVAISE 3 Drawer Mobile File Cabinet** features a durable wooden construct
 
 Additionally, the cabinet doubles as a practical **printer stand** with open shelves that provide extra storage for paper, ink cartridges, or other frequently accessed items. This multi-functional design saves space and reduces clutter, enabling a cleaner and more productive work environment. Overall, this filing cabinet is a smart investment for anyone seeking a stylish, functional, and space-saving office solution.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0989HLF81?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0989HLF81?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3-drawer Mobile File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3-drawer Mobile File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3-Drawer Mobile File Cabinet (Under Office Desk), Assembled Except Casters, Fits Letter/Standard Sizes, White" src="https://m.media-amazon.com/images/I/31JhF5XevkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3-Drawer Mobile File Cabinet (Under Office Desk), Assembled Except Casters, Fits Letter/Standard Sizes, White" src="https://m.media-amazon.com/images/I/31JhF5XevkL._SL500_.jpg"/></a>
 
 
 The **DEVAISE 3-Drawer Mobile File Cabinet** is ideal for professionals, students, or anyone looking to organize their workspace efficiently. If you need a compact, mobile solution to store important documents, office supplies, or files in both letter and standard sizes, this cabinet is perfect for under-desk placement in home offices or corporate environments.
@@ -104,12 +104,12 @@ The **DEVAISE 3-Drawer Mobile File Cabinet** is designed with practicality and s
 
 Additionally, the cabinet's mobility feature allows users to move it effortlessly around the office or home workspace once the casters are attached. The white color offers a modern, clean look that brightens up any room while matching various office decors. Built by the trusted brand **DEVAISE**, this file cabinet combines durability with functionality, making it a reliable storage solution for daily use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B5KRMSDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3 Drawer Rolling File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3 Drawer Rolling File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3 Drawer Rolling File Cabinet with Lock, Wood Filing Cabinet fits Letter / A4 Size for Home Office, Rustic Brown" src="https://m.media-amazon.com/images/I/51MsKBNp0dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3 Drawer Rolling File Cabinet with Lock, Wood Filing Cabinet fits Letter / A4 Size for Home Office, Rustic Brown" src="https://m.media-amazon.com/images/I/51MsKBNp0dL._SL500_.jpg"/></a>
 
 
 The **DEVAISE 3 Drawer Rolling File Cabinet with Lock** is ideal for professionals and home office users who need a compact, stylish, and secure storage solution for organizing important documents. Perfect for those looking to save space while maintaining easy access to files, this cabinet fits both **Letter** and **A4 size** papers, making it suitable for a variety of office environments.
@@ -132,12 +132,12 @@ The **DEVAISE 3 Drawer Rolling File Cabinet** boasts a sturdy build with dimensi
 
 Security is a key feature of this filing cabinet, as it comes equipped with a reliable lock to keep your important documents safe from unauthorized access. With three drawers designed to hold both **Letter and A4 size files**, users can efficiently organize paperwork, improving productivity and reducing clutter. The spacious drawers also allow for additional storage of office supplies, making this cabinet a multifunctional piece of furniture for any workspace.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C2CJ7H9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B098N7PHGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fireproof Document File Organizer Box</a>
+## <a href="https://www.amazon.com/dp/B098N7PHGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fireproof Document File Organizer Box</a>
 
 
-<a href="https://www.amazon.com/dp/B098N7PHGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fireproof Document File Organizer Box, Fireproof Safe Box with Lock, Portable Office Storage Cabinet for Hanging Letter/Legal Folder 16.1 x 12.9 x 11in" src="https://m.media-amazon.com/images/I/4188uM3bVML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098N7PHGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fireproof Document File Organizer Box, Fireproof Safe Box with Lock, Portable Office Storage Cabinet for Hanging Letter/Legal Folder 16.1 x 12.9 x 11in" src="https://m.media-amazon.com/images/I/4188uM3bVML._SL500_.jpg"/></a>
 
 
 The **Fireproof Document File Organizer Box** is ideal for professionals, home office users, and anyone looking to protect important documents such as legal papers, contracts, and personal records from fire damage. If you need a secure, portable, and organized solution to safeguard your critical files, this product is designed specifically for you.
@@ -160,12 +160,12 @@ The **TOMKID Fireproof Safe Box** is crafted with fire-resistant materials to pr
 
 Additionally, the lightweight and portable design enhances convenience, allowing users to easily move the box between home and office or store it securely during emergencies. The **sleek black finish** not only adds a professional look but also helps the box blend seamlessly into any workspace. Overall, this fireproof document organizer balances functionality, security, and portability, making it a smart investment for protecting your most valuable documents.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B098N7PHGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B098N7PHGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B075QBKFSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3-drawer Slim Vertical File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B075QBKFSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 3-drawer Slim Vertical File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B075QBKFSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3-Drawer Slim Vertical File Cabinet, Fully Assembled Except Casters, Legal/Letter Size, White" src="https://m.media-amazon.com/images/I/31snDj4t-pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075QBKFSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 3-Drawer Slim Vertical File Cabinet, Fully Assembled Except Casters, Legal/Letter Size, White" src="https://m.media-amazon.com/images/I/31snDj4t-pL._SL500_.jpg"/></a>
 
 
 The **DEVAISE 3-Drawer Slim Vertical File Cabinet** is ideal for professionals, home office users, and anyone needing compact yet efficient storage for **legal and letter size documents**. If you are looking for a space-saving filing solution that fits neatly into tight spaces while keeping your paperwork organized, this cabinet is a perfect choice.
@@ -188,12 +188,12 @@ The **DEVAISE 3-Drawer Slim Vertical File Cabinet** boasts a smart design that m
 
 Additionally, the cabinet arrives **fully assembled except for the casters**, saving users time and effort during setup. The sleek white finish provides a modern look that integrates seamlessly into various office styles. While it is lightweight enough for repositioning, the option to add casters enhances mobility, allowing users to customize it to their workspace needs. Overall, this cabinet combines practicality and style, making it a valuable addition to any organized office environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B075QBKFSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B075QBKFSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0832D9S62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 5-drawer Wood Dresser Chest</a>
+## <a href="https://www.amazon.com/dp/B0832D9S62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 5-drawer Wood Dresser Chest</a>
 
 
-<a href="https://www.amazon.com/dp/B0832D9S62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 5-Drawer Wood Dresser Chest with Door, Mobile Storage Cabinet, Printer Stand for Home Office" src="https://m.media-amazon.com/images/I/31uLpip47CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0832D9S62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 5-Drawer Wood Dresser Chest with Door, Mobile Storage Cabinet, Printer Stand for Home Office" src="https://m.media-amazon.com/images/I/31uLpip47CL._SL500_.jpg"/></a>
 
 
 The **DEVAISE 5-Drawer Wood Dresser Chest with Door** is ideal for individuals seeking a versatile and stylish storage solution for their **home office** or living space. Whether you need a compact organizer for office supplies, a printer stand, or extra storage in a bedroom, this **mobile storage cabinet** suits those who value both functionality and modern design in a compact footprint.
@@ -216,12 +216,12 @@ The **DEVAISE 5-Drawer Wood Dresser Chest** offers a practical blend of storage 
 
 With its compact size, this dresser chest is perfect for those working in smaller spaces who still need ample storage. Using it as a **printer stand** maximizes workspace efficiency, keeping essential electronics within easy reach. Overall, this mobile storage cabinet is a thoughtful addition for anyone wanting to maintain an organized, clutter-free environment while adding a touch of style to their **home office** or living area.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0832D9S62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0832D9S62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sedeta File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sedeta File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SEDETA File Cabinet, Filing Cabinet fits Legal/Letter/A4 Size, 2 Drawer Filing Cabinets for Home Office with Lock, Power Strip and Open Storage Shelves, Rustic Brown" src="https://m.media-amazon.com/images/I/51aiyPu9hqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SEDETA File Cabinet, Filing Cabinet fits Legal/Letter/A4 Size, 2 Drawer Filing Cabinets for Home Office with Lock, Power Strip and Open Storage Shelves, Rustic Brown" src="https://m.media-amazon.com/images/I/51aiyPu9hqL._SL500_.jpg"/></a>
 
 
 The **SEDETA File Cabinet** is an excellent choice for professionals, home office users, and anyone looking to organize their documents efficiently. Ideal for individuals who require a reliable and stylish storage solution that fits **Legal**, **Letter**, and **A4 size** files, this filing cabinet meets the needs of those who value both functionality and design in their workspace. If you want a secure and spacious cabinet that doubles as a power station and storage shelf, this product is perfect for you.
@@ -244,12 +244,12 @@ The **SEDETA Filing Cabinet** is designed with versatility in mind. Its ability 
 
 Beyond its functional aspects, the cabinet also boasts **open storage shelves** that allow users to keep frequently used items or decorative pieces within easy reach. The **rustic brown** finish adds a warm, inviting aesthetic to any space, making it suitable for both modern and traditional office settings. Overall, this **2 drawer filing cabinet** balances practicality with style, making it a valuable addition to any home office environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DB7NNL9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07FLC2YDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Staples 2-drawer Vertical File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B07FLC2YDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Staples 2-drawer Vertical File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B07FLC2YDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 14"="" 26.3"="" alt="STAPLES 2-Drawer Vertical File Cabinet, Letter Size Documents, Lockable &amp; Mobile, 18" black"="" d="" h,="" src="https://m.media-amazon.com/images/I/21J90fVrkNL._SL500_.jpg" w="" x=""/></a>
+<a href="https://www.amazon.com/dp/B07FLC2YDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 14"="" 26.3"="" alt="STAPLES 2-Drawer Vertical File Cabinet, Letter Size Documents, Lockable &amp; Mobile, 18" black"="" d="" h,="" src="https://m.media-amazon.com/images/I/21J90fVrkNL._SL500_.jpg" w="" x=""/></a>
 
 
 The **STAPLES 2-Drawer Vertical File Cabinet** is ideal for professionals, home office users, and small business owners who need a compact yet efficient storage solution for their **letter size documents**. If you're looking for a secure, mobile, and space-saving filing option, this cabinet is designed to keep your important paperwork organized and easily accessible.
@@ -272,12 +272,12 @@ The **STAPLES 2-Drawer Vertical File Cabinet** offers a practical filing solutio
 
 Constructed with durability in mind, this file cabinet features a sleek black finish that resists scratches and complements a variety of office styles. The locking mechanism ensures your confidential documents remain secure, giving users peace of mind. Overall, this cabinet balances functionality and security, making it an excellent choice for organizing essential paperwork efficiently.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07FLC2YDF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07FLC2YDF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 2 Drawer File Cabinet</a>
+## <a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Devaise 2 Drawer File Cabinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 2 Drawer File Cabinet with Lock, Wood Farmhouse Filing Cabinet for Home Office, Printer Stand Fits Letter and A4 Size, White" src="https://m.media-amazon.com/images/I/31KHAZvYJ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEVAISE 2 Drawer File Cabinet with Lock, Wood Farmhouse Filing Cabinet for Home Office, Printer Stand Fits Letter and A4 Size, White" src="https://m.media-amazon.com/images/I/31KHAZvYJ4L._SL500_.jpg"/></a>
 
 
 The **DEVAISE 2 Drawer File Cabinet with Lock** is ideal for individuals seeking an organized and stylish storage solution for their **home office** or workspace. Perfect for those who need secure filing options for **letter and A4 size documents**, this cabinet also doubles as a sturdy **printer stand**, making it a versatile choice for professionals, students, or anyone aiming to maintain a clutter-free environment.
@@ -299,7 +299,7 @@ The **DEVAISE 2 Drawer File Cabinet** offers a perfect blend of functionality an
 
 Beyond storage, this cabinet’s sturdy top surface is ideal for placing a **printer or other office equipment**, effectively saving space and reducing clutter. Its compact footprint makes it a great fit for smaller rooms or tight corners without compromising on storage capacity. Overall, the **DEVAISE 2 Drawer File Cabinet** is a smart investment for anyone looking to organize their workspace efficiently while adding a touch of farmhouse charm.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DF7JYRDJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

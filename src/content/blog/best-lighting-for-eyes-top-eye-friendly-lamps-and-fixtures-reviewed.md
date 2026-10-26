@@ -23,10 +23,10 @@ Lamps with flexible designs offer convenience and targeted light where needed. E
 
 
 
-## <a href="https://www.amazon.com/dp/B0F7RNXWZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brushed Nickel Bathroom Light Fixtures With Milk Glass Shades</a>
+## <a href="https://www.amazon.com/dp/B0F7RNXWZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brushed Nickel Bathroom Light Fixtures With Milk Glass Shades</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7RNXWZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brushed Nickel Bathroom Light Fixtures with Milk Glass Shades, Eye-Friendly 3 Light Vanity Lights for Bathroom, Vanity Lights with E26 Socket, for Mirror, Living Room, Bedroom, Hallway" src="https://m.media-amazon.com/images/I/41ndpWoS1ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7RNXWZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brushed Nickel Bathroom Light Fixtures with Milk Glass Shades, Eye-Friendly 3 Light Vanity Lights for Bathroom, Vanity Lights with E26 Socket, for Mirror, Living Room, Bedroom, Hallway" src="https://m.media-amazon.com/images/I/41ndpWoS1ML._SL500_.jpg"/></a>
 
 
 The **Brushed Nickel Bathroom Light Fixtures with Milk Glass Shades** are perfect for homeowners and interior designers looking to enhance their **bathroom, living room, bedroom, or hallway** with elegant and functional lighting. Ideal for those who value a blend of modern aesthetics and eye-friendly illumination, this 3-light vanity fixture suits anyone seeking to improve their mirror lighting or add a subtle ambiance to smaller spaces.
@@ -48,10 +48,10 @@ The fixture’s **brushed nickel finish** adds a sleek, modern touch that seamle
 
 Featuring **E26 sockets**, this vanity light allows for flexible bulb choices, including energy-efficient LEDs, which can help reduce electricity costs while providing clear, eye-friendly lighting. Its compact size makes it a practical choice for smaller rooms or areas where space is limited, ensuring that it enhances the room without overwhelming the décor. Overall, this lighting fixture from **Meybiok** combines style, functionality, and comfort, making it a valuable addition to any home.
 
-## <a href="https://www.amazon.com/dp/B0F4D9Z2YV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Willed 3w Led Light Bar</a>
+## <a href="https://www.amazon.com/dp/B0F4D9Z2YV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Willed 3w Led Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4D9Z2YV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WILLED 3W Led Light Bar with Remote Control, Eye-Friendly Vanity Lights, 3 Color Temperatures Mirror Lights, Button Control Magnetic Light Bar Stick on Wall, Under Cabinet, Closet, Bathroom and Desk" src="https://m.media-amazon.com/images/I/41kG1-5VzxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4D9Z2YV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WILLED 3W Led Light Bar with Remote Control, Eye-Friendly Vanity Lights, 3 Color Temperatures Mirror Lights, Button Control Magnetic Light Bar Stick on Wall, Under Cabinet, Closet, Bathroom and Desk" src="https://m.media-amazon.com/images/I/41kG1-5VzxL._SL500_.jpg"/></a>
 
 
 The **WILLED 3W Led Light Bar with Remote Control** is ideal for individuals seeking versatile and convenient lighting solutions for their home or workspace. Whether you need enhanced illumination for your **vanity mirror**, under cabinet lighting, closet brightness, bathroom clarity, or focused desk light, this product suits anyone who values **eye-friendly**, adjustable lighting with easy control options. It is perfect for those who want to improve their daily routines with customizable lighting that is both functional and stylish.
@@ -75,10 +75,10 @@ The **WILLED 3W Led Light Bar** delivers versatile lighting options through its 
 
 Compact yet powerful, this light bar's **eye-friendly LED technology** ensures comfortable illumination that minimizes eye strain during prolonged use. Its lightweight and slim dimensions make it an excellent choice for tight spaces like under cabinets or small work areas. Overall, the WILLED LED light bar combines functionality, ease of use, and aesthetic appeal, making it a smart lighting upgrade for anyone looking to enhance their environment with customizable and reliable light.
 
-## <a href="https://www.amazon.com/dp/B0DT6DJ2C5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Perfectday Usb Rechargeable Book Light</a>
+## <a href="https://www.amazon.com/dp/B0DT6DJ2C5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Perfectday Usb Rechargeable Book Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT6DJ2C5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PERFECTDAY USB Rechargeable Book Light, 12 LED Reading Lamp with 3 Brightness Levels, Eye-Friendly Night Light for Reading" src="https://m.media-amazon.com/images/I/41H9v2BmHVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT6DJ2C5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PERFECTDAY USB Rechargeable Book Light, 12 LED Reading Lamp with 3 Brightness Levels, Eye-Friendly Night Light for Reading" src="https://m.media-amazon.com/images/I/41H9v2BmHVL._SL500_.jpg"/></a>
 
 
 The **PERFECTDAY USB Rechargeable Book Light** is ideal for avid readers, students, and professionals who require a reliable and portable lighting solution. If you often find yourself reading in dim environments or at night without disturbing others, this **12 LED Reading Lamp** with adjustable brightness levels is perfect for you.
@@ -100,10 +100,10 @@ The **PERFECTDAY USB Rechargeable Book Light** is thoughtfully designed with **1
 
 Additionally, the sleek and compact design ensures that the lamp is both portable and easy to clip onto books or e-readers. This makes it an excellent travel companion or bedside reading accessory. The eye-friendly lighting technology ensures that users can enjoy long reading sessions without discomfort, making it a practical and thoughtful tool for anyone passionate about reading.
 
-## <a href="https://www.amazon.com/dp/B0DFGRPL9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Balkwan Chic Bucket Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DFGRPL9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Balkwan Chic Bucket Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFGRPL9X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Balkwan Chic Bucket Table Lamp Adjustable Brightness Eye-Friendly Lighting Perfect for Modern Home Décor Living Room Bedroom Office Ideal for Students and Young Professionals" src="https://m.media-amazon.com/images/I/418HEBvy2mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFGRPL9X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Balkwan Chic Bucket Table Lamp Adjustable Brightness Eye-Friendly Lighting Perfect for Modern Home Décor Living Room Bedroom Office Ideal for Students and Young Professionals" src="https://m.media-amazon.com/images/I/418HEBvy2mL._SL500_.jpg"/></a>
 
 
 The **Balkwan Chic Bucket Table Lamp** is ideal for **students** and **young professionals** who seek a stylish yet functional lighting solution for their **modern home décor**. Whether placed in a **living room**, **bedroom**, or **office**, this lamp provides **adjustable brightness** and **eye-friendly lighting**, making it perfect for those who prioritize both aesthetics and comfort in their workspace or relaxation areas.
@@ -126,10 +126,10 @@ The **Balkwan Chic Bucket Table Lamp** features a sleek and compact design that 
 
 Additionally, the lamp’s lightweight and portable nature make it easy to move and position wherever needed. The choice between **white, yellow, and warm white** lighting options provides versatility to set the perfect ambiance for any room. Manufactured by Balkwan, this lamp combines quality craftsmanship with contemporary style, making it a valuable addition to your home or office lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0D1CLKVRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Book Lights With Clamp</a>
+## <a href="https://www.amazon.com/dp/B0D1CLKVRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Book Lights With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1CLKVRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Book Lights with Clamp, 8 LED Rechargeable USB Bed Reading Lamp with 3 Lighting Colors, Stepless Dimming, Eye Friendly, 240 Hours Runtime, 360° Flexible Gooseneck, Portable, Steady Clip, White" src="https://m.media-amazon.com/images/I/41bijqCUqNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1CLKVRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Book Lights with Clamp, 8 LED Rechargeable USB Bed Reading Lamp with 3 Lighting Colors, Stepless Dimming, Eye Friendly, 240 Hours Runtime, 360° Flexible Gooseneck, Portable, Steady Clip, White" src="https://m.media-amazon.com/images/I/41bijqCUqNL._SL500_.jpg"/></a>
 
 
 The **Book Lights with Clamp** by **LLLPRT** is ideal for avid readers, students, and professionals who require focused lighting without disturbing others. Perfect for bedtime reading, late-night study sessions, or working in dim environments, this portable and rechargeable lamp offers convenience and eye comfort for users of all ages.
@@ -154,10 +154,10 @@ Featuring a sleek and compact design with dimensions of **11.22 inches height**,
 
 The lamp's **8 LED bulbs** provide bright and consistent lighting, while the option to switch among **three lighting colors** and adjust brightness with **stepless dimming** ensures a customized and comfortable reading experience. Its **eye-friendly** light reduces strain, making it suitable for extended reading or work sessions. Additionally, the rechargeable battery offers an impressive **240 hours runtime**, eliminating the need for frequent charging and allowing users to enjoy uninterrupted light for days.
 
-## <a href="https://www.amazon.com/dp/B0CSDMLVLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lqwell® Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CSDMLVLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lqwell® Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSDMLVLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LQWELL® LED Desk Lamp Dimmable Metal Material, 5 Colors and 10 Brightness Levels, Eye-Friendly Bedside Lamp with USB Charging, Touch Control &amp; Memory Function, for Children, Office" src="https://m.media-amazon.com/images/I/31ErSShnZXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSDMLVLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LQWELL® LED Desk Lamp Dimmable Metal Material, 5 Colors and 10 Brightness Levels, Eye-Friendly Bedside Lamp with USB Charging, Touch Control &amp; Memory Function, for Children, Office" src="https://m.media-amazon.com/images/I/31ErSShnZXL._SL500_.jpg"/></a>
 
 
 The **LQWELL® LED Desk Lamp** is ideal for individuals seeking a versatile and eye-friendly lighting solution for their workspace or bedside. Perfect for **children** who need gentle lighting for reading, as well as professionals working long hours in an **office** environment, this lamp combines functionality with modern design. If you want adjustable brightness and color options to suit various moods and tasks, this product is a great choice.
@@ -181,10 +181,10 @@ The **LQWELL® LED Desk Lamp** features a sleek and sturdy metal construction th
 
 Additionally, the lamp's **touch control** system provides a modern and intuitive way to operate the device, making it simple to switch between modes or adjust brightness. The built-in **USB charging port** adds convenience by allowing users to charge their smartphones or other devices without needing extra outlets. The **memory function** ensures that your preferred lighting settings are saved, enhancing user experience by eliminating the need to readjust every time the lamp is turned on.
 
-## <a href="https://www.amazon.com/dp/B0B65GHJXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gondsily Book Light Led Neck Reading Light</a>
+## <a href="https://www.amazon.com/dp/B0B65GHJXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gondsily Book Light Led Neck Reading Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0B65GHJXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GONDSILY Book Light LED Neck Reading Light,Bendable Rechargeable Book Light for Reading in Bed,Eye Friendly - 3 Colors &amp; 3 Brightness Levels Perfect for Bookworms Kids Crafts Knitting Travel (Black)" src="https://m.media-amazon.com/images/I/31KDS4FMOHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B65GHJXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GONDSILY Book Light LED Neck Reading Light,Bendable Rechargeable Book Light for Reading in Bed,Eye Friendly - 3 Colors &amp; 3 Brightness Levels Perfect for Bookworms Kids Crafts Knitting Travel (Black)" src="https://m.media-amazon.com/images/I/31KDS4FMOHL._SL500_.jpg"/></a>
 
 
 The **GONDSILY Book Light LED Neck Reading Light** is ideal for **bookworms**, **kids**, and anyone who enjoys reading or crafting in low-light environments. Its **bendable** and **rechargeable** design makes it perfect for those who need a portable, eye-friendly lighting solution for bedtime reading, knitting, or travel. If you are looking for a hands-free light that offers adjustable brightness and color settings, this product is a great choice.
@@ -206,10 +206,10 @@ The **GONDSILY Book Light** features a versatile LED system with three different
 
 Additionally, its rechargeable battery eliminates the hassle of frequently replacing batteries, making it an eco-friendly and cost-effective choice. The compact size and lightweight build mean you can easily pack it for trips or keep it handy at home. Overall, this **eye-friendly** and adaptable book light is an excellent tool for enhancing your reading and crafting experiences in any setting.
 
-## <a href="https://www.amazon.com/dp/B0D1C464D7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pack Reading Table Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B0D1C464D7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pack Reading Table Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1C464D7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pack Reading Table Lamp with Clamp, LLLPRT 10 LEDs Rechargeable Clip on Book Light with 3 Lighting Colors, Stepless Dimming, 120 Hours Runtime, 360° Flexible Gooseneck, Eye-friendly, Portable, White" src="https://m.media-amazon.com/images/I/31UnGB7hdhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1C464D7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pack Reading Table Lamp with Clamp, LLLPRT 10 LEDs Rechargeable Clip on Book Light with 3 Lighting Colors, Stepless Dimming, 120 Hours Runtime, 360° Flexible Gooseneck, Eye-friendly, Portable, White" src="https://m.media-amazon.com/images/I/31UnGB7hdhL._SL500_.jpg"/></a>
 
 
 The **2 Pack Reading Table Lamp with Clamp** by **LLLPRT** is ideal for avid readers, students, and professionals who require a reliable, portable, and eye-friendly light source. If you spend long hours reading, studying, or working in dim environments, this rechargeable clip-on book light offers the perfect combination of convenience and functionality to enhance your experience. Its compact design and flexible features make it a great choice for anyone seeking adjustable lighting without occupying much space.
@@ -233,10 +233,10 @@ The **LLLPRT 2 Pack Reading Table Lamp** features **10 bright LEDs** that delive
 
 The lamp’s **360° flexible gooseneck** is a standout feature, enabling users to direct light exactly where needed, whether on a book, keyboard, or workspace. Thanks to its **compact and lightweight design**, the lamp is highly portable and easy to clip onto various surfaces with its sturdy clamp mechanism. This versatility ensures users can enjoy optimal lighting both at home and on the go. Overall, the lamp provides an excellent balance of functionality, comfort, and convenience tailored for those who value efficient and adaptable lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0DT4DFHY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Socket Fan With Remote</a>
+## <a href="https://www.amazon.com/dp/B0DT4DFHY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light Socket Fan With Remote</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT4DFHY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Socket Fan with Remote(Pairing Required), Soft 1000LM &amp; CRI 80+ Eye-Friendly, High-Speed Ultra-Quiet, Memory Function, Durable Light Bulb Fan for Garages, Laundry Rooms, Closets, Porches, Attics" src="https://m.media-amazon.com/images/I/41+MKXL8K1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT4DFHY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light Socket Fan with Remote(Pairing Required), Soft 1000LM &amp; CRI 80+ Eye-Friendly, High-Speed Ultra-Quiet, Memory Function, Durable Light Bulb Fan for Garages, Laundry Rooms, Closets, Porches, Attics" src="https://m.media-amazon.com/images/I/41+MKXL8K1L._SL500_.jpg"/></a>
 
 
 The **Light Socket Fan with Remote** is ideal for homeowners and renters looking to enhance air circulation in compact spaces such as **garages**, **laundry rooms**, **closets**, **porches**, and **attics**. This product is perfect for those who want a dual-function device that combines lighting and cooling without taking up additional space, especially in areas where traditional fans might be impractical.
@@ -258,10 +258,10 @@ Featuring a compact and sleek **white design** from the reputable brand **FanLit
 
 The inclusion of a **remote control** with a pairing requirement adds a layer of usability and convenience, allowing users to easily switch between lighting and fan modes or adjust settings from a distance. Additionally, the **memory function** automatically recalls the last used settings, saving time and effort with every use. This durable light bulb fan is a practical and efficient solution for improving air quality and lighting in smaller, enclosed areas where space and noise are concerns.
 
-## <a href="https://www.amazon.com/dp/B09YV633PL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B09YV633PL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09YV633PL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with Clamp, Architect Desk Lamp with Dual Light and Adjustable Swing Arm, Clip-on Eye-Care 4 CCT Modes &amp; 5 Brightness Levels Table Light Modern Computer Lighting for Home Office" src="https://m.media-amazon.com/images/I/41OuJOAs3vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YV633PL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with Clamp, Architect Desk Lamp with Dual Light and Adjustable Swing Arm, Clip-on Eye-Care 4 CCT Modes &amp; 5 Brightness Levels Table Light Modern Computer Lighting for Home Office" src="https://m.media-amazon.com/images/I/41OuJOAs3vL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp with Clamp** by Micomlan is perfect for professionals, students, and creatives who require focused, adjustable lighting in their workspace. Ideal for those who spend extended hours at a desk, this lamp caters to users needing customizable illumination for reading, drafting, or computer work without straining their eyes.

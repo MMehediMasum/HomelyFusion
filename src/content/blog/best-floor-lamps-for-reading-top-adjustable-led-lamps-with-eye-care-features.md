@@ -23,10 +23,10 @@ Sturdy bases and adjustable heights add stability and convenience. Whether you r
 
 
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio LED Floor Lamp** is an ideal choice for individuals seeking a versatile and eye-friendly lighting solution for their **living room** or **bedroom**. Perfect for those who value both functionality and modern design, this lamp suits readers, students, and professionals who require adjustable lighting with easy control options. Anyone looking to reduce eye strain with **harmless light** while enjoying customizable brightness and color temperature will find this floor lamp an excellent addition to their space.
@@ -49,10 +49,10 @@ The **WioMio LED Floor Lamp** stands out with its innovative features such as a 
 
 Additionally, the lamp’s **eye-caring technology** ensures that the light emitted is gentle on the eyes, minimizing fatigue during extended use. Its **adjustable gooseneck** design provides flexibility in directing light exactly where it’s needed, whether for reading in bed or illuminating a cozy corner in the living room. With a sleek **matte black** appearance and a slim footprint, it blends seamlessly into modern interiors, combining aesthetic appeal with practical performance.
 
-## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luckystyle Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHHP21DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="luckystyle Floor Lamp,Super Bright Dimmable LED Lamps for Living Room, Custom Color Temperature Standing Lamp with Remote Push Button, Adjustable Gooseneck Reading Floor Lamp for Bedroom Office Black" src="https://m.media-amazon.com/images/I/41jL4Zce-EL._SL500_.jpg"/></a>
 
 
 The **luckystyle Floor Lamp** is ideal for individuals seeking a versatile and highly functional lighting solution for their **living room**, **bedroom**, or **office**. Whether you are an avid reader, a home office worker, or someone who enjoys customizing their lighting ambiance, this lamp offers the perfect combination of brightness, adjustability, and ease of use. It is particularly suited for those who value both style and practicality in their home decor.
@@ -76,10 +76,10 @@ The **luckystyle Floor Lamp** features a super bright, dimmable **LED light sour
 
 Additionally, the **adjustable gooseneck** design provides great flexibility to direct light exactly where you need it, which is especially beneficial for tasks requiring focused illumination. Its tall stature and sleek **black finish** make it a stylish yet practical addition to any room. Overall, this standing lamp combines modern technology with user-friendly features, making it a valuable lighting solution for diverse needs and environments.
 
-## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O’bright Dimmable Led Pharmacy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JSCB6L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O’Bright Dimmable LED Pharmacy Floor Lamp, 12W LED, Full Range Dimming, 360 Degree Swing Arms, Adjustable Heights, Standing Lamp for Reading, Sewing, and Craft, ETL Listed, Antique Brass (Gold)" src="https://m.media-amazon.com/images/I/31jG3RxK7QL._SL500_.jpg"/></a>
 
 
 The **O’Bright Dimmable LED Pharmacy Floor Lamp** is ideal for individuals who require precise and adjustable lighting for detailed tasks such as **reading, sewing, and crafts**. This standing lamp is perfect for hobbyists, crafters, and professionals who need a versatile light source that can be tailored to various activities and environments. Its adjustable height and 360-degree swing arms make it especially suitable for those who value flexibility and ergonomic lighting solutions.
@@ -103,10 +103,10 @@ Featuring a robust **12W LED** light source, the O’Bright floor lamp delivers 
 
 The lamp’s adjustable height ranging up to 55 inches offers ergonomic benefits by allowing users to customize the light’s position according to their posture and workspace setup. Its sturdy build and classic **antique brass (gold) finish** combine durability with an attractive aesthetic, making it a functional yet stylish addition to any room. Being **ETL Listed** ensures that the lamp meets rigorous safety standards, giving users peace of mind during use. Overall, this floor lamp is a versatile lighting solution designed to enhance precision, comfort, and style for hobbyists and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B086ZLGLV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rottogoon Floor Lamp For Living Room</a>
+## <a href="https://www.amazon.com/dp/B086ZLGLV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rottogoon Floor Lamp For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B086ZLGLV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROTTOGOON Floor Lamp for Living Room with 3 Color Temperatures LED Bulb, Standing Lamp Tall Industrial Floor Lamp Reading for Bedroom, Office (9W LED Bulb, Beige Lampshade Included) -Black" src="https://m.media-amazon.com/images/I/416VJ0TYmiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086ZLGLV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ROTTOGOON Floor Lamp for Living Room with 3 Color Temperatures LED Bulb, Standing Lamp Tall Industrial Floor Lamp Reading for Bedroom, Office (9W LED Bulb, Beige Lampshade Included) -Black" src="https://m.media-amazon.com/images/I/416VJ0TYmiL._SL500_.jpg"/></a>
 
 
 The **ROTTOGOON Floor Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their **living room**, **bedroom**, or **office**. Perfect for those who value adjustable lighting options and want a lamp that combines both functionality and modern industrial design. Whether you're a reader, a remote worker, or someone looking to enhance their home ambiance, this floor lamp fits your needs.
@@ -128,10 +128,10 @@ The **ROTTOGOON Floor Lamp** features a sturdy black frame paired with a soft be
 
 Additionally, the lamp’s **energy-efficient 9W LED bulb** ensures long-lasting brightness while helping to reduce electricity consumption. Its compact size allows it to fit seamlessly into smaller spaces without overwhelming the room, making it a practical choice for apartments, offices, or bedrooms. Overall, this floor lamp offers a combination of style, versatility, and efficiency that suits a wide range of lighting needs.
 
-## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B095NXXP8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095NXXP8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Floor Lamp, 1000 Lumens LED Edison Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Bedroom Office Dining Room- Black" src="https://m.media-amazon.com/images/I/41ySxP6dvdL._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Floor Lamp** is ideal for individuals seeking a stylish yet functional lighting solution for their **living room**, **bedroom**, **office**, or **dining room**. This lamp is perfect for those who appreciate modern design combined with practical features like dimmability and energy-efficient LED lighting. If you want to enhance your space with a sleek, tall lamp that provides customizable lighting while adding a touch of elegance, this product is an excellent choice.
@@ -154,10 +154,10 @@ The **【Upgraded】 Dimmable Floor Lamp** features a sleek arc design that not 
 
 Crafted with a **matte black finish** and a stylish **linen shade**, this floor lamp blends well with modern and contemporary interiors. Its compact size and lightweight construction make it easy to place in different rooms, from the office to the dining area, without overpowering the space. The combination of elegant design and practical features ensures this lamp not only illuminates your environment but also complements your décor seamlessly.
 
-## <a href="https://www.amazon.com/dp/B0DBMTPTVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O'bright Nova</a>
+## <a href="https://www.amazon.com/dp/B0DBMTPTVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">O'bright Nova</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBMTPTVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O'Bright Nova - Adjustable Floor Lamp with Flexible Gooseneck and Rotatable Shade, E26 Socket, 10-Inch Base - Ideal for Reading, Bedside, Living Room, Antique Brass" src="https://m.media-amazon.com/images/I/21lMaP5pz+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBMTPTVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="O'Bright Nova - Adjustable Floor Lamp with Flexible Gooseneck and Rotatable Shade, E26 Socket, 10-Inch Base - Ideal for Reading, Bedside, Living Room, Antique Brass" src="https://m.media-amazon.com/images/I/21lMaP5pz+L._SL500_.jpg"/></a>
 
 
 The **O'Bright Nova Adjustable Floor Lamp** is perfect for individuals who seek a versatile and stylish lighting solution for their **reading nook, bedside area, or living room**. Ideal for those who appreciate both functionality and aesthetic appeal, this lamp caters to readers, students, and anyone needing focused illumination with easy adjustability.
@@ -180,10 +180,10 @@ The **O'Bright Nova Floor Lamp** features a highly adaptable design with its **f
 
 Thanks to the **standard E26 socket**, this lamp is compatible with a wide range of bulbs, including energy-efficient LEDs, which provide long-lasting brightness with minimal energy consumption. The **10-inch base** offers solid support to prevent tipping, while the lamp's overall dimensions make it suitable for various spaces without overwhelming the décor. Together, these features create a practical and elegant lighting solution tailored for users who value both form and function.
 
-## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp** is ideal for individuals who need focused and adjustable lighting solutions, such as office workers, lash extension artists, crafters, and anyone looking to enhance their living room ambiance with eye-caring illumination. If you prioritize customizable brightness and versatile positioning in a modern design, this lamp is a perfect fit.
@@ -205,10 +205,10 @@ This **LED Floor Lamp** by **Seaside Village** combines functionality with style
 
 With a powerful output of **1800 lumens** at only **15 watts**, this lamp is energy-efficient while delivering bright and consistent illumination. Its sleek black design fits seamlessly into office or living room decor, offering both practicality and aesthetic appeal. Overall, the lamp ensures a comfortable and productive environment, making it an excellent choice for anyone seeking high-quality, adjustable, and eye-friendly lighting.
 
-## <a href="https://www.amazon.com/dp/B08L7DD8L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimunt Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08L7DD8L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dimunt Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08L7DD8L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimunt LED Floor Lamp, Bright 15W Floor Lamps for Living Room with 1H Timer, Stepless Adjustable 3000K-6000K Colors &amp; Brightness Standing Lamp with Remote &amp; Touch Control Reading Floor Lamps" src="https://m.media-amazon.com/images/I/31lPQl-E++L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L7DD8L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dimunt LED Floor Lamp, Bright 15W Floor Lamps for Living Room with 1H Timer, Stepless Adjustable 3000K-6000K Colors &amp; Brightness Standing Lamp with Remote &amp; Touch Control Reading Floor Lamps" src="https://m.media-amazon.com/images/I/31lPQl-E++L._SL500_.jpg"/></a>
 
 
 The **Dimunt LED Floor Lamp** is ideal for individuals seeking a versatile and energy-efficient lighting solution for their **living room**, study area, or reading nook. Perfect for those who value customizable brightness and color temperature, this lamp caters to users who want both functionality and ambiance control in one sleek device. If you often read, work late, or enjoy adjusting your room's lighting to match your mood, this lamp is an excellent choice.
@@ -232,10 +232,10 @@ The **Dimunt LED Floor Lamp** offers exceptional flexibility with its stepless a
 
 Additionally, the convenience of having both **remote and touch controls** means users can effortlessly change settings without interrupting their activities. The built-in **1-hour timer** is a thoughtful feature that helps conserve energy by automatically turning off the lamp after a set period. Its elegant black finish and compact size complement any living space, making it a stylish and practical addition to your home lighting setup.
 
-## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pacovy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pacovy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
 
 
 The **PACOVY Floor Lamp** is ideal for individuals seeking a versatile and bright lighting solution for their **living room**, **bedroom**, or **office**. If you value adjustable lighting with modern controls and need a sleek, space-saving design, this lamp is perfect for readers, crafters, and professionals who spend long hours working or relaxing under optimal light conditions.
@@ -259,10 +259,10 @@ The **PACOVY Floor Lamp** features an adjustable height of 67.5 inches and a fle
 
 Additionally, the lamp offers both **remote** and **touch control** options, providing convenient ways to adjust brightness levels to suit different times of day or activities. Its slim and elegant black design fits seamlessly into any modern interior, while the lightweight structure ensures that moving the lamp from room to room is hassle-free. Overall, this floor lamp combines functionality, style, and user-friendly features to enhance your lighting experience.
 
-## <a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Litespan</a>
+## <a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Brightech Litespan</a>
 
 
-<a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Litespan - Bright LED Floor Reading Lamp for Over Chair Crafts and Reading, Estheticians' Light for Lash Extensions, Adjustable Standing Lamp for Living Room, Bedroom, Office - Jet Black" src="https://m.media-amazon.com/images/I/31KBhFVFL-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Brightech Litespan - Bright LED Floor Reading Lamp for Over Chair Crafts and Reading, Estheticians' Light for Lash Extensions, Adjustable Standing Lamp for Living Room, Bedroom, Office - Jet Black" src="https://m.media-amazon.com/images/I/31KBhFVFL-L._SL500_.jpg"/></a>
 
 
 The **Brightech Litespan** is ideal for individuals who require a bright, adjustable lighting solution for detailed tasks such as reading, crafting, or professional uses like estheticians performing lash extensions. If you spend long hours working in your living room, bedroom, or office and need focused illumination that reduces eye strain, this **LED floor reading lamp** is a perfect fit. Its sleek **jet black** design also complements modern interiors.

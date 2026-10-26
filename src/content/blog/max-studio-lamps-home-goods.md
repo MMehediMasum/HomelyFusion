@@ -23,10 +23,10 @@ Options like gold or brass finishes add a touch of elegance. Whether you need br
 
 
 
-## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upgraded Dimmable Gold Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBV5DC7Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="【Upgraded】 Dimmable Gold Floor Lamp, 1200 Lumens LED Bulb Included, Arc Floor Lamps for Living Room Modern Standing Lamp with Linen Shade, Tall Lamp for Living Room Bedroom Office Reading Room Nursery" src="https://m.media-amazon.com/images/I/41j733lEb2L._SL500_.jpg"/></a>
 
 
 The **【Upgraded】 Dimmable Gold Floor Lamp** is ideal for those seeking a stylish and functional lighting solution for their **living room**, **bedroom**, **office**, or **reading room**. Perfect for individuals who appreciate modern design with practical features, this lamp suits anyone wanting adjustable brightness and an elegant touch with its **gold finish** and **linen shade**. Whether you need focused light for reading or ambient lighting for relaxation, this tall arc floor lamp meets diverse lighting needs.
@@ -48,10 +48,10 @@ This **arc floor lamp** combines aesthetic appeal with practical functionality. 
 
 Standing at **65 inches tall**, this lamp provides excellent illumination for larger spaces and can serve as a statement piece in your room. The lightweight construction ensures easy repositioning, making it versatile for different setups. Overall, this lamp is a great investment for anyone looking to blend style, functionality, and energy efficiency in their home or office lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0F1Y2WV4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mznoo Lash Light</a>
+## <a href="https://www.amazon.com/dp/B0F1Y2WV4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mznoo Lash Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1Y2WV4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mznoo Lash Light, Bright and Large Half Moon Light for Eyelash Extensions, Nails and Tattoos, Flexible Gooseneck LED Moon Lamp, Adjustable Brightness and Height, with Tool Tray (Pink)" src="https://m.media-amazon.com/images/I/31Z0b4XB0KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1Y2WV4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mznoo Lash Light, Bright and Large Half Moon Light for Eyelash Extensions, Nails and Tattoos, Flexible Gooseneck LED Moon Lamp, Adjustable Brightness and Height, with Tool Tray (Pink)" src="https://m.media-amazon.com/images/I/31Z0b4XB0KL._SL500_.jpg"/></a>
 
 
 The **Mznoo Lash Light** is ideal for beauty professionals and enthusiasts who require precise and clear lighting for detailed work such as **eyelash extensions**, **nail art**, and **tattooing**. Its flexible design and adjustable features make it perfect for those who need customizable lighting solutions to enhance visibility and reduce eye strain during intricate procedures. If you are a salon owner, makeup artist, or tattoo artist looking for a reliable and versatile lamp, this product is a great choice.
@@ -73,10 +73,10 @@ The **Mznoo Lash Light** features a large **half moon LED lamp** that delivers b
 
 Additionally, the integrated **tool tray** adds convenience by keeping tools organized and within easy reach, minimizing interruptions and increasing productivity. The lamp’s stylish **pink finish** not only brightens the workspace but also reflects a professional yet modern aesthetic. Overall, the Mznoo Lash Light combines functionality with style, making it a valuable addition to any beauty or tattoo professional's toolkit.
 
-## <a href="https://www.amazon.com/dp/B0CHK67DPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Daylight Artist Studio Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CHK67DPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Daylight Artist Studio Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHK67DPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="daylight Artist Studio Lamp 2-6,000 Lux LED with 95+ CRI, 24cm Wide Shade" src="https://m.media-amazon.com/images/I/313fQFIjAsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHK67DPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="daylight Artist Studio Lamp 2-6,000 Lux LED with 95+ CRI, 24cm Wide Shade" src="https://m.media-amazon.com/images/I/313fQFIjAsL._SL500_.jpg"/></a>
 
 
 The **daylight Artist Studio Lamp 2-6,000 Lux LED with 95+ CRI** is ideal for artists, designers, and crafters who require precise and natural lighting to enhance their work. This lamp is perfect for anyone who spends long hours on detailed projects such as painting, drawing, sewing, or model-making, and needs a reliable light source that mimics natural daylight to reduce eye strain and improve color accuracy.
@@ -100,10 +100,10 @@ The **daylight Artist Studio Lamp** delivers a superior lighting experience by c
 
 Designed with practicality in mind, this lamp features an adjustable height of up to 75 inches and a sturdy build, allowing you to position the light exactly where it is needed. The energy-efficient LED technology not only reduces electricity consumption but also generates minimal heat, making it comfortable to use for extended periods. Overall, the **daylight Artist Studio Lamp** is a reliable and high-performance lighting solution that enhances creativity and precision in any studio setting.
 
-## <a href="https://www.amazon.com/dp/B0DBZJZT39?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jaenmsa Eye-care Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DBZJZT39?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jaenmsa Eye-care Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBZJZT39?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10,000lm="" 90w,="" alt="Jaenmsa 4000K Eye-Care LED Floor Lamp - Modern Standing Piano Lamp, 78" bedroom"="" bright="" dimmable="" for="" light="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/41J0NWGwl6L._SL500_.jpg" study,="" tall,=""/></a>
+<a href="https://www.amazon.com/dp/B0DBZJZT39?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10,000lm="" 90w,="" alt="Jaenmsa 4000K Eye-Care LED Floor Lamp - Modern Standing Piano Lamp, 78" bedroom"="" bright="" dimmable="" for="" light="" living="" office,="" room,="" src="https://m.media-amazon.com/images/I/41J0NWGwl6L._SL500_.jpg" study,="" tall,=""/></a>
 
 
 The **Jaenmsa 4000K Eye-Care LED Floor Lamp** is ideal for individuals seeking a modern, functional lighting solution that combines style and eye comfort. Perfect for those who spend extended hours reading, working, or studying in spaces like the **living room**, **office**, or **bedroom**, this lamp offers bright yet gentle illumination designed to reduce eye strain and fatigue. If you want a sleek, adjustable lighting option that supports productivity and relaxation, this standing piano lamp is a great choice.
@@ -125,10 +125,10 @@ The **Jaenmsa 4000K Eye-Care LED Floor Lamp** features a powerful 90W LED light 
 
 Standing at an impressive 78 inches tall, this modern floor lamp offers extensive lighting coverage, illuminating large areas effectively. Its sleek white finish and contemporary design make it a versatile addition to various interior settings, from minimalist office spaces to cozy living rooms. Additionally, the lamp’s sturdy construction and well-thought-out dimensions (26.2 inches wide and 17.7 inches long) ensure stability and durability, providing users with a reliable lighting solution that combines style, functionality, and health-conscious features.
 
-## <a href="https://www.amazon.com/dp/B0DB71DWX5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wellmet Gold Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DB71DWX5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wellmet Gold Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB71DWX5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wellmet Gold Floor Lamp for Living Room, Mid Century Modern Floor Lamps for Bedroom, Brass Finish, 65.3 Inch Tall Unique Metal Floor Lamp for Corner Decorative, Globe Shade (Gold)" src="https://m.media-amazon.com/images/I/512RECfmDlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB71DWX5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wellmet Gold Floor Lamp for Living Room, Mid Century Modern Floor Lamps for Bedroom, Brass Finish, 65.3 Inch Tall Unique Metal Floor Lamp for Corner Decorative, Globe Shade (Gold)" src="https://m.media-amazon.com/images/I/512RECfmDlL._SL500_.jpg"/></a>
 
 
 The **Wellmet Gold Floor Lamp for Living Room** is ideal for individuals seeking a blend of **mid-century modern style** and functional lighting. Perfect for those who want to enhance their **bedroom** or **living room** decor with a unique, eye-catching piece, this lamp suits homeowners, interior design enthusiasts, and anyone looking to brighten up a corner with elegant, warm light.
@@ -151,10 +151,10 @@ The **Wellmet Gold Floor Lamp** stands out with its elegant **mid-century modern
 
 Additionally, this floor lamp's design is versatile enough to complement various interior themes while serving as a decorative focal point. The lamp's size and shape make it perfect for corners, optimizing space without cluttering. Users benefit from a reliable lighting solution that is not only functional but also adds a sophisticated charm to bedrooms, living rooms, or any decorative space.
 
-## <a href="https://www.amazon.com/dp/B0F9L2WHTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wowag Cordless Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0F9L2WHTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wowag Cordless Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9L2WHTL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wowag Cordless Table Lamp,5000mAh Rechargeable Battery Operated Desk Lamp,3 Colors &amp; 7 RGB Stepless Dimmable,Portable Wireless Touch Bedside Night Light for Restaurant,Home,Decor Party,Flaxen Shade" src="https://m.media-amazon.com/images/I/51vyMQcRZxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9L2WHTL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wowag Cordless Table Lamp,5000mAh Rechargeable Battery Operated Desk Lamp,3 Colors &amp; 7 RGB Stepless Dimmable,Portable Wireless Touch Bedside Night Light for Restaurant,Home,Decor Party,Flaxen Shade" src="https://m.media-amazon.com/images/I/51vyMQcRZxL._SL500_.jpg"/></a>
 
 
 The **Wowag Cordless Table Lamp** is ideal for individuals seeking a versatile and portable lighting solution. Whether you are a restaurant owner aiming to create an inviting ambiance, a homeowner wanting a stylish bedside light, or someone who enjoys decorative party lighting, this lamp caters perfectly to your needs. Its cordless and rechargeable design makes it suitable for spaces without easy access to power outlets, offering convenience and flexibility.
@@ -177,10 +177,10 @@ The **Wowag Cordless Table Lamp** stands out with its impressive combination of 
 
 With a robust **5000mAh rechargeable battery**, this lamp provides extended wireless use, reducing dependency on power outlets and allowing for greater placement flexibility. The sleek and modern design, combined with compact dimensions of **14.57 inches in height and 4.7 inches in width and length**, ensures it fits neatly on desks or bedside tables while still offering ample illumination. Overall, the Wowag Cordless Table Lamp is an excellent choice for anyone looking to blend functionality, style, and mobility in a lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Rustic Farmhouse Ceramic Table Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nourison Home Rustic Farmhouse Ceramic Table Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
+<a href="https://www.amazon.com/dp/B0BXFS3HW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nourison Home 23" bedroom,="" beige="" brown="" ceramic="" dining,="" earth="" farmhouse="" for="" greyish="" lamp="" linen="" living="" office,="" room,="" rustic="" shade"="" src="https://m.media-amazon.com/images/I/41YBnP-pBOL._SL500_.jpg" table="" tone="" with=""/></a>
 
 
 The **Nourison Home 23" Greyish Brown Earth Tone Rustic Farmhouse Ceramic Table Lamp** is ideal for individuals looking to enhance their **bedroom, living room, dining area, or office** with a cozy and stylish lighting option. Perfect for those who appreciate **rustic farmhouse decor** and want a versatile lamp that blends seamlessly with earth-toned interiors, this lamp is suitable for homeowners, interior decorators, and anyone wanting to add warmth and charm to their space.
@@ -202,10 +202,10 @@ The **Nourison Home Rustic Farmhouse Ceramic Table Lamp** features a sturdy cera
 
 Beyond its visual appeal, this lamp offers practical benefits such as easy portability due to its lightweight design. The classic rustic farmhouse style ensures it blends effortlessly with both modern and traditional interiors, making it a versatile lighting solution. Whether you want to add a decorative touch or improve ambient lighting, this Nourison lamp balances function with style effectively.
 
-## <a href="https://www.amazon.com/dp/B0DM5T6FPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coucrek Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DM5T6FPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coucrek Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DM5T6FPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Coucrek Floor Lamp for Living Room, Adjustable Gooseneck Standing Lamp with White Plastic Shade, Black Reading Floor Lamps for Dorm, Bulb not Included" src="https://m.media-amazon.com/images/I/316eYByXK0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DM5T6FPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Coucrek Floor Lamp for Living Room, Adjustable Gooseneck Standing Lamp with White Plastic Shade, Black Reading Floor Lamps for Dorm, Bulb not Included" src="https://m.media-amazon.com/images/I/316eYByXK0L._SL500_.jpg"/></a>
 
 
 The **Coucrek Floor Lamp for Living Room** is perfect for individuals seeking a versatile and stylish lighting solution for their reading nook, dorm room, or living space. Ideal for students, book lovers, and anyone who needs adjustable, focused lighting, this lamp combines functionality with modern design to enhance any room’s ambiance.
@@ -227,10 +227,10 @@ The **Coucrek Floor Lamp** features an adjustable **gooseneck arm** that gives u
 
 Additionally, the **white plastic shade** softens the emitted light, reducing glare and creating a comfortable environment for prolonged use. Although the bulb is not included, this allows users to choose the ideal brightness and type of bulb to suit their needs. Overall, this lamp delivers a combination of flexibility, style, and practicality that benefits anyone looking to enhance their living or study space with reliable lighting.
 
-## <a href="https://www.amazon.com/dp/B0742GZ9FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Verilux Smartlight Full Spectrum Led Modern Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0742GZ9FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Verilux Smartlight Full Spectrum Led Modern Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0742GZ9FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Verilux SmartLight Full Spectrum LED Modern Floor Lamp with Adjustable Brightness, Flexible Gooseneck and Easy Controls - Reduces Eye Strain and Fatigue - Ideal for Reading, Artists, Craft (White)" src="https://m.media-amazon.com/images/I/21Mk7X9hu8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0742GZ9FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Verilux SmartLight Full Spectrum LED Modern Floor Lamp with Adjustable Brightness, Flexible Gooseneck and Easy Controls - Reduces Eye Strain and Fatigue - Ideal for Reading, Artists, Craft (White)" src="https://m.media-amazon.com/images/I/21Mk7X9hu8L._SL500_.jpg"/></a>
 
 
 The **Verilux SmartLight Full Spectrum LED Modern Floor Lamp** is perfect for individuals who spend long hours reading, crafting, or working on detailed artistic projects. This lamp is ideal for students, artists, crafters, and professionals looking to reduce eye strain and fatigue while enhancing their workspace lighting. If you seek a versatile, adjustable lighting solution that mimics natural daylight, this lamp is an excellent choice.
@@ -254,10 +254,10 @@ The **Verilux SmartLight Floor Lamp** features a full spectrum LED that closely 
 
 Beyond its functional benefits, this floor lamp boasts a modern aesthetic with a clean white finish that complements various interior styles. The lamp’s user-friendly controls make it simple to operate, enhancing convenience without sacrificing style. Its height of 64.02 inches ensures ample light coverage, making it suitable for a variety of environments, from cozy reading nooks to creative studios. Overall, the Verilux SmartLight is a practical and stylish lighting solution that supports better eye health and productivity.
 
-## <a href="https://www.amazon.com/dp/B00HYWN2MA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Studio Designs Swing Arm Lamp</a>
+## <a href="https://www.amazon.com/dp/B00HYWN2MA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Studio Designs Swing Arm Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B00HYWN2MA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 36"="" 7"="" alt="Studio Designs Swing Arm Lamp, 13-watt, White, 6.5" d="" h"="" src="https://m.media-amazon.com/images/I/319j7Iz6eIL._SL500_.jpg" w="" x=""/></a>
+<a href="https://www.amazon.com/dp/B00HYWN2MA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 36"="" 7"="" alt="Studio Designs Swing Arm Lamp, 13-watt, White, 6.5" d="" h"="" src="https://m.media-amazon.com/images/I/319j7Iz6eIL._SL500_.jpg" w="" x=""/></a>
 
 
 The **Studio Designs Swing Arm Lamp** is ideal for individuals seeking a versatile and stylish lighting solution for their workspace or reading nook. Perfect for students, artists, and home office users, this lamp provides focused illumination that enhances productivity and comfort during detailed tasks.

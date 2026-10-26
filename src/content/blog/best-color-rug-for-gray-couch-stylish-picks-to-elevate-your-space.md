@@ -23,10 +23,10 @@ Warm grays and beige rugs from PureCozy or LUXE WEAVERS create a cozy, inviting 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CN4LMWX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lahome Modern Abstract Washable Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CN4LMWX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lahome Modern Abstract Washable Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN4LMWX3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Modern Abstract Washable 5x7 Area Rugs for Living Room, Colorful Soft Bedroom Rug Low Pile Non Slip,Stain Resistance Dining Room Carpet for Nursery Office Entrance Home Office Decor" src="https://m.media-amazon.com/images/I/51oEtjj2+WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN4LMWX3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lahome Modern Abstract Washable 5x7 Area Rugs for Living Room, Colorful Soft Bedroom Rug Low Pile Non Slip,Stain Resistance Dining Room Carpet for Nursery Office Entrance Home Office Decor" src="https://m.media-amazon.com/images/I/51oEtjj2+WL._SL500_.jpg"/></a>
 
 
 The **Lahome Modern Abstract Washable 5x7 Area Rug** is perfect for individuals seeking a vibrant yet practical addition to their living spaces. Ideal for homeowners, office decorators, and parents looking to enhance nurseries or play areas, this rug combines style with functionality. If you want a **colorful**, **soft**, and **low pile** rug that is easy to maintain and adds a modern touch to any room, this item is designed for you.
@@ -49,10 +49,10 @@ The **Lahome Modern Abstract Washable Area Rug** features a vibrant **galaxy col
 
 Thanks to its **washable** and **stain-resistant** properties, maintaining the rug's fresh appearance is hassle-free. The **non-slip backing** offers enhanced safety, which is particularly beneficial for homes with children or elderly residents. Overall, this rug is a practical and stylish choice for anyone wanting to add color and comfort to their home or office décor.
 
-## <a href="https://www.amazon.com/dp/B078KCHCBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Modern Boxes Area Rug</a>
+## <a href="https://www.amazon.com/dp/B078KCHCBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Modern Boxes Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B078KCHCBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'="" alt="Rugshop Contemporary Modern Boxes for Home Office,Living Room,Bedroom,Kitchen Non Shedding Area Rug 6' 6" blue="" gray"="" src="https://m.media-amazon.com/images/I/51SJj9c1X4L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B078KCHCBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 9'="" alt="Rugshop Contemporary Modern Boxes for Home Office,Living Room,Bedroom,Kitchen Non Shedding Area Rug 6' 6" blue="" gray"="" src="https://m.media-amazon.com/images/I/51SJj9c1X4L._SL500_.jpg" x=""/></a>
 
 
 The **Rugshop Contemporary Modern Boxes Area Rug** is ideal for homeowners and office workers looking to enhance their spaces with a stylish, functional, and durable floor covering. Perfect for those who appreciate a blend of modern design and practicality, this rug suits living rooms, bedrooms, kitchens, and home offices, especially for individuals who want a non-shedding, easy-to-maintain rug that adds a pop of **blue and gray** tones to their decor.
@@ -74,10 +74,10 @@ This **area rug** features a contemporary pattern of modern boxes that adds visu
 
 Constructed with non-shedding fibers, the rug offers a low-maintenance solution that keeps your space clean and allergen-free, which is especially beneficial for families and pet owners. The thin profile of just **0.5 inches** allows for easy placement under furniture and doors without causing obstruction, while the durable build from a trusted manufacturer ensures long-lasting use. Overall, this rug balances style, comfort, and practicality, making it a worthy addition to any modern living space.
 
-## <a href="https://www.amazon.com/dp/B00YV3YKMQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Abstract Circles Area Rug</a>
+## <a href="https://www.amazon.com/dp/B00YV3YKMQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Abstract Circles Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B00YV3YKMQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'3"="" alt="Rugshop Contemporary Abstract Circles Perfect for high Traffic Areas of Your Living Room,Bedroom,Home Office,Kitchen Area Rug 5'3" gray"="" src="https://m.media-amazon.com/images/I/51YyYf8zY0L._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B00YV3YKMQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 7'3"="" alt="Rugshop Contemporary Abstract Circles Perfect for high Traffic Areas of Your Living Room,Bedroom,Home Office,Kitchen Area Rug 5'3" gray"="" src="https://m.media-amazon.com/images/I/51YyYf8zY0L._SL500_.jpg" x=""/></a>
 
 
 The **Rugshop Contemporary Abstract Circles Rug** in **gray** is ideal for homeowners seeking a stylish yet durable floor covering for **high traffic areas** such as the **living room**, **bedroom**, **home office**, or **kitchen**. If you want a rug that combines modern design with practical features, this rug is perfect for you.
@@ -99,10 +99,10 @@ The **Rugshop Contemporary Abstract Circles Rug** by **World Rug Gallery** featu
 
 Constructed with durability in mind, this rug stands up well to daily wear and tear, making it perfect for busy households or workspaces. Its relatively low profile height ensures it doesn’t become a tripping hazard while still providing enough surface texture to protect your flooring. The lightweight nature of the rug allows for easy repositioning and maintenance, offering practical benefits alongside its contemporary aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0B3N95M92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxe Weavers Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0B3N95M92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxe Weavers Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3N95M92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LUXE WEAVERS Modern Geometric Wave Gray 4x6 Area Rug" src="https://m.media-amazon.com/images/I/51HzvpqFykL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3N95M92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LUXE WEAVERS Modern Geometric Wave Gray 4x6 Area Rug" src="https://m.media-amazon.com/images/I/51HzvpqFykL._SL500_.jpg"/></a>
 
 
 The **LUXE WEAVERS Modern Geometric Wave Gray 4x6 Area Rug** is perfect for homeowners and interior enthusiasts looking to add a stylish yet subtle accent to their living spaces. Ideal for those who appreciate contemporary design and want to enhance their room’s ambiance with a durable and visually appealing rug, this item fits well in modern homes, apartments, or offices seeking a touch of elegance without overwhelming existing decor.
@@ -125,10 +125,10 @@ The **LUXE WEAVERS Modern Geometric Wave Gray Area Rug** features a sleek and co
 
 Measuring 4x6 feet with a 0.5-inch pile height, this rug offers the perfect balance of softness and durability. The moderate thickness provides comfortable underfoot cushioning while maintaining ease of cleaning and care. Crafted by **LUXE WEAVERS**, the rug promises quality craftsmanship, making it suitable for areas with frequent foot traffic such as living rooms, bedrooms, or home offices. Overall, this rug is an excellent choice for anyone seeking a modern, stylish, and practical floor covering.
 
-## <a href="https://www.amazon.com/dp/B00WR97YTC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2305 Geometric Abstract Navy Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B00WR97YTC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2305 Geometric Abstract Navy Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B00WR97YTC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2305 Geometric Abstract Navy 5x7 Area Rugs for Living Room" src="https://m.media-amazon.com/images/I/51Xv07KSR9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00WR97YTC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2305 Geometric Abstract Navy 5x7 Area Rugs for Living Room" src="https://m.media-amazon.com/images/I/51Xv07KSR9L._SL500_.jpg"/></a>
 
 
 The **2305 Geometric Abstract Navy 5x7 Area Rug** is perfect for individuals looking to elevate their **living room** décor with a stylish yet functional piece. Ideal customers include homeowners and renters who appreciate modern design and want a durable, easy-to-maintain rug that complements a variety of interior styles, especially those favoring bold geometric patterns and deep navy tones.
@@ -150,10 +150,10 @@ The **2305 Geometric Abstract Navy 5x7 Area Rug** combines a modern aesthetic wi
 
 Crafted by **Persian Area Rugs**, this rug offers quality craftsmanship and durability. Despite its sleek profile at 0.5 inches thick, it provides enough softness underfoot for comfort while maintaining a low profile that works well under furniture. The lightweight design also simplifies cleaning and rearranging, making it ideal for busy households or renters who frequently update their living spaces.
 
-## <a href="https://www.amazon.com/dp/B0D3SRRNBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mandala - Indoor Area Rugs 5x7</a>
+## <a href="https://www.amazon.com/dp/B0D3SRRNBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mandala - Indoor Area Rugs 5x7</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3SRRNBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mandala - Indoor Area Rugs 5x7 Washable, Stain Resistant Machine Washable Rugs for Living Room, Bedroom, and Modern House Décor - Durable Polyester Material, Colorful Patterned - Warm Gray" src="https://m.media-amazon.com/images/I/51mDfxR4GPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3SRRNBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mandala - Indoor Area Rugs 5x7 Washable, Stain Resistant Machine Washable Rugs for Living Room, Bedroom, and Modern House Décor - Durable Polyester Material, Colorful Patterned - Warm Gray" src="https://m.media-amazon.com/images/I/51mDfxR4GPL._SL500_.jpg"/></a>
 
 
 The **Mandala Indoor Area Rug 5x7** is ideal for homeowners and renters looking to enhance their **living room**, **bedroom**, or any modern space with a stylish yet practical floor covering. This rug is perfect for those who desire a combination of **durability**, **easy maintenance**, and **vibrant design** without compromising on quality or comfort. If you want a rug that blends seamlessly with contemporary décor and withstands everyday use, this item is a great choice.
@@ -175,10 +175,10 @@ The **Mandala 5x7 Indoor Area Rug** is crafted from high-quality **polyester mat
 
 One of the standout features of this rug is its **machine washable** and **stain resistant** properties, which provide hassle-free maintenance. You can easily keep the rug looking fresh and clean, even in busy households or spaces with pets and children. Additionally, the 5x7 size strikes the perfect balance between coverage and flexibility, fitting comfortably in most rooms while defining your living spaces with warmth and texture. Overall, this rug combines aesthetic appeal with practical benefits, making it a smart investment for anyone looking to upgrade their home décor.
 
-## <a href="https://www.amazon.com/dp/B08143M8QW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxe Weavers Euston Collection Area Rug</a>
+## <a href="https://www.amazon.com/dp/B08143M8QW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Luxe Weavers Euston Collection Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B08143M8QW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LUXE WEAVERS Euston Collection Gray-Gray 8x10 Modern Abstract Area Rug" src="https://m.media-amazon.com/images/I/51K6mGXXqVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08143M8QW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LUXE WEAVERS Euston Collection Gray-Gray 8x10 Modern Abstract Area Rug" src="https://m.media-amazon.com/images/I/51K6mGXXqVL._SL500_.jpg"/></a>
 
 
 The **LUXE WEAVERS Euston Collection Gray-Gray 8x10 Modern Abstract Area Rug** is ideal for homeowners and interior designers looking to enhance living spaces with a stylish and contemporary touch. Perfect for those who appreciate modern aesthetics and need a durable, high-quality rug to complement neutral or grey-toned decor, this rug suits living rooms, bedrooms, or office spaces seeking both comfort and visual appeal.
@@ -200,10 +200,10 @@ The **LUXE WEAVERS Euston Collection Gray-Gray Rug** features a contemporary abs
 
 Measuring 8x10 feet, this rug provides ample coverage, perfect for defining seating areas or layering over hardwood or tile floors. The versatile **grey color palette** allows it to harmonize with various decor styles, from minimalist to industrial. Additionally, the rug's manageable weight facilitates easy repositioning and cleaning, contributing to a hassle-free maintenance experience for users.
 
-## <a href="https://www.amazon.com/dp/B0D5QR3C1Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Purecozy Modern Abstract Beige Gray Area Rug 6x9</a>
+## <a href="https://www.amazon.com/dp/B0D5QR3C1Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Purecozy Modern Abstract Beige Gray Area Rug 6x9</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5QR3C1Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PureCozy Modern Abstract Beige Gray Area Rug 6x9 Machine Washable Large Carpet Neutral Kitchen Indoor Accent Throw Low Pile Non Slip Distressed Living Dining Room Bedroom Office" src="https://m.media-amazon.com/images/I/51fpzwC8f8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5QR3C1Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PureCozy Modern Abstract Beige Gray Area Rug 6x9 Machine Washable Large Carpet Neutral Kitchen Indoor Accent Throw Low Pile Non Slip Distressed Living Dining Room Bedroom Office" src="https://m.media-amazon.com/images/I/51fpzwC8f8L._SL500_.jpg"/></a>
 
 
 The **PureCozy Modern Abstract Beige Gray Area Rug 6x9** is ideal for homeowners and renters looking to enhance their living spaces with a stylish yet functional carpet. This rug is perfect for those who appreciate a **neutral color palette** that complements various interior designs, especially in **kitchens, living rooms, bedrooms, dining rooms, or office spaces**. If you need a **low-maintenance, machine washable** rug with a modern aesthetic, this product is an excellent choice.
@@ -226,10 +226,10 @@ The **PureCozy Modern Abstract Beige Gray Area Rug** features a low pile height 
 
 Designed with an abstract beige and gray color scheme, this rug enhances the ambiance of any room by adding subtle sophistication without overpowering existing decor. The generous 6x9 size is perfect for defining spaces in open-concept homes or adding warmth to dining and living areas. Overall, this **PureCozy carpet** combines style, safety, and practicality, making it a valuable addition to any indoor environment.
 
-## <a href="https://www.amazon.com/dp/B06XSQKYPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Gray-blue Large Floral Non-slip Area Rug</a>
+## <a href="https://www.amazon.com/dp/B06XSQKYPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Contemporary Gray-blue Large Floral Non-slip Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B06XSQKYPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rugshop Contemporary Gray-Blue Large Floral Non-Slip Area Rug 5' x 7' - Stylish Accent" src="https://m.media-amazon.com/images/I/51hQkrat54L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XSQKYPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rugshop Contemporary Gray-Blue Large Floral Non-Slip Area Rug 5' x 7' - Stylish Accent" src="https://m.media-amazon.com/images/I/51hQkrat54L._SL500_.jpg"/></a>
 
 
 The **Rugshop Contemporary Gray-Blue Large Floral Non-Slip Area Rug 5' x 7'** is ideal for homeowners or renters looking to add a stylish yet functional accent to their living spaces. Perfect for those who want to enhance their room’s decor with a modern floral design while ensuring safety with a non-slip backing, this rug suits busy households, pet owners, and anyone prioritizing both aesthetics and practicality.
@@ -251,10 +251,10 @@ The **Rugshop Contemporary Gray-Blue Large Floral Rug** offers a blend of contem
 
 Beyond its visual appeal, this area rug features a **non-slip backing** that provides stability on hardwood, tile, or laminate floors, reducing the risk of accidents. Weighing just **9 pounds**, it is easy to move and clean, making maintenance hassle-free. Manufactured by **World Rug Gallery** and offered by **Rugshop**, the rug promises quality craftsmanship and durability, ensuring it remains a stylish accent piece for years to come.
 
-## <a href="https://www.amazon.com/dp/B07Y8SN5QQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Sky Collection Modern Abstract Area Rug</a>
+## <a href="https://www.amazon.com/dp/B07Y8SN5QQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rugshop Sky Collection Modern Abstract Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y8SN5QQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'="" alt="Rugshop Sky Collection Modern Abstract Area Rug 7'10" multi"="" src="https://m.media-amazon.com/images/I/518DumLwTnL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B07Y8SN5QQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 10'="" alt="Rugshop Sky Collection Modern Abstract Area Rug 7'10" multi"="" src="https://m.media-amazon.com/images/I/518DumLwTnL._SL500_.jpg" x=""/></a>
 
 
 The **Rugshop Sky Collection Modern Abstract Area Rug 7'10" x 10' Multi** is ideal for homeowners and interior design enthusiasts looking to add a vibrant and contemporary touch to their living spaces. This rug suits those who appreciate bold, artistic designs and want a durable yet stylish floor covering for high-traffic areas such as living rooms, offices, or bedrooms.

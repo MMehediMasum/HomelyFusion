@@ -23,10 +23,10 @@ Warm, neutral, and cool light settings help match the artwork’s tone. Wireless
 
 
 
-## <a href="https://www.amazon.com/dp/B0D4Y73Y78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Picture Lights For Wall</a>
+## <a href="https://www.amazon.com/dp/B0D4Y73Y78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Picture Lights For Wall</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4Y73Y78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO Picture Lights for Wall, 2000mAh Rechargeable Battery Magnetic Poster Lights with 3 Color Temps &amp; 12 RGB, Remote Dimmable Timer Painting Light, Wall Decor Light for Art Display, Frame (6 Pack)" src="https://m.media-amazon.com/images/I/316HsUW79hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4Y73Y78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO Picture Lights for Wall, 2000mAh Rechargeable Battery Magnetic Poster Lights with 3 Color Temps &amp; 12 RGB, Remote Dimmable Timer Painting Light, Wall Decor Light for Art Display, Frame (6 Pack)" src="https://m.media-amazon.com/images/I/316HsUW79hL._SL500_.jpg"/></a>
 
 
 The **EZVALO Picture Lights for Wall** are ideal for art enthusiasts, gallery owners, and home decorators who want to enhance the visual appeal of their paintings, posters, or framed photos. If you're looking for a versatile, rechargeable, and easy-to-install lighting solution that highlights your wall art without the hassle of wiring, this product is perfect for you.
@@ -50,10 +50,10 @@ The **EZVALO Picture Lights** feature a sleek and slim profile measuring just 0.
 
 Additionally, the variety of lighting options—ranging from natural warm to cool white and a palette of 12 vibrant RGB colors—provides users with the flexibility to create the perfect mood and accentuate the details of their art. The included remote control adds convenience with dimmable settings and a timer function, allowing for customized lighting schedules and intensity adjustments. This combination of features not only enhances the aesthetic appeal but also improves the longevity of your art by using energy-efficient LED technology in an elegant **gold-colored** design.
 
-## <a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Battery Operated Picture Light</a>
+## <a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Battery Operated Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Battery Operated Picture Light, Magnetic Led Painting Light with Remote Dimmable and Timer, 3 Lighting Modes Art Display Light for Picture Frame Paintings, Wireless Wall Decor Puck Lights, Gold" src="https://m.media-amazon.com/images/I/41VRt3PLvfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ2T8C7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Battery Operated Picture Light, Magnetic Led Painting Light with Remote Dimmable and Timer, 3 Lighting Modes Art Display Light for Picture Frame Paintings, Wireless Wall Decor Puck Lights, Gold" src="https://m.media-amazon.com/images/I/41VRt3PLvfL._SL500_.jpg"/></a>
 
 
 The **3Pcs Battery Operated Picture Light** by Kandicyar is ideal for art enthusiasts, homeowners, and interior decorators who want to elegantly highlight their **picture frames**, **paintings**, or wall decor without complicated wiring. This product suits individuals seeking a stylish, easy-to-install, and wireless lighting solution that enhances the ambiance of any room while protecting valuable artwork from harsh lighting.
@@ -77,10 +77,10 @@ The **Kandicyar 3Pcs Battery Operated Picture Light** offers an innovative light
 
 Additionally, the magnetic LED lights provide a secure yet easily removable attachment, enabling quick repositioning or removal without damaging frames or walls. The gold-colored finish adds a touch of sophistication, blending seamlessly with various interior styles. While it excels in providing accent lighting for smaller frames, users should note that battery maintenance and magnetic surface compatibility are factors to consider for long-term convenience and optimal use. Overall, this set of picture lights combines functionality, style, and ease of use to beautifully showcase your artwork.
 
-## <a href="https://www.amazon.com/dp/B0CB7XHW6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lytara Dimmable Cordless Picture Light</a>
+## <a href="https://www.amazon.com/dp/B0CB7XHW6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lytara Dimmable Cordless Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CB7XHW6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LYTARA Dimmable Cordless Picture Light with Controller and Timer, Rechargeable 5000mAh Battery Wall Sconce for Wall Pictures, Gallery Artwork, Paintings, Portraits, Dartboards (Gold)" src="https://m.media-amazon.com/images/I/41P+I7z3IzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CB7XHW6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LYTARA Dimmable Cordless Picture Light with Controller and Timer, Rechargeable 5000mAh Battery Wall Sconce for Wall Pictures, Gallery Artwork, Paintings, Portraits, Dartboards (Gold)" src="https://m.media-amazon.com/images/I/41P+I7z3IzL._SL500_.jpg"/></a>
 
 
 The **LYTARA Dimmable Cordless Picture Light** is ideal for art enthusiasts, gallery owners, and homeowners who want to elegantly illuminate their wall pictures, artwork, paintings, portraits, or dartboards. This product is perfect for those seeking a stylish, cordless, and rechargeable lighting solution that enhances the visual appeal of their displayed pieces without the hassle of wiring.
@@ -104,10 +104,10 @@ The **LYTARA Dimmable Cordless Picture Light** stands out with its elegant desig
 
 This picture light offers versatile dimming options that help users create the perfect ambiance while showcasing their artwork in the best possible light. The warm gold finish adds a touch of sophistication, making it a decorative accent in addition to a functional lighting device. Whether highlighting a family portrait or a treasured painting, the LYTARA picture light enhances visual appeal while providing convenient, cordless illumination tailored to individual preferences.
 
-## <a href="https://www.amazon.com/dp/B0CQ53PWZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fulen 2 Pack Picture Lights For Wall</a>
+## <a href="https://www.amazon.com/dp/B0CQ53PWZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fulen 2 Pack Picture Lights For Wall</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ53PWZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FULEN 2 Pack Picture Lights for Wall,Battery Operated Wall Sconce Rechargeable,LED Wall Light Cordless with Remote,3 Color Temperature, Art Lights for Painting,Frame,Gallery,Dartboard Lights,Black" src="https://m.media-amazon.com/images/I/41vJUneoqXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ53PWZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FULEN 2 Pack Picture Lights for Wall,Battery Operated Wall Sconce Rechargeable,LED Wall Light Cordless with Remote,3 Color Temperature, Art Lights for Painting,Frame,Gallery,Dartboard Lights,Black" src="https://m.media-amazon.com/images/I/41vJUneoqXL._SL500_.jpg"/></a>
 
 
 The **FULEN 2 Pack Picture Lights for Wall** are ideal for art enthusiasts, gallery owners, or anyone looking to elegantly illuminate paintings, frames, or dartboards with ease. This product is perfect for those who want a cordless, battery-operated solution that offers flexibility in placement without the hassle of wiring. If you appreciate adjustable lighting with a sleek design and remote control convenience, these **LED wall lights** are a great choice.
@@ -130,10 +130,10 @@ The **FULEN Picture Lights** feature a cordless design powered by rechargeable b
 
 With its slim and minimalist design, the light bar blends seamlessly into any environment without drawing attention away from the artwork. The LED technology ensures bright and energy-efficient illumination, enhancing the visual appeal of paintings, frames, or other wall-mounted items. The three color temperature settings offer versatility, allowing users to switch between warm, neutral, or cool lighting to create the perfect atmosphere in any room.
 
-## <a href="https://www.amazon.com/dp/B0CB4PF7MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3-pack Battery Operated Picture Light Magnetic Painting Light</a>
+## <a href="https://www.amazon.com/dp/B0CB4PF7MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3-pack Battery Operated Picture Light Magnetic Painting Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0CB4PF7MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3-Pack Battery Operated Picture Light Magnetic Painting Light with 3 Lighting Modes,Remote and Dimmable Timer Art Display Light for Picture Artworking Frame Portrait,Wireless Wall Decor Puck Lights" src="https://m.media-amazon.com/images/I/41bwxt9C8eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CB4PF7MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3-Pack Battery Operated Picture Light Magnetic Painting Light with 3 Lighting Modes,Remote and Dimmable Timer Art Display Light for Picture Artworking Frame Portrait,Wireless Wall Decor Puck Lights" src="https://m.media-amazon.com/images/I/41bwxt9C8eL._SL500_.jpg"/></a>
 
 
 The **3-Pack Battery Operated Picture Light Magnetic Painting Light** is ideal for art enthusiasts, interior decorators, and homeowners who want to elegantly highlight their artwork, portraits, or decorative frames without the hassle of wiring. This product is perfect for those seeking a versatile and wireless lighting solution that combines functionality with aesthetic appeal.
@@ -155,10 +155,10 @@ The **Xuolder 3-Pack Picture Light** features a compact and sleek design with a 
 
 This set of picture lights is especially beneficial for those who want to highlight specific details of their artwork or portraits with soft, focused illumination. The battery-powered operation removes the need for complex wiring, making it an excellent option for renters or those who want a clean, wire-free look. Overall, these lights provide a practical and stylish way to elevate any art display while offering customizable lighting options for various moods and settings.
 
-## <a href="https://www.amazon.com/dp/B0DPHQ9ZHZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Spotlights Indoor With Remote</a>
+## <a href="https://www.amazon.com/dp/B0DPHQ9ZHZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ezvalo Spotlights Indoor With Remote</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPHQ9ZHZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO Spotlights Indoor with Remote,5500mAh Rechargeable Plant Spotlight Indoor, Wireless LED Uplighting with Timer＆Dimmable, 3CCT, Picture Lights for Painting,Artwork,Accent Lighting(2Pack-Black)" src="https://m.media-amazon.com/images/I/41FIiSy0qsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPHQ9ZHZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZVALO Spotlights Indoor with Remote,5500mAh Rechargeable Plant Spotlight Indoor, Wireless LED Uplighting with Timer＆Dimmable, 3CCT, Picture Lights for Painting,Artwork,Accent Lighting(2Pack-Black)" src="https://m.media-amazon.com/images/I/41FIiSy0qsL._SL500_.jpg"/></a>
 
 
 The **EZVALO Spotlights Indoor with Remote** are ideal for homeowners, art enthusiasts, and plant lovers who want to enhance their indoor spaces with elegant and functional lighting. If you are looking for a versatile, wireless, and rechargeable spotlight that can accentuate your **paintings, artwork, or indoor plants**, this product is designed to meet your needs perfectly. The convenient remote control and multiple settings make it suitable for anyone seeking customizable indoor lighting without the hassle of complicated installations.
@@ -181,10 +181,10 @@ The **EZVALO Spotlights Indoor** feature a powerful **5500mAh rechargeable batte
 
 Another standout feature is the versatile **3CCT (Correlated Color Temperature)** option, which lets you switch between different color temperatures to suit your mood or the type of display. Whether you prefer a warm, cozy glow or a bright, daylight effect, these spotlights adapt seamlessly. The dimmable function further enhances this flexibility, making the EZVALO spotlights a great choice for anyone looking to add professional-quality accent lighting to their indoor spaces with convenience and style.
 
-## <a href="https://www.amazon.com/dp/B0DG2JTK7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Afyuol Picture Lights For Wall</a>
+## <a href="https://www.amazon.com/dp/B0DG2JTK7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Afyuol Picture Lights For Wall</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG2JTK7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Afyuol Picture Lights for Wall, Battery Operated Picture Light 16in Gallery Light for Paintings CCT Dimmable Recharging Battery Wall Light with Remote Control for Living Room Dartboard Art Bathroom" src="https://m.media-amazon.com/images/I/41hcaYc9n0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG2JTK7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Afyuol Picture Lights for Wall, Battery Operated Picture Light 16in Gallery Light for Paintings CCT Dimmable Recharging Battery Wall Light with Remote Control for Living Room Dartboard Art Bathroom" src="https://m.media-amazon.com/images/I/41hcaYc9n0L._SL500_.jpg"/></a>
 
 
 The **Afyuol Picture Lights for Wall** is ideal for art enthusiasts, homeowners, and decorators who want to elegantly illuminate their paintings, photos, or wall displays without the hassle of wiring. Perfect for those seeking a sleek, battery-operated lighting solution that offers flexibility and ease of installation, this product is great for living rooms, bathrooms, or any gallery space that requires subtle but effective lighting.
@@ -207,10 +207,10 @@ The **Afyuol Picture Lights** stands out with its user-friendly design and pract
 
 Additionally, the 16-inch length and dimmable CCT functionality provide customizable lighting options that cater to different moods and décor styles. Whether you want a warm glow for a cozy atmosphere or a brighter white light for detailed viewing, this picture light adapts to your needs. Its sleek black finish adds a touch of sophistication, making it not only functional but also a stylish accessory for any room.
 
-## <a href="https://www.amazon.com/dp/B0DBTSQWKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Cordless Picture Light</a>
+## <a href="https://www.amazon.com/dp/B0DBTSQWKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimmable Cordless Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBTSQWKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Cordless Picture Light with Controller and Timer, Rechargeable 5000mAh Battery Wall Sconce for Wall Pictures, 16in Wall Light for Gallery Artwork, Paintings, Phote, Portraits - Black" src="https://m.media-amazon.com/images/I/418bSUgKD+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBTSQWKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimmable Cordless Picture Light with Controller and Timer, Rechargeable 5000mAh Battery Wall Sconce for Wall Pictures, 16in Wall Light for Gallery Artwork, Paintings, Phote, Portraits - Black" src="https://m.media-amazon.com/images/I/418bSUgKD+L._SL500_.jpg"/></a>
 
 
 The **Dimmable Cordless Picture Light with Controller and Timer** is perfect for art lovers, gallery owners, and homeowners who want to elegantly illuminate their wall pictures, paintings, or portraits without the hassle of wires. Ideal for anyone seeking a sleek, modern, and rechargeable lighting solution, this **16-inch wall sconce** enhances the visual appeal of artwork while offering convenience and flexibility in placement.
@@ -233,10 +233,10 @@ The **Dimmable Cordless Picture Light** by Craftersmark features a powerful **50
 
 This wall sconce’s **16-inch length** is ideal for lighting a wide variety of wall-mounted art, from small portraits to larger gallery pieces. The modern black finish adds a sophisticated touch to any room, blending seamlessly with contemporary or classic decor. Whether for a personal collection or professional gallery display, this picture light enhances the visual impact of artwork while providing flexible, cordless convenience.
 
-## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks 3pack Picture Light</a>
+## <a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arixinks 3pack Picture Light</a>
 
 
-<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NZL3J7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arixinks 3PACK Picture Light Battery Operated with Remote, Painting Light for Art with 3 Lighting Colors&amp;Dimmable, LED Art Display Accent Light on Wall for Pictures Dartboard Photo Frame Portrait" src="https://m.media-amazon.com/images/I/413812R3JDL._SL500_.jpg"/></a>
 
 
 The **Arixinks 3PACK Picture Light Battery Operated with Remote** is perfect for art lovers, photographers, and homeowners who want to highlight their **paintings**, **photos**, **portraits**, or even a **dartboard** with elegant lighting. Ideal for those who seek a flexible, easy-to-install, and battery-powered lighting solution, this product is especially suitable for renters or anyone who prefers not to deal with complicated wiring.
@@ -261,10 +261,10 @@ The **Arixinks Picture Light** is designed with the user’s convenience in mind
 
 Additionally, the **dimmable** feature provides customizable brightness, which enhances the visual appeal of your art while protecting it from harsh lighting. The compact yet elegant black finish complements most interior styles, making these lights not only functional but also a stylish addition to your home. With a convenient 3-pack, you can uniformly illuminate multiple frames or create a gallery wall with consistent lighting, elevating the overall aesthetic of your display.
 
-## <a href="https://www.amazon.com/dp/B0CTKQLSSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tassuowell Wireless Picture Lights For Wall</a>
+## <a href="https://www.amazon.com/dp/B0CTKQLSSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tassuowell Wireless Picture Lights For Wall</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTKQLSSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tassuowell Wireless Picture Lights for Wall Rechargeable, Battery Operated Art Light for Paintings, 3CCT Dimmable, 15.7" brass="" display"="" finish="" for="" gallery="" light="" pictures="" remote,="" rotatable="" src="https://m.media-amazon.com/images/I/31yg1DXSH2L._SL500_.jpg" with=""/></a>
+<a href="https://www.amazon.com/dp/B0CTKQLSSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tassuowell Wireless Picture Lights for Wall Rechargeable, Battery Operated Art Light for Paintings, 3CCT Dimmable, 15.7" brass="" display"="" finish="" for="" gallery="" light="" pictures="" remote,="" rotatable="" src="https://m.media-amazon.com/images/I/31yg1DXSH2L._SL500_.jpg" with=""/></a>
 
 
 The **Tassuowell Wireless Picture Lights for Wall Rechargeable** are ideal for art enthusiasts, gallery owners, and homeowners who want to elegantly illuminate their paintings or photographs without the hassle of wires. If you seek a stylish, battery-operated solution that offers flexibility and ease of installation, this **3CCT dimmable art light** is perfect for enhancing your visual displays.

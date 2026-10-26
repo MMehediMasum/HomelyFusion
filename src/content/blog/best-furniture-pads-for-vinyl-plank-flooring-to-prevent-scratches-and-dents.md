@@ -23,10 +23,10 @@ Felt pads, self-adhesive designs, and heavy-duty options suit different furnitur
 
 
 
-## <a href="https://www.amazon.com/dp/B01D93Z9ZA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Felt Furniture Pads X-protector 133 Pcs</a>
+## <a href="https://www.amazon.com/dp/B01D93Z9ZA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Felt Furniture Pads X-protector 133 Pcs</a>
 
 
-<a href="https://www.amazon.com/dp/B01D93Z9ZA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Felt Furniture Pads X-PROTECTOR 133 PCS Premium Furniture Pads - Felt Pads Furniture Feet Best Wood Floor Protectors - Protect Your Hardwood &amp; Laminate Flooring! Brown and Beige" src="https://m.media-amazon.com/images/I/51WOyP2ZhZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01D93Z9ZA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Felt Furniture Pads X-PROTECTOR 133 PCS Premium Furniture Pads - Felt Pads Furniture Feet Best Wood Floor Protectors - Protect Your Hardwood &amp; Laminate Flooring! Brown and Beige" src="https://m.media-amazon.com/images/I/51WOyP2ZhZL._SL500_.jpg"/></a>
 
 
 The **Felt Furniture Pads X-PROTECTOR 133 PCS** are ideal for homeowners and renters who want to safeguard their **hardwood** and **laminate flooring** from scratches and damage caused by moving furniture. If you frequently rearrange your furniture or simply want to maintain the pristine condition of your floors, these **premium felt pads** offer a reliable solution to prevent wear and tear.
@@ -48,10 +48,10 @@ The **X-Protector Felt Furniture Pads** stand out due to their premium quality f
 
 Additionally, the pads come with a strong adhesive backing that ensures they stay firmly attached to furniture legs, minimizing the need for frequent replacements. Their lightweight design, weighing only **0.25 pounds**, makes them easy to handle and install. Overall, these felt pads are an excellent investment for anyone looking to prolong the life of their **hardwood** or **laminate flooring** while maintaining a quiet and scratch-free home environment.
 
-## <a href="https://www.amazon.com/dp/B00V7UD93C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads</a>
+## <a href="https://www.amazon.com/dp/B00V7UD93C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B00V7UD93C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Felt Pads 162 PCS Beige, Felt Furniture Pads for Protecting Hardwood Floors, Round, Assorted Sizes Value Pack, Self-Stick design, Protecting from nicks, dents and scratches (SP845-NA)" src="https://m.media-amazon.com/images/I/41A+Lja0ILL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00V7UD93C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Felt Pads 162 PCS Beige, Felt Furniture Pads for Protecting Hardwood Floors, Round, Assorted Sizes Value Pack, Self-Stick design, Protecting from nicks, dents and scratches (SP845-NA)" src="https://m.media-amazon.com/images/I/41A+Lja0ILL._SL500_.jpg"/></a>
 
 
 The **Scotch Felt Pads 162 PCS Beige** are ideal for homeowners and renters who want to protect their **hardwood floors** from damage caused by furniture. If you frequently move chairs, tables, or other furniture, or simply want to maintain the pristine condition of your flooring, this value pack is perfect for you. These **self-stick felt furniture pads** provide a simple and effective solution to prevent nicks, dents, and scratches.
@@ -75,10 +75,10 @@ The **Scotch Felt Pads** come in a variety of sizes, ensuring that you can find 
 
 Designed with convenience and protection in mind, these pads are a cost-effective way to extend the life of your floors. The neutral **beige color** ensures they remain discreet beneath furniture, maintaining your room’s aesthetic appeal. Whether you have dining chairs, coffee tables, or delicate furniture, the **Scotch Felt Pads 162 PCS** provide reliable protection that is both easy to apply and replace when needed.
 
-## <a href="https://www.amazon.com/dp/B01N8VO7OB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads 32 Pcs</a>
+## <a href="https://www.amazon.com/dp/B01N8VO7OB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads 32 Pcs</a>
 
 
-<a href="https://www.amazon.com/dp/B01N8VO7OB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (sp802-na)"="" alt="Scotch Felt Pads 32 PCS Beige, Felt Furniture Pads for Protecting Hardwood Floors, 1" and="" dents="" design,="" easy-to-apply,="" from="" nicks,="" protection="" reliable="" round,="" scratches="" self-stick="" src="https://m.media-amazon.com/images/I/51QVRYKQh2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N8VO7OB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (sp802-na)"="" alt="Scotch Felt Pads 32 PCS Beige, Felt Furniture Pads for Protecting Hardwood Floors, 1" and="" dents="" design,="" easy-to-apply,="" from="" nicks,="" protection="" reliable="" round,="" scratches="" self-stick="" src="https://m.media-amazon.com/images/I/51QVRYKQh2L._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and renters who want to protect their **hardwood floors** from everyday wear and tear, the **Scotch Felt Pads 32 PCS Beige** are perfect for anyone looking to prevent damage caused by moving furniture. If you own wooden floors and are concerned about **nicks, dents, and scratches**, these **self-stick felt furniture pads** provide an easy and reliable solution to maintain the beauty of your flooring.
@@ -100,10 +100,10 @@ The **Scotch Felt Pads** are designed with a strong adhesive backing, allowing f
 
 Additionally, the beige color of the pads ensures they remain discreet, maintaining the aesthetic appeal of your home decor. The 32-piece set from **3M**, a trusted brand, offers great value and convenience, ensuring you have enough pads for all your furniture or for future replacements. Overall, these felt pads deliver reliable protection with minimal effort, making them an essential accessory for anyone serious about floor care.
 
-## <a href="https://www.amazon.com/dp/B06X6C5JHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nail-on Heavy Duty Felt Pads For Wood Furniture And Hard Floor Surfaces</a>
+## <a href="https://www.amazon.com/dp/B06X6C5JHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nail-on Heavy Duty Felt Pads For Wood Furniture And Hard Floor Surfaces</a>
 
 
-<a href="https://www.amazon.com/dp/B06X6C5JHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nail-On Heavy Duty Felt Pads for Wood Furniture and Hard Floor Surfaces – Protect your Hard Floor Surfaces from Scratches, 1” Round Furniture Protectors, Walnut Brown (48 Pieces)" src="https://m.media-amazon.com/images/I/51YMvYmPP8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06X6C5JHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nail-On Heavy Duty Felt Pads for Wood Furniture and Hard Floor Surfaces – Protect your Hard Floor Surfaces from Scratches, 1” Round Furniture Protectors, Walnut Brown (48 Pieces)" src="https://m.media-amazon.com/images/I/51YMvYmPP8L._SL500_.jpg"/></a>
 
 
 The **Nail-On Heavy Duty Felt Pads** are ideal for homeowners and renters who want to protect their **wood furniture** and **hard floor surfaces** from unsightly scratches and damage. If you have hardwood, tile, or laminate flooring and frequently move furniture, these **1” round furniture protectors** in **walnut brown** are perfect for preserving the beauty and longevity of your floors. They are also great for anyone seeking a durable and easy-to-install solution to reduce noise and wear caused by furniture movement.
@@ -125,10 +125,10 @@ These **SOFTTOUCH Nail-On Heavy Duty Felt Pads** by **Waxman Consumer Products**
 
 Measuring approximately **6.25 inches in height, 1.5 inches in width, and 8.7 inches in length**, this pack of 48 pads provides ample coverage for various furniture pieces throughout your home. The felt material is thick and durable, offering long-term protection against scratches and scuffs. By installing these pads, users can enjoy peace of mind knowing their hardwood or other hard floors remain pristine, increasing the overall value and aesthetic appeal of their living space.
 
-## <a href="https://www.amazon.com/dp/B0009ZD9F4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Supersliders 4-pack 5" Square Felt Furniture Sliders</a>
+## <a href="https://www.amazon.com/dp/B0009ZD9F4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Supersliders 4-pack 5" Square Felt Furniture Sliders</a>
 
 
-<a href="https://www.amazon.com/dp/B0009ZD9F4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" alt="SuperSliders 4-Pack 5" appliances="" black"="" couches,="" duty="" felt="" floor="" floors="" for="" furniture="" hardwood="" heavy="" movers="" non-slip="" protectors="" reusable="" sliders="" square="" src="https://m.media-amazon.com/images/I/51Z4ymreh8L._SL500_.jpg" tables=""/></a>
+<a href="https://www.amazon.com/dp/B0009ZD9F4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" -="" alt="SuperSliders 4-Pack 5" appliances="" black"="" couches,="" duty="" felt="" floor="" floors="" for="" furniture="" hardwood="" heavy="" movers="" non-slip="" protectors="" reusable="" sliders="" square="" src="https://m.media-amazon.com/images/I/51Z4ymreh8L._SL500_.jpg" tables=""/></a>
 
 
 The **SuperSliders 4-Pack 5" Square Felt Furniture Sliders** are ideal for homeowners, renters, and movers who want to protect their **hardwood floors** while easily relocating heavy furniture like couches, tables, and appliances. If you often rearrange your living space or need a reliable solution to prevent scratches and damage during moves, these **heavy duty, reusable sliders** are perfect for you.
@@ -151,10 +151,10 @@ The **SuperSliders furniture sliders** feature a thick felt bottom that allows f
 
 Additionally, the **non-slip design** ensures that furniture stays securely in place once positioned, preventing unwanted sliding or shifting that can cause accidents or damage. The sliders' **heavy duty and reusable** nature makes them a cost-effective solution for anyone who frequently rearranges furniture or moves homes. The **black color** and sleek design also add a subtle aesthetic appeal, blending in nicely with most furniture types.
 
-## <a href="https://www.amazon.com/dp/B0787S8GP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads</a>
+## <a href="https://www.amazon.com/dp/B0787S8GP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Felt Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0787S8GP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Felt Pads 162 PCS Brown, Felt Furniture Pads for Protecting Hardwood Floors, Round, Assorted Sizes Value Pack, Self-Stick design, Protecting from nicks, dents and scratches (SP847-NA)" src="https://m.media-amazon.com/images/I/41c8F2t-rnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0787S8GP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Felt Pads 162 PCS Brown, Felt Furniture Pads for Protecting Hardwood Floors, Round, Assorted Sizes Value Pack, Self-Stick design, Protecting from nicks, dents and scratches (SP847-NA)" src="https://m.media-amazon.com/images/I/41c8F2t-rnL._SL500_.jpg"/></a>
 
 
 The **Scotch Felt Pads 162 PCS Brown** are ideal for homeowners and renters who want to protect their **hardwood floors** from damage caused by furniture movement. If you have chairs, tables, or other furniture pieces that frequently slide or shift, these felt pads provide an effective solution to prevent **nicks, dents, and scratches**. They are perfect for those who value maintaining the pristine condition of their flooring without compromising on ease of use.
@@ -178,10 +178,10 @@ The **Scotch Felt Pads** are designed with a **self-stick backing** that allows 
 
 Additionally, the pads’ durable construction ensures long-lasting protection, reducing the need for frequent replacements and protecting your investment in hardwood flooring. By minimizing direct contact between hard furniture surfaces and floors, these pads help maintain the floor’s aesthetic appeal and prevent costly repairs. Their discreet brown color also complements most furniture finishes, making them both functional and visually unobtrusive.
 
-## <a href="https://www.amazon.com/dp/B0CH71TWR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wizard Sliders Felt Furniture Pads</a>
+## <a href="https://www.amazon.com/dp/B0CH71TWR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wizard Sliders Felt Furniture Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH71TWR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 1="" 5"="" 6"="" alt="WIZARD SLIDERS Felt Furniture Pads Self-Adhesive for Hardwood Floors, 8pcs 8" any="" beige="" brown"="" cut="" cuttable="" floor="" furniture="" into="" movers,="" pads="" protector="" shape,="" square="" src="https://m.media-amazon.com/images/I/410vil1sBiL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0CH71TWR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img &="" 1="" 5"="" 6"="" alt="WIZARD SLIDERS Felt Furniture Pads Self-Adhesive for Hardwood Floors, 8pcs 8" any="" beige="" brown"="" cut="" cuttable="" floor="" furniture="" into="" movers,="" pads="" protector="" shape,="" square="" src="https://m.media-amazon.com/images/I/410vil1sBiL._SL500_.jpg" x=""/></a>
 
 
 The **WIZARD SLIDERS Felt Furniture Pads** are ideal for homeowners and renters who want to protect their **hardwood floors** from scratches and damage caused by moving furniture. If you have heavy furniture pieces or frequently rearrange your living spaces, these **self-adhesive, cuttable pads** provide a practical solution to safeguard your floors while making furniture movement effortless.
@@ -204,10 +204,10 @@ The **WIZARD SLIDERS Felt Furniture Pads** feature a generous size of 8 inches b
 
 Using these pads results in smoother movement of furniture across hardwood floors, reducing the risk of scratches, dents, or surface wear. The felt material absorbs friction and distributes weight evenly, which prolongs the life of both furniture and flooring. Additionally, the neutral **beige and brown tones** maintain an unobtrusive look, ensuring the pads do not detract from the aesthetic of your home décor.
 
-## <a href="https://www.amazon.com/dp/B00UW36TBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Heavy Duty Felt Pads</a>
+## <a href="https://www.amazon.com/dp/B00UW36TBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Scotch Heavy Duty Felt Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B00UW36TBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Heavy Duty Felt Pads, 6-Pack of 8 1 inch Furniture Pads for Hardwood Floors, Tile, and Grout" src="https://m.media-amazon.com/images/I/51nX1POd-FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00UW36TBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Scotch Heavy Duty Felt Pads, 6-Pack of 8 1 inch Furniture Pads for Hardwood Floors, Tile, and Grout" src="https://m.media-amazon.com/images/I/51nX1POd-FL._SL500_.jpg"/></a>
 
 
 The **Scotch Heavy Duty Felt Pads** are ideal for homeowners and renters who want to protect their **hardwood floors, tile, and grout** from scratches and damage caused by moving furniture. These **furniture pads** are perfect for anyone looking to extend the life of their flooring while maintaining a quiet, smooth movement of chairs, tables, and other furniture pieces. If you value floor maintenance and want a simple yet effective solution, this product is a great choice.
@@ -230,10 +230,10 @@ The **Scotch Heavy Duty Felt Pads** are designed with quality and functionality 
 
 Furthermore, the strong adhesive backing makes installation quick and hassle-free, eliminating the need for additional tools or complex setups. By using these pads, users can enjoy the benefit of preserving their floors’ pristine condition while also enhancing the longevity of their furniture. Whether you have hardwood, tile, or grout flooring, these pads serve as a practical and efficient solution to everyday wear and tear caused by furniture movement.
 
-## <a href="https://www.amazon.com/dp/B00KM9W0RU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smart Surface Heavy Duty Self Adhesive Furniture Felt Pads</a>
+## <a href="https://www.amazon.com/dp/B00KM9W0RU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smart Surface Heavy Duty Self Adhesive Furniture Felt Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B00KM9W0RU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smart Surface 8827 Heavy Duty Self Adhesive Furniture Felt Pads 1-Inch Round Brown 160-Piece Value Pack in Resealable Bag" src="https://m.media-amazon.com/images/I/51ECN+eJeOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KM9W0RU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smart Surface 8827 Heavy Duty Self Adhesive Furniture Felt Pads 1-Inch Round Brown 160-Piece Value Pack in Resealable Bag" src="https://m.media-amazon.com/images/I/51ECN+eJeOL._SL500_.jpg"/></a>
 
 
 The **Smart Surface 8827 Heavy Duty Self Adhesive Furniture Felt Pads** are ideal for homeowners, renters, and office managers looking to protect their floors and furniture from scratches and damage. If you want an easy and effective way to prevent noise and wear caused by moving furniture, this **160-piece value pack** offers great convenience and long-lasting protection. Those who appreciate durable, hassle-free home maintenance will find these **1-inch round brown felt pads** a perfect solution.
@@ -255,10 +255,10 @@ The **Smart Surface 8827 Felt Pads** feature a reliable self-adhesive backing th
 
 With dimensions of approximately 1 inch in diameter and a convenient resealable bag, these felt pads are easy to store and apply whenever needed. Whether you're protecting hardwood, tile, laminate, or vinyl floors, these pads minimize noise and prevent scuff marks effectively. The large quantity in the pack makes it a cost-effective choice for outfitting an entire household or office space, giving you peace of mind and maintaining the aesthetic appeal of your living or work environment.
 
-## <a href="https://www.amazon.com/dp/B001W6Q4RY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softtouch 2 1/2" Square Reusable Carpet Bottom Furniture Caster Cups</a>
+## <a href="https://www.amazon.com/dp/B001W6Q4RY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Softtouch 2 1/2" Square Reusable Carpet Bottom Furniture Caster Cups</a>
 
 
-<a href="https://www.amazon.com/dp/B001W6Q4RY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (4="" alt="SoftTouch 2 1/2" bottom="" brown="" carpet="" caster="" cups="" floors,="" furniture="" gray="" hardwood,="" laminate="" or="" pack)"="" protect="" reusable="" square="" src="https://m.media-amazon.com/images/I/51xttwFCHFL._SL500_.jpg" tile="" to=""/></a>
+<a href="https://www.amazon.com/dp/B001W6Q4RY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img (4="" alt="SoftTouch 2 1/2" bottom="" brown="" carpet="" caster="" cups="" floors,="" furniture="" gray="" hardwood,="" laminate="" or="" pack)"="" protect="" reusable="" square="" src="https://m.media-amazon.com/images/I/51xttwFCHFL._SL500_.jpg" tile="" to=""/></a>
 
 
 The **SoftTouch 2 1/2" Square Reusable Carpet Bottom Furniture Caster Cups** are ideal for homeowners and renters who want to protect their **hardwood, tile, or laminate floors** from damage caused by furniture. If you have heavy furniture pieces with casters or wheels and are concerned about scratches, dents, or marks on your flooring, these caster cups are a perfect solution to preserve the beauty and longevity of your floors.

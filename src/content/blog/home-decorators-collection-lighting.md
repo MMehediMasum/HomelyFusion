@@ -22,10 +22,10 @@ Many fixtures use integrated LEDs, which save energy and last longer. Whether yo
 
 
 
-## <a href="https://www.amazon.com/dp/B076JTB1QZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Polished Nickel Integrated Led Bath Light</a>
+## <a href="https://www.amazon.com/dp/B076JTB1QZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Polished Nickel Integrated Led Bath Light</a>
 
 
-<a href="https://www.amazon.com/dp/B076JTB1QZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="23-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass" src="https://m.media-amazon.com/images/I/31o+ZLVeFQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076JTB1QZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="23-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass" src="https://m.media-amazon.com/images/I/31o+ZLVeFQL._SL500_.jpg"/></a>
 
 
 The **23-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass** is ideal for homeowners and interior designers seeking a stylish and energy-efficient lighting solution for bathrooms. This item is perfect for those who want to combine modern aesthetics with functional illumination in their personal or client spaces. If you appreciate durable materials and sleek design, this bath light is a great choice.
@@ -47,12 +47,12 @@ The **Home Decorators Collection** 23-Watt Polished Nickel Integrated LED Bath L
 
 Additionally, the fixture's dimensions and lightweight construction make it versatile for different bathroom layouts and easy to install. Although the integrated LED means the entire unit must be replaced if the light stops working, the long lifespan of LEDs mitigates this drawback. Overall, this bath light is a practical and stylish choice for anyone looking to upgrade their bathroom lighting with a durable and aesthetically pleasing fixture.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B076JTB1QZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B076JTB1QZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00L0GSHOO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Flushmount Outdoor Aged Iron Lantern</a>
+## <a href="https://www.amazon.com/dp/B00L0GSHOO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Flushmount Outdoor Aged Iron Lantern</a>
 
 
-<a href="https://www.amazon.com/dp/B00L0GSHOO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Flushmount 2-Light Outdoor Aged Iron Lantern" src="https://m.media-amazon.com/images/I/51hfKuaYmIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00L0GSHOO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Flushmount 2-Light Outdoor Aged Iron Lantern" src="https://m.media-amazon.com/images/I/51hfKuaYmIL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Flushmount 2-Light Outdoor Aged Iron Lantern** is ideal for homeowners and outdoor enthusiasts looking to enhance their exterior spaces with elegant and durable lighting. If you want a stylish, weather-resistant fixture that provides ample illumination for patios, porches, or entryways, this lantern is a perfect choice.
@@ -74,12 +74,12 @@ This **flushmount outdoor lantern** from the Home Decorators Collection features
 
 Beyond its aesthetic appeal, this lantern offers practical benefits such as weather resistance and durability, ensuring it withstands the elements year-round. The bronze color adds a timeless charm, enhancing curb appeal while providing functional lighting. Whether you want to create a welcoming entrance or illuminate your outdoor seating area, this lantern combines style and utility seamlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00L0GSHOO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00L0GSHOO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0875XTQDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Weyburn 6-light Bronze Caged Chandelier</a>
+## <a href="https://www.amazon.com/dp/B0875XTQDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Weyburn 6-light Bronze Caged Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B0875XTQDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Weyburn 6-Light Bronze Caged Chandelier" src="https://m.media-amazon.com/images/I/31WqJ-ilK6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0875XTQDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Weyburn 6-Light Bronze Caged Chandelier" src="https://m.media-amazon.com/images/I/31WqJ-ilK6L._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Weyburn 6-Light Bronze Caged Chandelier** is ideal for homeowners and interior design enthusiasts looking to add a touch of industrial elegance to their living spaces. Those who appreciate a blend of rustic charm and modern style will find this chandelier perfect for dining rooms, kitchens, or entryways that need a bold lighting statement.
@@ -102,12 +102,12 @@ The **Home Decorators Collection Weyburn Chandelier** stands out with its striki
 
 Constructed by the reputable brand **ZOUXO**, this chandelier balances style with functionality. Its lightweight nature at just 8.45 pounds simplifies installation without compromising sturdiness. Whether you're aiming to update your home decor or create a warm, inviting atmosphere, this chandelier delivers both aesthetic appeal and practical lighting benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0875XTQDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0875XTQDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07D64WFY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Bath Light</a>
+## <a href="https://www.amazon.com/dp/B07D64WFY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Bath Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07D64WFY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 22803 24 Watt Brushed Nickel Integrated Bath Light" src="https://m.media-amazon.com/images/I/31XpSe+QKkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D64WFY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 22803 24 Watt Brushed Nickel Integrated Bath Light" src="https://m.media-amazon.com/images/I/31XpSe+QKkL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection 22803 24 Watt Brushed Nickel Integrated Bath Light** is ideal for homeowners or interior designers looking to enhance bathroom lighting with a sleek and modern fixture. This light is perfect for those who appreciate a combination of style, energy efficiency, and durability in their bathroom decor. If you want to add a contemporary touch with reliable illumination, this bath light is a great choice.
@@ -130,12 +130,12 @@ The **Home Decorators Collection 22803 Bath Light** features an integrated LED s
 
 Users benefit from its sleek and minimalist design that fits seamlessly into various decor styles, from contemporary to transitional. The lightweight construction simplifies the installation process, while the trusted brand backing assures customers of product reliability and customer service. Overall, this bath light balances functionality, aesthetic appeal, and energy savings, making it a practical addition for anyone looking to upgrade their bathroom lighting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07D64WFY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07D64WFY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07813XMPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection 12-watt Polished Nickel Integrated Led Bath Light</a>
+## <a href="https://www.amazon.com/dp/B07813XMPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection 12-watt Polished Nickel Integrated Led Bath Light</a>
 
 
-<a href="https://www.amazon.com/dp/B07813XMPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 12-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass" src="https://m.media-amazon.com/images/I/316k2+Yf7kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07813XMPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 12-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass" src="https://m.media-amazon.com/images/I/316k2+Yf7kL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection 12-Watt Polished Nickel Integrated LED Bath Light with Tube Etched Glass** is ideal for homeowners and interior designers looking to enhance bathroom lighting with a stylish, energy-efficient fixture. This product is perfect for those who want a sleek and modern aesthetic combined with reliable performance and durability. If you value both design and functionality in your bathroom fixtures, this bath light is a great choice.
@@ -158,12 +158,12 @@ The **Home Decorators Collection LED Bath Light** features an integrated LED sys
 
 This bath light's compact size allows it to fit seamlessly above mirrors or vanity areas without overwhelming the space. The energy-efficient 12-watt LED helps reduce utility costs while providing bright, consistent light. Additionally, its lightweight construction makes installation straightforward, even for DIY enthusiasts. Overall, this fixture combines style, efficiency, and convenience for an improved bathroom lighting experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07813XMPJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07813XMPJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0749CGGNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Palermo Grove Collection 5-light Linear Chandelier</a>
+## <a href="https://www.amazon.com/dp/B0749CGGNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Palermo Grove Collection 5-light Linear Chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B0749CGGNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Palermo Grove Collection 5-Light Black Gilded Iron Linear Chandelier" src="https://m.media-amazon.com/images/I/41bJvMG12eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0749CGGNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection Palermo Grove Collection 5-Light Black Gilded Iron Linear Chandelier" src="https://m.media-amazon.com/images/I/41bJvMG12eL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection Palermo Grove Collection 5-Light Black Gilded Iron Linear Chandelier** is ideal for homeowners and interior decorators looking to add a touch of elegance and industrial charm to long dining tables, kitchen islands, or spacious hallways. This chandelier suits those who appreciate a blend of classic and contemporary design elements in their home lighting fixtures.
@@ -186,12 +186,12 @@ This chandelier boasts a robust **black gilded iron** frame that offers both dur
 
 Additionally, the **Palermo Grove Collection** chandelier is designed with quality and longevity in mind. Its weight of 18.3 pounds speaks to the solid craftsmanship and reliable materials used in its construction. This makes it not only a visually striking centerpiece but also a dependable lighting solution. With a perfect balance of style and practicality, this fixture enhances the beauty of any room while providing essential illumination.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0749CGGNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0749CGGNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B072FMSRGR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mccarthy 2-light Bronze Outdoor Flushmount</a>
+## <a href="https://www.amazon.com/dp/B072FMSRGR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mccarthy 2-light Bronze Outdoor Flushmount</a>
 
 
-<a href="https://www.amazon.com/dp/B072FMSRGR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection McCarthy 2-Light Bronze Outdoor Flushmount" src="https://m.media-amazon.com/images/I/51cfpCkjx9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072FMSRGR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection McCarthy 2-Light Bronze Outdoor Flushmount" src="https://m.media-amazon.com/images/I/51cfpCkjx9L._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection McCarthy 2-Light Bronze Outdoor Flushmount** is ideal for homeowners and outdoor enthusiasts looking to enhance their exterior lighting with a stylish yet functional fixture. If you want a durable, attractive light that blends seamlessly with a variety of outdoor décors, this product is a perfect choice. It is especially suited for those who value both aesthetic appeal and reliable outdoor lighting performance.
@@ -214,12 +214,12 @@ The **Home Decorators Collection McCarthy 2-Light Bronze Outdoor Flushmount** bo
 
 Equipped with two lights, this outdoor fixture delivers balanced illumination that enhances safety and visibility around entrances and outdoor walkways. Its compact size makes it suitable for a variety of spaces without overwhelming the aesthetic of your home’s exterior. The fixture’s quality craftsmanship from **Home Decorators** ensures users receive a reliable product that combines style and function effectively.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B072FMSRGR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B072FMSRGR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mini Pendant</a>
+## <a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mini Pendant</a>
 
 
-<a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 27030 1-Light Bronze &amp; Champagne Pewter Mini Pendant" src="https://m.media-amazon.com/images/I/31QbqnmLkxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 27030 1-Light Bronze &amp; Champagne Pewter Mini Pendant" src="https://m.media-amazon.com/images/I/31QbqnmLkxL._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection 27030 1-Light Bronze & Champagne Pewter Mini Pendant** is ideal for homeowners and interior designers looking to add a stylish yet subtle lighting element to kitchens, dining areas, or entryways. Those who appreciate a blend of classic and contemporary aesthetics will find this mini pendant perfect for enhancing their space with warm, inviting illumination.
@@ -242,12 +242,12 @@ The **Home Decorators Collection 27030 Mini Pendant** features a beautifully cra
 
 Beyond aesthetics, this mini pendant offers practical benefits such as easy installation and targeted illumination. Its single-light design ensures that it delivers a warm glow ideal for creating cozy atmospheres in dining nooks or kitchen islands. The high-quality materials used by **Home Decorators Collection** guarantee durability and longevity, making this fixture a reliable addition to your home lighting setup.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07JMKHTZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07FKTD53G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mini-chandelier</a>
+## <a href="https://www.amazon.com/dp/B07FKTD53G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection Mini-chandelier</a>
 
 
-<a href="https://www.amazon.com/dp/B07FKTD53G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection HD-1144-I 3-Light Polished Chrome Mini-Chandelier with K9 Hanging Crystals" src="https://m.media-amazon.com/images/I/51eJFq3Ua7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FKTD53G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection HD-1144-I 3-Light Polished Chrome Mini-Chandelier with K9 Hanging Crystals" src="https://m.media-amazon.com/images/I/51eJFq3Ua7L._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection HD-1144-I 3-Light Polished Chrome Mini-Chandelier with K9 Hanging Crystals** is ideal for homeowners and interior designers looking to add a touch of elegance and sophistication to small to medium-sized spaces. This chandelier is perfect for those who appreciate classic yet contemporary lighting fixtures that blend well with various decor styles, especially in dining rooms, entryways, or bedrooms. If you want to elevate your home ambiance with a polished chrome finish and sparkling crystals, this mini-chandelier is a perfect choice.
@@ -270,12 +270,12 @@ The **Home Decorators Collection HD-1144-I Mini-Chandelier** combines a polished
 
 Beyond aesthetics, the durable construction from a well-known brand ensures long-lasting performance. The crystals’ high-quality craftsmanship enhances light diffusion, improving ambiance and elevating the overall decor. Whether installed in a cozy dining nook or a stylish entryway, this mini-chandelier delivers both charm and practicality, making it a valuable addition to any home seeking a refined lighting solution.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07FKTD53G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07FKTD53G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01MTAFEHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection 3-light Mirrored Stainless Steel Flushmount</a>
+## <a href="https://www.amazon.com/dp/B01MTAFEHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Decorators Collection 3-light Mirrored Stainless Steel Flushmount</a>
 
 
-<a href="https://www.amazon.com/dp/B01MTAFEHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 3-Light Mirrored Stainless Steel Flushmount" src="https://m.media-amazon.com/images/I/51ZHwJ+Ry4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MTAFEHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Home Decorators Collection 3-Light Mirrored Stainless Steel Flushmount" src="https://m.media-amazon.com/images/I/51ZHwJ+Ry4L._SL500_.jpg"/></a>
 
 
 The **Home Decorators Collection 3-Light Mirrored Stainless Steel Flushmount** is ideal for homeowners and interior enthusiasts looking to enhance their living spaces with a sleek, modern lighting fixture. This product is perfect for those who desire a blend of contemporary style and functional illumination in rooms such as kitchens, hallways, or bedrooms. If you seek a lighting solution that is both visually striking and space-efficient, this flushmount light is a great choice.
@@ -298,7 +298,7 @@ The **Home Decorators Collection 3-Light Mirrored Stainless Steel Flushmount** i
 
 Additionally, the compact and lightweight design of the flushmount allows for easy installation in various ceiling heights, especially in spaces with limited clearance. The bold red accents create a subtle focal point that can enliven neutral or monochromatic interiors, offering users an opportunity to personalize their décor effortlessly. Overall, this lighting fixture balances style, functionality, and ease of use, making it a valuable addition to any contemporary home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01MTAFEHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01MTAFEHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

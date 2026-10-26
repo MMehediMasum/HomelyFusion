@@ -23,10 +23,10 @@ Soft textures and subtle patterns add warmth and charm to living spaces. Each se
 
 
 
-## <a href="https://www.amazon.com/dp/B09J2454PV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decoruhome Fall Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B09J2454PV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decoruhome Fall Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B09J2454PV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="decorUhome Fall Throw Pillow Covers 18x18 Inch Set of 2, Soft Plush Decorative Faux Fur Beige Solid Couch Pillow Covers, Accent Farmhouse Neutral Square Pillow Cases for Sofa Bed Living Room" src="https://m.media-amazon.com/images/I/41rC5dLAEGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09J2454PV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="decorUhome Fall Throw Pillow Covers 18x18 Inch Set of 2, Soft Plush Decorative Faux Fur Beige Solid Couch Pillow Covers, Accent Farmhouse Neutral Square Pillow Cases for Sofa Bed Living Room" src="https://m.media-amazon.com/images/I/41rC5dLAEGL._SL500_.jpg"/></a>
 
 
 The **decorUhome Fall Throw Pillow Covers 18x18 Inch Set of 2** are ideal for individuals looking to enhance their home decor with a cozy, stylish touch. Perfect for homeowners, renters, or anyone wanting to refresh their living room, bedroom, or sofa bed with a warm, inviting aesthetic. These **soft plush decorative faux fur beige solid couch pillow covers** are particularly suited for those who appreciate farmhouse and neutral design themes.
@@ -49,10 +49,10 @@ The **decorUhome Fall Throw Pillow Covers** feature a plush faux fur texture tha
 
 Designed with practicality in mind, these pillow covers are easy to slip on and off, facilitating hassle-free cleaning and maintenance. Their generous **18x18 inch dimensions** ensure a snug fit on most standard throw pillows, providing a smooth, tailored appearance. Overall, these covers not only enhance visual appeal but also contribute to a cozy, comfortable environment for relaxation and social gatherings.
 
-## <a href="https://www.amazon.com/dp/B0BJ3CTLHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Set Of 2 Curly Teddy Wool Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0BJ3CTLHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Set Of 2 Curly Teddy Wool Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJ3CTLHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Set of 2 Curly Teddy Wool Pillow Covers Decorative Boucle Textured Lumbar Throw Pillow Faux Fur Pillowcases Sheepskin Cushion Case for Sofa Bedroom Car 12" khaki"="" src="https://m.media-amazon.com/images/I/51WdXX4dtHL._SL500_.jpg" x20"=""/></a>
+<a href="https://www.amazon.com/dp/B0BJ3CTLHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Set of 2 Curly Teddy Wool Pillow Covers Decorative Boucle Textured Lumbar Throw Pillow Faux Fur Pillowcases Sheepskin Cushion Case for Sofa Bedroom Car 12" khaki"="" src="https://m.media-amazon.com/images/I/51WdXX4dtHL._SL500_.jpg" x20"=""/></a>
 
 
 The **Foindtower Set of 2 Curly Teddy Wool Pillow Covers** is ideal for individuals looking to add a touch of cozy elegance and texture to their living spaces. Whether you want to enhance the comfort of your **sofa**, **bedroom**, or **car interiors**, these decorative **boucle textured lumbar throw pillow covers** offer a perfect blend of style and practicality. If you appreciate soft, luxurious textures like **faux fur** and **sheepskin** without the maintenance hassle of real fur, this set is designed for you.
@@ -74,10 +74,10 @@ These **Foindtower pillow covers** stand out due to their unique **boucle textur
 
 Additionally, the lightweight and easy-to-clean materials make these pillow covers a convenient choice for busy households or frequent travelers. While the thin profile means they work best with added inserts, this also allows for customization in terms of firmness and height. Overall, the **Foindtower Set of 2 Curly Teddy Wool Pillow Covers** offers an elegant, cozy, and practical solution to refresh your living space with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B07569ZT5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Calitime Throw Pillow Covers Decorative 18 X 18 Inches Pack Of 2</a>
+## <a href="https://www.amazon.com/dp/B07569ZT5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Calitime Throw Pillow Covers Decorative 18 X 18 Inches Pack Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B07569ZT5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CaliTime Throw Pillow Covers Decorative 18 X 18 Inches Pack of 2 Cozy Chenille Cushion Cases for Couch Sofa Bed Living Room Home Teal" src="https://m.media-amazon.com/images/I/51CqEJMEhlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07569ZT5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CaliTime Throw Pillow Covers Decorative 18 X 18 Inches Pack of 2 Cozy Chenille Cushion Cases for Couch Sofa Bed Living Room Home Teal" src="https://m.media-amazon.com/images/I/51CqEJMEhlL._SL500_.jpg"/></a>
 
 
 Ideal for homeowners and interior decor enthusiasts looking to add a splash of color and comfort to their living spaces, the **CaliTime Throw Pillow Covers Decorative 18 X 18 Inches Pack of 2** are perfect for those who want to refresh their couch, sofa, or bed effortlessly. These **cozy chenille cushion cases** in a vibrant **teal** shade appeal to anyone seeking a blend of style and softness in their home accessories.
@@ -100,10 +100,10 @@ The **CaliTime Throw Pillow Covers** feature a soft chenille texture that enhanc
 
 Beyond aesthetics, these pillow covers are designed for practicality. The removable design allows for effortless cleaning, helping maintain a fresh and inviting environment. Whether you want to brighten up a dull sofa or add a cozy touch to your bed, this pack of two covers provides versatility and style, making your home more welcoming and comfortable.
 
-## <a href="https://www.amazon.com/dp/B0BFVVKVSK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miulee Pack Of 2 Corduroy Decorative Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0BFVVKVSK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miulee Pack Of 2 Corduroy Decorative Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFVVKVSK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MIULEE Pack of 2 Corduroy Decorative Throw Pillow Covers 18x18 Inch Soft Boho Striped Pillow Covers Modern Farmhouse Home Decor for Sofa Living Room Couch Bed Cream White" src="https://m.media-amazon.com/images/I/514oLvzF9vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFVVKVSK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MIULEE Pack of 2 Corduroy Decorative Throw Pillow Covers 18x18 Inch Soft Boho Striped Pillow Covers Modern Farmhouse Home Decor for Sofa Living Room Couch Bed Cream White" src="https://m.media-amazon.com/images/I/514oLvzF9vL._SL500_.jpg"/></a>
 
 
 The **MIULEE Pack of 2 Corduroy Decorative Throw Pillow Covers** are ideal for individuals looking to enhance their living spaces with a touch of modern farmhouse style. Perfect for homeowners, renters, or interior design enthusiasts who appreciate soft textures and subtle, elegant patterns, these pillow covers suit those wanting to refresh their **sofa**, **living room**, or **bed** decor with minimal effort. If you value both comfort and aesthetics in home accessories, this set is a great choice.
@@ -126,10 +126,10 @@ The **MIULEE Corduroy Decorative Throw Pillow Covers** stand out for their combi
 
 Beyond their visual appeal, these pillow covers provide practical benefits. They are easy to slip on and off, facilitating simple cleaning and maintenance, which is essential for keeping living spaces looking neat and welcoming. The lightweight design, weighing only 7 ounces per cover, ensures they don't add bulk, allowing pillows to retain their shape and comfort. Overall, these covers enhance both the style and functionality of your home decor, making them a smart investment for anyone seeking to elevate their living environment.
 
-## <a href="https://www.amazon.com/dp/B0CKRDJC26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Pack Of 2 Decorative Linen Solid Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0CKRDJC26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Pack Of 2 Decorative Linen Solid Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKRDJC26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Pack of 2, Decorative Linen Soild Throw Pillow Covers Soft Accent Cushion Case Boho Farmhouse Neutral Pillowcase for Couch Sofa Bedroom Living Room Home Decor 20 x 20 Inch Natural Beige" src="https://m.media-amazon.com/images/I/41BlCWzUj2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKRDJC26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Pack of 2, Decorative Linen Soild Throw Pillow Covers Soft Accent Cushion Case Boho Farmhouse Neutral Pillowcase for Couch Sofa Bedroom Living Room Home Decor 20 x 20 Inch Natural Beige" src="https://m.media-amazon.com/images/I/41BlCWzUj2L._SL500_.jpg"/></a>
 
 
 Ideal for those seeking to elevate their home decor with a subtle yet stylish touch, the **Foindtower Pack of 2 Decorative Linen Solid Throw Pillow Covers** is perfect for individuals who appreciate **boho farmhouse** aesthetics and desire a cozy, neutral accent for their **couch, sofa, bedroom, or living room**. If you want to refresh your living space with soft, versatile cushion cases that blend seamlessly with various interior styles, this product is an excellent choice.
@@ -152,10 +152,10 @@ The **Foindtower Decorative Linen Throw Pillow Covers** boast a beautifully unde
 
 Designed with practicality in mind, these pillow covers are ideal for regular use on couches, sofas, and bedroom chairs. The **20 x 20 inch dimensions** suit most standard pillows, allowing for easy replacement or updating of your living space's look. Additionally, the ease of cleaning and maintaining these covers ensures that your home remains fresh and inviting without requiring much effort.
 
-## <a href="https://www.amazon.com/dp/B0C783V5NX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zwjd Rust Throw Pillow Covers 18x18 Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0C783V5NX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zwjd Rust Throw Pillow Covers 18x18 Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0C783V5NX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZWJD Rust Throw Pillow Covers 18x18 Set of 2 Chenille Fall Pillow Covers with Elegant Design Soft and Luxurious Decorative Throw Pillows for Couch, Bed, and Home Decor" src="https://m.media-amazon.com/images/I/41zfpY3putL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C783V5NX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ZWJD Rust Throw Pillow Covers 18x18 Set of 2 Chenille Fall Pillow Covers with Elegant Design Soft and Luxurious Decorative Throw Pillows for Couch, Bed, and Home Decor" src="https://m.media-amazon.com/images/I/41zfpY3putL._SL500_.jpg"/></a>
 
 
 The **ZWJD Rust Throw Pillow Covers 18x18 Set of 2** are perfect for individuals looking to enhance their home decor with a touch of elegance and warmth. Ideal for homeowners, interior decorators, or anyone wanting to add a cozy yet sophisticated look to their **couch, bed, or living space**, these pillow covers suit those who appreciate quality materials combined with stylish design.
@@ -177,10 +177,10 @@ Crafted by **ZWJD**, these throw pillow covers feature a luxurious chenille fabr
 
 The set of two pillow covers allows users to decorate multiple spaces or create a balanced aesthetic in a single area. Their high-quality material and design not only elevate the visual appeal but also provide a comfortable and cozy experience for lounging or resting. These covers are a practical and stylish choice for anyone who values both function and fashion in home accessories.
 
-## <a href="https://www.amazon.com/dp/B0C6JWXWXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Set Of 2 Decorative Linen Fringe Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B0C6JWXWXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foindtower Set Of 2 Decorative Linen Fringe Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6JWXWXP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Set of 2 Decorative Linen Fringe Throw Pillow Covers Cozy Boho Farmhouse Cushion Cover with Tassels Soft Accent Pillowcase for Couch Chair Sofa Bed Living Room Home Decor,18×18 Inch,Beige" src="https://m.media-amazon.com/images/I/61NWLCZUvDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6JWXWXP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foindtower Set of 2 Decorative Linen Fringe Throw Pillow Covers Cozy Boho Farmhouse Cushion Cover with Tassels Soft Accent Pillowcase for Couch Chair Sofa Bed Living Room Home Decor,18×18 Inch,Beige" src="https://m.media-amazon.com/images/I/61NWLCZUvDL._SL500_.jpg"/></a>
 
 
 The **Foindtower Set of 2 Decorative Linen Fringe Throw Pillow Covers** is ideal for those looking to enhance their living spaces with a cozy, boho farmhouse vibe. Perfect for homeowners, renters, or interior design enthusiasts who want to add a soft, stylish accent to their couch, chair, sofa, or bed, these cushion covers offer an easy and affordable way to refresh any room’s decor. If you appreciate natural tones and textured details, this set is designed for you.
@@ -202,10 +202,10 @@ Crafted by **Foindtower**, these pillow covers combine both function and aesthet
 
 The generous **18×18 inch dimensions** make them a practical choice for standard throw pillows, enhancing comfort and style simultaneously. Additionally, the covers are designed for easy maintenance, allowing users to keep their living space looking fresh with minimal effort. Whether used to update your home decor seasonally or to create a warm, inviting environment year-round, the Foindtower linen fringe pillow covers offer both beauty and convenience for any home.
 
-## <a href="https://www.amazon.com/dp/B08H4GVN9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miulee Set Of 2 Decorative Throw Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B08H4GVN9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Miulee Set Of 2 Decorative Throw Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B08H4GVN9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MIULEE Set of 2 Decorative Throw Pillow Covers Rhombic Jacquard Pillowcase Fall Soft Square Cushion Case for Couch Sofa Bed Bedroom Car Living Room 18x18 Inch Yellow" src="https://m.media-amazon.com/images/I/51SbomEc8ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08H4GVN9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MIULEE Set of 2 Decorative Throw Pillow Covers Rhombic Jacquard Pillowcase Fall Soft Square Cushion Case for Couch Sofa Bed Bedroom Car Living Room 18x18 Inch Yellow" src="https://m.media-amazon.com/images/I/51SbomEc8ML._SL500_.jpg"/></a>
 
 
 The **MIULEE Set of 2 Decorative Throw Pillow Covers** in vibrant **yellow** is perfect for individuals looking to add a splash of color and style to their living space. Ideal customers include homeowners, renters, or anyone wanting to refresh their **couch**, **sofa**, **bedroom**, or even **car interiors** with easy-to-change cushion covers that combine aesthetic appeal with comfort. If you appreciate subtle yet elegant home décor accents that fit seamlessly into a variety of settings, this set is designed for you.
@@ -227,10 +227,10 @@ The **MIULEE decorative throw pillow covers** feature a refined **Rhombic Jacqua
 
 Beyond aesthetics, the pillow covers are crafted with practicality in mind. Their fabric composition allows for easy cleaning, making maintenance effortless and ideal for busy households. Whether placed on a **sofa** in the living room, a **bed** in the bedroom, or even in the **car**, these covers provide both style and comfort. The inclusion of two covers in the set offers value and the opportunity to coordinate your décor effortlessly.
 
-## <a href="https://www.amazon.com/dp/B07X21H975?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Sweet Home Quotes Farmhouse Pillow Covers</a>
+## <a href="https://www.amazon.com/dp/B07X21H975?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Home Sweet Home Quotes Farmhouse Pillow Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B07X21H975?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MFGNEH Home Sweet Home Quotes Farmhouse Pillow Covers 12x20 Inch,Farmhouse Decorative Lumbar Throw Pillow Case Cushion Cover,Housewarming Gift" src="https://m.media-amazon.com/images/I/41+Bk5NBoBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X21H975?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MFGNEH Home Sweet Home Quotes Farmhouse Pillow Covers 12x20 Inch,Farmhouse Decorative Lumbar Throw Pillow Case Cushion Cover,Housewarming Gift" src="https://m.media-amazon.com/images/I/41+Bk5NBoBL._SL500_.jpg"/></a>
 
 
 The **MFGNEH Home Sweet Home Quotes Farmhouse Pillow Covers 12x20 Inch** are ideal for homeowners and interior design enthusiasts looking to add a cozy, rustic charm to their living spaces. Perfect for those who appreciate farmhouse-style decor, these **decorative lumbar throw pillow cases** serve as a thoughtful **housewarming gift** for friends or family moving into a new home. If you want to enhance your sofa, bed, or favorite chair with a warm, inviting touch, this cushion cover is a great choice.
@@ -252,10 +252,10 @@ The **MFGNEH Home Sweet Home Quotes Farmhouse Pillow Covers** feature a beautifu
 
 Aside from their aesthetic appeal, these pillow covers are also practical. They are easy to slip on and off, making cleaning and maintenance hassle-free. Whether you want to refresh your living room, bedroom, or even an outdoor seating area, these covers offer a simple and effective way to enhance your space. Additionally, their thoughtful design makes them a wonderful **housewarming gift**, helping loved ones create a welcoming home environment.
 
-## <a href="https://www.amazon.com/dp/B0CGZML2PH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decoruhome Throw Pillow Covers 18x18 Inch Set Of 2</a>
+## <a href="https://www.amazon.com/dp/B0CGZML2PH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Decoruhome Throw Pillow Covers 18x18 Inch Set Of 2</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGZML2PH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="decorUhome Throw Pillow Covers 18x18 Inch Set of 2, Soft Plush Faux Fur Wool Beige Couch Pillow Covers, Decorative Neutral Pillow Cases for Bed Sofa Living Room Home Decor" src="https://m.media-amazon.com/images/I/4196Cj0Ds6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGZML2PH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="decorUhome Throw Pillow Covers 18x18 Inch Set of 2, Soft Plush Faux Fur Wool Beige Couch Pillow Covers, Decorative Neutral Pillow Cases for Bed Sofa Living Room Home Decor" src="https://m.media-amazon.com/images/I/4196Cj0Ds6L._SL500_.jpg"/></a>
 
 
 The **decorUhome Throw Pillow Covers 18x18 Inch Set of 2** are perfect for individuals looking to enhance their living space with stylish yet comfortable decor. Ideal customers include homeowners, renters, or interior enthusiasts who want to add a touch of elegance and warmth to their **bedroom**, **sofa**, or **living room**. Those who appreciate soft textures and neutral tones will find these **soft plush faux fur wool beige pillow covers** a great addition to their home decor collection.

@@ -23,10 +23,10 @@ Machine washable rugs like OLANLY and CHAMPLANT offer convenience and softness. 
 
 
 
-## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olanly Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9GFYJBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLANLY Area Rugs for Living Room Bedroom, Machine Washable 4x5.9 ft Soft Fluffy Shaggy Bedside Rug, Indoor Floor Carpet for Kids Girls and Boys, Dorms, Nursery Rooms, Home Decor Aesthetic, Grey" src="https://m.media-amazon.com/images/I/61OoUav1rjL._SL500_.jpg"/></a>
 
 
 The **OLANLY Area Rugs for Living Room Bedroom** is ideal for anyone looking to enhance the comfort and aesthetic appeal of their indoor spaces. Perfect for **kids, girls and boys**, as well as dorm rooms, nursery rooms, and home decor enthusiasts, this rug offers a soft and cozy surface that complements various room styles. If you need a durable yet comfortable floor covering that is easy to maintain, this **machine washable shaggy rug** is an excellent choice.
@@ -48,10 +48,10 @@ The **OLANLY Area Rug** features a height of 1.5 inches, giving it a thick and p
 
 One of the standout features of this rug is its **machine washable** capability, which makes maintenance hassle-free. This is especially beneficial for families with children or pets, as spills and dirt can be cleaned easily without damaging the rug’s texture or appearance. Additionally, its lightweight design ensures that moving or repositioning the rug is simple and convenient, allowing users to refresh their room layouts effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hebe Hallway Runner Rug 2'x6'</a>
+## <a href="https://www.amazon.com/dp/B0B6HST5YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hebe Hallway Runner Rug 2'x6'</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6HST5YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEBE Hallway Runner Rug 2'x6' Washable Vintage Distressed Area Rugs Non Slip Laundry Rug Runner Boho Floor Carpet Runners for Hallways Entryway Laundry Room Kitchen Bathroom" src="https://m.media-amazon.com/images/I/51A+6mShfnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6HST5YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEBE Hallway Runner Rug 2'x6' Washable Vintage Distressed Area Rugs Non Slip Laundry Rug Runner Boho Floor Carpet Runners for Hallways Entryway Laundry Room Kitchen Bathroom" src="https://m.media-amazon.com/images/I/51A+6mShfnL._SL500_.jpg"/></a>
 
 
 The **HEBE Hallway Runner Rug 2'x6'** is an excellent choice for homeowners looking to add a touch of vintage charm and practical functionality to their hallways, entryways, kitchens, or laundry rooms. Ideal for those who appreciate a **boho style** with a distressed aesthetic, this rug is perfect for individuals seeking a durable, **non-slip**, and **washable** floor covering that combines style with convenience.
@@ -73,10 +73,10 @@ The **HEBE Hallway Runner Rug** features a durable construction with a low profi
 
 Additionally, the rug's **washable** feature provides significant benefits for busy households or those with pets and children, as it allows for easy maintenance and prolongs the rug’s lifespan. The lightweight nature of the rug, weighing only **3.65 pounds**, ensures that it can be easily moved or cleaned underneath, adding to its practicality. Overall, the HEBE Hallway Runner Rug is a stylish and functional addition to any home seeking both comfort and durability in a narrow floor covering.
 
-## <a href="https://www.amazon.com/dp/B0CNB93BLH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CNB93BLH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Champlant Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNB93BLH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT Area Rug 4x6 Washable Rug Gray Vintage Traditional Floor Cover Foldable Thin Retro Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51FuD7cuL9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNB93BLH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAMPLANT Area Rug 4x6 Washable Rug Gray Vintage Traditional Floor Cover Foldable Thin Retro Accent Indoor Distressed Non Slip Carpet Floral Print Mat Bedroom Living Room Bathroom" src="https://m.media-amazon.com/images/I/51FuD7cuL9L._SL500_.jpg"/></a>
 
 
 The **CHAMPLANT Area Rug 4x6** is an excellent choice for individuals seeking a stylish yet functional floor covering that complements vintage or traditional decor. Ideal for homeowners or renters who want a **washable**, **thin**, and **foldable** rug, this item suits spaces like bedrooms, living rooms, and bathrooms where easy maintenance and slip resistance are priorities. Those looking to add a subtle floral accent with a distressed, retro vibe will find this rug a perfect fit.
@@ -98,10 +98,10 @@ Featuring a **grey vintage traditional floral print**, the CHAMPLANT Area Rug br
 
 The rug's lightweight and **foldable** nature make it easy to move or store when not in use, giving users flexibility in decorating multiple rooms. With dimensions that suit smaller to medium-sized areas, this rug enhances the ambiance of bedrooms, living rooms, or even bathrooms by adding a subtle yet elegant touch of traditional style. Overall, it combines practicality with aesthetic appeal, catering to those who value both function and design in their home furnishings.
 
-## <a href="https://www.amazon.com/dp/B0852WLH7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Area Rugs For Living Room Bedroom</a>
+## <a href="https://www.amazon.com/dp/B0852WLH7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophanie Area Rugs For Living Room Bedroom</a>
 
 
-<a href="https://www.amazon.com/dp/B0852WLH7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Area Rugs for Living Room Bedroom, Upgrade Non-Slip Fluffy Soft Grey Shag Carpet, Indoor Floor Gray 4x6 Fuzzy Shaggy Living Room Plush Rug for Kids Home Dorm Decor Aesthetic" src="https://m.media-amazon.com/images/I/51t+YqCPudL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0852WLH7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ophanie Area Rugs for Living Room Bedroom, Upgrade Non-Slip Fluffy Soft Grey Shag Carpet, Indoor Floor Gray 4x6 Fuzzy Shaggy Living Room Plush Rug for Kids Home Dorm Decor Aesthetic" src="https://m.media-amazon.com/images/I/51t+YqCPudL._SL500_.jpg"/></a>
 
 
 The **Ophanie Area Rugs for Living Room Bedroom** are ideal for anyone looking to enhance the comfort and style of their indoor space. Perfect for families with kids, dorm residents, or anyone wanting a cozy, aesthetic upgrade to their home or apartment, this **non-slip fluffy soft grey shag carpet** adds both safety and plushness underfoot. If you want a rug that combines durability with a modern look, this piece is a great choice.
@@ -123,10 +123,10 @@ The **Ophanie Area Rug** features a soft, fluffy shag surface that provides a lu
 
 Additionally, this rug’s lightweight design allows for easy repositioning and cleaning, making it practical for busy households or dorm rooms where flexibility is key. The durable construction ensures long-lasting use, while its plush texture adds warmth and softness to hardwood, tile, or laminate floors. Overall, the Ophanie Area Rug balances comfort, safety, and style, making it a smart investment for enhancing any indoor space.
 
-## <a href="https://www.amazon.com/dp/B0CYT2LXHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soolmost Washable Area Rug 8x10</a>
+## <a href="https://www.amazon.com/dp/B0CYT2LXHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soolmost Washable Area Rug 8x10</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYT2LXHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soalmost Washable Area Rug 8x10, Large Soft Rugs for Living Room Vintage Beige Carpet 8x10 Area Rugs for Bedroom Dining Room Non-Slip Stain Resistant Under Table Rug" src="https://m.media-amazon.com/images/I/51JkdM+tuyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYT2LXHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soalmost Washable Area Rug 8x10, Large Soft Rugs for Living Room Vintage Beige Carpet 8x10 Area Rugs for Bedroom Dining Room Non-Slip Stain Resistant Under Table Rug" src="https://m.media-amazon.com/images/I/51JkdM+tuyL._SL500_.jpg"/></a>
 
 
 The **Soalmost Washable Area Rug 8x10** is ideal for homeowners or renters looking to add a blend of comfort and style to their living spaces. Perfect for those who want a large, soft, and durable rug that complements a vintage or neutral color scheme, this rug suits living rooms, bedrooms, dining rooms, or any area needing a warm, inviting touch. If you prioritize easy maintenance and stain resistance in your home decor, this rug is a great choice.
@@ -149,10 +149,10 @@ The **Soalmost Washable Area Rug 8x10** combines practicality with aesthetic app
 
 One of the standout features is its washable and stain-resistant fabric, providing an effortless way to maintain cleanliness, especially in high-traffic areas or homes with pets and children. The non-slip backing adds an essential safety aspect by preventing slips or trips, which is crucial in busy households. Overall, this rug offers a balanced combination of comfort, style, and functionality, making it a smart investment for anyone seeking a durable and attractive area rug.
 
-## <a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo 5x7 Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genimo 5x7 Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO 5X7 Area Rugs for Living Room, Machine Washable Non Slip Vintage Rugs, Low Pile Lightweight Chenille Print Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP3YS6JF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GENIMO 5X7 Area Rugs for Living Room, Machine Washable Non Slip Vintage Rugs, Low Pile Lightweight Chenille Print Rug for Bedroom, Dining Room, Home Office, Light Taupe Brown" src="https://m.media-amazon.com/images/I/51o85wVlBaL._SL500_.jpg"/></a>
 
 
 The **GENIMO 5X7 Area Rugs** are ideal for homeowners and renters looking to enhance their living spaces with a stylish yet practical floor covering. This rug is perfect for those who want a durable, easy-to-maintain option that complements various interior styles, especially in living rooms, bedrooms, dining rooms, or home offices. If you value both aesthetics and functionality, this lightweight, vintage-inspired rug is a great choice.
@@ -176,10 +176,10 @@ The **GENIMO 5X7 Area Rug** features a **low pile chenille texture** that not on
 
 Designed with safety in mind, the **non-slip backing** helps keep the rug securely in place on various floor types, reducing the risk of accidents. The versatile **taupe brown color** adds warmth and sophistication to any room while blending effortlessly with different furniture styles and color schemes. Its dimensions (60 by 84 inches) make it a perfect centerpiece for living areas or a cozy addition to bedrooms and dining rooms, enhancing both comfort and style.
 
-## <a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hebe Boho Kitchen Rug Sets 3 Piece</a>
+## <a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hebe Boho Kitchen Rug Sets 3 Piece</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEBE Boho Kitchen Rug Sets 3 Piece with Runner Non Slip Kitchen Rugs and Mats Washable Kitchen Mats for Floor Thick Kitchen Floor Mat Carpet Runner Rugs for Hallway Laundry Holiday Decor" src="https://m.media-amazon.com/images/I/61VM75cihiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGR2HG2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEBE Boho Kitchen Rug Sets 3 Piece with Runner Non Slip Kitchen Rugs and Mats Washable Kitchen Mats for Floor Thick Kitchen Floor Mat Carpet Runner Rugs for Hallway Laundry Holiday Decor" src="https://m.media-amazon.com/images/I/61VM75cihiL._SL500_.jpg"/></a>
 
 
 The **HEBE Boho Kitchen Rug Sets 3 Piece** is ideal for homeowners and renters looking to enhance their kitchen, hallway, or laundry area with stylish yet functional decor. If you want a set of **non-slip** and **washable kitchen rugs** that add comfort and safety while complementing a boho or natural aesthetic, this product is perfect for you.
@@ -202,10 +202,10 @@ The **HEBE Boho Kitchen Rug Sets** feature a thoughtfully designed size of appro
 
 Beyond practicality, the rugs offer a unique blend of style and comfort. The **boho design** with natural and grey tones provides a modern yet cozy look, enhancing your home’s decor without overwhelming it. The thickness, while modest, delivers sufficient cushioning to reduce fatigue during long cooking or cleaning sessions. Overall, this set combines aesthetics with functional benefits, making it a smart addition to any home looking to upgrade floor comfort and safety.
 
-## <a href="https://www.amazon.com/dp/B0CGR36YRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rugs</a>
+## <a href="https://www.amazon.com/dp/B0CGR36YRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rugsure Washable Area Rugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGR36YRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Green, 3' x 5 ')" src="https://m.media-amazon.com/images/I/51DSTn8qLWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGR36YRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RUGSURE Washable Area Rugs - Perfect for Living Room, Bedroom, Kids Room, Nursery - Stain &amp; Water Resistant Non-Slip, Pet &amp; Child Friendly, Vintage Tribal Area Rugs (Green, 3' x 5 ')" src="https://m.media-amazon.com/images/I/51DSTn8qLWL._SL500_.jpg"/></a>
 
 
 The **RUGSURE Washable Area Rugs** are ideal for homeowners and renters who want a stylish yet practical solution for their **living room**, **bedroom**, **kids room**, or **nursery**. If you are looking for a **durable**, **stain and water-resistant** rug that is also **pet and child friendly**, this vintage tribal design rug in **green** is perfect for you. Its non-slip feature makes it especially suitable for families with active children or pets.
@@ -228,10 +228,10 @@ The **RUGSURE Washable Area Rug** boasts a compact thickness of **0.25 inches**,
 
 One of the standout features is its **stain and water resistance**, which greatly benefits busy households where spills and accidents are common. The rug’s **non-slip backing** ensures it stays securely in place, providing peace of mind for families with children or pets running around. Additionally, it is **machine washable**, making maintenance simple and convenient, helping you keep your living areas fresh and hygienic effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0CQLP53LN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earthall Woven Area Rug</a>
+## <a href="https://www.amazon.com/dp/B0CQLP53LN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earthall Woven Area Rug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQLP53LN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARTHALL Woven Area Rug 3x5 Ft Washable Rugs for Entryway Braided Non Slip Rubber Backed Throw Rugs Door Mat Indoor Outdoor Entrance Cotton Carpet for Kitchen Foyer Front Door, Orange/Tan/Brown" src="https://m.media-amazon.com/images/I/51qtx4P0F6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQLP53LN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARTHALL Woven Area Rug 3x5 Ft Washable Rugs for Entryway Braided Non Slip Rubber Backed Throw Rugs Door Mat Indoor Outdoor Entrance Cotton Carpet for Kitchen Foyer Front Door, Orange/Tan/Brown" src="https://m.media-amazon.com/images/I/51qtx4P0F6L._SL500_.jpg"/></a>
 
 
 The **EARTHALL Woven Area Rug 3x5 Ft** is ideal for homeowners and renters looking to enhance their entryway or indoor spaces with a stylish, functional, and easy-to-maintain rug. This product is perfect for those who want a durable, washable, and non-slip rug that adds a pop of warm color with its **orange, tan, and brown** hues. If you need a versatile rug suitable for both indoor and outdoor use, especially for high-traffic areas like kitchens, foyers, or front doors, this rug is an excellent choice.
@@ -255,10 +255,10 @@ The **EARTHALL Woven Area Rug** features a braided cotton design that is not onl
 
 This rug is also designed with convenience in mind. Its **washable** nature allows users to easily clean dirt and stains, maintaining the rug's fresh appearance over time. Its **compact 3x5 ft size** makes it ideal for use in entryways, kitchens, or foyers where space may be limited but style and function remain a priority. The warm **orange, tan, and brown tones** add a welcoming touch to any home entrance, creating an inviting atmosphere for guests and residents alike.
 
-## <a href="https://www.amazon.com/dp/B0DYPJZ7QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Madane 8x10 Area Rugs For Living Room</a>
+## <a href="https://www.amazon.com/dp/B0DYPJZ7QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Madane 8x10 Area Rugs For Living Room</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYPJZ7QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Madane 8x10 Area Rugs for Living Room, Machine Washable Vintage Rug with Anti-Slip Backing, Soft Floral Print Large Rugs, Foldable Thin Area Rug for Bedroom Dining Room, Wood/Ivory" src="https://m.media-amazon.com/images/I/51nD95277OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYPJZ7QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Madane 8x10 Area Rugs for Living Room, Machine Washable Vintage Rug with Anti-Slip Backing, Soft Floral Print Large Rugs, Foldable Thin Area Rug for Bedroom Dining Room, Wood/Ivory" src="https://m.media-amazon.com/images/I/51nD95277OL._SL500_.jpg"/></a>
 
 
 The **Madane 8x10 Area Rugs for Living Room** is ideal for homeowners and renters who want to enhance their living spaces with a stylish yet practical floor covering. This rug is perfect for those looking for a **machine washable, vintage-style rug** that offers both aesthetic appeal and functionality, especially in high-traffic areas like living rooms, bedrooms, and dining rooms. If you value easy maintenance combined with elegant design, this area rug is a great choice.
